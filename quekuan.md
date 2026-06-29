@@ -1,53 +1,58 @@
-# 伊朗说正为保障霍尔木兹海峡和波斯湾安全制定计划
+# 蓝色起源火箭地面测试期间在发射台发生爆炸
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰4月7日电据伊朗伊斯兰共和国广播电视台7日报道，伊朗议会国家安全与外交政策委员会发言人易卜拉欣·雷扎伊当天在电视采访中表示，伊朗正在为保障霍尔木兹海峡和波斯湾安全制定计划及相关立法，并重申霍尔木兹海峡不会恢复到以前的状态。 雷扎伊还说，目前伊朗石油出口一切照常，石油产能甚至比以往更高，已采取必要
+核心要点 当地时间周四晚间，蓝色起源公司的新格伦火箭在佛罗里达州卡纳维拉尔角的美国太空军发射场开展热试车时发生爆炸。 这家由亚马逊创始人杰夫・贝索斯创立的企业，主打可回收火箭及航天发射业务，与埃隆・马斯克旗下的太空探索技术公司（SpaceX）形成竞争。热试车属于地面测试项目，测试时火箭固定在发射台上，同时启动发动机进行点火测试。 贝索斯在社交平台 X 上发文表示，爆炸事故中所有
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+核心要点 当地时间周四晚间，蓝色起源公司的新格伦火箭在佛罗里达州卡纳维拉尔角的美国太空军发射场开展热试车时发生爆炸。
 
-新华社德黑兰4月7日电据伊朗伊斯兰共和国广播电视台7日报道，伊朗议会国家安全与外交政策委员会发言人易卜拉欣·雷扎伊当天在电视采访中表示，伊朗正在为保障霍尔木兹海峡和波斯湾安全制定计划及相关立法，并重申霍尔木兹海峡不会恢复到以前的状态。
+这家由亚马逊创始人杰夫・贝索斯创立的企业，主打可回收火箭及航天发射业务，与埃隆・马斯克旗下的太空探索技术公司（SpaceX）形成竞争。
 
-雷扎伊还说，目前伊朗石油出口一切照常，石油产能甚至比以往更高，已采取必要措施保障哈尔克岛的安全。
+热试车属于地面测试项目，测试时火箭固定在发射台上，同时启动发动机进行点火测试。
 
-哈尔克岛位于波斯湾西北部，距离伊朗海岸大约25公里，长约6公里、宽约3公里，是伊朗最大原油出口基地，伊朗90%的原油都从这里出口。
+贝索斯在社交平台 X 上发文表示，爆炸事故中所有工作人员均安然无恙。
 
-（完）责任编辑：宋雅芳
+“全体人员均已确认安全。
+
+目前事故根源尚无法确定，但我们已着手展开调查。
+
+今天遭遇重大挫折，不过我们会完成所有必要的修复工作，重新恢复发射任务。
+
+一切付出都值得。
 
 ## 相关推荐
 
-- 2026-06-29 18:05 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 18:27 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 18:11 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 18:15 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 18:05 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 18:11 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 18:12 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 18:06 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 18:11 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 18:11 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 18:10 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 18:00 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 18:00 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 18:21 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 18:16 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 18:15 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 18:10 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 18:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 18:24 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 18:07 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 18:33 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 18:17 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 18:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 18:13 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 18:19 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:27 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/1845395997.shtml)
-- 2026-06-29 18:27 - [娜扎搂着我的腰和我合照](http://www.blog.kurohicncr.top/Article/details/900391917292.shtml)
-- 2026-06-29 18:00 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/69935095834.shtml)
-- 2026-06-29 18:28 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/3957126021.shtml)
-- 2026-06-29 18:20 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/0749165712.shtml)
-- 2026-06-29 18:11 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/8597431.shtml)
-- 2026-06-29 18:09 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/25069396773.shtml)
-- 2026-06-29 18:15 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/44143437943.shtml)
-- 2026-06-29 18:21 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/9720527.shtml)
-- 2026-06-29 18:18 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/361617.shtml)
-- 2026-06-29 18:21 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/573248057.shtml)
-- 2026-06-29 18:28 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/475109615.shtml)
-- 2026-06-29 18:05 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/8606643.shtml)
-- 2026-06-29 18:07 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/62003.shtml)
-- 2026-06-29 18:15 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/14619100368.shtml)
+- 2026-06-29 18:13 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/4573014100.shtml)
+- 2026-06-29 18:19 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/8877718.shtml)
+- 2026-06-29 18:29 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/94486672411.shtml)
+- 2026-06-29 18:19 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/71026.shtml)
+- 2026-06-29 18:12 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/219751.shtml)
+- 2026-06-29 18:10 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/8227942312.shtml)
+- 2026-06-29 18:12 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/1754226.shtml)
+- 2026-06-29 18:18 - [医药生物行业今日涨5.91%](https://www.share.minike.top/Article/details/14016302843.shtml)
+- 2026-06-29 18:07 - [叠纸](https://www.blog.kurohicncr.top/Article/details/81053303.shtml)
+- 2026-06-29 18:21 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/159698082.shtml)
+- 2026-06-29 18:07 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/698892.shtml)
+- 2026-06-29 18:08 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/95364581.shtml)
+- 2026-06-29 18:25 - [学者：建设性战略稳定重塑中美关系](http://www.blog.minike.top/Article/details/390197.shtml)
+- 2026-06-29 18:08 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/993322286.shtml)
+- 2026-06-29 18:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/79595292.shtml)

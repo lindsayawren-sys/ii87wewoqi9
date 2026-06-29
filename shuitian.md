@@ -1,59 +1,56 @@
-# 长护险落地，服务供给如何跟上
+# 华泰期货：安监停产供给收缩，双焦价格震荡运行
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-近日，《关于加快建立长期护理保险制度的意见》（以下简称《意见》）印发。《意见》明确，用3年左右时间，基本建立适应我国基本国情的长期护理保险制度。 2016年国家启动长期护理保险制度试点，2020年试点工作稳妥有序扩大至49个城市，再到2025年底的92个城市。试点城市的探索，为在全国范围内推广提供了宝贵经验。 长护险服务机构资源能否满足需求？能力怎么样？服务质量如何？记者赴试点
+来源：华泰期货 作者： 刘国梁 市场分析 截止本周五收盘，焦炭主力合约收 1903 元/吨，周环比 +9.94%。焦煤主力合约收 1285.5 元/吨，周环比 +10.58%。 供给方面：本周Mysteel统计独立焦企全样本：产能利用率为75.99%，减0.86%；Mysteel煤焦事业部调研全国30家独立焦化厂平均吨焦盈利66元/吨，焦企盈利能力尚可，开工有所缩减。供应端受山
 
 ## 正文
 
-近日，《关于加快建立长期护理保险制度的意见》（以下简称《意见》）印发。
+来源：华泰期货 作者： 刘国梁 市场分析 截止本周五收盘，焦炭主力合约收 1903 元/吨，周环比 +9.94%。
 
-《意见》明确，用3年左右时间，基本建立适应我国基本国情的长期护理保险制度。
+焦煤主力合约收 1285.5 元/吨，周环比 +10.58%。
 
-2016年国家启动长期护理保险制度试点，2020年试点工作稳妥有序扩大至49个城市，再到2025年底的92个城市。
+供给方面：本周Mysteel统计独立焦企全样本：产能利用率为75.99%，减0.86%；Mysteel煤焦事业部调研全国30家独立焦化厂平均吨焦盈利66元/吨，焦企盈利能力尚可，开工有所缩减。
 
-试点城市的探索，为在全国范围内推广提供了宝贵经验。
+供应端受山西煤矿安监升级影响，炼焦煤供应收紧、价格快速抬升，焦化厂原料成本压力陡增，部分焦企受煤源紧张有小幅减产现象。
 
-长护险服务机构资源能否满足需求？
+需求方面：Mysteel调研247家钢厂高炉开工率84.14%，环比上周持平，同比去年增加0.27个百分点；日均铁水产量241万吨，环比上周增加0.19万吨，刚需进一步走强，叠加上游焦炭供应有收紧预期，部分钢厂拿货节奏有所加快。
 
-能力怎么样？
+短期内对原料采购仍将存在刚性需求。
 
-服务质量如何？
+下游方面，钢厂高炉开工高位，铁水产量小幅走高。
 
-记者赴试点城市山东青岛、江苏南通调研，寻找答案。
+库存方面：247家钢厂样本焦炭库存为704.21万吨，较前一周增加10.25万吨，焦炭可用天数为12.95天，环比增0.18天。
 
 ## 相关推荐
 
-- 2026-06-29 18:04 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 18:16 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 18:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 18:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 18:16 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 18:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 18:24 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 18:28 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 18:15 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 18:28 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 18:22 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 18:23 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 18:13 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 18:32 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 18:35 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 18:24 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 18:13 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 18:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 18:08 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 18:06 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 18:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 18:20 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 18:11 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:25 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/22220009909.shtml)
-- 2026-06-29 18:01 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/3507228.shtml)
-- 2026-06-29 18:04 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/851785.shtml)
-- 2026-06-29 18:14 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/07071748703.shtml)
-- 2026-06-29 18:02 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/64480395.shtml)
-- 2026-06-29 18:09 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/40221062746.shtml)
-- 2026-06-29 18:01 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/27348.shtml)
-- 2026-06-29 18:20 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/102725673401.shtml)
-- 2026-06-29 18:17 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/39913.shtml)
-- 2026-06-29 18:17 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/0854584446.shtml)
-- 2026-06-29 18:04 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/64434458881.shtml)
-- 2026-06-29 18:07 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/24985281823.shtml)
-- 2026-06-29 18:08 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/902861214242.shtml)
-- 2026-06-29 18:15 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/1727685848.shtml)
-- 2026-06-29 18:24 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/08023221.shtml)
+- 2026-06-29 18:15 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/03434696889.shtml)
+- 2026-06-29 18:08 - [一见倾心](http://www.share.minike.top/Article/details/870249188703.shtml)
+- 2026-06-29 18:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/42606.shtml)
+- 2026-06-29 18:08 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/8989275992.shtml)
+- 2026-06-29 18:08 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/454596273.shtml)
+- 2026-06-29 18:27 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/262298.shtml)
+- 2026-06-29 18:18 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/40494258.shtml)
+- 2026-06-29 18:27 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/4164876.shtml)
+- 2026-06-29 18:15 - [央视曝光涉黄App诈骗陷阱](http://www.blog.minike.top/Article/details/047547.shtml)
+- 2026-06-29 18:35 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/137368974.shtml)
+- 2026-06-29 18:06 - [花万元相亲对象是50元雇的演员](https://www.blog.kurohicncr.top/Article/details/465552.shtml)
+- 2026-06-29 18:17 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/8428263692.shtml)
+- 2026-06-29 18:31 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.minike.top/Article/details/8393425156.shtml)
+- 2026-06-29 18:28 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/2197672315.shtml)
+- 2026-06-29 18:13 - [日本偶像龟梨和也宣布结婚](http://www.share.kurohicncr.top/Article/details/549131768.shtml)

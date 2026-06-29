@@ -1,58 +1,57 @@
-# 铁路清明假期运输今日启动，预计5天发送旅客9050万人次
+# 用时仅23个工作日，这类再融资项目跑出加速度！
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新网北京4月3日电(记者 李京统)记者从中国国家铁路集团有限公司(下称“国铁集团”)获悉，为期5天的铁路清明假期运输今日启动，自4月3日至4月7日，全国铁路预计发送旅客9050万人次，日均发送旅客1810万人次，4月4日为客流最高峰日，预计发送旅客2120万人次。 国铁集团客运部负责人介绍，从铁路12306车票预售情况看，热门出发城市主要有北京、广州、上海、成都、杭州、武汉、
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月29日，沪市主板公司中科曙光可转债再融资项目提交注册，这是沪市主板首单适用“轻资产、高研发投入”的落地项目。 同日，科创板公司特宝生物的可转债再融资项目也提交注册。据悉，两家公司向不特定对象发行可转债项目从4月24日受理至5月29日提交注册，用时仅23个工作日。 中科曙光可转债项目也是首单沪市主板再融资“轻资产、高研发投入”
 
 ## 正文
 
-中新网北京4月3日电(记者 李京统)记者从中国国家铁路集团有限公司(下称“国铁集团”)获悉，为期5天的铁路清明假期运输今日启动，自4月3日至4月7日，全国铁路预计发送旅客9050万人次，日均发送旅客1810万人次，4月4日为客流最高峰日，预计发送旅客2120万人次。
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月29日，沪市主板公司中科曙光可转债再融资项目提交注册，这是沪市主板首单适用“轻资产、高研发投入”的落地项目。
 
-国铁集团客运部负责人介绍，从铁路12306车票预售情况看，热门出发城市主要有北京、广州、上海、成都、杭州、武汉、南京、深圳、西安、郑州；热门到达城市主要有北京、广州、上海、成都、杭州、南京、深圳、武汉、郑州、西安；西安至成都、南宁往返广州、北京至南京、北京至上海、长沙往返武汉、北京至郑州等热门区间客流相对集中。
+同日，科创板公司特宝生物的可转债再融资项目也提交注册。
 
-该负责人介绍，国铁集团将动态分析铁路12306大数据，密切跟踪假日客流运行情况，通过增开临时旅客列车、动车组重联运行、普速旅客列车加挂车厢等措施，及时增加热门方向和时段运力投放。
+据悉，两家公司向不特定对象发行可转债项目从4月24日受理至5月29日提交注册，用时仅23个工作日。
 
-为应对突发客流，在主要铁路枢纽安排一定数量的热备动车组列车、普速旅客列车和乘务人员，随时准备上线运行。
+中科曙光可转债项目也是首单沪市主板再融资“轻资产、高研发投入”落地项目。
 
-此外，为适应旅客清明假期旅游、踏青、赏花、祭祖等需求，国铁集团在热门旅游城市间安排开行各具特色的旅游列车和主题列车。
+公开资料显示，中科曙光成立于2006年3月，2014年11月在上交所主板上市，是国内高端计算领域和算力基础设施解决方案的领军企业，主营业务为高端计算机、存储、安全、数据中心产品的研发及制造。
 
-如，沈阳局集团公司在京哈、沈白高铁开行红色主题列车，方便旅客前往辽沈战役纪念馆、杨靖宇烈士陵园等地探访红色印记、缅怀革命先烈。
+根据募集说明书，公司“轻资产、高研发投入”特质突出，截至2025年末，公司实物资产占比仅11.85%，2023年至2025年平均研发投入占营业收入比例为12.56%，且最近三年累计研发投入合计53.34亿元，符合沪市主板“轻资产、高研发投入”认定标准。
 
-郑州局集团公司开行郑州东至洛阳龙门赏花列车，为旅客前往洛阳观赏牡丹提供便利。
+本次发行可转债拟募集资金80亿元，将用于“面向人工智能的先进算力集群系统项目”“下一代高性能AI训推一体机项目”和“国产化先进存储系统项目”等项目，是响应国家战略部署、打造智能算力技术体系护城河的重要举措，通过本次募投项目实施，可以使先进算力集群系统整体技术水平与国际主流产品对齐，提升产业链的自主可控能力，推动人工智能与实体经济加速融合。
 
-成都局集团公司开行“熊猫专列·安逸号”和“锦绣山河·岷江号”旅游列车，串联九寨沟、峨眉山、乐山大佛、都江堰等著名景点。
+2025年，中科曙光营业收入同比增长13.81%，扣非归母净利润同比增长33.97%；2026年第一季度，公司业绩进一步增长，营业收入同比增长23.71%，扣非归母净利润同比增长53.30%。
 
 ## 相关推荐
 
-- 2026-06-29 18:01 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 18:28 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 18:07 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 18:20 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 18:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 18:11 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 18:01 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 18:15 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 18:18 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 18:05 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 18:01 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 18:21 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 18:32 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 18:08 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 18:20 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 18:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 18:25 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 18:19 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 18:21 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 18:27 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 18:28 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 18:33 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 18:31 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:12 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/753788764.shtml)
-- 2026-06-29 18:05 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/16181817.shtml)
-- 2026-06-29 18:10 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/55401840.shtml)
-- 2026-06-29 18:06 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/26764817.shtml)
-- 2026-06-29 18:22 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/2155409453.shtml)
-- 2026-06-29 18:11 - [起风了](https://www.share.kurohicncr.top/Article/details/148608570.shtml)
-- 2026-06-29 18:24 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/3721223.shtml)
-- 2026-06-29 18:11 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/4864437.shtml)
-- 2026-06-29 18:17 - [小娘惹](http://www.share.kurohicncr.top/Article/details/5220943895.shtml)
-- 2026-06-29 18:22 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/423401761152.shtml)
-- 2026-06-29 18:10 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/6079193883.shtml)
-- 2026-06-29 18:09 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/491084581234.shtml)
-- 2026-06-29 18:03 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/305186461157.shtml)
-- 2026-06-29 18:02 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/6565108.shtml)
-- 2026-06-29 18:11 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/753476.shtml)
+- 2026-06-29 18:18 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/369097788.shtml)
+- 2026-06-29 18:25 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/0022098717.shtml)
+- 2026-06-29 18:20 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/442353913.shtml)
+- 2026-06-29 18:31 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/11318171732.shtml)
+- 2026-06-29 18:06 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/73654072660.shtml)
+- 2026-06-29 18:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/64073295.shtml)
+- 2026-06-29 18:22 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/384926363960.shtml)
+- 2026-06-29 18:27 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/660484.shtml)
+- 2026-06-29 18:31 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/78942.shtml)
+- 2026-06-29 18:25 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/157878125428.shtml)
+- 2026-06-29 18:08 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/2874716.shtml)
+- 2026-06-29 18:34 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/947610.shtml)
+- 2026-06-29 18:10 - [税务总局披露5起合规申报个税案例](https://www.blog.kurohicncr.top/Article/details/913128.shtml)
+- 2026-06-29 18:08 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/048450.shtml)
+- 2026-06-29 18:24 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/384109310.shtml)

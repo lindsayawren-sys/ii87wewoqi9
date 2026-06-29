@@ -1,50 +1,57 @@
-# 零跑汽车获董事长朱江明及股东傅利泉增持合共508.02万股H股
+# 中国—中东欧媒体圆桌会：敦煌论道话互通
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-零跑汽车（09863）发布公告，基于对公司未来发展的强烈信心，为促进公司持续、稳定、健康发展，维护广大公众投资者利益，于近期公司股东、董事长兼首席执行官朱江明先生及公司股东傅利泉先生于市场内合共购入508.02万股公司H股（本次增持），平均价格为每股股份约45.10港币，合共增持金额约2.3亿元港币。紧随本次增持后，于本公告日期，朱江明先生及傅利泉先生及所属的公司单一最大股东集
+中新网甘肃敦煌5月30日电 (戴文昌 王牧雨)2026中国—中东欧国家媒体圆桌会29日在甘肃酒泉市敦煌市举办，中外媒体从业者、学界专家齐聚千年丝路重镇，以“凝聚新闻媒体力量 共促文明交流互鉴”为主题，共探新时代跨国媒体合作与文明对话新路径，助力中国与中东欧国家民心相通、文明共生。 敦煌是古丝绸之路的核心枢纽，素有“华戎所交一都会”美誉。国学大师季羡林曾评价，全球四大古老文明体系
 
 ## 正文
 
-零跑汽车（09863）发布公告，基于对公司未来发展的强烈信心，为促进公司持续、稳定、健康发展，维护广大公众投资者利益，于近期公司股东、董事长兼首席执行官朱江明先生及公司股东傅利泉先生于市场内合共购入508.02万股公司H股（本次增持），平均价格为每股股份约45.10港币，合共增持金额约2.3亿元港币。
+中新网甘肃敦煌5月30日电 (戴文昌 王牧雨)2026中国—中东欧国家媒体圆桌会29日在甘肃酒泉市敦煌市举办，中外媒体从业者、学界专家齐聚千年丝路重镇，以“凝聚新闻媒体力量 共促文明交流互鉴”为主题，共探新时代跨国媒体合作与文明对话新路径，助力中国与中东欧国家民心相通、文明共生。
 
-紧随本次增持后，于本公告日期，朱江明先生及傅利泉先生及所属的公司单一最大股东集团合共持有公司2.11亿股H股及1.29亿股内资股，占公司已发行总股数的23.89%。
+敦煌是古丝绸之路的核心枢纽，素有“华戎所交一都会”美誉。
 
-朱江明先生及傅利泉先生确认，本次增持符合相关法律法规以及《香港联合交易所有限公司证券上市规则》相关要求。
+国学大师季羡林曾评价，全球四大古老文明体系唯一汇流之地，便是敦煌与新疆地区。
 
-责任编辑：卢昱君
+敦煌研究院敦煌文献研究所副所长王东说，多种文明在此碰撞共生，留存下大量文明交融的珍贵遗存。
+
+敦煌留存多语种文献、石窟壁画、石刻遗存，全方位印证了古代东西方文明深度交融。
+
+王东说，从回鹘文木活字西传赋能亚欧印刷发展，到莫高窟多文字碑刻、多国人物壁画，敦煌文化从来不是单一的地域文化，而是世界多元文明兼容共生的鲜活载体。
+
+王东说，敦煌文化兼具包容性与创新性，区别于各类单一地域文化，是精英文化与平民文化、中华文化与世界文明的融合体，其多元共生的特质，契合当下人类文明交流发展的主流趋势，能够为中外文明共生发展提供重要支撑。
+
+针对当下国际传播现状，兰州大学新闻与传播学院原国际传播研究所所长许小平结合本次圆桌会议主题，分享了自己的思考。
 
 ## 相关推荐
 
-- 2026-06-29 18:21 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 18:08 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 18:24 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 18:26 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 18:27 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 18:15 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 18:26 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 18:02 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 18:29 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 18:03 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 18:01 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 18:16 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 18:17 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 18:30 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 18:12 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 18:23 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 18:30 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 18:13 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 18:10 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 18:28 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 18:25 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 18:33 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 18:11 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:19 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/2602669.shtml)
-- 2026-06-29 18:00 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/627840.shtml)
-- 2026-06-29 18:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/00787.shtml)
-- 2026-06-29 18:25 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/008353180.shtml)
-- 2026-06-29 18:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/62339.shtml)
-- 2026-06-29 18:14 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/0248829967.shtml)
-- 2026-06-29 18:24 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/6292712.shtml)
-- 2026-06-29 18:18 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/02899.shtml)
-- 2026-06-29 18:09 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/72898.shtml)
-- 2026-06-29 18:10 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/159220.shtml)
-- 2026-06-29 18:23 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/3395263270.shtml)
-- 2026-06-29 18:02 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/554028007.shtml)
-- 2026-06-29 18:08 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.minike.top/Article/details/05026206162.shtml)
-- 2026-06-29 18:14 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/783744057845.shtml)
-- 2026-06-29 18:27 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/033751575.shtml)
+- 2026-06-29 18:26 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/005803211558.shtml)
+- 2026-06-29 18:29 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/717731361.shtml)
+- 2026-06-29 18:26 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/5824658761.shtml)
+- 2026-06-29 18:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/8241789234.shtml)
+- 2026-06-29 18:12 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/51555.shtml)
+- 2026-06-29 18:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/92877.shtml)
+- 2026-06-29 18:33 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/811995.shtml)
+- 2026-06-29 18:24 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/5316410.shtml)
+- 2026-06-29 18:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/50721360.shtml)
+- 2026-06-29 18:24 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/56172.shtml)
+- 2026-06-29 18:08 - [金牌调解](https://www.share.kurohicncr.top/Article/details/79071668.shtml)
+- 2026-06-29 18:12 - [看大国重器“云端穿针引线”](http://www.share.kurohicncr.top/Article/details/52908008730.shtml)
+- 2026-06-29 18:31 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/25463862848.shtml)
+- 2026-06-29 18:20 - [医药生物行业今日涨5.91%](https://www.blog.kurohicncr.top/Article/details/343527269316.shtml)
+- 2026-06-29 18:08 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/58743.shtml)

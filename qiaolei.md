@@ -1,59 +1,56 @@
-# 美国副总统万斯将率团赴巴基斯坦 与伊朗磋商长期和平协议
+# 南开大学通报论文数据存疑问题情况
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-白宫宣布，美国副总统万斯将于本周晚些时候率团前往巴基斯坦，就与伊朗达成持久和平协议举行会谈。 白宫新闻秘书莱维特周三表示，特使史蒂夫·威特科夫以及总统唐纳德·特朗普的女婿贾里德·库什纳也将参与谈判，并称会谈将于当地时间周六上午在伊斯兰堡开始。 “我们期待这些面对面的会晤，”莱维特表示，称万斯将“领导这一新阶段的谈判”。 谈判的消息发布于美伊宣布为期两周停火的次日。这场战争已造成
+情况通报 针对我校教师陈某相关论文数据存疑的问题，学校第一时间成立由校内外专家组成的调查组，严肃认真开展深入核查，对涉及的学术问题进行评议，有关情况通报如下。 受质疑论文“Targeted activation of ferroptosis in colorectal cancer via LGR4 targeting overcomes acquired drug resis
 
 ## 正文
 
-白宫宣布，美国副总统万斯将于本周晚些时候率团前往巴基斯坦，就与伊朗达成持久和平协议举行会谈。
+情况通报 针对我校教师陈某相关论文数据存疑的问题，学校第一时间成立由校内外专家组成的调查组，严肃认真开展深入核查，对涉及的学术问题进行评议，有关情况通报如下。
 
-白宫新闻秘书莱维特周三表示，特使史蒂夫·威特科夫以及总统唐纳德·特朗普的女婿贾里德·库什纳也将参与谈判，并称会谈将于当地时间周六上午在伊斯兰堡开始。
+受质疑论文“Targeted activation of ferroptosis in colorectal cancer via LGR4 targeting overcomes acquired drug resistance”，2024年4月在《Nature Cancer》期刊正式发表。
 
-“我们期待这些面对面的会晤，”莱维特表示，称万斯将“领导这一新阶段的谈判”。
+论文第一作者郑某，为我校生命科学学院在站博士后。
 
-谈判的消息发布于美伊宣布为期两周停火的次日。
+通讯作者陈某，为我校生命科学学院教授、院长。
 
-这场战争已造成数千人死亡，并引发全球能源危机。
+通讯作者胡某，为我校统计与数据科学学院教授。
 
-此次停火旨在为达成更广泛协议争取时间，但以色列持续对黎巴嫩发动打击，而伊朗显然拒绝完全开放霍尔木兹海峡，这都对停火构成考验。
+调查组通过查验实验数据、访谈相关人员等，确认该论文被质疑的14张图表所涉实验数据处理由郑某完成。
 
-据知情官员透露，德国总理默茨周三与特朗普讨论了伊朗停火问题，以及如何协调推进下一步以实现长期和平协议。
+其中，11张图表的部分数据处理未进行准确量化，而是由估算完成；2张图片为数据重复使用；1张图片为数据粘贴错误；上述情况存在学术不端行为。
 
-这些知情人士称，默茨在通话中向特朗普表示，需要付出更多外交努力才能找到解决冲突的持久方案。
+陈某、胡某对实验数据和论文质量存在不同程度的失察失管，未尽到通讯作者对论文数据真实性的应尽责任。
 
 ## 相关推荐
 
-- 2026-06-29 18:02 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 18:02 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 18:02 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 18:11 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 18:22 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 18:05 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 18:06 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 18:26 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 18:11 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 18:06 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 18:22 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 18:01 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 18:05 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 18:23 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 18:14 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 18:09 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 18:07 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 18:32 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 18:26 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 18:31 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 18:23 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 18:26 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 18:11 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:09 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/497814.shtml)
-- 2026-06-29 18:23 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/7628632937.shtml)
-- 2026-06-29 18:12 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/64392.shtml)
-- 2026-06-29 18:04 - [挪威王储妃长子2次强奸被判4年](https://www.blog.minike.top/Article/details/820771856765.shtml)
-- 2026-06-29 18:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/967672578.shtml)
-- 2026-06-29 18:27 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/2225030.shtml)
-- 2026-06-29 18:08 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/146320896795.shtml)
-- 2026-06-29 18:28 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/262876650.shtml)
-- 2026-06-29 18:22 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/06348.shtml)
-- 2026-06-29 18:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/17820.shtml)
-- 2026-06-29 18:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/79824668.shtml)
-- 2026-06-29 18:01 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/970439514.shtml)
-- 2026-06-29 18:04 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/4363602.shtml)
-- 2026-06-29 18:17 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/70607315.shtml)
-- 2026-06-29 18:04 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/30409417.shtml)
+- 2026-06-29 18:16 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/495526659.shtml)
+- 2026-06-29 18:21 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.kurohicncr.top/Article/details/49422967174.shtml)
+- 2026-06-29 18:21 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/4040608313.shtml)
+- 2026-06-29 18:25 - [未成年少女长期吸毒导致卧床不起](https://www.share.minike.top/Article/details/2198047.shtml)
+- 2026-06-29 18:25 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/4127118.shtml)
+- 2026-06-29 18:07 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/323932651.shtml)
+- 2026-06-29 18:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/413963648.shtml)
+- 2026-06-29 18:10 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/51773113.shtml)
+- 2026-06-29 18:28 - [《贺子珍》](http://www.share.minike.top/Article/details/6098650887.shtml)
+- 2026-06-29 18:08 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/3351921.shtml)
+- 2026-06-29 18:06 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/9504290561.shtml)
+- 2026-06-29 18:20 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/842651098143.shtml)
+- 2026-06-29 18:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/14839.shtml)
+- 2026-06-29 18:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/025891012.shtml)
+- 2026-06-29 18:17 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/3902822015.shtml)

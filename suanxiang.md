@@ -1,60 +1,59 @@
-# 央行地量操作并非发出收紧信号，而是资金太宽松了
+# 含“机”量十足！京津冀机器人产业蓬勃聚势
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-DR001自月初1.27%的水平一路下行，8日低至1.2178%。 5亿、5亿、10亿、5亿、5亿……进入4月，央行7天期逆回购操作连续多日维持地量水平，8日再度开展5亿元操作。这引发市场对央行流动性调控、货币政策取向的广泛关注。 与此同时，DR001（银行间市场存款类机构隔夜质押回购利率）自月初1.27%的水平一路下行，始终运行在1.3%以下，资金面极度宽松。 业内分析认为，
+央广网天津5月30日消息(记者褚夫晴 实习记者王婧瑜)2026 世界智能产业博览会在津启幕，京津冀协同发展 “含‘机’量” 十足 ——既有人形机器人、工业智能装备等硬核 “机器” 成果集中亮相，更蕴藏三地联动、产业升级的宝贵 “机遇”。“十五五”时期是京津冀协同发展向纵深推进、打造中国式现代化建设先行区和示范区的关键阶段。《中华人民共和国国民经济和社会发展第十五个五年规划纲要》
 
 ## 正文
 
-DR001自月初1.27%的水平一路下行，8日低至1.2178%。
+央广网天津5月30日消息(记者褚夫晴 实习记者王婧瑜)2026 世界智能产业博览会在津启幕，京津冀协同发展 “含‘机’量” 十足 ——既有人形机器人、工业智能装备等硬核 “机器” 成果集中亮相，更蕴藏三地联动、产业升级的宝贵 “机遇”。
 
-5亿、5亿、10亿、5亿、5亿……进入4月，央行7天期逆回购操作连续多日维持地量水平，8日再度开展5亿元操作。
+“十五五”时期是京津冀协同发展向纵深推进、打造中国式现代化建设先行区和示范区的关键阶段。
 
-这引发市场对央行流动性调控、货币政策取向的广泛关注。
+《中华人民共和国国民经济和社会发展第十五个五年规划纲要》明确提出，深入推进京津冀协同发展，形成更加紧密的全方位协同发展格局。
 
-与此同时，DR001（银行间市场存款类机构隔夜质押回购利率）自月初1.27%的水平一路下行，始终运行在1.3%以下，资金面极度宽松。
+本届盛会紧扣 “智行天下 能动未来” 主题，集中展现三地打破地域边界、共建智能产业创新集群的最新成效，为 “十五五” 时期京津冀协同向纵深推进、打造中国式现代化先行示范区注入强劲动能。
 
-业内分析认为，央行地量操作并不意味着货币政策收紧，而是体现当前银行体系流动性充裕，同时市场也不应将公开市场操作量与股市涨跌相联系。
+京企“组团”输出 人才赋能硬底气 在国家会展中心(天津)北京展区，软通动力、和利时、灵心巧手、东华医为等20多家北京企业“组团”亮相，人工智能大模型、工业控制软件、智慧医疗系统——每家都有自己的“绝活”。
 
-央行连续多日地量操作 4月初央行连续多日的地量操作，一度让市场担忧情绪升温。
+只见不远处，拥有一米七个头的“具身天工”3.0人形机器人正随着动感节拍，“兴奋”地舞蹈，不时做起了俯卧撑，举手投足间魅力十足。
 
-5亿元的操作规模为2015年以来的最低水平。
+这款机器人正是来自国内首家具身智能软硬件全栈科技公司——北京人形机器人创新中心，聚焦于“大小脑”的规划、设计、研发，搭载全球首个“一脑多能”“一脑多机”的通用具身智能平台“慧思开物”，推动智能机器人从单一任务执行向复杂环境下的自主决策与执行能力。
 
-国泰海通研究报告认为，虽然年初银行“存强贷弱”，但不缺负债的大背景是央行持续投放中长期流动性。
+“一脑多能是赋能各行各业实际需求，包括工业制造、特种作业、商用服务、家庭服务等；一脑多机是适配各类具身智能机器人，包括人形机器人、轮式机器人、机械臂等。
 
 ## 相关推荐
 
-- 2026-06-29 18:13 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 18:16 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 18:12 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 18:23 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 18:27 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 18:03 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 18:02 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 18:09 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 18:18 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 18:13 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 18:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 18:20 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 18:17 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 18:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 18:32 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 18:28 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 18:14 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 18:27 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 18:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 18:07 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 18:21 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 18:29 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 18:29 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 18:12 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 18:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 18:20 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 18:28 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/0008629.shtml)
-- 2026-06-29 18:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/296294438802.shtml)
-- 2026-06-29 18:17 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/563827396197.shtml)
-- 2026-06-29 18:10 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/481183.shtml)
-- 2026-06-29 18:25 - [未成年少女长期吸毒导致卧床不起](http://www.blog.minike.top/Article/details/9091252.shtml)
-- 2026-06-29 18:01 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/568142862.shtml)
-- 2026-06-29 18:05 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.minike.top/Article/details/0558092.shtml)
-- 2026-06-29 18:17 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/63879744.shtml)
-- 2026-06-29 18:17 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/04753.shtml)
-- 2026-06-29 18:29 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/580732.shtml)
-- 2026-06-29 18:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/52493.shtml)
-- 2026-06-29 18:18 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/68112035716.shtml)
-- 2026-06-29 18:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/360688169947.shtml)
-- 2026-06-29 18:06 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/606636.shtml)
-- 2026-06-29 18:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/792606716999.shtml)
+- 2026-06-29 18:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/866143729.shtml)
+- 2026-06-29 18:10 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/8114763.shtml)
+- 2026-06-29 18:09 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/81786422868.shtml)
+- 2026-06-29 18:25 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/9507600.shtml)
+- 2026-06-29 18:33 - [时光音乐会](http://www.blog.minike.top/Article/details/28267210970.shtml)
+- 2026-06-29 18:31 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/40494137.shtml)
+- 2026-06-29 18:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/6028980.shtml)
+- 2026-06-29 18:31 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/37313126747.shtml)
+- 2026-06-29 18:25 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/70924047664.shtml)
+- 2026-06-29 18:20 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/485295.shtml)
+- 2026-06-29 18:15 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/19375540848.shtml)
+- 2026-06-29 18:23 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/644040.shtml)
+- 2026-06-29 18:08 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/6202236.shtml)
+- 2026-06-29 18:26 - [急先锋](https://www.share.minike.top/Article/details/63423.shtml)
+- 2026-06-29 18:16 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/563781.shtml)

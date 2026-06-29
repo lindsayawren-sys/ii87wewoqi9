@@ -1,56 +1,57 @@
-# 国际油价上涨，醋酸、MDI价格上涨
+# 5月份中国非制造业商务活动指数升至50.1%
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中银证券近日发布化工行业周报：本周（03.30-04.05）醋酸价格上涨。根据百川盈孚，4月5日醋酸市场均价为4,639元/吨，较上周上涨31.94%，较去年同期上涨76.66%。供应方面，本周醋酸市场开工率较上周下调2.72pct至75.01%；本周醋酸产量约为24.84万吨，较上周减少3.50%；新疆、南京等地停车装置延续停产状态，新增华东和西北地区主流企业故障短停。以下为
+中新社北京5月31日电 (记者 阮煜琳)中国物流与采购联合会5月31日发布数据显示，2026年5月份，中国非制造业商务活动指数为50.1%，环比上升0.7个百分点。 各单项指数中，新订单指数、新出口订单指数、在手订单指数、投入品价格指数、销售价格指数、从业人员指数、供应商配送时间指数和业务活动预期指数较上月有所上升，升幅在0.1至1.4个百分点之间；存货指数较上月有所下降，降幅
 
 ## 正文
 
-中银证券近日发布化工行业周报：本周（03.30-04.05）醋酸价格上涨。
+中新社北京5月31日电 (记者 阮煜琳)中国物流与采购联合会5月31日发布数据显示，2026年5月份，中国非制造业商务活动指数为50.1%，环比上升0.7个百分点。
 
-根据百川盈孚，4月5日醋酸市场均价为4,639元/吨，较上周上涨31.94%，较去年同期上涨76.66%。
+各单项指数中，新订单指数、新出口订单指数、在手订单指数、投入品价格指数、销售价格指数、从业人员指数、供应商配送时间指数和业务活动预期指数较上月有所上升，升幅在0.1至1.4个百分点之间；存货指数较上月有所下降，降幅为0.2个百分点。
 
-供应方面，本周醋酸市场开工率较上周下调2.72pct至75.01%；本周醋酸产量约为24.84万吨，较上周减少3.50%；新疆、南京等地停车装置延续停产状态，新增华东和西北地区主流企业故障短停。
+中国物流与采购联合会副会长何辉认为，2026年5月份，非制造业景气水平较上月回升，商务活动指数升至50%以上，新订单指数虽仍在50%以下，但较上月有所回升，意味着非制造业经营活动重回扩张区间，需求侧降势有所收窄。
 
-以下为研究报告摘要：地缘冲突持续影响原油及部分石化产品供应与运输，加剧波动幅度。
+企业乐观预期保持稳定，业务活动预期指数较上月微幅上升，连续3个月稳定在54%以上。
 
-关注：1.大型能源央企；2.原料供应稳定且相对低成本的煤化工等龙头公司；3.供需格局较好成本顺利传导的精细化工龙头。
+分行业看，基础建设相关活动增势稳定。
 
-行业动态本周（03.30-04.05）均价跟踪的100个化工品种中，共有65个品种价格上涨，14个品种价格下跌，21个品种价格稳定。
+节日消费带动居民出游、聚餐和文体娱乐相关活动景气趋升。
 
-跟踪的产品中84%的产品月均价环比上涨，10%的产品月均价环比下跌，6%的产品月均价环比持平。
+铁路运输业、景区服务业、租赁及商务服务业、餐饮业商务活动指数较上月均有不同程度上升，文体娱乐业商务活动指数虽有回落，但仍在高景气区间。
 
-周均价涨幅居前的品种为醋酸（华东）、醋酐（华东）、甲乙酮（华东）、硫酸（浙江巨化98%）、维生素E；周均价跌幅居前的品种为甲苯（华东）、NYMEX天然气、PVC（华东电石法）、硝酸（华东地区）、草铵膦。
+同时，新动能相关行业继续稳健运行。
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 18:17 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 18:14 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 18:21 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 18:09 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 18:22 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 18:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 18:13 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 18:10 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 18:28 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 18:12 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 18:26 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 18:06 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 18:22 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 18:11 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 18:17 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 18:30 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 18:23 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 18:34 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 18:27 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 18:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:09 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/25735980.shtml)
-- 2026-06-29 18:21 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/9233665.shtml)
-- 2026-06-29 18:23 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/318484.shtml)
-- 2026-06-29 18:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/9853866428.shtml)
-- 2026-06-29 18:22 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/90716.shtml)
-- 2026-06-29 18:20 - [速度与激情9](https://www.blog.minike.top/Article/details/4349075.shtml)
-- 2026-06-29 18:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/735876895.shtml)
-- 2026-06-29 18:16 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/9908352.shtml)
-- 2026-06-29 18:18 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/067321519707.shtml)
-- 2026-06-29 18:12 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/940104887132.shtml)
-- 2026-06-29 18:11 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/6142263.shtml)
-- 2026-06-29 18:05 - [起风了](http://www.share.minike.top/Article/details/2125400.shtml)
-- 2026-06-29 18:02 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/40253115679.shtml)
-- 2026-06-29 18:24 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/9470774708.shtml)
-- 2026-06-29 18:09 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/880577637.shtml)
+- 2026-06-29 18:18 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/019735309581.shtml)
+- 2026-06-29 18:13 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.kurohicncr.top/Article/details/17135435.shtml)
+- 2026-06-29 18:32 - [看大国重器“云端穿针引线”](https://www.blog.minike.top/Article/details/1235005.shtml)
+- 2026-06-29 18:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/85532314.shtml)
+- 2026-06-29 18:26 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/9608371459.shtml)
+- 2026-06-29 18:11 - [扬名立万](http://www.share.minike.top/Article/details/3632994.shtml)
+- 2026-06-29 18:14 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/35810828362.shtml)
+- 2026-06-29 18:29 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/93768848.shtml)
+- 2026-06-29 18:29 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/4849135.shtml)
+- 2026-06-29 18:13 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/791797.shtml)
+- 2026-06-29 18:32 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/94476852.shtml)
+- 2026-06-29 18:06 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/488307.shtml)
+- 2026-06-29 18:07 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/786505029.shtml)
+- 2026-06-29 18:20 - [沉睡花园](https://www.blog.minike.top/Article/details/579984379.shtml)
+- 2026-06-29 18:13 - [乔家的儿女](https://www.blog.minike.top/Article/details/502699077030.shtml)

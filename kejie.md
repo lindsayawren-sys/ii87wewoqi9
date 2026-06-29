@@ -1,57 +1,61 @@
-# 高盛告知急于做空杠杆贷款的客户 其产品尚未准备就绪
+# 特朗普威胁阿曼，“中东瑞士”成焦点
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-高盛集团告知急于做空杠杆贷款的客户，该行正在开发的一种用于做空这个规模1.4万亿美元市场的产品尚未就绪。 高盛一直在向对冲基金推销总收益互换（TRS），这种衍生品可以让客户从贷款价格下跌中获利，而无需实际持有标的债务。随着市场对人工智能（AI）可能颠覆行业的担忧加剧，软件行业债务遭到抛售，投资者正积极寻找赚钱机会。 据知情人士透露，高盛已告知客户，由于仍在权衡其他因素，目前尚未
+周五，美国总统特朗普对长期盟友阿曼发出罕见威胁，将该国推向地缘政治风口。阿曼位于阿拉伯半岛东南沿海，与伊朗隔霍尔木兹海峡相望，素有“中东瑞士”之称，长期扮演区域危机调解者的角色。 特朗普在记者会上被问及阿曼与伊朗可能共同管理霍尔木兹海峡时表示：“阿曼必须和其他国家一样行事，否则我们将炸毁他们。他们明白这一点。” 美国财政部长贝森特随后在社交媒体上警告，若阿曼协助伊朗在海峡建立“
 
 ## 正文
 
-高盛集团告知急于做空杠杆贷款的客户，该行正在开发的一种用于做空这个规模1.4万亿美元市场的产品尚未就绪。
+周五，美国总统特朗普对长期盟友阿曼发出罕见威胁，将该国推向地缘政治风口。
 
-高盛一直在向对冲基金推销总收益互换（TRS），这种衍生品可以让客户从贷款价格下跌中获利，而无需实际持有标的债务。
+阿曼位于阿拉伯半岛东南沿海，与伊朗隔霍尔木兹海峡相望，素有“中东瑞士”之称，长期扮演区域危机调解者的角色。
 
-随着市场对人工智能（AI）可能颠覆行业的担忧加剧，软件行业债务遭到抛售，投资者正积极寻找赚钱机会。
+特朗普在记者会上被问及阿曼与伊朗可能共同管理霍尔木兹海峡时表示：“阿曼必须和其他国家一样行事，否则我们将炸毁他们。
 
-据知情人士透露，高盛已告知客户，由于仍在权衡其他因素，目前尚未准备好推出该产品。
+他们明白这一点。
 
-知情人士称，高盛可能需要暂停该计划以进一步修订相关文件。
+” 美国财政部长贝森特随后在社交媒体上警告，若阿曼协助伊朗在海峡建立“收费系统”，美方将“ aggressively”实施制裁。
 
-他们还表示，该产品尚未在任何交易中使用。
+霍尔木兹海峡承担全球约20%的石油运输，战略意义重大。
 
-“我们的做市业务以客户需求为导向，”一位高盛发言人表示。
+尽管伊朗曾表示可能与阿曼共同管理该海峡，但阿曼并未寻求控制这一关键航道。
 
-“我们将继续倾听客户的声音，并在各类资产和策略方面与他们保持沟通。
+分析人士指出，阿曼因地缘位置和长期维护航道自由通行的政策，扮演重要角色。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 18:28 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 18:01 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 18:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 18:27 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 18:16 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 18:13 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 18:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 18:00 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 18:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 18:10 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 18:21 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 18:25 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 18:24 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 18:27 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 18:13 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 18:27 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 18:30 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 18:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 18:29 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 18:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 18:27 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 18:11 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 18:26 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 18:16 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 18:09 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/681653.shtml)
-- 2026-06-29 18:19 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/00160.shtml)
-- 2026-06-29 18:29 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/48279664.shtml)
-- 2026-06-29 18:21 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/71349603.shtml)
-- 2026-06-29 18:29 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/85816.shtml)
-- 2026-06-29 18:21 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/064950127.shtml)
-- 2026-06-29 18:01 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/80234361.shtml)
-- 2026-06-29 18:25 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/024921535331.shtml)
-- 2026-06-29 18:28 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/92268816765.shtml)
-- 2026-06-29 18:11 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/9940541.shtml)
-- 2026-06-29 18:21 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/664799173713.shtml)
-- 2026-06-29 18:19 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/35238234.shtml)
-- 2026-06-29 18:14 - [疑似吴建豪老婆正脸照](https://www.share.kurohicncr.top/Article/details/8471068.shtml)
-- 2026-06-29 18:22 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/18743513.shtml)
-- 2026-06-29 18:18 - [起风了](https://www.blog.minike.top/Article/details/018714840724.shtml)
+- 2026-06-29 18:08 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/098133390286.shtml)
+- 2026-06-29 18:12 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/7862755.shtml)
+- 2026-06-29 18:14 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/873904530273.shtml)
+- 2026-06-29 18:32 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/616397.shtml)
+- 2026-06-29 18:27 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/347005.shtml)
+- 2026-06-29 18:35 - [我和我的家乡](http://www.share.minike.top/Article/details/09437200.shtml)
+- 2026-06-29 18:19 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/201818044383.shtml)
+- 2026-06-29 18:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/6685237.shtml)
+- 2026-06-29 18:33 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/35052570739.shtml)
+- 2026-06-29 18:06 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.minike.top/Article/details/79488406500.shtml)
+- 2026-06-29 18:16 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/503971756.shtml)
+- 2026-06-29 18:31 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/195484755148.shtml)
+- 2026-06-29 18:32 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/1776297.shtml)
+- 2026-06-29 18:32 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/276884136924.shtml)
+- 2026-06-29 18:35 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/42347364.shtml)

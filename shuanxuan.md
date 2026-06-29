@@ -1,59 +1,51 @@
-# “让更多人看到这里的盘羊”
+# 大美边疆看我家 | 黑龙江汤旺：情系边疆烟火意 一方水土一方人
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-新疆塔什库尔干野生动物自然保护区国家级公益林管护人员米路买买提·努尔俊—— “让更多人看到这里的盘羊” 4月的帕米尔高原，春寒料峭。 位于新疆喀什地区塔什库尔干塔吉克自治县的新疆塔什库尔干野生动物自然保护区，平均海拔超过4000米，大部分区域是无人区，却是帕米尔盘羊等珍稀野生动物的家园。海拔4300米的一道山脊上，51岁的保护区国家级公益林管护人员米路买买提·努尔俊踩着碎石，一
+发布时间：2026年05月31日 23:48 来源：中国新闻网 黑龙江省伊春市汤旺县，坐落于北疆大地，浓厚的人文气息，让这片土地温柔又厚重。如今的边疆，旧貌换新颜。生活愈发富足，文化愈发繁荣，人们的精神生活多姿多彩。不变的，是刻在骨子里的乡土情怀，是邻里之间的脉脉温情，是守护家园的赤诚初心。(来源：中共汤旺县委统战部) 责任编辑：【魏聪聪】
 
 ## 正文
 
-新疆塔什库尔干野生动物自然保护区国家级公益林管护人员米路买买提·努尔俊—— “让更多人看到这里的盘羊” 4月的帕米尔高原，春寒料峭。
+发布时间：2026年05月31日 23:48 来源：中国新闻网 黑龙江省伊春市汤旺县，坐落于北疆大地，浓厚的人文气息，让这片土地温柔又厚重。
 
-位于新疆喀什地区塔什库尔干塔吉克自治县的新疆塔什库尔干野生动物自然保护区，平均海拔超过4000米，大部分区域是无人区，却是帕米尔盘羊等珍稀野生动物的家园。
+如今的边疆，旧貌换新颜。
 
-海拔4300米的一道山脊上，51岁的保护区国家级公益林管护人员米路买买提·努尔俊踩着碎石，一步一步向上攀爬。
+生活愈发富足，文化愈发繁荣，人们的精神生活多姿多彩。
 
-几名年轻的巡护队员紧随其后。
+不变的，是刻在骨子里的乡土情怀，是邻里之间的脉脉温情，是守护家园的赤诚初心。
 
-这是今春首次例行巡护。
-
-积雪初融，山路泥泞，越野车只能停在山脚下，剩下的路全靠步行。
-
-“米路老师在保护区工作了22年，是我们的‘活地图’。
-
-下大雪的时候，所有路都被盖住了，而他能找到进山的路。
+(来源：中共汤旺县委统战部) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 18:14 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 18:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 18:11 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 18:16 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 18:25 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 18:00 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 18:07 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 18:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 18:16 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 18:25 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 18:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 18:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 18:33 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 18:09 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 18:19 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 18:29 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 18:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 18:15 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 18:23 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 18:22 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 18:23 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 18:32 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 18:32 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/7964698.shtml)
-- 2026-06-29 18:15 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/96008477.shtml)
-- 2026-06-29 18:14 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/0537365019.shtml)
-- 2026-06-29 18:07 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/253722.shtml)
-- 2026-06-29 18:26 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/49918656.shtml)
-- 2026-06-29 18:02 - [《贺子珍》](https://www.blog.minike.top/Article/details/526741918.shtml)
-- 2026-06-29 18:26 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/739071794439.shtml)
-- 2026-06-29 18:04 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/0936405.shtml)
-- 2026-06-29 18:25 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/949151368518.shtml)
-- 2026-06-29 18:26 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/90076.shtml)
-- 2026-06-29 18:14 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/91603.shtml)
-- 2026-06-29 18:21 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/2962244536.shtml)
-- 2026-06-29 18:21 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/094240.shtml)
-- 2026-06-29 18:25 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/146878503073.shtml)
-- 2026-06-29 18:01 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/19601035508.shtml)
+- 2026-06-29 18:14 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/544555484142.shtml)
+- 2026-06-29 18:32 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/1602725.shtml)
+- 2026-06-29 18:16 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/97189699.shtml)
+- 2026-06-29 18:26 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/5960128.shtml)
+- 2026-06-29 18:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/8688415798.shtml)
+- 2026-06-29 18:30 - [存储三巨头被告了](http://www.share.minike.top/Article/details/1903773.shtml)
+- 2026-06-29 18:30 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/7483482.shtml)
+- 2026-06-29 18:21 - [叠纸客服回应恋与深空新角色争议](http://www.blog.kurohicncr.top/Article/details/39896238989.shtml)
+- 2026-06-29 18:29 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/0694479.shtml)
+- 2026-06-29 18:13 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/8907891667.shtml)
+- 2026-06-29 18:08 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/932285.shtml)
+- 2026-06-29 18:34 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/2309813600.shtml)
+- 2026-06-29 18:17 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/5831217055.shtml)
+- 2026-06-29 18:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/1556804488.shtml)
+- 2026-06-29 18:13 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/14558541918.shtml)

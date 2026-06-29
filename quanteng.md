@@ -1,57 +1,59 @@
-# 开盘：美股周三大幅高开道指涨1300点 美伊停火协议提振风险偏好
+# 广西柳州聘请垃圾分类小使者 “变废为宝”成儿童趣味课堂
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-北京时间4月8日晚，美股周三大幅高开。道指期货飙升1300点。原油期货价格暴跌。美伊达成两周停火协议提振了风险偏好，交易员争相买入股票。 道指涨1312.35点，涨幅为2.82%，报47896.81点；标普500指数涨173.69点，涨幅为2.62%，报6790.54点；纳指涨762.75点，涨幅为3.46%，报22780.60点。 美国总统特朗普7日宣布，同意暂停对伊朗的轰炸
+中新网柳州5月30日电 (陈梅 李昭仪)5月30日，广西柳州市举行第四届全国城市生活垃圾分类宣传周活动，通过趣味互动和实地体验等方式，普及垃圾分类知识。活动现场还为一批垃圾分类小使者颁发聘书，让更多儿童成为柳州垃圾分类的“小小宣传员”。 “我认为垃圾是放错地方的资源，做好分类才能实现有效利用。”柳州市航二路小学六年级学生陈静怡说，出于热爱环保、想为家园出一份力的想法，她主动申请
 
 ## 正文
 
-北京时间4月8日晚，美股周三大幅高开。
+中新网柳州5月30日电 (陈梅 李昭仪)5月30日，广西柳州市举行第四届全国城市生活垃圾分类宣传周活动，通过趣味互动和实地体验等方式，普及垃圾分类知识。
 
-道指期货飙升1300点。
+活动现场还为一批垃圾分类小使者颁发聘书，让更多儿童成为柳州垃圾分类的“小小宣传员”。
 
-原油期货价格暴跌。
+“我认为垃圾是放错地方的资源，做好分类才能实现有效利用。
 
-美伊达成两周停火协议提振了风险偏好，交易员争相买入股票。
+”柳州市航二路小学六年级学生陈静怡说，出于热爱环保、想为家园出一份力的想法，她主动申请成为垃圾分类小使者。
 
-道指涨1312.35点，涨幅为2.82%，报47896.81点；标普500指数涨173.69点，涨幅为2.62%，报6790.54点；纳指涨762.75点，涨幅为3.46%，报22780.60点。
+在学校，她自觉践行垃圾分类、随手捡拾垃圾，还带动身边志同道合的同学一起参与；在家里，她劝导家人养成分类习惯，主动减少一次性用品使用，用点滴行动守护柳州的山清水秀。
 
-美国总统特朗普7日宣布，同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“全面、立即且安全地”开放霍尔木兹海峡。
+体验互动环节充满童趣。
 
-他同时表示，“这将是一次双向停火。
+手工区里，儿童将松果、贝壳、干麦穗等各类物料改造成创意摆件。
 
-” 美东时间4月7日晚6时30分许，特朗普通过社交媒体宣布了上述消息。
+在室外“宝贝重塑计划”展陈区，志愿者讲解资源循环利用知识，让儿童直观感受变废为宝的奇妙过程。
 
 ## 相关推荐
 
-- 2026-06-29 18:15 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 18:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 18:05 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 18:09 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 18:26 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 18:24 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 18:19 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 18:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 18:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 18:28 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 18:17 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 18:21 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 18:20 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 18:11 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 18:31 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 18:09 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 18:22 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 18:24 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 18:26 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 18:35 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 18:29 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 18:26 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 18:06 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 18:10 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:15 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/3873696.shtml)
-- 2026-06-29 18:24 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/060813.shtml)
-- 2026-06-29 18:11 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/79356502.shtml)
-- 2026-06-29 18:19 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/9491160634.shtml)
-- 2026-06-29 18:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/879647933068.shtml)
-- 2026-06-29 18:25 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/3089108023.shtml)
-- 2026-06-29 18:09 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/545007453302.shtml)
-- 2026-06-29 18:06 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/501345817842.shtml)
-- 2026-06-29 18:07 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/8141772.shtml)
-- 2026-06-29 18:27 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.minike.top/Article/details/065579804067.shtml)
-- 2026-06-29 18:19 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/765040.shtml)
-- 2026-06-29 18:20 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/7330772.shtml)
-- 2026-06-29 18:14 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/313447738662.shtml)
-- 2026-06-29 18:29 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/225349155521.shtml)
-- 2026-06-29 18:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/0733852125.shtml)
+- 2026-06-29 18:33 - [医药生物行业今日涨5.91%](http://www.blog.minike.top/Article/details/20135.shtml)
+- 2026-06-29 18:12 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/802173913178.shtml)
+- 2026-06-29 18:12 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/4058198.shtml)
+- 2026-06-29 18:08 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.kurohicncr.top/Article/details/11289101.shtml)
+- 2026-06-29 18:25 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/928965207.shtml)
+- 2026-06-29 18:34 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/19015533.shtml)
+- 2026-06-29 18:25 - [T1 KC](http://www.blog.minike.top/Article/details/915908008.shtml)
+- 2026-06-29 18:28 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/2944775.shtml)
+- 2026-06-29 18:17 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/86139.shtml)
+- 2026-06-29 18:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/9838849.shtml)
+- 2026-06-29 18:28 - [韩国小学生都来吐槽了](http://www.share.kurohicncr.top/Article/details/236359478.shtml)
+- 2026-06-29 18:12 - [毒液2](http://www.share.minike.top/Article/details/603168245.shtml)
+- 2026-06-29 18:31 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/18378.shtml)
+- 2026-06-29 18:29 - [V8](http://www.share.kurohicncr.top/Article/details/838796946.shtml)
+- 2026-06-29 18:08 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/776052123.shtml)

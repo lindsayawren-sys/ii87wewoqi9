@@ -1,53 +1,61 @@
-# 伊朗与阿曼将收取霍尔木兹海峡通行费？中方回应
+# 广州拥有超过620万名注册志愿者 累计服务时长超2.2亿小时
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。 有记者提问：伊朗打算向每艘通过霍尔木兹海峡的船只收取通行费用，并与阿曼分享收入，中方对此持何立场？ 毛宁：霍尔木兹海峡是重要的国际货物和能源贸易通道，维护这一地区的安全稳定和畅通，符合国际社会的共同利益。我们希望各方共同努力，推动海峡早日恢复正常通行。(完)
+中新网广州5月30日电 (记者 张璐)5月25日至29日，2026年全国青年志愿服务高质量发展专题培训班(社区治理与青年志愿服务专场)(简称“培训”)在广州市团校(广州志愿者学院)举办。 据悉，广州是国内志愿服务发展最早、沉淀最深的城市之一，拥有超过620万名注册志愿者，累计服务时长超2.2亿小时，其中青年志愿者人数占比超过65%，志愿服务已成为广州覆盖面最广、参与度最高的公益
 
 ## 正文
 
-中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。
+中新网广州5月30日电 (记者 张璐)5月25日至29日，2026年全国青年志愿服务高质量发展专题培训班(社区治理与青年志愿服务专场)(简称“培训”)在广州市团校(广州志愿者学院)举办。
 
-有记者提问：伊朗打算向每艘通过霍尔木兹海峡的船只收取通行费用，并与阿曼分享收入，中方对此持何立场？
+据悉，广州是国内志愿服务发展最早、沉淀最深的城市之一，拥有超过620万名注册志愿者，累计服务时长超2.2亿小时，其中青年志愿者人数占比超过65%，志愿服务已成为广州覆盖面最广、参与度最高的公益力量。
 
-毛宁：霍尔木兹海峡是重要的国际货物和能源贸易通道，维护这一地区的安全稳定和畅通，符合国际社会的共同利益。
+本次培训聚焦“社区治理与青年志愿服务”主题，课程紧贴政策要求、前沿热点和实际需求，通过理论学习等形式，打破地域交流限制，实现优质经验互通、优质资源共享、优质人才共育。
 
-我们希望各方共同努力，推动海峡早日恢复正常通行。
+现场教学环节，学员们深入“西关大屋社区”等具有广州特色的社区调研，参观学习社区志愿服务站点建设等先进模式，与一线社区工作者、志愿者面对面交流，深入探讨“志愿+社区治理”的实操细节。
 
-(完)
+交流环节中，来自全国各地的青年志愿服务骨干依次分享实践经验。
+
+共青团兰考县委书记、兰考县青年志愿者协会负责人韩辉以构建“1+3+N”工作模式、赋能社区治理与青年发展为题，阐释县域青年志愿服务赋能基层治理的创新机制。
+
+河北省青年志愿者中心干部王彦平带来关于青年志愿者服务社区行动探索和实践的思考，从省级统筹视角梳理工作思路与实践启示。
+
+广州市越秀区志愿者行动指导中心主任李少欢以大学生“百千万工程”突击队为例，分享了青年志愿者下沉社区，让基层治理焕发活力的实践经验。
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 18:16 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 18:23 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 18:10 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 18:19 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 18:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 18:19 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 18:05 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 18:07 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 18:29 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 18:16 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 18:29 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 18:06 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 18:27 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 18:13 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 18:20 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 18:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 18:25 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 18:23 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 18:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 18:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 18:17 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 18:32 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 18:34 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 18:19 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 18:14 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 18:15 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 18:12 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/02999.shtml)
-- 2026-06-29 18:17 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/7410668654.shtml)
-- 2026-06-29 18:05 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/77490292754.shtml)
-- 2026-06-29 18:19 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/5074465060.shtml)
-- 2026-06-29 18:05 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/0658173203.shtml)
-- 2026-06-29 18:17 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/49224.shtml)
-- 2026-06-29 18:14 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/354083.shtml)
-- 2026-06-29 18:20 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/97675.shtml)
-- 2026-06-29 18:20 - [四川达州发生一起交通事故致2死](http://www.blog.kurohicncr.top/Article/details/73837541.shtml)
-- 2026-06-29 18:04 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/47759.shtml)
-- 2026-06-29 18:07 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/12807317.shtml)
-- 2026-06-29 18:08 - [起风了](http://www.share.kurohicncr.top/Article/details/5962010832.shtml)
-- 2026-06-29 18:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/08322944652.shtml)
-- 2026-06-29 18:28 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/1621762.shtml)
-- 2026-06-29 18:00 - [挪威王储妃长子2次强奸被判4年](http://www.share.kurohicncr.top/Article/details/3132833393.shtml)
+- 2026-06-29 18:26 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/8632157.shtml)
+- 2026-06-29 18:32 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/8021749222.shtml)
+- 2026-06-29 18:15 - [沙特外交大臣将访华](https://www.blog.kurohicncr.top/Article/details/23213313.shtml)
+- 2026-06-29 18:10 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/848383.shtml)
+- 2026-06-29 18:23 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/7004201526.shtml)
+- 2026-06-29 18:09 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/921232788141.shtml)
+- 2026-06-29 18:35 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/7465460.shtml)
+- 2026-06-29 18:22 - [5万块的威力](https://www.blog.minike.top/Article/details/278783852865.shtml)
+- 2026-06-29 18:17 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/168483.shtml)
+- 2026-06-29 18:15 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/95509270.shtml)
+- 2026-06-29 18:25 - [两老人多次到一洗车店泼粪](http://www.share.kurohicncr.top/Article/details/03086.shtml)
+- 2026-06-29 18:07 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/61449819267.shtml)
+- 2026-06-29 18:34 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/014780.shtml)
+- 2026-06-29 18:33 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/17216355.shtml)
+- 2026-06-29 18:13 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/71216.shtml)

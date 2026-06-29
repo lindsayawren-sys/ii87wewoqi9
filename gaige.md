@@ -1,58 +1,60 @@
-# 向西而歌，科创笃行 西安交大百卅华诞再启新程
+# 短视频里解民忧 湖南新化探路融媒赋能基层治理新路径
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新网西安4月8日电 题：向西而歌，科创笃行 西安交大百卅华诞再启新程 作者 李一璠 “美哉吾校，真理之花，青年之模楷，邦国之荣华……”8日，西安交通大学内校歌悠扬，樱花盛开、梧桐新绿，久别归来的校友步履款款，重逢笑语与春光相映，校园洋溢着温情与喜悦。 当日，纪念西安交通大学建校130周年暨西迁70周年——中国特色、世界一流大学高质量发展大会在西安举行，各界嘉宾、校友、西迁老同
+中新网娄底5月30日电 (周红)“刷一刷短视频，就能反映生活难题，部门还会线上回应、线下解决，实在太方便了！”在湖南娄底新化县，当地依托“民情直达 融媒在线”网络问政平台，让群众足不出户、动动指尖就能表达诉求、解决问题。线上“小窗口”成为服务民生、赋能治理的重要阵地。新化县是百万人口大县，网民基数大、网络活跃度高。立足这一县情，当地紧扣新时代网上群众路线工作要求，把平台打造成为
 
 ## 正文
 
-中新网西安4月8日电 题：向西而歌，科创笃行 西安交大百卅华诞再启新程 作者 李一璠 “美哉吾校，真理之花，青年之模楷，邦国之荣华……”8日，西安交通大学内校歌悠扬，樱花盛开、梧桐新绿，久别归来的校友步履款款，重逢笑语与春光相映，校园洋溢着温情与喜悦。
+中新网娄底5月30日电 (周红)“刷一刷短视频，就能反映生活难题，部门还会线上回应、线下解决，实在太方便了！
 
-当日，纪念西安交通大学建校130周年暨西迁70周年——中国特色、世界一流大学高质量发展大会在西安举行，各界嘉宾、校友、西迁老同志、师生代表等3000余人参会。
+”在湖南娄底新化县，当地依托“民情直达 融媒在线”网络问政平台，让群众足不出户、动动指尖就能表达诉求、解决问题。
 
-该校以“百卅辉光，七秩日新”为脉络传承办学初心，深耕科技创新与人才培养，在服务国家发展战略、拓展国际合作的道路上继续稳步前行。
+线上“小窗口”成为服务民生、赋能治理的重要阵地。
 
-传承西迁精神 坚守报国育人初心 西安交大的发展始终与国家和民族的命运紧密相连。
+新化县是百万人口大县，网民基数大、网络活跃度高。
 
-七十年前，为服务国家建设布局与区域发展需要，交通大学西迁西安，一代代师生怀揣赤诚之心，扎根西部、潜心治学，铸就了影响深远的西迁精神。
+立足这一县情，当地紧扣新时代网上群众路线工作要求，把平台打造成为线上版“四下基层”实践载体，以融媒体为纽带，打通民意收集、诉求办理、反馈评价全链条，成功将互联网发展“最大变量”转化为基层治理“最大增量”。
 
-这份精神在办学历程中代代传承。
+据悉，该平台自今年3月上线以来，热度持续攀升。
 
-立足国家能源领域发展需求的荣命哲教授团队，深耕高压电力装备技术研究多年，从零探索、反复攻关，于2024年成功研发环保型发电机快速断路器成套装置，经权威认证达到国际领先水平，实现了相关技术领域的自主创新与跨越发展。
+短短3个月，职能部门负责人在线访谈、“民声回响”两大栏目累计推出22期视频，全网浏览量突破172万次；平台共收到群众留言11149条，梳理筛选重点民生诉求1021件，诉求交办率、按期办结率均达100%。
 
-“我们既为国家培养了能挑大梁的年轻人，又用科研成果破解了一个个国家重大需求的难题。
+告别以往群众上门反映问题的传统模式，新化县将问政端口嵌入群众日常使用最多的短视频平台，创新构建“指尖问政+融媒在线”双驱动模式。
 
 ## 相关推荐
 
-- 2026-06-29 18:25 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 18:00 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 18:17 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 18:06 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 18:19 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 18:06 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 18:11 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 18:13 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 18:21 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 18:17 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 18:21 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 18:07 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 18:13 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 18:09 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 18:31 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 18:33 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 18:17 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 18:35 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 18:33 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 18:23 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 18:30 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 18:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 18:16 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 18:33 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 18:23 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 18:17 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/9836999.shtml)
-- 2026-06-29 18:15 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/78500206.shtml)
-- 2026-06-29 18:12 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/051503764097.shtml)
-- 2026-06-29 18:17 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/090848.shtml)
-- 2026-06-29 18:17 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/398142628.shtml)
-- 2026-06-29 18:12 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/4770428.shtml)
-- 2026-06-29 18:24 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/0056276.shtml)
-- 2026-06-29 18:11 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/21819585677.shtml)
-- 2026-06-29 18:24 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/352491474664.shtml)
-- 2026-06-29 18:23 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/87450831942.shtml)
-- 2026-06-29 18:15 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/7883251650.shtml)
-- 2026-06-29 18:17 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.minike.top/Article/details/60217.shtml)
-- 2026-06-29 18:08 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/7578226.shtml)
-- 2026-06-29 18:28 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/143814240.shtml)
-- 2026-06-29 18:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/851852.shtml)
+- 2026-06-29 18:31 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/429288253.shtml)
+- 2026-06-29 18:28 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/664951.shtml)
+- 2026-06-29 18:32 - [NBA交易](https://www.blog.minike.top/Article/details/9993482029.shtml)
+- 2026-06-29 18:34 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/75328.shtml)
+- 2026-06-29 18:20 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/676769.shtml)
+- 2026-06-29 18:35 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/38559.shtml)
+- 2026-06-29 18:14 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/766635.shtml)
+- 2026-06-29 18:10 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/1148340.shtml)
+- 2026-06-29 18:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/98928351.shtml)
+- 2026-06-29 18:14 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/52429.shtml)
+- 2026-06-29 18:12 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/407845493.shtml)
+- 2026-06-29 18:27 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/4227552747.shtml)
+- 2026-06-29 18:20 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/510422382.shtml)
+- 2026-06-29 18:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/951174.shtml)
+- 2026-06-29 18:08 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/107518287.shtml)

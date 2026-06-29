@@ -1,59 +1,60 @@
-# 广电总局：电视剧创作要避免“颜值至上”“流量依赖”
+# “中国版戴尔”大涨11%再创新高！港股通信息技术ETF华宝（159131）劲涨逾3%，标的指数联想集团含量升至16%
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-原标题：电视剧司召开电视剧健康审美座谈会 4月2日，电视剧司召开电视剧健康审美座谈会。爱奇艺、芒果TV、腾讯视频、优酷等重点网络视听平台，以及正午阳光、柠萌影视、华策影视、长信传媒等制作机构相关负责人参加了会议。 会议认为，电视剧作为人民大众喜闻乐见的文艺形态，在传递主流价值、传承中华优秀传统文化、引领审美风尚等方面发挥着重要作用。近年来创作播出的一大批思想精深、艺术精湛、制作
+6月1日，聚焦港股“硬科技”的港股通信息C指数再度爆发上涨逾2.7%，持续跑赢恒生科技（现涨1.8%）。指数第一大权重股联想集团再度大涨11%创上市新高，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内劲涨3.03%，实时成交额超6亿元，盘中获资金净申购500万份！ 消息面上，戴尔科技上周五收涨超32%创历史新高。戴尔科技预计全年营收为1650亿至169
 
 ## 正文
 
-原标题：电视剧司召开电视剧健康审美座谈会 4月2日，电视剧司召开电视剧健康审美座谈会。
+6月1日，聚焦港股“硬科技”的港股通信息C指数再度爆发上涨逾2.7%，持续跑赢恒生科技（现涨1.8%）。
 
-爱奇艺、芒果TV、腾讯视频、优酷等重点网络视听平台，以及正午阳光、柠萌影视、华策影视、长信传媒等制作机构相关负责人参加了会议。
+指数第一大权重股联想集团再度大涨11%创上市新高，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内劲涨3.03%，实时成交额超6亿元，盘中获资金净申购500万份！
 
-会议认为，电视剧作为人民大众喜闻乐见的文艺形态，在传递主流价值、传承中华优秀传统文化、引领审美风尚等方面发挥着重要作用。
+消息面上，戴尔科技上周五收涨超32%创历史新高。
 
-近年来创作播出的一大批思想精深、艺术精湛、制作精良的优秀作品，充分展现了电视剧行业的责任与担当。
+戴尔科技预计全年营收为1650亿至1690亿美元，此前预期为1380亿至1420亿美元，还将2027财年AI服务器营收预期从此前的约500亿美元上调至约600亿美元。
 
-同时也要清醒认识到，行业内还存在片面追求“颜值至上”的不良创作倾向，有的剧集出现演员妆容过度，部分服装化妆道具与人物性格、故事场景脱节等问题。
+据弗若斯特沙利文数据显示，全球AI服务器出货量2020-2024年复合增长率达45.2%，2024年达200万台，预计2030年将增长至650万台。
 
-会议指出，树立健康审美观念，是关乎文艺方向、关乎文化自信、关乎行业未来的重要命题。
+华泰证券指出，联想的业务作为AI领域的核心环节，且是少有的在中美两国都有核心业务经营的科技公司，将有望持续受益于此轮中美在混合式人工智能的发展的共振浪潮，或是中美在AI科技行业的最大公约数。
 
-电视剧行业要深入学习贯彻习近平文化思想，坚持以人民为中心的创作导向，坚持守正创新，坚持真善美的价值内核，深入生活、扎根人民，让电视剧作品真正体现质朴之美、自然之美、内涵之美。
+从近六月表现来看，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数累计涨幅超22%，同期恒生科技、港股通科技的涨幅分别为-12.69%、-11.28%，锐度和弹性显著领先。
 
-一是深刻认识树立健康审美观念的重要意义。
+支持T+0交易！
 
 ## 相关推荐
 
-- 2026-06-29 18:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 18:12 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 18:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 18:15 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 18:27 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 18:10 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 18:22 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 18:23 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 18:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 18:24 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 18:14 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 18:24 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 18:00 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 18:12 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 18:32 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 18:10 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 18:18 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 18:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 18:20 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 18:23 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 18:23 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 18:31 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 18:13 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 18:07 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 18:25 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 18:17 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 18:33 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:25 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/1629553474.shtml)
-- 2026-06-29 18:09 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/0010618557.shtml)
-- 2026-06-29 18:03 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/241220060004.shtml)
-- 2026-06-29 18:13 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/5077808.shtml)
-- 2026-06-29 18:14 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/058573404655.shtml)
-- 2026-06-29 18:05 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/3060196.shtml)
-- 2026-06-29 18:00 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/208377029080.shtml)
-- 2026-06-29 18:14 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/7543791260.shtml)
-- 2026-06-29 18:22 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/870280462072.shtml)
-- 2026-06-29 18:04 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/11731076.shtml)
-- 2026-06-29 18:24 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/606691634.shtml)
-- 2026-06-29 18:19 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/585024.shtml)
-- 2026-06-29 18:15 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/290092288.shtml)
-- 2026-06-29 18:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/75589248.shtml)
-- 2026-06-29 18:15 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/012700405338.shtml)
+- 2026-06-29 18:20 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/410889090.shtml)
+- 2026-06-29 18:28 - [机器人学校开学了](https://www.share.minike.top/Article/details/274539975583.shtml)
+- 2026-06-29 18:16 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/5375790337.shtml)
+- 2026-06-29 18:26 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/36978968.shtml)
+- 2026-06-29 18:32 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/8002787835.shtml)
+- 2026-06-29 18:09 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/14865.shtml)
+- 2026-06-29 18:32 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/482143076.shtml)
+- 2026-06-29 18:35 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/3358310.shtml)
+- 2026-06-29 18:11 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/939645.shtml)
+- 2026-06-29 18:32 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/557955.shtml)
+- 2026-06-29 18:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/8639768.shtml)
+- 2026-06-29 18:15 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/39877950226.shtml)
+- 2026-06-29 18:22 - [斛珠夫人](https://www.share.minike.top/Article/details/1505180.shtml)
+- 2026-06-29 18:30 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/697366365.shtml)
+- 2026-06-29 18:19 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/447973802171.shtml)

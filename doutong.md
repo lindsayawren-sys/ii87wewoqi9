@@ -1,45 +1,54 @@
-# 美国联邦医疗保险优惠计划费率上调提振保险股
+# 第165次中老缅泰湄公河联合巡逻执法行动圆满结束
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-美国医疗保险和医疗补助服务中心最终确定将2027年的联邦医疗保险优惠计划（Medicare Advantage）支付费率提高2.48%，带动联合健康、CVS健康以及Humana股价上涨。责任编辑：张俊 SF065
+5月29日，执行中国、老挝、缅甸三国联合驻训任务的中方53105艇顺利返回云南西双版纳景哈警务码头，标志着第165次中老缅泰湄公河联合巡逻执法行动及系列执法合作交流活动圆满收官。 此次行动于5月18日正式启动，按照中国、老挝、缅甸、泰国四国有关执法部门达成的共识，以“同心协力守安宁、护航澜湄惠民生”为主题，分阶段开展全线联合巡逻执法、分段巡航、水陆联动查缉等四国联合巡逻执法行动
 
 ## 正文
 
-美国医疗保险和医疗补助服务中心最终确定将2027年的联邦医疗保险优惠计划（Medicare Advantage）支付费率提高2.48%，带动联合健康、CVS健康以及Humana股价上涨。
+5月29日，执行中国、老挝、缅甸三国联合驻训任务的中方53105艇顺利返回云南西双版纳景哈警务码头，标志着第165次中老缅泰湄公河联合巡逻执法行动及系列执法合作交流活动圆满收官。
 
-责任编辑：张俊 SF065
+此次行动于5月18日正式启动，按照中国、老挝、缅甸、泰国四国有关执法部门达成的共识，以“同心协力守安宁、护航澜湄惠民生”为主题，分阶段开展全线联合巡逻执法、分段巡航、水陆联动查缉等四国联合巡逻执法行动和中老缅三国联合驻训行动。
+
+行动中，四国共派出执法队员142名、执法艇5艘，历时12天，总航程达1200余公里；中方顺利完成中老缅泰湄公河联合巡逻执法驻老挝孟莫、班相果联络点中方执勤分队轮换工作。
+
+在为期7天的联合驻训行动中：中老缅三国联合开展航海、枪帆、轮机、现场执法等内容训练和经验交流28次，有效提升各国执法队员专业水平和联合执法实战能力； 以打击电信网络诈骗、涉枪涉爆、走私、偷渡等违法犯罪为重点，开展水上联合巡逻7次、水陆联合查缉4次，检查过往船只32艘、人员191人次，查验货物7600余吨，有力震慑湄公河流域各类违法犯罪。
+
+此次系列行动的成功开展，持续推动四国执法合作交流走深走实，有效维护湄公河航运安全畅通和沿岸百姓生命财产安全。
+
+(总台记者 陈政)
 
 ## 相关推荐
 
-- 2026-06-29 18:22 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 18:18 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 18:09 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 18:03 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 18:11 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 18:13 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 18:17 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 18:21 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 18:14 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 18:22 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 18:10 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 18:24 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 18:22 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 18:28 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 18:35 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 18:16 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 18:32 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 18:34 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 18:20 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 18:22 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 18:21 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 18:19 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 18:26 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/19081150335.shtml)
-- 2026-06-29 18:21 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/07697756.shtml)
-- 2026-06-29 18:05 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/3610952.shtml)
-- 2026-06-29 18:20 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/9155061.shtml)
-- 2026-06-29 18:06 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/8234470592.shtml)
-- 2026-06-29 18:18 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/651824902.shtml)
-- 2026-06-29 18:04 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/7387493.shtml)
-- 2026-06-29 18:10 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/29976266.shtml)
-- 2026-06-29 18:26 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/7398118552.shtml)
-- 2026-06-29 18:19 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/881664844.shtml)
-- 2026-06-29 18:27 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/900363666873.shtml)
-- 2026-06-29 18:03 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/311537649462.shtml)
-- 2026-06-29 18:10 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/50788346.shtml)
-- 2026-06-29 18:18 - [TTG KSG](https://www.share.minike.top/Article/details/71168123116.shtml)
-- 2026-06-29 18:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/697780.shtml)
+- 2026-06-29 18:07 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/153152648237.shtml)
+- 2026-06-29 18:21 - [V8](https://www.blog.minike.top/Article/details/30594.shtml)
+- 2026-06-29 18:07 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/2036854844.shtml)
+- 2026-06-29 18:12 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/348610717.shtml)
+- 2026-06-29 18:35 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/08956751.shtml)
+- 2026-06-29 18:14 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/08941482.shtml)
+- 2026-06-29 18:23 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/33104484.shtml)
+- 2026-06-29 18:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/428739.shtml)
+- 2026-06-29 18:35 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/399201.shtml)
+- 2026-06-29 18:13 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/932290.shtml)
+- 2026-06-29 18:35 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/93855703889.shtml)
+- 2026-06-29 18:35 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/426825942.shtml)
+- 2026-06-29 18:25 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/59993.shtml)
+- 2026-06-29 18:23 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/88822.shtml)
+- 2026-06-29 18:24 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/553191.shtml)

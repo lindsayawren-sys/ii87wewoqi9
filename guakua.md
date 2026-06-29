@@ -1,47 +1,59 @@
-# 新秀丽授出受限制股份单位
+# 韩股收盘涨3.55%再创新高，受科技股上涨及中东乐观消息提振
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-新秀丽（01910）发布公告，于2026年4月2日，公司根据2022年股份奖励计划向公司及其附属公司的新雇员授出时间挂钩受限制股份单位。与所授出时间挂钩受限制股份单位有关的公司股本中的普通股数目为78.94万股。责任编辑：卢昱君
+韩国股市周五收盘再创历史新高，受人工智能相关股票强劲上涨以及市场对中东可能停火的乐观情绪升温的推动。韩元兑美元汇率下跌。 韩国综合股价指数（KOSPI）上涨290.86点，涨幅3.55%，收于8476.15点，盘中一度触及8615.09点的新高。 当天成交量达7.015亿股，成交额达73.7万亿韩元（约合489亿美元）。下跌股票数量远超上涨股票，比例为686比205。 外国投资
 
 ## 正文
 
-新秀丽（01910）发布公告，于2026年4月2日，公司根据2022年股份奖励计划向公司及其附属公司的新雇员授出时间挂钩受限制股份单位。
+韩国股市周五收盘再创历史新高，受人工智能相关股票强劲上涨以及市场对中东可能停火的乐观情绪升温的推动。
 
-与所授出时间挂钩受限制股份单位有关的公司股本中的普通股数目为78.94万股。
+韩元兑美元汇率下跌。
 
-责任编辑：卢昱君
+韩国综合股价指数（KOSPI）上涨290.86点，涨幅3.55%，收于8476.15点，盘中一度触及8615.09点的新高。
+
+当天成交量达7.015亿股，成交额达73.7万亿韩元（约合489亿美元）。
+
+下跌股票数量远超上涨股票，比例为686比205。
+
+外国投资者和散户投资者分别净卖出1.04万亿韩元和1.4万亿韩元的股票，而机构投资者则净买入2.37万亿韩元。
+
+韩国综合股价指数（KOSPI）在前一日下跌0.53%后，重启了此前的涨势。
+
+自5月21日以来，该指数连续四个交易日上涨，并在周二首次突破8000点大关。
 
 ## 相关推荐
 
-- 2026-06-29 18:15 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 18:27 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 18:15 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 18:12 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 18:03 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 18:18 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 18:26 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 18:16 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 18:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 18:28 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 18:27 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 18:07 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 18:35 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 18:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 18:07 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 18:12 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 18:18 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 18:24 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 18:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 18:07 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 18:19 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 18:19 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 18:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 18:09 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:21 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/36597506.shtml)
-- 2026-06-29 18:03 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/67348.shtml)
-- 2026-06-29 18:22 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/31372850.shtml)
-- 2026-06-29 18:24 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/393847.shtml)
-- 2026-06-29 18:21 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/3563442.shtml)
-- 2026-06-29 18:04 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/6080319866.shtml)
-- 2026-06-29 18:08 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/4255473.shtml)
-- 2026-06-29 18:22 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/8776598804.shtml)
-- 2026-06-29 18:26 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/76227.shtml)
-- 2026-06-29 18:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/63912.shtml)
-- 2026-06-29 18:01 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.kurohicncr.top/Article/details/39428381.shtml)
-- 2026-06-29 18:16 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/795037.shtml)
-- 2026-06-29 18:05 - [中国战机大片上新](https://www.blog.minike.top/Article/details/3926039.shtml)
-- 2026-06-29 18:03 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/73376122815.shtml)
-- 2026-06-29 18:02 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/3418935021.shtml)
+- 2026-06-29 18:27 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/44947067605.shtml)
+- 2026-06-29 18:27 - [2026年，如果你有100万，你会怎么投资？](http://www.share.minike.top/Article/details/223545623.shtml)
+- 2026-06-29 18:29 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/89515142.shtml)
+- 2026-06-29 18:07 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/6906582476.shtml)
+- 2026-06-29 18:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/75863.shtml)
+- 2026-06-29 18:11 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/901678820.shtml)
+- 2026-06-29 18:22 - [大马同意延长马航370残骸搜寻工作](http://www.share.kurohicncr.top/Article/details/414364813.shtml)
+- 2026-06-29 18:28 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/51333.shtml)
+- 2026-06-29 18:28 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/5314835134.shtml)
+- 2026-06-29 18:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/07001145711.shtml)
+- 2026-06-29 18:25 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/56785574071.shtml)
+- 2026-06-29 18:08 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/223614.shtml)
+- 2026-06-29 18:22 - [朱必达辞去湖南人大常委会委员职务](http://www.share.kurohicncr.top/Article/details/681315264.shtml)
+- 2026-06-29 18:07 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/5695662.shtml)
+- 2026-06-29 18:08 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/313044.shtml)

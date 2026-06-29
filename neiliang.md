@@ -1,56 +1,61 @@
-# 北京金融管理部门联合召开做好首都金融“五篇大文章”2026年第1次（总第4次）工作会议
+# 科技未来照进现实 生活温度更有“智”感
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-来源：中国人民银行北京市分行 为贯彻落实党中央、国务院关于做好金融“五篇大文章”有关精神，强化政策协同，按照北京市工作机制安排，3月30日，人民银行北京市分行、北京金融监管局、北京证监局、市委金融办、市财政局、市发展改革委、市经济和信息化局、市科委中关村管委会、市生态环境局、市民政局、市农业农村局、市政务和数据局等部门联合召开“做好首都金融‘五篇大文章’2026年第1次（总第4
+央广网天津5月31日消息(记者周思杨 见习记者杨辉 实习记者路婧纯 蔺子贤)当机器人烹制烟火三餐、AI眼镜重构学习场景、全屋智能实现“无人家务”、智慧康养守护全龄健康……5月28日，记者在天津举办的2026世界智能产业博览会上看到，前沿科技褪去冰冷外衣，与温暖日常撞了个满怀，以诗意而鲜活的姿态融入吃、住、行、医、教、养等领域，让生活有温度更“智”感。智能走进三餐烟火，生活趣味十
 
 ## 正文
 
-来源：中国人民银行北京市分行 为贯彻落实党中央、国务院关于做好金融“五篇大文章”有关精神，强化政策协同，按照北京市工作机制安排，3月30日，人民银行北京市分行、北京金融监管局、北京证监局、市委金融办、市财政局、市发展改革委、市经济和信息化局、市科委中关村管委会、市生态环境局、市民政局、市农业农村局、市政务和数据局等部门联合召开“做好首都金融‘五篇大文章’2026年第1次（总第4次）工作会议”，工商银行北京市分行、农业银行北京市分行、浦发银行北京分行、北京银行应邀请列席本次会议。
+央广网天津5月31日消息(记者周思杨 见习记者杨辉 实习记者路婧纯 蔺子贤)当机器人烹制烟火三餐、AI眼镜重构学习场景、全屋智能实现“无人家务”、智慧康养守护全龄健康……5月28日，记者在天津举办的2026世界智能产业博览会上看到，前沿科技褪去冰冷外衣，与温暖日常撞了个满怀，以诗意而鲜活的姿态融入吃、住、行、医、教、养等领域，让生活有温度更“智”感。
 
-人民银行北京市分行党委委员、副行长袁新峰，北京金融监管局二级巡视员李昌，北京证监局二级巡视员刘薇等同志出席会议并讲话。
+智能走进三餐烟火，生活趣味十足 28日上午，记者走进N32馆1700平方米的机器人小镇，看到科技与市井烟火温柔在此交融。
 
-会议总结了2025年全市金融“五篇大文章”工作进展情况，研究审议了《做好首都金融“五篇大文章”2026年工作要点》（待审稿），工商银行北京市分行、农业银行北京市分行、浦发银行北京分行、北京银行等金融机构围绕金融“五篇大文章”进行了工作交流。
+机械臂轻巧翻转，金黄酥脆的煎饼香气四溢；精准萃取的拉花咖啡缓缓入杯，暖意顺着指尖蔓延开来；仿生机器狗灵动巡游，机器人乐队轻奏旋律，人机对弈、智能互动轮番上演。
 
-会议认为 2025年以来，在国家金融管理部门和北京市委、市政府的坚强领导和各方的共同努力下，北京市金融“五篇大文章”工作取得积极成效，政策体系与制度环境持续优化，重点领域信贷支持更加精准有力，资本市场赋能提质增效，风险分担体系不断健全，金融服务温度进一步提升。
+这里没有冰冷的陈列与隔阂，近百种智能机器人化身生活伙伴，覆盖生产服务、医疗健康、文娱互动、家居陪伴多元场景，将科幻未来变成眼前的真实日常。
 
-2025年末，辖内中资银行“五篇大文章”贷款余额同比增长10.2%，高于各项贷款增速5个百分点以上。
+在智慧居家空间，生活被赋予更从容的诗意。
 
-会议强调 做好首都金融“五篇大文章”是践行金融为民理念、服务首都高质量发展的必然要求，要进一步发挥好首都金融“五篇大文章”工作机制作用，凝心聚力、真抓实干，深化金融管理部门与产业主管部门间的协作配合，打好政策“组合拳”。
+记者在海尔智家展厅看到，“无人家务”从想象走进现实。
 
-各金融机构要围绕首都“四个中心”功能定位，切实提高对科技创新、中小微企业、扩大内需、区域协同等重点领域的金融服务质效。
+本次展出行业首套L4级智能家电Seeker套系搭载AI之眼感知细微需求。
 
-下一步，人民银行北京市分行将继续加强与相关部门的协同联动，坚持因地制宜、精准施策，持续完善首都金融“五篇大文章”体制机制，切实提高对首都重点领域和薄弱环节的支持力度，强化财政金融协同，与辖内金融机构一道，为首都经济社会高质量发展贡献更大金融力量。
+智家大脑联动全屋场景，一声轻唤，灯光渐暖、窗帘轻合、家电有序运转。
 
 ## 相关推荐
 
-- 2026-06-29 18:26 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 18:18 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 18:20 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 18:14 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 18:29 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 18:04 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 18:19 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 18:15 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 18:22 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 18:08 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 18:33 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 18:10 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 18:22 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 18:35 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 18:20 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 18:29 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 18:16 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 18:09 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 18:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 18:31 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 18:10 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 18:10 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 18:11 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 18:18 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 18:14 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:09 - [金刚川](https://www.blog.kurohicncr.top/Article/details/4214346.shtml)
-- 2026-06-29 18:13 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/18262453.shtml)
-- 2026-06-29 18:02 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/66228.shtml)
-- 2026-06-29 18:13 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/606526870961.shtml)
-- 2026-06-29 18:01 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/25500355504.shtml)
-- 2026-06-29 18:29 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/803560.shtml)
-- 2026-06-29 18:25 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/4976699080.shtml)
-- 2026-06-29 18:25 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/65173904062.shtml)
-- 2026-06-29 18:03 - [税务总局披露5起合规申报个税案例](http://www.share.minike.top/Article/details/7821244764.shtml)
-- 2026-06-29 18:29 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/124562516.shtml)
-- 2026-06-29 18:14 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/9404891593.shtml)
-- 2026-06-29 18:14 - [学者：建设性战略稳定重塑中美关系](https://www.blog.kurohicncr.top/Article/details/86760229.shtml)
-- 2026-06-29 18:20 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/6957470.shtml)
-- 2026-06-29 18:07 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/69640615958.shtml)
-- 2026-06-29 18:07 - [韩国小学生都来吐槽了](https://www.blog.minike.top/Article/details/57493.shtml)
+- 2026-06-29 18:30 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/85338.shtml)
+- 2026-06-29 18:11 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/282631871360.shtml)
+- 2026-06-29 18:15 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/75950534.shtml)
+- 2026-06-29 18:28 - [起风了](http://www.blog.minike.top/Article/details/93437057.shtml)
+- 2026-06-29 18:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/79367962.shtml)
+- 2026-06-29 18:23 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/9505194.shtml)
+- 2026-06-29 18:07 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/126586.shtml)
+- 2026-06-29 18:14 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/222947.shtml)
+- 2026-06-29 18:19 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/294987.shtml)
+- 2026-06-29 18:15 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/664330.shtml)
+- 2026-06-29 18:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/8976920.shtml)
+- 2026-06-29 18:17 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/379255.shtml)
+- 2026-06-29 18:24 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/6980780318.shtml)
+- 2026-06-29 18:27 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/933728076683.shtml)
+- 2026-06-29 18:32 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/85560487384.shtml)

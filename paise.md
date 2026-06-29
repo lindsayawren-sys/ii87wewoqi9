@@ -1,58 +1,57 @@
-# 8家头部上市保司2025银保渠道大爆发？国寿趸交撑场、太保续期亮眼、人保寿期交增速领跑同业
+# 外媒记者沉浸式助威苏超 同频中国城市的鲜活心跳
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-来源：险企高参 原标题：8家头部上市保司2025银保渠道大爆发？！国寿趸交撑场、太保续期亮眼、人保寿期交增速领跑同业；监管65号文继续铁腕严监管… 2025年低利率压顶、“报行合一”重塑行业规则，银保渠道的逆袭成拉动增长的主要引擎。 从几家上市保司的年度数据看，2025年银保渠道逆势崛起成为拉动行业增长的核心引擎。 中国人寿、平安寿险及健康险、太保寿险、新华人寿、人保寿险、人保
+原标题：外媒记者沉浸式助威苏超 同频中国城市的鲜活心跳 “进一个！进一个！”夜幕下的江阴体育中心灯火通明，看台上欢呼声此起彼伏。一群外国面孔用略带口音的中文嘶声呐喊，与现场球迷一同为球队助威，赛场氛围迅速被点燃。“我以前从不知道中国人这么热爱足球，场馆里坐满了人，球迷们的欢呼声让人感觉自己也成了他们的一部分。”阿塞拜疆国家英文频道(AnewZ)记者阿布哈亚特·加法罗娃表示，现场
 
 ## 正文
 
-来源：险企高参 原标题：8家头部上市保司2025银保渠道大爆发？
+原标题：外媒记者沉浸式助威苏超 同频中国城市的鲜活心跳 “进一个！
 
-！
+进一个！
 
-国寿趸交撑场、太保续期亮眼、人保寿期交增速领跑同业；监管65号文继续铁腕严监管… 2025年低利率压顶、“报行合一”重塑行业规则，银保渠道的逆袭成拉动增长的主要引擎。
+”夜幕下的江阴体育中心灯火通明，看台上欢呼声此起彼伏。
 
-从几家上市保司的年度数据看，2025年银保渠道逆势崛起成为拉动行业增长的核心引擎。
+一群外国面孔用略带口音的中文嘶声呐喊，与现场球迷一同为球队助威，赛场氛围迅速被点燃。
 
-中国人寿、平安寿险及健康险、太保寿险、新华人寿、人保寿险、人保健康、阳光人寿、太平人寿七家上市险企旗下寿险公司（业务板块），银保业务均交出了两位数增长的光鲜答卷，中国人寿银保总保费突破1108.74亿元大关，平安寿险新业务价值同比激增138%，太保寿险续期保费增速高达70.60%… 与规模回暖同来的是监管再度收严。
+“我以前从不知道中国人这么热爱足球，场馆里坐满了人，球迷们的欢呼声让人感觉自己也成了他们的一部分。
 
-2026年3月，国家金融监督管理总局人身保险监管司正式印发《关于进一步加强银行代理渠道费用管理有关事项的通知》（下称：65号文），并同步配套发布实操问答，这份文件是以全口径费用备案、全流程刚性执行、全层级实名追责的穿透式监管，精准戳破银保渠道长期存在的费用虚列、小账暗补、违规激励等沉疴，七条违规红线清晰划定，彻底终结险企“砸钱换规模”的粗放旧模式，也为狂飙突进的银保赛道立下了最严苛的合规标尺… 8家保司银保渠道亮眼 增速易求，成色难得 2025年低利率压顶、“报行合一”重塑行业规则，银保渠道的逆袭成拉动增长的主要引擎。
+”阿塞拜疆国家英文频道(AnewZ)记者阿布哈亚特·加法罗娃表示，现场氛围远超她的预期。
 
-上市公司旗下寿险公司（业务板块）：中国人寿、平安寿险及健康险、太保寿险、新华人寿、人保寿险、人保健康、阳光人寿、太平人寿八家险企银保渠道全线飘红，增速亮眼。
+外媒记者为球员加油助威 5月30日，2026“走读中国”国际媒体交流项目江苏线活动邀请来自俄罗斯、沙特阿拉伯、阿尔及利亚等多国外国媒体记者走进江阴，现场观看江苏省城市足球联赛(以下简称“苏超”)无锡队对阵南京队的比赛，感受中国群众体育的发展活力与城市发展的新气象。
 
-只是仔细看来，各家具体表现不一。
+“苏超”以13座城市为参赛主体，将足球赛事与城市文化、群众参与深度融合，凭借广泛的群众基础持续“出圈”，成为观察中国群众体育发展的一个窗口。
 
 ## 相关推荐
 
-- 2026-06-29 18:15 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 18:24 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 18:20 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 18:18 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 18:17 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 18:13 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 18:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 18:28 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 18:16 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 18:28 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 18:06 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 18:22 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 18:23 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 18:17 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 18:26 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 18:18 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 18:26 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 18:11 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 18:13 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 18:08 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 18:16 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 18:31 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 18:34 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:27 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/6389946.shtml)
-- 2026-06-29 18:03 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/95901474.shtml)
-- 2026-06-29 18:28 - [看大国重器“云端穿针引线”](http://www.share.minike.top/Article/details/74296587308.shtml)
-- 2026-06-29 18:20 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/41510024.shtml)
-- 2026-06-29 18:22 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/94002819.shtml)
-- 2026-06-29 18:01 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/51123551701.shtml)
-- 2026-06-29 18:09 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/52875589811.shtml)
-- 2026-06-29 18:04 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/2869456.shtml)
-- 2026-06-29 18:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/36882.shtml)
-- 2026-06-29 18:03 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/09179.shtml)
-- 2026-06-29 18:16 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/543521.shtml)
-- 2026-06-29 18:29 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/95335630698.shtml)
-- 2026-06-29 18:04 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/606833986.shtml)
-- 2026-06-29 18:12 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/133933750293.shtml)
-- 2026-06-29 18:00 - [女生每天戴耳机18小时突发耳聋](https://www.share.minike.top/Article/details/84769602.shtml)
+- 2026-06-29 18:17 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/76400773270.shtml)
+- 2026-06-29 18:30 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/457637825.shtml)
+- 2026-06-29 18:12 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/06472.shtml)
+- 2026-06-29 18:19 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/9437525654.shtml)
+- 2026-06-29 18:24 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/523484418625.shtml)
+- 2026-06-29 18:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/628894473.shtml)
+- 2026-06-29 18:30 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/87368252.shtml)
+- 2026-06-29 18:23 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/96304589917.shtml)
+- 2026-06-29 18:18 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/6164422.shtml)
+- 2026-06-29 18:23 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/791017658.shtml)
+- 2026-06-29 18:26 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/908743868.shtml)
+- 2026-06-29 18:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/591282539018.shtml)
+- 2026-06-29 18:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/22211312206.shtml)
+- 2026-06-29 18:32 - [T1 KC](http://www.blog.kurohicncr.top/Article/details/48339049306.shtml)
+- 2026-06-29 18:14 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/2976002.shtml)

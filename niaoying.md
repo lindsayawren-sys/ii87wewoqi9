@@ -1,61 +1,60 @@
-# 晶合集成冲刺港股：年营收104亿，净利同比降3% 华勤技术去年斥资24亿买老股
+# 石油即将“畅行”霍尔木兹？白宫哈塞特预测：一两个月内！
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-来源：雷递 雷递网 雷建平 4月7日 合肥晶合集成电路股份有限公司（简称“晶合集成”）日前更新招股书，准备在港交所上市。 晶合集成2023年5月在科创板上市，是安徽省首家成功登陆资本市场的纯晶圆代工企业。 截至今日收盘，晶合集成股价为28.31元，市值为568亿元。一旦在港股上市，晶合集成形成“A+H”的格局。 年营收104亿 净利同比降3% 晶合集成成立于2015年5月，由合
+转自：财联社 财联社6月1日讯（编辑 黄君芝）美东时间周日（5月31日），美国白宫首席经济顾问凯文·哈塞特（Kevin Hassett）预测，石油运输将在“一两个月内”通过霍尔木兹海峡，尽管该海峡因美伊冲突一直处于停滞状态。 哈塞特在一档节目中表示，现在通过海峡的“交通流量比两周前要大得多”。 “所以，巴基斯坦和印度那些炼油厂大多停产的国家，最终重新开始炼油，”他说：“他们恢复
 
 ## 正文
 
-来源：雷递 雷递网 雷建平 4月7日 合肥晶合集成电路股份有限公司（简称“晶合集成”）日前更新招股书，准备在港交所上市。
+转自：财联社 财联社6月1日讯（编辑 黄君芝）美东时间周日（5月31日），美国白宫首席经济顾问凯文·哈塞特（Kevin Hassett）预测，石油运输将在“一两个月内”通过霍尔木兹海峡，尽管该海峡因美伊冲突一直处于停滞状态。
 
-晶合集成2023年5月在科创板上市，是安徽省首家成功登陆资本市场的纯晶圆代工企业。
+哈塞特在一档节目中表示，现在通过海峡的“交通流量比两周前要大得多”。
 
-截至今日收盘，晶合集成股价为28.31元，市值为568亿元。
+“所以，巴基斯坦和印度那些炼油厂大多停产的国家，最终重新开始炼油，”他说：“他们恢复炼油厂的生产，成品油价格就会在全球范围内下降，然后这种趋势会蔓延开来。
 
-一旦在港股上市，晶合集成形成“A+H”的格局。
+但实际上，炼油厂完全恢复运转还需要一到两个月的时间。
 
-年营收104亿 净利同比降3% 晶合集成成立于2015年5月，由合肥市建设投资控股（集团）有限公司与力晶创新投资控股股份有限公司合资建设。
+” 自2月底冲突爆发以来，伊朗封锁霍尔木兹海峡导致能源价格飙升。
 
-晶合集成主要从事 12 英寸晶圆代工业务，致力于研发及应用行业先进的工艺，为客户提供不同工艺平台、多种制程节点的晶圆代工服务。
+哈塞特表示，这些价格“远没有许多人预测的那么高，部分原因是人们已经找到了应对之策”。
 
-在晶圆代工制程节点方面，晶合集成已实现150nm至40nm制程平台的量产，28nmOLED产品持续验证中，28nm 逻辑工艺平台已完成开发。
+“沙特阿拉伯有一条大型输油管道，可以输送更多石油而无需经过海湾地区，”他补充道。
 
-在工艺平台应用方面，公司目前已具备DDIC、CIS、PMIC、Logic、MCU 等工艺平台晶圆代工的技术能力。
+哈塞特还称，尽管战争对能源价格和经济造成了影响，引发了焦虑，但美国人对自己的经济状况仍持乐观态度。
 
 ## 相关推荐
 
-- 2026-06-29 18:06 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 18:02 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 18:01 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 18:07 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 18:19 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 18:12 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 18:08 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 18:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 18:29 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 18:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 18:05 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 18:09 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 18:01 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 18:05 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 18:08 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 18:16 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 18:33 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 18:25 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 18:18 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 18:24 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 18:27 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 18:21 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 18:19 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 18:24 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 18:14 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 18:15 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 18:14 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 18:15 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 18:07 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/191036443023.shtml)
-- 2026-06-29 18:20 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/6331083.shtml)
-- 2026-06-29 18:25 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/97536889.shtml)
-- 2026-06-29 18:25 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/8951261.shtml)
-- 2026-06-29 18:09 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/482002.shtml)
-- 2026-06-29 18:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/94244480286.shtml)
-- 2026-06-29 18:14 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/07811098.shtml)
-- 2026-06-29 18:14 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/40675.shtml)
-- 2026-06-29 18:22 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/580571525212.shtml)
-- 2026-06-29 18:23 - [天道](http://www.share.kurohicncr.top/Article/details/1684004546.shtml)
-- 2026-06-29 18:03 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/806091058.shtml)
-- 2026-06-29 18:02 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/25510.shtml)
-- 2026-06-29 18:21 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/56372.shtml)
-- 2026-06-29 18:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/512582687751.shtml)
-- 2026-06-29 18:20 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/48032325517.shtml)
+- 2026-06-29 18:17 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/24112.shtml)
+- 2026-06-29 18:12 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/33367.shtml)
+- 2026-06-29 18:20 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/18225795.shtml)
+- 2026-06-29 18:27 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/850784110756.shtml)
+- 2026-06-29 18:12 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/99643405.shtml)
+- 2026-06-29 18:11 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/432375956821.shtml)
+- 2026-06-29 18:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/9048629.shtml)
+- 2026-06-29 18:11 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/83005235.shtml)
+- 2026-06-29 18:16 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/486732211.shtml)
+- 2026-06-29 18:22 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/64277.shtml)
+- 2026-06-29 18:06 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/14920.shtml)
+- 2026-06-29 18:34 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/6260586088.shtml)
+- 2026-06-29 18:34 - [税务总局披露5起合规申报个税案例](http://www.blog.minike.top/Article/details/29798431818.shtml)
+- 2026-06-29 18:10 - [沉睡花园](https://www.blog.minike.top/Article/details/10178.shtml)
+- 2026-06-29 18:09 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/5590646612.shtml)

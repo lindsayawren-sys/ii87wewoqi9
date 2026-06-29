@@ -1,54 +1,50 @@
-# 伊朗警告：将打击美国及其盟友的基础设施
+# “智”在天津！智博会见证天津的“科技未来”
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新网4月7日电 据美国全国广播公司(NBC)7日报道，伊朗伊斯兰革命卫队7日发表声明警告称，如果美国总统特朗普继续威胁民用基础设施，伊朗将采取行动，在未来数年内切断美国及其盟友在本地区的石油和天然气供应。据报道，伊朗伊斯兰革命卫队在一份声明中称，“我们没有对平民目标发动袭击，将来也不会；但是，对于针对平民设施的卑鄙侵略行为，我们将毫不犹豫地进行报复。” 伊朗伊斯兰革命卫队还称
+发布时间：2026年05月31日 11:29 来源：中国新闻网 2026世界智能产业博览会于5月28日至31日在天津举办。本届智博会展览规模空前，13万平方米的展区中集结超700家参展企业，全方位展现“全、新、活、实”四大鲜明特色，完整勾勒出智能产业全链条发展图谱。从AI安全到脑机接口，从商业航天到具身智能，在这场全球智能产业的顶级盛宴中，“智汇天津”的科创实力，正被全方位见证
 
 ## 正文
 
-中新网4月7日电 据美国全国广播公司(NBC)7日报道，伊朗伊斯兰革命卫队7日发表声明警告称，如果美国总统特朗普继续威胁民用基础设施，伊朗将采取行动，在未来数年内切断美国及其盟友在本地区的石油和天然气供应。
+发布时间：2026年05月31日 11:29 来源：中国新闻网 2026世界智能产业博览会于5月28日至31日在天津举办。
 
-据报道，伊朗伊斯兰革命卫队在一份声明中称，“我们没有对平民目标发动袭击，将来也不会；但是，对于针对平民设施的卑鄙侵略行为，我们将毫不犹豫地进行报复。
+本届智博会展览规模空前，13万平方米的展区中集结超700家参展企业，全方位展现“全、新、活、实”四大鲜明特色，完整勾勒出智能产业全链条发展图谱。
 
-” 伊朗伊斯兰革命卫队还称，将打击美国及其盟友的基础设施，并威胁在未来数年内切断美国及其盟友在本地区的石油和天然气供应。
+从AI安全到脑机接口，从商业航天到具身智能，在这场全球智能产业的顶级盛宴中，“智汇天津”的科创实力，正被全方位见证。
 
-声明称，“区域内的美国盟友应该明白，到目前为止，为了睦邻友好，我们一直保持着相当大的克制，并在选择报复目标时采取了预防措施，但从现在开始，克制已结束。
-
-”
+责任编辑：【任帅】
 
 ## 相关推荐
 
-- 2026-06-29 18:19 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 18:22 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 18:24 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 18:08 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 18:13 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 18:15 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 18:04 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 18:20 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 18:05 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 18:20 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 18:12 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 18:11 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 18:07 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 18:30 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 18:15 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 18:35 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 18:23 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 18:19 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 18:07 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 18:32 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 18:29 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 18:14 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 18:09 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 18:26 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 18:20 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 18:23 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:28 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/58591473.shtml)
-- 2026-06-29 18:21 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/5793480.shtml)
-- 2026-06-29 18:05 - [日本偶像龟梨和也宣布结婚](https://www.share.kurohicncr.top/Article/details/278997780.shtml)
-- 2026-06-29 18:12 - [沙特外交大臣将访华](http://www.blog.kurohicncr.top/Article/details/2146208.shtml)
-- 2026-06-29 18:05 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.minike.top/Article/details/833990668736.shtml)
-- 2026-06-29 18:15 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/37688526.shtml)
-- 2026-06-29 18:05 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/738111782.shtml)
-- 2026-06-29 18:29 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/2946429.shtml)
-- 2026-06-29 18:16 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/86463499.shtml)
-- 2026-06-29 18:23 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/2208724.shtml)
-- 2026-06-29 18:03 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/201447246686.shtml)
-- 2026-06-29 18:10 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/321364244895.shtml)
-- 2026-06-29 18:30 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/1263643252.shtml)
-- 2026-06-29 18:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/92593935.shtml)
-- 2026-06-29 18:13 - [和周杰伦在演唱会合唱了](http://www.blog.minike.top/Article/details/5954563913.shtml)
+- 2026-06-29 18:23 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/271743302292.shtml)
+- 2026-06-29 18:32 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/27448281345.shtml)
+- 2026-06-29 18:32 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/588463817096.shtml)
+- 2026-06-29 18:23 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/361266.shtml)
+- 2026-06-29 18:18 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/512342202.shtml)
+- 2026-06-29 18:26 - [当我回母校教书](https://www.share.minike.top/Article/details/614923.shtml)
+- 2026-06-29 18:23 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/942351268907.shtml)
+- 2026-06-29 18:15 - [娜扎搂着我的腰和我合照](https://www.blog.minike.top/Article/details/06189412.shtml)
+- 2026-06-29 18:14 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/4703831957.shtml)
+- 2026-06-29 18:28 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/3281401.shtml)
+- 2026-06-29 18:08 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/175055199.shtml)
+- 2026-06-29 18:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/99293.shtml)
+- 2026-06-29 18:16 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/97009057983.shtml)
+- 2026-06-29 18:31 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/046162938.shtml)
+- 2026-06-29 18:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/917505309271.shtml)

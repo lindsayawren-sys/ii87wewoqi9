@@ -1,61 +1,60 @@
-# A股ESG强制披露迎“首考”：192家公司已“交卷”
+# 美联储官员发声：断言加息为时过早，但需保留所有政策选项
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本报记者 吴晓璐 今年，A股上市公司可持续发展（ESG）报告迎来强制披露“首考”。记者根据上市公司公告不完全统计，截至4月7日，已经有567家上市公司披露了2025年ESG报告，其中包括纳入强制披露范围的192家上市公司。 接受《证券日报》记者采访的专家表示
+文章来源：金十数据 在周五的一场活动上，明尼阿波利斯联储主席卡什卡利就美国货币政策前景作出表态。他指出，目前尚不足以判断需要立即上调利率，但强调政策路径仍需保持灵活。 卡什卡利在发言中表示：“我认为，现在就断言我们需要立即加息还为时过早。在做出任何政策调整之前，我们需要继续观察数据，并关注中东冲突的后续发展。”他认为，地缘政治因素正在对经济判断产生影响，因此决策仍需谨慎推进。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+文章来源：金十数据 在周五的一场活动上，明尼阿波利斯联储主席卡什卡利就美国货币政策前景作出表态。
 
-本报记者 吴晓璐 今年，A股上市公司可持续发展（ESG）报告迎来强制披露“首考”。
+他指出，目前尚不足以判断需要立即上调利率，但强调政策路径仍需保持灵活。
 
-记者根据上市公司公告不完全统计，截至4月7日，已经有567家上市公司披露了2025年ESG报告，其中包括纳入强制披露范围的192家上市公司。
+卡什卡利在发言中表示：“我认为，现在就断言我们需要立即加息还为时过早。
 
-接受《证券日报》记者采访的专家表示，近年来，ESG报告披露内容的完整性提升，内容更加翔实客观，逐步从定性描述转向定量数据展示，可比性和透明度有所提升。
+在做出任何政策调整之前，我们需要继续观察数据，并关注中东冲突的后续发展。
 
-下一步，上市公司ESG报告将从“强制披露”迈向“价值披露”。
+”他认为，地缘政治因素正在对经济判断产生影响，因此决策仍需谨慎推进。
 
-安永大中华区ESG可持续发展主管合伙人李菁在接受《证券日报》记者采访时表示，未来，需要监管、企业、市场、中介等多方协同发力，推动ESG披露数量扩容、质量提升，推动ESG成为上市公司高质量发展的核心驱动力，助力资本市场服务绿色转型。
+围绕利率路径的分歧，在美联储4月份议息会议中已有体现。
 
-四成强制披露主体已“交卷” ESG报告被称为上市公司的第二张“财务报表”，正成为市场评估企业价值、风险和长期竞争力的必要非财务信息。
+尽管会议最终决定维持利率不变，卡什卡利支持这一结果，但他与另外两位政策制定者对声明中暗示未来可能降息的表述持反对意见。
 
-根据沪深北证券交易所发布的上市公司可持续发展报告信息披露指引（以下简称《指引》）要求，上证180、科创50、深证100、创业板指数样本公司，以及境内外同时上市公司，应在2026年4月30日前首次披露2025年度可持续发展报告。
+这三人更倾向于采用中性措辞，以明确保留包括加息在内的多种政策可能性。
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 18:16 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 18:23 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 18:01 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 18:10 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 18:14 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 18:07 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 18:07 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 18:00 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 18:06 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 18:01 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 18:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 18:01 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 18:26 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 18:14 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 18:30 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 18:09 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 18:33 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 18:23 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 18:28 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 18:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 18:14 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 18:27 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 18:23 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 18:21 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 18:19 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 18:10 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 18:09 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 18:09 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/749882.shtml)
-- 2026-06-29 18:07 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/58199450922.shtml)
-- 2026-06-29 18:25 - [大马同意延长马航370残骸搜寻工作](https://www.share.kurohicncr.top/Article/details/87573748313.shtml)
-- 2026-06-29 18:06 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/645379968260.shtml)
-- 2026-06-29 18:01 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/26278.shtml)
-- 2026-06-29 18:29 - [大马同意延长马航370残骸搜寻工作](https://www.share.kurohicncr.top/Article/details/729370.shtml)
-- 2026-06-29 18:11 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/234706477357.shtml)
-- 2026-06-29 18:27 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/1764254.shtml)
-- 2026-06-29 18:09 - [倪春青跨市履新苏州市委组织部部长](https://www.share.kurohicncr.top/Article/details/49758.shtml)
-- 2026-06-29 18:12 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/90584234966.shtml)
-- 2026-06-29 18:29 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/341991.shtml)
-- 2026-06-29 18:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/4471380794.shtml)
-- 2026-06-29 18:00 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/609176497702.shtml)
-- 2026-06-29 18:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/6741727731.shtml)
-- 2026-06-29 18:25 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/609791292501.shtml)
+- 2026-06-29 18:18 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/23789325781.shtml)
+- 2026-06-29 18:20 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/750293.shtml)
+- 2026-06-29 18:18 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/80621.shtml)
+- 2026-06-29 18:11 - [赵今麦时隔五年再演李诗情](https://www.share.minike.top/Article/details/09340934.shtml)
+- 2026-06-29 18:14 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/95623770196.shtml)
+- 2026-06-29 18:20 - [勇敢的心第二部](http://www.share.minike.top/Article/details/72743.shtml)
+- 2026-06-29 18:06 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/52555028.shtml)
+- 2026-06-29 18:36 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/742350897803.shtml)
+- 2026-06-29 18:35 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/19175.shtml)
+- 2026-06-29 18:27 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/823134531.shtml)
+- 2026-06-29 18:12 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/694379064894.shtml)
+- 2026-06-29 18:19 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/9660603.shtml)
+- 2026-06-29 18:17 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/121277767919.shtml)
+- 2026-06-29 18:25 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/39973.shtml)
+- 2026-06-29 18:34 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/529895682.shtml)

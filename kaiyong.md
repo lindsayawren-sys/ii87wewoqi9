@@ -1,56 +1,54 @@
-# 山西忻州：科技赋能“葱”满希望
+# Do you know“内卷”？奔驰外籍高管回应
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-六战奥运不是梦！徐梦桃：备战下届冬奥要有信心和恒心宠物可单独“坐高铁”了！高铁宠物托运今起优化从“手上功夫”到跨界融合 千年夏布焕新生谁说海天相隔？山东这座小城，用火箭连接星辰大海无论升级还是停火，美伊博弈的重点都是海峡如何重开霍尔木兹海峡？国际社会分歧明显特朗普施压加码，最后期限逼近，美伊谈判难在哪？国家连续调控油价 彰显政策温度民生担当唐王城遗址何以实证屯垦戍边是国家疆域治
+专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。梅赛德斯-奔驰（中国）投资有限公司高级执行副总裁、梅赛德斯-奔驰中国研发和采购负责人庄睦德（Drummond Jacoy）现场被问及是否知道“内卷”，他回答称：我对此非常了解。没错，竞争十分激烈（I am very familiar with it． Oh yes， the c
 
 ## 正文
 
-六战奥运不是梦！
+专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。
 
-徐梦桃：备战下届冬奥要有信心和恒心宠物可单独“坐高铁”了！
+梅赛德斯-奔驰（中国）投资有限公司高级执行副总裁、梅赛德斯-奔驰中国研发和采购负责人庄睦德（Drummond Jacoy）现场被问及是否知道“内卷”，他回答称：我对此非常了解。
 
-高铁宠物托运今起优化从“手上功夫”到跨界融合 千年夏布焕新生谁说海天相隔？
+没错，竞争十分激烈（I am very familiar with it． Oh yes， the competition is fierce）。
 
-山东这座小城，用火箭连接星辰大海无论升级还是停火，美伊博弈的重点都是海峡如何重开霍尔木兹海峡？
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-国际社会分歧明显特朗普施压加码，最后期限逼近，美伊谈判难在哪？
-
-国家连续调控油价 彰显政策温度民生担当唐王城遗址何以实证屯垦戍边是国家疆域治理千年之策？
-
-飞了个寂寞？
-
-这趟“原地起飞降落”的航班，背后藏着温柔从盲童到按摩师，甘肃视障人士的“指尖追光”之路华北首个跨省省级幸福河湖的背后全红婵——泳池不小，但世界更大从布洛芬到高铁票 中国年轻人“花式祭扫”引热议1元打造“朋友圈富豪”，是在违法边缘疯狂试探陈丽华逝世：把紫檀留给后人，比留钱更有意义一场迟到66年的认亲：她在清明雨中喊了一声“爸爸妈妈”春假遇清明 中国假日经济显活力厦门临空经济片区创新模式 助企攻克氢能关键技术“樱”你而来！
+责任编辑：王翔
 
 ## 相关推荐
 
-- 2026-06-29 18:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 18:24 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 18:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 18:11 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 18:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 18:16 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 18:29 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 18:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 18:22 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 18:09 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 18:28 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 18:16 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 18:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 18:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 18:27 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 18:10 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 18:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 18:33 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 18:26 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 18:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 18:35 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 18:17 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 18:07 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 18:14 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/27101367029.shtml)
-- 2026-06-29 18:12 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/64200323.shtml)
-- 2026-06-29 18:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/62454.shtml)
-- 2026-06-29 18:08 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/0619683054.shtml)
-- 2026-06-29 18:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/021507146.shtml)
-- 2026-06-29 18:28 - [谢依霖夸杨幂靠谱](https://www.blog.minike.top/Article/details/084294517.shtml)
-- 2026-06-29 18:15 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/273048218279.shtml)
-- 2026-06-29 18:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/756570.shtml)
-- 2026-06-29 18:04 - [朱必达辞去湖南人大常委会委员职务](http://www.share.kurohicncr.top/Article/details/36982.shtml)
-- 2026-06-29 18:03 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/79543141257.shtml)
-- 2026-06-29 18:08 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.kurohicncr.top/Article/details/214151.shtml)
-- 2026-06-29 18:25 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/8837983.shtml)
-- 2026-06-29 18:28 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/8887166.shtml)
-- 2026-06-29 18:24 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/4784413544.shtml)
-- 2026-06-29 18:28 - [斛珠夫人](https://www.share.minike.top/Article/details/45247.shtml)
+- 2026-06-29 18:08 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/9005031372.shtml)
+- 2026-06-29 18:13 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/22655.shtml)
+- 2026-06-29 18:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/2763294.shtml)
+- 2026-06-29 18:27 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/422535583.shtml)
+- 2026-06-29 18:16 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/3911973797.shtml)
+- 2026-06-29 18:15 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/793366378522.shtml)
+- 2026-06-29 18:09 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/379393.shtml)
+- 2026-06-29 18:25 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/379587.shtml)
+- 2026-06-29 18:22 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/927839108.shtml)
+- 2026-06-29 18:13 - [沉睡花园](http://www.blog.minike.top/Article/details/10087944.shtml)
+- 2026-06-29 18:25 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/679249021004.shtml)
+- 2026-06-29 18:33 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/027911115772.shtml)
+- 2026-06-29 18:27 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/9263588120.shtml)
+- 2026-06-29 18:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/59035206.shtml)
+- 2026-06-29 18:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/604259424883.shtml)

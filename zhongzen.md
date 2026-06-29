@@ -1,58 +1,54 @@
-# 光大期货：4月8日软商品日报
+# 欧洲央行管委佩雷拉：必须尽早应对通胀
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 白糖：现货报价方面，广西制糖集团报价区间为5320~5450元/吨，下调20元/吨；云南制糖集团报价5170~ 5230元/吨，下调20~30元/吨；加工糖厂主流报价区间为5620~5850元/吨，部分下调20元/吨。昨日冲突各方达成暂时停火协议，原油价格大幅回落，预计商品将暂回基本面主导。国内
+欧洲央行管理委员会成员、葡萄牙央行行长阿尔瓦罗・桑托斯・佩雷拉周六接受采访时表示，欧洲央行应当尽早出手应对通胀问题。佩雷拉称：“当前我们的首要关切是通胀，必须密切关注各项数据。结合过往经验来看，我们需要尽早采取行动，避免通胀产生更严重的二次传导效应。” 他表示：“一旦出现通胀螺旋上升的局面，我倾向于迅速、果断地出台举措。”当被问及这是否意味着他会支持欧洲央行在下月会议上加息时，
 
 ## 正文
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 白糖：现货报价方面，广西制糖集团报价区间为5320~5450元/吨，下调20元/吨；云南制糖集团报价5170~ 5230元/吨，下调20~30元/吨；加工糖厂主流报价区间为5620~5850元/吨，部分下调20元/吨。
+欧洲央行管理委员会成员、葡萄牙央行行长阿尔瓦罗・桑托斯・佩雷拉周六接受采访时表示，欧洲央行应当尽早出手应对通胀问题。
 
-昨日冲突各方达成暂时停火协议，原油价格大幅回落，预计商品将暂回基本面主导。
+佩雷拉称：“当前我们的首要关切是通胀，必须密切关注各项数据。
 
-国内库存压力不改，未来关注最终国内定产情况及未来去库进度，外部提振退温后，预计糖价暂时承压。
+结合过往经验来看，我们需要尽早采取行动，避免通胀产生更严重的二次传导效应。
 
-棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周二，ICE美棉下跌0.56%，报收71.27美分/磅，郑棉主力合约环比下降0.13%，报收15220元/吨，主力合约持仓环比下降24947手至40.69万手，棉花3128B现货价格指数16410元/吨，较前一日下降20元/吨。
+” 他表示：“一旦出现通胀螺旋上升的局面，我倾向于迅速、果断地出台举措。
 
-国际市场方面，中东地区地缘冲突仍在持续，消息较多，反复不定，特朗普再度TACO，美元指数、原油价格震荡走弱，黄金价格走强，持续密切关注相关进展。
+”当被问及这是否意味着他会支持欧洲央行在下月会议上加息时， 他回应：“届时欧洲央行将公布最新预估数据及各国相关指标，我们会综合研判物价走势，再作出最终决定。
 
-国内市场方面，郑棉期价窄幅震荡，主力合约移仓换月中。
-
-基本面来看，目前正值新棉种植期，市场关注重心聚焦于此。
-
-2026年新疆地区棉花种植面积下降基本成为定局，但减产幅度有一定分歧，远月合约表现偏强，对此已有一定计价，后续需要关注预期兑现以及需求能否顺利承接本年度如此大量供应问题。
+”责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 18:28 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 18:23 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 18:06 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 18:07 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 18:11 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 18:03 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 18:08 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 18:10 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 18:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 18:27 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 18:08 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 18:32 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 18:12 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 18:32 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 18:09 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 18:30 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 18:31 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 18:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 18:35 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 18:34 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 18:15 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 18:27 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 18:19 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:25 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/582798.shtml)
-- 2026-06-29 18:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/011771407224.shtml)
-- 2026-06-29 18:10 - [绘画区你赢了](http://www.blog.minike.top/Article/details/146940.shtml)
-- 2026-06-29 18:19 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/62685.shtml)
-- 2026-06-29 18:21 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/92593930207.shtml)
-- 2026-06-29 18:19 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/10618190.shtml)
-- 2026-06-29 18:00 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/36577.shtml)
-- 2026-06-29 18:21 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/602810934.shtml)
-- 2026-06-29 18:09 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/442758011.shtml)
-- 2026-06-29 18:21 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/387243088.shtml)
-- 2026-06-29 18:15 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/666956493625.shtml)
-- 2026-06-29 18:15 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/9453994.shtml)
-- 2026-06-29 18:22 - [韩国小学生都来吐槽了](https://www.share.minike.top/Article/details/595837.shtml)
-- 2026-06-29 18:05 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/921941.shtml)
-- 2026-06-29 18:15 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/64660.shtml)
+- 2026-06-29 18:25 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/58391.shtml)
+- 2026-06-29 18:23 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/66931.shtml)
+- 2026-06-29 18:11 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/858635082839.shtml)
+- 2026-06-29 18:29 - [时光音乐会](https://www.share.minike.top/Article/details/52829030814.shtml)
+- 2026-06-29 18:17 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/81398816.shtml)
+- 2026-06-29 18:28 - [世界杯在中国观看最多的比赛](https://www.share.minike.top/Article/details/31428.shtml)
+- 2026-06-29 18:08 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/552965.shtml)
+- 2026-06-29 18:24 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/09037877279.shtml)
+- 2026-06-29 18:33 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/79894.shtml)
+- 2026-06-29 18:32 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/34624006.shtml)
+- 2026-06-29 18:09 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/42777.shtml)
+- 2026-06-29 18:20 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/23716675774.shtml)
+- 2026-06-29 18:11 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/9927154995.shtml)
+- 2026-06-29 18:06 - [谢依霖夸杨幂靠谱](https://www.share.minike.top/Article/details/89552561.shtml)
+- 2026-06-29 18:25 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/00788.shtml)

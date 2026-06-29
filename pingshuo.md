@@ -1,53 +1,60 @@
-# 工程机械出口增长强劲，工程机械ETF富国（516250）盘中涨幅超5%
+# 山西“十五五”全面推进美丽蓝天建设 聚焦重点行业深度减排
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-4月8日，工程机械板块表现强势，工程机械ETF富国（516250）盘中涨幅超5%，截至发稿的最新涨幅为4.88%。 标的指数成分股中，联德股份10CM涨停，尤洛卡、海南华铁吧、光力科技等强势上涨，98%个股飘红。 消息面上，今年前两个月，我国工程机械产品对非洲、大洋洲、欧洲的出口增幅分别为77%、50.6%、28.1%。 研究机构指出，本轮高增长的原因可归结为三点：一是全球基建
+中新网太原5月29日电 (记者 杨杰英)“十四五”以来，山西省环境空气质量持续改善。在29日举行的2025年全省生态环境质量状况新闻发布会上，山西省生态环境厅大气环境处处长高峰表示，“十五五”时期山西将以重点行业深度减排为突破口，全面推进美丽蓝天建设。高峰表示，回顾五年来的工作实践，污染减排是根本措施。大气污染防治的核心是减少污染物排放，山西充分发挥生态环境保护和高质量发展互促
 
 ## 正文
 
-4月8日，工程机械板块表现强势，工程机械ETF富国（516250）盘中涨幅超5%，截至发稿的最新涨幅为4.88%。
+中新网太原5月29日电 (记者 杨杰英)“十四五”以来，山西省环境空气质量持续改善。
 
-标的指数成分股中，联德股份10CM涨停，尤洛卡、海南华铁吧、光力科技等强势上涨，98%个股飘红。
+在29日举行的2025年全省生态环境质量状况新闻发布会上，山西省生态环境厅大气环境处处长高峰表示，“十五五”时期山西将以重点行业深度减排为突破口，全面推进美丽蓝天建设。
 
-消息面上，今年前两个月，我国工程机械产品对非洲、大洋洲、欧洲的出口增幅分别为77%、50.6%、28.1%。
+高峰表示，回顾五年来的工作实践，污染减排是根本措施。
 
-研究机构指出，本轮高增长的原因可归结为三点：一是全球基建与矿业投资进入新一轮活跃期，特别是能源转型带动锂、铜、镍等关键矿产开采需求激增；二是国内企业经过多年深耕，海外渠道和本地化服务能力显著增强；三是中国供应链的稳定性和高性价比，在全球供应链重构中承接了部分国际订单转移。
+大气污染防治的核心是减少污染物排放，山西充分发挥生态环境保护和高质量发展互促共进的作用，着力推动产业、能源、交通绿色低碳转型。
 
-工程机械ETF富国（516250）覆盖整机、核心零部件及产业链上下游，具备较强行业代表性，有望精准把握板块结构性行情，成为投资者布局工程机械赛道的高效选择。
+一组数据可以佐证：“十四五”期间，山西累计淘汰落后煤电机组412万千瓦，全面退出4.3米焦炉，压减粗钢产能306万吨，新增清洁取暖改造229.9万户，基本淘汰35蒸吨及以下燃煤锅炉，新能源重卡数量达到3.23万辆。
 
-责任编辑：郭栩彤
+同时，21家钢铁企业、66家焦化企业、43家水泥熟料企业加快推进超低排放改造，从源头大幅降低了污染物排放总量。
+
+精准治理是有效路径。
+
+高峰介绍，大气污染治理点多面广，涉及工业源、交通源、生活源等方方面面。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 18:11 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 18:12 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 18:22 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 18:10 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 18:17 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 18:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 18:13 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 18:18 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 18:29 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 18:24 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 18:34 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 18:13 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 18:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 18:23 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 18:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 18:07 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 18:33 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 18:21 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 18:26 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 18:09 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 18:19 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 18:24 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 18:19 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 18:21 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:07 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/610141868.shtml)
-- 2026-06-29 18:17 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/37576796525.shtml)
-- 2026-06-29 18:06 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/355343.shtml)
-- 2026-06-29 18:18 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/9210581.shtml)
-- 2026-06-29 18:09 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/4897139705.shtml)
-- 2026-06-29 18:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/15417392793.shtml)
-- 2026-06-29 18:07 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/29765958758.shtml)
-- 2026-06-29 18:13 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/087617625.shtml)
-- 2026-06-29 18:00 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/748753.shtml)
-- 2026-06-29 18:04 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/0923494168.shtml)
-- 2026-06-29 18:16 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/68854522.shtml)
-- 2026-06-29 18:04 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/118095960789.shtml)
-- 2026-06-29 18:18 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/1257968887.shtml)
-- 2026-06-29 18:08 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/542035938.shtml)
-- 2026-06-29 18:01 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/48760855424.shtml)
+- 2026-06-29 18:07 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/31252783519.shtml)
+- 2026-06-29 18:12 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/9137832058.shtml)
+- 2026-06-29 18:30 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/147718469.shtml)
+- 2026-06-29 18:23 - [毒液2](https://www.share.kurohicncr.top/Article/details/21551600412.shtml)
+- 2026-06-29 18:17 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/941098787216.shtml)
+- 2026-06-29 18:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/03808554772.shtml)
+- 2026-06-29 18:25 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/13267602657.shtml)
+- 2026-06-29 18:29 - [送你一朵小红花](https://www.blog.minike.top/Article/details/2811458.shtml)
+- 2026-06-29 18:09 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/228941927.shtml)
+- 2026-06-29 18:06 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/5372325123.shtml)
+- 2026-06-29 18:33 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/479746.shtml)
+- 2026-06-29 18:25 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/99890.shtml)
+- 2026-06-29 18:11 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/197369.shtml)
+- 2026-06-29 18:20 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/98146576.shtml)
+- 2026-06-29 18:25 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/123534706.shtml)

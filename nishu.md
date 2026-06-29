@@ -1,59 +1,60 @@
-# 突发！王文灵任上被查
+# 专家：一生最好只减肥一次 反复减重反伤身体
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-金融反腐重磅消息！ 4月7日，中央纪委国家监委官网通报：全国社会保障基金理事会党组成员、副理事长王文灵涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。 社保基金会官网简历显示，王文灵，男，汉族，1966年10月生，中共党员，现任全国社会保障基金理事会党组成员、副理事长。 公开信息显示，王文灵，江西上高人，1991年3月参加工作，1991年1月加入中国共产党，中国
+中新网广州5月29日电 (记者 蔡敏婕 韦杰夫)认为吃素就能远离脂肪肝，是当下大众普遍存在的健康认知误区。 “很多体重正常、甚至长期吃素的人，也会查出脂肪肝。”广东省第二人民医院内分泌科副研究员、副主任医师曾可静29日表示，最健康的方式是低碳、清淡、均衡饮食。 由广州市越秀区公共卫生委员会、越秀区疾控中心等卫生健康部门指导的公益科普行动当天开展，该行动旨在面向公众传递“科学减重
 
 ## 正文
 
-金融反腐重磅消息！
+中新网广州5月29日电 (记者 蔡敏婕 韦杰夫)认为吃素就能远离脂肪肝，是当下大众普遍存在的健康认知误区。
 
-4月7日，中央纪委国家监委官网通报：全国社会保障基金理事会党组成员、副理事长王文灵涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
+“很多体重正常、甚至长期吃素的人，也会查出脂肪肝。
 
-社保基金会官网简历显示，王文灵，男，汉族，1966年10月生，中共党员，现任全国社会保障基金理事会党组成员、副理事长。
+”广东省第二人民医院内分泌科副研究员、副主任医师曾可静29日表示，最健康的方式是低碳、清淡、均衡饮食。
 
-公开信息显示，王文灵，江西上高人，1991年3月参加工作，1991年1月加入中国共产党，中国社会科学院研究生院商业经济专业毕业，经济学博士。
+由广州市越秀区公共卫生委员会、越秀区疾控中心等卫生健康部门指导的公益科普行动当天开展，该行动旨在面向公众传递“科学减重，让脂肪肝可逆转”的健康理念，携手推动代谢健康议题走出“认知误区”，迈向“可防可治”。
 
-王文灵曾任国家机械部经济管理研究院干部，大公国际资信评估公司总经理助理，中国光大国际信托投资公司金融开发部副总经理，重庆国际信托投资公司副董事长、总经理（正司长级）等职务。
+肥胖人群因脂肪代谢负担加重，患脂肪肝(代谢相关脂肪性肝病)的风险较高。
 
-2002年，王文灵任全国社会保障基金理事会法规及监管部主任。
+除了肥胖，脂肪肝的病因还包括大量饮酒、糖尿病、高胆固醇饮食、高热量饮食、遗传等。
 
-2015年8月，王文灵任社保基金会副理事长、党组成员，直至此次被查。
+虽然肥胖的人容易得脂肪肝，但身材偏瘦的人如果存在上述因素，同样有可能患上脂肪肝。
 
-2025年7月，王文灵曾以社保基金会副理事长的身份参与相关会见活动，并介绍了社保基金投资运营管理的相关情况。
+此外，快速减重的人容易出现营养不良的情况，影响肝脏的脂肪代谢，从而导致脂肪肝。
 
 ## 相关推荐
 
-- 2026-06-29 18:01 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 18:14 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 18:19 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 18:15 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 18:04 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 18:23 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 18:16 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 18:05 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 18:06 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 18:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 18:14 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 18:15 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 18:21 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 18:12 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 18:08 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 18:23 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 18:15 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 18:25 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 18:28 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 18:14 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 18:23 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 18:12 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 18:19 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 18:13 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 18:21 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 18:26 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 18:32 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:17 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/252823.shtml)
-- 2026-06-29 18:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/03016.shtml)
-- 2026-06-29 18:19 - [金刚川](http://www.share.kurohicncr.top/Article/details/184073.shtml)
-- 2026-06-29 18:03 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/79077.shtml)
-- 2026-06-29 18:22 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/4341946.shtml)
-- 2026-06-29 18:06 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/038086.shtml)
-- 2026-06-29 18:17 - [看大国重器“云端穿针引线”](http://www.blog.minike.top/Article/details/5648978903.shtml)
-- 2026-06-29 18:24 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/35435271.shtml)
-- 2026-06-29 18:19 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/100945177.shtml)
-- 2026-06-29 18:17 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/32440577862.shtml)
-- 2026-06-29 18:21 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/466561317786.shtml)
-- 2026-06-29 18:06 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/8852203.shtml)
-- 2026-06-29 18:09 - [周生如故](https://www.share.kurohicncr.top/Article/details/366711737.shtml)
-- 2026-06-29 18:27 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/1231118581.shtml)
-- 2026-06-29 18:04 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/3010513.shtml)
+- 2026-06-29 18:34 - [起风了](http://www.blog.minike.top/Article/details/43083475188.shtml)
+- 2026-06-29 18:21 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/841827.shtml)
+- 2026-06-29 18:27 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/862685729.shtml)
+- 2026-06-29 18:06 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/374527909.shtml)
+- 2026-06-29 18:14 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/532879331503.shtml)
+- 2026-06-29 18:17 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/40187421.shtml)
+- 2026-06-29 18:22 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/005606916.shtml)
+- 2026-06-29 18:25 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/0539456832.shtml)
+- 2026-06-29 18:16 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/45523.shtml)
+- 2026-06-29 18:16 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/34389298.shtml)
+- 2026-06-29 18:18 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/28582.shtml)
+- 2026-06-29 18:29 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/17481850445.shtml)
+- 2026-06-29 18:10 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/578082629.shtml)
+- 2026-06-29 18:19 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/92203076916.shtml)
+- 2026-06-29 18:28 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/80300624.shtml)

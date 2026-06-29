@@ -1,47 +1,60 @@
-# 迅捷兴：未来公司将加快高端产品技术研发，助力市场开拓
+# 杨德龙：近期金价持续调整缘于美联储货币政策转向担忧 长期上涨逻辑并未改变
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 4月7日，迅捷兴在互动平台回答投资者提问时表示，未来公司将加快高端产品技术研发，助力市场开拓。（文章来源：证券日报）
+近期，国际金价出现一波快速回落，从历史新高的5600美元每盎司跌破至4500美元每盎司，下跌幅度约20%，属于较大幅度的调整。但此次下跌并未改变黄金长期看涨的走势。短期下跌主要受以下几方面因素影响： 第一，美联储新任主席沃什正式上任。根据其以往言论，市场预期沃什上台后可能先进行缩表，即通过抛售美联储持有的国债等资产回收市场流动性，减少市场资金供给，这对黄金等资产价格形成较大打压
 
 ## 正文
 
-证券日报网讯 4月7日，迅捷兴在互动平台回答投资者提问时表示，未来公司将加快高端产品技术研发，助力市场开拓。
+近期，国际金价出现一波快速回落，从历史新高的5600美元每盎司跌破至4500美元每盎司，下跌幅度约20%，属于较大幅度的调整。
 
-（文章来源：证券日报）
+但此次下跌并未改变黄金长期看涨的走势。
+
+短期下跌主要受以下几方面因素影响： 第一，美联储新任主席沃什正式上任。
+
+根据其以往言论，市场预期沃什上台后可能先进行缩表，即通过抛售美联储持有的国债等资产回收市场流动性，减少市场资金供给，这对黄金等资产价格形成较大打压。
+
+事实上，包括其他有色金属价格也出现了较大下跌。
+
+第二，霍尔木兹海峡被封锁后，国际油价从战前的70美元每桶升至100美元每桶左右。
+
+虽然近期美国总统特朗普释放出将与伊朗进行实质性谈判、尽早放开海峡的信号，但目前尚未落实协议，放开日期不确定，导致国际油价大幅波动。
+
+石油作为工业血液，油价上升推高全球通胀，特别是对美国通胀造成较大影响，美联储或推迟降息节奏，预计沃什可能选择年底降息或今年不再降息，这对黄金价格形成压制。
 
 ## 相关推荐
 
-- 2026-06-29 18:03 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 18:03 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 18:22 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 18:06 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 18:16 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 18:10 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 18:02 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 18:07 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 18:06 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 18:05 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 18:08 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 18:07 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 18:03 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 18:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 18:10 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 18:11 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 18:06 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 18:08 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 18:35 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 18:17 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 18:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 18:23 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 18:27 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 18:13 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 18:32 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 18:18 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 18:33 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:15 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/9935940.shtml)
-- 2026-06-29 18:20 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/78632.shtml)
-- 2026-06-29 18:26 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/001884535.shtml)
-- 2026-06-29 18:09 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/1530283408.shtml)
-- 2026-06-29 18:09 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/22958905.shtml)
-- 2026-06-29 18:00 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.minike.top/Article/details/466931177844.shtml)
-- 2026-06-29 18:18 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/66546093.shtml)
-- 2026-06-29 18:15 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/08928167.shtml)
-- 2026-06-29 18:15 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/36665372646.shtml)
-- 2026-06-29 18:15 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/85543139.shtml)
-- 2026-06-29 18:14 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/990854870880.shtml)
-- 2026-06-29 18:13 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/86385.shtml)
-- 2026-06-29 18:10 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/124452923.shtml)
-- 2026-06-29 18:23 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/256519595.shtml)
-- 2026-06-29 18:02 - [起风了](https://www.blog.minike.top/Article/details/93268607.shtml)
+- 2026-06-29 18:13 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/708758.shtml)
+- 2026-06-29 18:32 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/384526636277.shtml)
+- 2026-06-29 18:13 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/4177599.shtml)
+- 2026-06-29 18:12 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/78684373.shtml)
+- 2026-06-29 18:32 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/644005.shtml)
+- 2026-06-29 18:20 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/229640152916.shtml)
+- 2026-06-29 18:32 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/191877.shtml)
+- 2026-06-29 18:15 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/613067268.shtml)
+- 2026-06-29 18:09 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/47981247230.shtml)
+- 2026-06-29 18:27 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/564620.shtml)
+- 2026-06-29 18:34 - [T1 KC](https://www.blog.minike.top/Article/details/301913670404.shtml)
+- 2026-06-29 18:08 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/829877.shtml)
+- 2026-06-29 18:14 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/52594308603.shtml)
+- 2026-06-29 18:09 - [挪威王储妃长子2次强奸被判4年](http://www.share.minike.top/Article/details/065013158.shtml)
+- 2026-06-29 18:06 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/274213829110.shtml)

@@ -1,59 +1,59 @@
-# 河套大地春耕一线见闻：从黄土朝天到智慧种田
+# 良法良种良机 寒地水稻增产新招让“不可能”成为现实
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新网巴彦淖尔4月8日电 题：河套大地春耕一线见闻：从黄土朝天到智慧种田 中新网记者 张林虎 春回大地，万物复苏。内蒙古自治区巴彦淖尔市的田野上，农机轰鸣声此起彼伏，一幅别样的春耕图正徐徐展开。与往年不同的是，今年河套大地多了不少新物件——匀播机、北斗导航、智能育苗大棚……一项项新技术正悄悄改变着农民“面朝黄土背朝天”的老日子。 匀播技术进田头 在磴口县沙金套海苏木巴音宝力格嘎
+原标题：视频丨良法良种良机 寒地水稻增产新招让“不可能”成为现实 黑龙江，是我国重要的商品粮生产基地之一，水稻种植面积和产量均居全国前列。而在高纬度寒地稻区，温度低、光照少制约了水稻的生产。2026年中央一号文件提出：“加力实施新一轮千亿斤粮食产能提升行动，促进良田良种良机良法集成增效，推进粮油作物大面积提单产。”如何让寒地水稻继续增产？突破的空间在哪里？ 七星农场地处三江平原
 
 ## 正文
 
-中新网巴彦淖尔4月8日电 题：河套大地春耕一线见闻：从黄土朝天到智慧种田 中新网记者 张林虎 春回大地，万物复苏。
+原标题：视频丨良法良种良机 寒地水稻增产新招让“不可能”成为现实 黑龙江，是我国重要的商品粮生产基地之一，水稻种植面积和产量均居全国前列。
 
-内蒙古自治区巴彦淖尔市的田野上，农机轰鸣声此起彼伏，一幅别样的春耕图正徐徐展开。
+而在高纬度寒地稻区，温度低、光照少制约了水稻的生产。
 
-与往年不同的是，今年河套大地多了不少新物件——匀播机、北斗导航、智能育苗大棚……一项项新技术正悄悄改变着农民“面朝黄土背朝天”的老日子。
+2026年中央一号文件提出：“加力实施新一轮千亿斤粮食产能提升行动，促进良田良种良机良法集成增效，推进粮油作物大面积提单产。
 
-匀播技术进田头 在磴口县沙金套海苏木巴音宝力格嘎查的小麦种植基地，两台匀播机正开足马力来回作业。
+”如何让寒地水稻继续增产？
 
-与传统条播方式不同，这种立体匀播新技术能让麦种在土壤里分布更均匀、间距更科学，不仅提高了土地利用率，还打下了丰产的基础，预计每亩可增产10%左右。
+突破的空间在哪里？
 
-内蒙古德鑫种养殖农民专业合作社理事长孟永平蹲在地头看着播种机走过，眼里满是期待。
+七星农场地处三江平原腹地，积温低、生长期短。
 
-今年是他第二年采用小麦匀播技术。
+地理和气候条件对当地水稻种植产生一定制约。
 
-去年，他种的200亩小麦平均亩产426公斤，增产率达到13%。
+近年来，当地的水稻平均亩产一直维持在1200斤左右。
 
 ## 相关推荐
 
-- 2026-06-29 18:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 18:27 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 18:25 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 18:13 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 18:08 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 18:24 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 18:29 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 18:29 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 18:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 18:06 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 18:04 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 18:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 18:14 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 18:11 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 18:35 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 18:34 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 18:31 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 18:10 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 18:35 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 18:19 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 18:09 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 18:31 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 18:21 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 18:10 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 18:09 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 18:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:28 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/421120517997.shtml)
-- 2026-06-29 18:21 - [王安宇尊重田曦薇的一切选择](https://www.share.kurohicncr.top/Article/details/59423787415.shtml)
-- 2026-06-29 18:03 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/510428562008.shtml)
-- 2026-06-29 18:03 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/8128606910.shtml)
-- 2026-06-29 18:25 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/317717.shtml)
-- 2026-06-29 18:17 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/92343333616.shtml)
-- 2026-06-29 18:24 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/655926.shtml)
-- 2026-06-29 18:23 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/9038715161.shtml)
-- 2026-06-29 18:18 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.kurohicncr.top/Article/details/23623.shtml)
-- 2026-06-29 18:07 - [周生如故](https://www.blog.kurohicncr.top/Article/details/5954265888.shtml)
-- 2026-06-29 18:24 - [毒液2](http://www.share.minike.top/Article/details/05123564.shtml)
-- 2026-06-29 18:07 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/15310083016.shtml)
-- 2026-06-29 18:29 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/613538749.shtml)
-- 2026-06-29 18:29 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/65029383.shtml)
-- 2026-06-29 18:28 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/031432482279.shtml)
+- 2026-06-29 18:27 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/69255.shtml)
+- 2026-06-29 18:16 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/1754328.shtml)
+- 2026-06-29 18:15 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/36931.shtml)
+- 2026-06-29 18:15 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/1705223.shtml)
+- 2026-06-29 18:26 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/877485923.shtml)
+- 2026-06-29 18:12 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/568172225735.shtml)
+- 2026-06-29 18:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/709945743.shtml)
+- 2026-06-29 18:21 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/6191202.shtml)
+- 2026-06-29 18:16 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/7866096173.shtml)
+- 2026-06-29 18:10 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/9882703289.shtml)
+- 2026-06-29 18:27 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/0328062425.shtml)
+- 2026-06-29 18:14 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/68330734.shtml)
+- 2026-06-29 18:35 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/44972589860.shtml)
+- 2026-06-29 18:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/05285241912.shtml)
+- 2026-06-29 18:14 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/65972067629.shtml)

@@ -1,50 +1,61 @@
-# 宁德时代遭贝莱德减持约10.61万股 每股作价约630.74港元
+# 航拍江西庐山初夏秀美风光 层林叠翠绿意盎然
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月2日，贝莱德减持宁德时代（03750）10.6128万股，每股作价630.7433港元，总金额约为6693.95万港元。减持后最新持股数目约为929.12万股，持股比例为5.96%。责任编辑：卢昱君
+为啥外国人都爱来这里买买买？从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？厄尔尼诺将如何影响我国后续天气形势？中国气象局回应“抹黑门”丑闻发酵 “高市泡沫”或将破裂德国汉学家培高德：德国社会如何更好理解当代中国？武契奇品尝的嘉兴原汤粽有多鲜？利润暴跌，日系车巨头集体失速倒
 
 ## 正文
 
-香港联交所最新数据显示，4月2日，贝莱德减持宁德时代（03750）10.6128万股，每股作价630.7433港元，总金额约为6693.95万港元。
+为啥外国人都爱来这里买买买？
 
-减持后最新持股数目约为929.12万股，持股比例为5.96%。
+从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？
 
-责任编辑：卢昱君
+厄尔尼诺将如何影响我国后续天气形势？
+
+中国气象局回应“抹黑门”丑闻发酵 “高市泡沫”或将破裂德国汉学家培高德：德国社会如何更好理解当代中国？
+
+武契奇品尝的嘉兴原汤粽有多鲜？
+
+利润暴跌，日系车巨头集体失速倒计时10天！
+
+今年高考有哪些新变化？
+
+林志玲辞任董事的台湾“文策院”，是个什么机构？
 
 ## 相关推荐
 
-- 2026-06-29 18:28 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 18:23 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 18:25 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 18:21 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 18:28 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 18:29 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 18:24 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 18:03 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 18:17 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 18:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 18:24 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 18:05 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 18:02 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 18:03 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 18:08 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 18:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 18:27 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 18:19 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 18:31 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 18:24 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 18:13 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 18:33 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 18:25 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 18:20 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 18:10 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 18:26 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 18:10 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 18:12 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 18:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:29 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/642789533317.shtml)
-- 2026-06-29 18:04 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/188969.shtml)
-- 2026-06-29 18:05 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/563854096598.shtml)
-- 2026-06-29 18:01 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/9551787.shtml)
-- 2026-06-29 18:08 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/876664720549.shtml)
-- 2026-06-29 18:24 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/370520494265.shtml)
-- 2026-06-29 18:00 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/42388534738.shtml)
-- 2026-06-29 18:15 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/02643013.shtml)
-- 2026-06-29 18:19 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/04044.shtml)
-- 2026-06-29 18:08 - [世界杯1/16决赛对阵出炉](http://www.share.minike.top/Article/details/65918433075.shtml)
-- 2026-06-29 18:11 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/307457215637.shtml)
-- 2026-06-29 18:05 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/4005551697.shtml)
-- 2026-06-29 18:20 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.minike.top/Article/details/844328.shtml)
-- 2026-06-29 18:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/060390.shtml)
-- 2026-06-29 18:12 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/53443586.shtml)
+- 2026-06-29 18:16 - [T1 KC](http://www.blog.kurohicncr.top/Article/details/56814.shtml)
+- 2026-06-29 18:30 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/13678401.shtml)
+- 2026-06-29 18:24 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/81682256.shtml)
+- 2026-06-29 18:06 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/2607985243.shtml)
+- 2026-06-29 18:09 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/484177919.shtml)
+- 2026-06-29 18:29 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/720226758.shtml)
+- 2026-06-29 18:12 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/49901893.shtml)
+- 2026-06-29 18:06 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/9797728.shtml)
+- 2026-06-29 18:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/79991605581.shtml)
+- 2026-06-29 18:27 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/432542107.shtml)
+- 2026-06-29 18:29 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/02026861.shtml)
+- 2026-06-29 18:08 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/7881793366.shtml)
+- 2026-06-29 18:15 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/04634664.shtml)
+- 2026-06-29 18:10 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/9755429591.shtml)
+- 2026-06-29 18:26 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/70735398.shtml)

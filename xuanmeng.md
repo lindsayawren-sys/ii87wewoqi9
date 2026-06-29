@@ -1,57 +1,59 @@
-# 重大工程夯实中国经济 把宏伟蓝图化作人民美好生活
+# 欧元区四大经济体通胀超出舒适区 为欧洲央行加息提供数据支撑
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-焦点访谈｜重大工程夯实中国经济 把宏伟蓝图化作人民美好生活 央视网消息(焦点访谈)：近日公布的“十五五”规划纲要专门提出了6方面109项重大工程项目。这109项重大工程项目是落实“十五五”规划纲要的重要抓手，涉及中国式现代化建设的诸多方面。近年来，我国重大工程项目建设稳步推进、成果频出，“十四五”规划102项重大工程项目已顺利完成规划目标任务。站在新起点，这109项重大工程项目
+欧元区四大经济体通胀率远超2%，为欧洲央行自2023年以来首次加息提供进一步理由。 周五数据显示，因战争推动能源成本飙升，法国5月份消费者价格指数同比上涨2.8%，涨幅略低于市场预期；西班牙该指数同比上涨3.6%，意大利上涨3.3%，涨幅与预期一致。 德国通胀率虽有所放缓，但2.7%的整体通胀表现仍远超欧洲央行的舒适区。 欧元区主要经济体通胀数据密集公布，将有助于欧洲央行官员判
 
 ## 正文
 
-焦点访谈｜重大工程夯实中国经济 把宏伟蓝图化作人民美好生活 央视网消息(焦点访谈)：近日公布的“十五五”规划纲要专门提出了6方面109项重大工程项目。
+欧元区四大经济体通胀率远超2%，为欧洲央行自2023年以来首次加息提供进一步理由。
 
-这109项重大工程项目是落实“十五五”规划纲要的重要抓手，涉及中国式现代化建设的诸多方面。
+周五数据显示，因战争推动能源成本飙升，法国5月份消费者价格指数同比上涨2.8%，涨幅略低于市场预期；西班牙该指数同比上涨3.6%，意大利上涨3.3%，涨幅与预期一致。
 
-近年来，我国重大工程项目建设稳步推进、成果频出，“十四五”规划102项重大工程项目已顺利完成规划目标任务。
+德国通胀率虽有所放缓，但2.7%的整体通胀表现仍远超欧洲央行的舒适区。
 
-站在新起点，这109项重大工程项目又将如何进一步铸造中国经济“顶梁柱”呢？
+欧元区主要经济体通胀数据密集公布，将有助于欧洲央行官员判断中东冲突推高通胀的程度，以及是否需要做出应对。
 
-2026年3月18日，云南昆明崔家庄铺轨基地内第一对500米长钢轨平稳铺设于无砟轨道上，渝昆高铁云南境内铺轨施工正式启动。
+这些国家通胀率普遍远高于欧洲央行2%的目标。
 
-渝昆高铁铺轨施工主要包括铺设846公里上下行钢轨，预计今年8月底完成。
+下周公布的欧元区整体通胀数据预计将进一步走高，超过4月份达到的3%水平。
 
-开通运营后，重庆到昆明的行车时间将由现在的5小时压缩至两个半小时左右。
+美国总统特朗普对伊朗发动军事行动三个月以来，从鹰派的执行委员会成员Isabel Schnabel，到鸽派的首席经济学家Philip Lane，欧洲央行政策制定者在释放信号，称借贷成本很可能需要上调。
 
-作为我国“八纵八横”高铁网京昆通道的重要组成部分，渝昆高铁不仅关乎一条线路的贯通，更承载着国家综合立体交通网建设的重要使命。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 18:19 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 18:04 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 18:30 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 18:06 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 18:28 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 18:08 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 18:10 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 18:27 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 18:08 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 18:06 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 18:23 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 18:13 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 18:09 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 18:23 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 18:31 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 18:28 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 18:10 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 18:12 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 18:08 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 18:27 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 18:21 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 18:22 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 18:12 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/03781.shtml)
-- 2026-06-29 18:18 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/963868130.shtml)
-- 2026-06-29 18:22 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/7667834047.shtml)
-- 2026-06-29 18:03 - [V8](https://www.share.kurohicncr.top/Article/details/138075.shtml)
-- 2026-06-29 18:05 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/21989559206.shtml)
-- 2026-06-29 18:23 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/332527.shtml)
-- 2026-06-29 18:02 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/62482744.shtml)
-- 2026-06-29 18:11 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/540125822.shtml)
-- 2026-06-29 18:17 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/62647097168.shtml)
-- 2026-06-29 18:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/16408452.shtml)
-- 2026-06-29 18:13 - [葛军透露高考出题思路](http://www.share.kurohicncr.top/Article/details/7060029933.shtml)
-- 2026-06-29 18:23 - [医药生物行业今日涨5.91%](https://www.blog.kurohicncr.top/Article/details/03482732.shtml)
-- 2026-06-29 18:01 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/9911424921.shtml)
-- 2026-06-29 18:04 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/57113.shtml)
-- 2026-06-29 18:11 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/30181013.shtml)
+- 2026-06-29 18:23 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/675259.shtml)
+- 2026-06-29 18:12 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/5155974877.shtml)
+- 2026-06-29 18:09 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/83867903783.shtml)
+- 2026-06-29 18:23 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/15393589.shtml)
+- 2026-06-29 18:29 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/88251451.shtml)
+- 2026-06-29 18:14 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/0337727517.shtml)
+- 2026-06-29 18:27 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/669724.shtml)
+- 2026-06-29 18:16 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/549138875.shtml)
+- 2026-06-29 18:21 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/2464379.shtml)
+- 2026-06-29 18:08 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/3675481.shtml)
+- 2026-06-29 18:35 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/26201.shtml)
+- 2026-06-29 18:24 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/1405631.shtml)
+- 2026-06-29 18:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/458567000.shtml)
+- 2026-06-29 18:10 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/547654120841.shtml)
+- 2026-06-29 18:17 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/28720393.shtml)

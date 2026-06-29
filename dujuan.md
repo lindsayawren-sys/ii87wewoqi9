@@ -1,43 +1,61 @@
-# 特朗普威胁一夜之间彻底击毁伊朗，外交部表态
+# 美联储官员保尔森：通胀方面并无结构性变化
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月07日 18:11 来源：中国新闻网 特朗普威胁一夜之间彻底击毁伊朗，外交部表态 责任编辑：【翟璐】
+费城联储银行行长保尔森表示，美国经济正面临一系列通胀冲击，她没有看到结构性变化的迹象。 “我没有看到通胀出现结构性变化。我看到的是一系列冲击以通胀的形式体现出来，”保尔森周五在一次活动上表示。 保尔森表示，全球经济正在偏离自由贸易和全球市场，不再像过去那样在成本最低的地方进行生产。 保尔森说：“世界已经不再将这种模式视为理想结果，这正在改变供应链。这改变了对生产过程产生冲击的因
 
 ## 正文
 
-发布时间：2026年04月07日 18:11 来源：中国新闻网 特朗普威胁一夜之间彻底击毁伊朗，外交部表态 责任编辑：【翟璐】
+费城联储银行行长保尔森表示，美国经济正面临一系列通胀冲击，她没有看到结构性变化的迹象。
+
+“我没有看到通胀出现结构性变化。
+
+我看到的是一系列冲击以通胀的形式体现出来，”保尔森周五在一次活动上表示。
+
+保尔森表示，全球经济正在偏离自由贸易和全球市场，不再像过去那样在成本最低的地方进行生产。
+
+保尔森说：“世界已经不再将这种模式视为理想结果，这正在改变供应链。
+
+这改变了对生产过程产生冲击的因素，而这些最终会体现在价格上”。
+
+保尔森今年就货币决策有投票权。
+
+政策制定者将于6月16日至17日举行会议。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 18:18 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 18:24 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 18:16 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 18:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 18:17 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 18:02 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 18:22 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 18:29 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 18:17 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 18:12 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 18:30 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 18:34 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 18:18 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 18:26 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 18:29 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 18:13 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 18:10 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 18:30 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 18:35 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 18:13 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 18:27 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 18:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 18:29 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 18:14 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 18:34 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:14 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.minike.top/Article/details/5374506306.shtml)
-- 2026-06-29 18:29 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/7682159958.shtml)
-- 2026-06-29 18:21 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/85231.shtml)
-- 2026-06-29 18:01 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/021706.shtml)
-- 2026-06-29 18:16 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/73283313.shtml)
-- 2026-06-29 18:21 - [斗破苍穹](http://www.share.minike.top/Article/details/507143296402.shtml)
-- 2026-06-29 18:20 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/90873251.shtml)
-- 2026-06-29 18:28 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/688947384.shtml)
-- 2026-06-29 18:21 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/72199111123.shtml)
-- 2026-06-29 18:11 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/5079855.shtml)
-- 2026-06-29 18:15 - [王曼昱被突如其来的话筒逗笑了](http://www.share.minike.top/Article/details/772892.shtml)
-- 2026-06-29 18:22 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/90308720.shtml)
-- 2026-06-29 18:05 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/904361535.shtml)
-- 2026-06-29 18:09 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/3926575300.shtml)
-- 2026-06-29 18:22 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/95348821913.shtml)
+- 2026-06-29 18:10 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/582058.shtml)
+- 2026-06-29 18:10 - [歼-15型舰载机为何被歼-15T替代](http://www.blog.kurohicncr.top/Article/details/860667.shtml)
+- 2026-06-29 18:30 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/836378800.shtml)
+- 2026-06-29 18:08 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/7984119389.shtml)
+- 2026-06-29 18:15 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/14374.shtml)
+- 2026-06-29 18:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/61591627.shtml)
+- 2026-06-29 18:27 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/2228213973.shtml)
+- 2026-06-29 18:26 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/2837417605.shtml)
+- 2026-06-29 18:09 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/515954.shtml)
+- 2026-06-29 18:22 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/56589.shtml)
+- 2026-06-29 18:26 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/4903177385.shtml)
+- 2026-06-29 18:15 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/46433934964.shtml)
+- 2026-06-29 18:20 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/012048322.shtml)
+- 2026-06-29 18:33 - [天道](https://www.share.kurohicncr.top/Article/details/756211.shtml)
+- 2026-06-29 18:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/6552882009.shtml)

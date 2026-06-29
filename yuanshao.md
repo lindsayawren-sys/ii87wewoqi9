@@ -1,60 +1,61 @@
-# 涉案金额5000万！佰维存储遭专利诉讼
+# 银行官网年报“上锁”，要提交个人信息才能查看？记者实测：个别银行填完照样打不开！
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-来源：财联社 财联社4月8日讯，存储龙头佰维存储今日披露了一则自愿性公告，称其作为被告涉及两起侵害发明专利权纠纷案件，原告合计索赔5000万元。 根据公告，原告埃姆梯尔公司就两起侵害发明专利权纠纷向法院起诉公司及相关主体。两起案件涉及两项发明专利，专利号分别为ZL201510093389.3和ZL200980106241.1，名称均为“存储设备的扩展利用区域”。原告主张这两项专
+登录新浪财经APP 搜索【信披】查看更多考评等级 原标题：银行官网年报“上锁”，要提交个人信息才能查看？每经记者实测：个别银行填完照样打不开！技术故障还是防恶意下载？多家银行这样说⋯⋯ 每经记者|刘嘉魁 每经编辑|廖丹 打开一家银行的官网，找到“投资者关系”栏目，点击“年度报告”——这本该是查看银行年报最常规的操作路径。 但每日经济新闻记者（以下简称每经记者）最近注意到，一些银
 
 ## 正文
 
-来源：财联社 财联社4月8日讯，存储龙头佰维存储今日披露了一则自愿性公告，称其作为被告涉及两起侵害发明专利权纠纷案件，原告合计索赔5000万元。
+登录新浪财经APP 搜索【信披】查看更多考评等级 原标题：银行官网年报“上锁”，要提交个人信息才能查看？
 
-根据公告，原告埃姆梯尔公司就两起侵害发明专利权纠纷向法院起诉公司及相关主体。
+每经记者实测：个别银行填完照样打不开！
 
-两起案件涉及两项发明专利，专利号分别为ZL201510093389.3和ZL200980106241.1，名称均为“存储设备的扩展利用区域”。
+技术故障还是防恶意下载？
 
-原告主张这两项专利是JEDEC协会制定的eMMC标准的必要专利，所有符合eMMC标准的产品均落入专利保护范围。
+多家银行这样说⋯⋯ 每经记者|刘嘉魁 每经编辑|廖丹 打开一家银行的官网，找到“投资者关系”栏目，点击“年度报告”——这本该是查看银行年报最常规的操作路径。
 
-原告认为，佰维存储未经许可制造、销售和许诺销售了侵害涉案专利权的Biwin eMMC产品，而被告二金震公司销售的“畅行50”手机以该产品作为零部件，均构成侵权。
+但每日经济新闻记者（以下简称每经记者）最近注意到，一些银行在这条路径多了一道“验证关卡”。
 
-每起案件原告主张的赔偿金额为2500万元，合计5000万元。
+用户想查看年报需要先填写姓名、职业、手机号等信息，有的银行还要额外完成图形验证和短信验证。
 
-值得注意的是，这并非双方首次交锋。
+而即便按要求提交了全部信息，部分银行的年报页面依旧卡顿、报错，文件始终无法下载。
 
-公告提到，2025年9月埃姆梯尔公司已基于同一专利包中的两项专利向公司提起诉讼，案号分别为（2025）苏01民初2174号和（2025）苏01民初2175号，两案已于2026年4月2日、3日首次开庭，目前仍在审理中。
+部分中小银行官网的年报查询困难，背后有何原因？
 
 ## 相关推荐
 
-- 2026-06-29 18:11 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 18:08 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 18:04 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 18:25 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 18:18 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 18:17 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 18:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 18:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 18:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 18:15 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 18:18 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 18:12 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 18:07 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 18:05 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 18:07 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 18:34 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 18:27 - [滚石点名酒店员工说有急救培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 18:34 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 18:11 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 18:10 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 18:14 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 18:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 18:35 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 18:35 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 18:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 18:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 18:27 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 18:16 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 18:16 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:08 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/48740.shtml)
-- 2026-06-29 18:15 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/83803803.shtml)
-- 2026-06-29 18:08 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/26879289.shtml)
-- 2026-06-29 18:18 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/876507.shtml)
-- 2026-06-29 18:10 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/898155052451.shtml)
-- 2026-06-29 18:01 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/21073.shtml)
-- 2026-06-29 18:22 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/7868222.shtml)
-- 2026-06-29 18:02 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/429691927.shtml)
-- 2026-06-29 18:17 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/53766.shtml)
-- 2026-06-29 18:16 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/03156.shtml)
-- 2026-06-29 18:16 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/323650018.shtml)
-- 2026-06-29 18:00 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/61077760.shtml)
-- 2026-06-29 18:04 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/574738014818.shtml)
-- 2026-06-29 18:20 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.minike.top/Article/details/546687.shtml)
-- 2026-06-29 18:29 - [王楚钦开门红](https://www.blog.minike.top/Article/details/7767281.shtml)
+- 2026-06-29 18:18 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/54014981058.shtml)
+- 2026-06-29 18:10 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/012151342.shtml)
+- 2026-06-29 18:08 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/72815064.shtml)
+- 2026-06-29 18:24 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/7075912.shtml)
+- 2026-06-29 18:29 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/30370227110.shtml)
+- 2026-06-29 18:27 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/0839913.shtml)
+- 2026-06-29 18:06 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/31459029.shtml)
+- 2026-06-29 18:12 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/8415905.shtml)
+- 2026-06-29 18:23 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/6896897.shtml)
+- 2026-06-29 18:10 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/6403814623.shtml)
+- 2026-06-29 18:35 - [首个靠AI躺赢的国家](http://www.blog.kurohicncr.top/Article/details/207743033.shtml)
+- 2026-06-29 18:13 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/80021162473.shtml)
+- 2026-06-29 18:33 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/81751404782.shtml)
+- 2026-06-29 18:30 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/91862.shtml)
+- 2026-06-29 18:33 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/73269969.shtml)

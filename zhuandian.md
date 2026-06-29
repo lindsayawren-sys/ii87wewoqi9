@@ -1,58 +1,58 @@
-# “雪山救狐狸”火到台湾 朱凤莲指审美、表达天然相通
+# 邦达亚洲:多重利空因素打压 美元日元小幅收跌
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月8日电 (李百加 张杨彬)“有梗、有趣的创作和交流方式受到两岸网友的喜爱和传播，表明两岸同胞中华文化基因一脉相承，在文化审美和品味表达上天然相通、高度共鸣。”国务院台办发言人朱凤莲8日在北京表示。AI短片“雪山救狐狸”在大陆爆红后火到台湾，吸引岛内网友和知名艺人进行二次创作。国台办当天举行例行新闻发布会，朱凤莲提到，她看到了一些台湾网友二创的作品。 她还表示：“最
+5月29日，芝加哥联储主席奥斯坦·古尔斯比周四加大了他的警告力度，他指出，人们对 AI 提升生产力潜力的预期不断高涨，可能会推高通胀，并迫使美联储及其他央行提高利率。 古尔斯比在为日本银行会议准备的发言摘要中表示，“对未来生产力的炒作越剧烈，可能就越需要提高利率以防止经济过热，”“而且，更重要的是，短期内面临的供给冲击——无论是来自石油价格、供应链中断还是其他因素——都会让问题
 
 ## 正文
 
-中新社北京4月8日电 (李百加 张杨彬)“有梗、有趣的创作和交流方式受到两岸网友的喜爱和传播，表明两岸同胞中华文化基因一脉相承，在文化审美和品味表达上天然相通、高度共鸣。
+5月29日，芝加哥联储主席奥斯坦·古尔斯比周四加大了他的警告力度，他指出，人们对 AI 提升生产力潜力的预期不断高涨，可能会推高通胀，并迫使美联储及其他央行提高利率。
 
-”国务院台办发言人朱凤莲8日在北京表示。
+古尔斯比在为日本银行会议准备的发言摘要中表示，“对未来生产力的炒作越剧烈，可能就越需要提高利率以防止经济过热，”“而且，更重要的是，短期内面临的供给冲击——无论是来自石油价格、供应链中断还是其他因素——都会让问题变得更加糟糕。
 
-AI短片“雪山救狐狸”在大陆爆红后火到台湾，吸引岛内网友和知名艺人进行二次创作。
+”古尔斯比认为，如果生产力的提升是在预期之中的，情况就会有所不同。
 
-国台办当天举行例行新闻发布会，朱凤莲提到，她看到了一些台湾网友二创的作品。
+如果是这样，它们可能会引发一场预期性的消费热潮，在实际的生产力提升实现之前就推高价格。
 
-她还表示：“最近很多台湾同胞问哪里能买到酱板鸭，欢迎台湾同胞到湖南品尝常德、郴州、株洲各具风味的酱板鸭。
+“在这种情况下，利率可能需要上升，”古尔斯比说。
 
-” 朱凤莲指出，大陆人工智能技术的快速发展，为两岸网友的创意和创新表达提供了新工具、新空间，激发出共同创作的热情与活力。
+“这可能也会影响到其他国家，因为生产力的提升或预期提升会随着新技术的跨境传播而蔓延。
 
-她表示，我们乐见两岸网友善用新技术进行生动有趣的创意表达和互动，乐见两岸同胞多交流、常往来、共发展。
+” 另外，美国初请失业金人数略有上升，但仍保持在与劳动力市场稳定相符的水平。
 
-清明节假期，“小三通”客运航线迎来台胞返乡祭祖的客流高峰。
+根据美国劳工部周四公布的数据，截至5月23日当周，初请失业金人数增加5000人，达到21.5万人，高于市场预期，为4月中旬以来的最高水平。
 
 ## 相关推荐
 
-- 2026-06-29 18:15 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 18:10 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 18:04 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 18:19 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 18:07 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 18:28 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 18:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 18:24 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 18:29 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 18:17 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 18:00 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 18:13 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 18:08 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 18:29 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 18:25 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 18:23 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 18:25 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 18:29 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 18:08 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 18:19 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 18:29 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 18:12 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 18:31 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 18:20 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:21 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/440789922.shtml)
-- 2026-06-29 18:13 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/5463485131.shtml)
-- 2026-06-29 18:25 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/114245.shtml)
-- 2026-06-29 18:05 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/05922194.shtml)
-- 2026-06-29 18:10 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/6344074921.shtml)
-- 2026-06-29 18:06 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/23814.shtml)
-- 2026-06-29 18:00 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/21059986.shtml)
-- 2026-06-29 18:17 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/78699095177.shtml)
-- 2026-06-29 18:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/670867128984.shtml)
-- 2026-06-29 18:06 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/470825.shtml)
-- 2026-06-29 18:27 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.minike.top/Article/details/1905072.shtml)
-- 2026-06-29 18:04 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/33078.shtml)
-- 2026-06-29 18:24 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/87754.shtml)
-- 2026-06-29 18:18 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/398831743.shtml)
-- 2026-06-29 18:17 - [赵今麦时隔五年再演李诗情](https://www.share.minike.top/Article/details/164898.shtml)
+- 2026-06-29 18:23 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/1434521671.shtml)
+- 2026-06-29 18:17 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/4186482701.shtml)
+- 2026-06-29 18:18 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/18799782641.shtml)
+- 2026-06-29 18:15 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/94202215430.shtml)
+- 2026-06-29 18:13 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/997837.shtml)
+- 2026-06-29 18:07 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/42289.shtml)
+- 2026-06-29 18:33 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/00173.shtml)
+- 2026-06-29 18:20 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/224844631.shtml)
+- 2026-06-29 18:27 - [时光音乐会](http://www.blog.minike.top/Article/details/448013348.shtml)
+- 2026-06-29 18:21 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/266819627.shtml)
+- 2026-06-29 18:19 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/9537107556.shtml)
+- 2026-06-29 18:13 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/4852192.shtml)
+- 2026-06-29 18:32 - [周生如故](https://www.blog.kurohicncr.top/Article/details/194125.shtml)
+- 2026-06-29 18:12 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/5291423.shtml)
+- 2026-06-29 18:22 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/06610947.shtml)

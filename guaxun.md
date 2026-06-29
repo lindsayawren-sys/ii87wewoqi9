@@ -1,60 +1,60 @@
-# 雅居乐巨亏226亿，市值仅剩12亿港元
+# 西藏将在“十五五”推出“畅游西藏”“一路有电”“一路有氧”等活动
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 市值仅剩约12亿港元的雅居乐集团，日前交出一份巨亏约226亿元的业绩答卷。 此次披露的财报，清晰地揭示出雅居乐当前所面临的业绩困境。2025年，公司实现营收278.59亿元，同比骤降35.7%；归母净利润亏损同比扩大超三成，达到225.69亿元；毛
+中新社拉萨5月29日电 (记者 赵朗 江飞波)西藏自治区党委常委、自治区政府常务副主席任维29日表示，“十五五”时期，将在健全现代文旅产业体系上构建新格局，推出“畅游西藏”“一路有电”“一路有氧”等系列活动。当日，西藏自治区“开局起步‘十五五’”专题新闻发布会在拉萨召开。 任维介绍，2025年，西藏全区旅游接待超过7070万人次，文旅产业全时、全季、全域带动能力进一步释放。“‘
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社拉萨5月29日电 (记者 赵朗 江飞波)西藏自治区党委常委、自治区政府常务副主席任维29日表示，“十五五”时期，将在健全现代文旅产业体系上构建新格局，推出“畅游西藏”“一路有电”“一路有氧”等系列活动。
 
-来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 市值仅剩约12亿港元的雅居乐集团，日前交出一份巨亏约226亿元的业绩答卷。
+当日，西藏自治区“开局起步‘十五五’”专题新闻发布会在拉萨召开。
 
-此次披露的财报，清晰地揭示出雅居乐当前所面临的业绩困境。
+任维介绍，2025年，西藏全区旅游接待超过7070万人次，文旅产业全时、全季、全域带动能力进一步释放。
 
-2025年，公司实现营收278.59亿元，同比骤降35.7%；归母净利润亏损同比扩大超三成，达到225.69亿元；毛利率也持续走低，进一步下探至-17.6%。
+“‘十四五’时期，西藏文旅取得了不错的成绩单，旅游接待人次年均增长15%、旅游总花费年均增长17%、文化产业产值年均增长20%。
 
-债务方面，雅居乐更是承受着不小的压力。
+” 他表示，“十五五”时期，西藏将坚持以文塑旅、以旅彰文、深度融合，突出特色、高端、精品，到2030年基本建成文化强区、旅游强区，将在打造重要的旅游目的地上实现新跨越。
 
-截至2025年末，公司现金及银行结余（包括有限制现金）总额仅55.79亿元，但短期借款的规模便高达387.34亿元，资产负债率也攀升至89.53%。
+打造唐蕃古道、茶马古道、国之大道G219等文化旅游廊道、标志性文化旅游线路。
 
-更让雅居乐倍感压力的是，截至去年末，公司已有本金合计294.21亿元及利息13.05亿元的借款，因未能按期支付而构成违约，并触发了37.66亿元的银行及其他借款出现交叉违约。
+提质升级拉萨国际文化旅游城市，培育喜马拉雅边境跨境旅游增长极。
 
-而就在去年12月，“赌王”何鸿燊之子何猷龙旗下的公司，还向香港高等法院提交了对雅居乐的清盘呈请。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:27 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 18:02 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 18:03 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 18:06 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 18:14 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 18:09 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 18:22 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 18:10 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 18:05 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 18:24 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 18:11 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 18:00 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 18:25 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 18:07 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 18:27 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 18:16 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 18:16 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 18:15 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 18:17 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 18:32 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 18:33 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 18:08 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 18:35 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 18:10 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 18:28 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 18:35 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 18:12 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 18:15 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:24 - [请回答王牌2019](http://www.blog.minike.top/Article/details/362276612.shtml)
-- 2026-06-29 18:13 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/9375501.shtml)
-- 2026-06-29 18:23 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/25496151297.shtml)
-- 2026-06-29 18:11 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/00875551.shtml)
-- 2026-06-29 18:05 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/3403357454.shtml)
-- 2026-06-29 18:03 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/3647143605.shtml)
-- 2026-06-29 18:10 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/77757206273.shtml)
-- 2026-06-29 18:03 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/00663.shtml)
-- 2026-06-29 18:18 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/509472.shtml)
-- 2026-06-29 18:06 - [媒体：听清自己内心的声音再填志愿](http://www.blog.kurohicncr.top/Article/details/94682788380.shtml)
-- 2026-06-29 18:30 - [NBA交易](https://www.share.kurohicncr.top/Article/details/0828177.shtml)
-- 2026-06-29 18:00 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/315009.shtml)
-- 2026-06-29 18:14 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/1621856084.shtml)
-- 2026-06-29 18:05 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/78300.shtml)
-- 2026-06-29 18:22 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/2567127183.shtml)
+- 2026-06-29 18:22 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/56442032958.shtml)
+- 2026-06-29 18:28 - [TFING全员黑西装](https://www.share.minike.top/Article/details/238072.shtml)
+- 2026-06-29 18:15 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/244972.shtml)
+- 2026-06-29 18:31 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/76445942469.shtml)
+- 2026-06-29 18:33 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/11732164.shtml)
+- 2026-06-29 18:12 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/71350.shtml)
+- 2026-06-29 18:33 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/862815049.shtml)
+- 2026-06-29 18:16 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/3272435656.shtml)
+- 2026-06-29 18:35 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/21511415.shtml)
+- 2026-06-29 18:17 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/658752.shtml)
+- 2026-06-29 18:08 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/96560.shtml)
+- 2026-06-29 18:09 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/714861.shtml)
+- 2026-06-29 18:10 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/708444764.shtml)
+- 2026-06-29 18:29 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/3075490087.shtml)
+- 2026-06-29 18:31 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/983988.shtml)

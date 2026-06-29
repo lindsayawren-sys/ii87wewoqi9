@@ -1,57 +1,57 @@
-# 海南今年平均降水量偏少约七成 全岛各市县均出现气象干旱
+# 2026年第十届大湾区青少年体育嘉年华在广州举办
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新网海口4月8日电 (记者 王子谦)近日，海南出现高温少雨天气，旱情持续发展。记者8日从海南省气候中心获悉，截至4月7日，今年海南省平均降水量较常年同期偏少约70%，位居历史同期第二少值。专家表示，今年海南春季气象干旱整体较往年同期更为严重。气象监测显示，截至4月7日，今年海南省平均降水量为31.1毫米，仅高于平均降水量30毫米的1971年。 据悉，截至4月7日，海南岛18个
+中新网广州5月31日电 (张璐 李洪霖)“香港赛马会杯”2026年第十届大湾区青少年体育嘉年华(简称“嘉年华”)31日在广东省人民体育场举行。 据介绍，作为粤港澳大湾区极具影响力的青少年体育品牌活动，嘉年华以“携手大湾区 同心向未来”为主题，通过粤港澳三地深度联动与超过20项沉浸式潮流赛事活动体验项目，为湾区青少年呈现了一场“高水平、高规格、极具影响力”的体育盛会。 嘉年华特别
 
 ## 正文
 
-中新网海口4月8日电 (记者 王子谦)近日，海南出现高温少雨天气，旱情持续发展。
+中新网广州5月31日电 (张璐 李洪霖)“香港赛马会杯”2026年第十届大湾区青少年体育嘉年华(简称“嘉年华”)31日在广东省人民体育场举行。
 
-记者8日从海南省气候中心获悉，截至4月7日，今年海南省平均降水量较常年同期偏少约70%，位居历史同期第二少值。
+据介绍，作为粤港澳大湾区极具影响力的青少年体育品牌活动，嘉年华以“携手大湾区 同心向未来”为主题，通过粤港澳三地深度联动与超过20项沉浸式潮流赛事活动体验项目，为湾区青少年呈现了一场“高水平、高规格、极具影响力”的体育盛会。
 
-专家表示，今年海南春季气象干旱整体较往年同期更为严重。
+嘉年华特别邀请了香港赛马会及澳门青年多元规划协会跨城参与，结合现场活动实现粤港澳三地联动。
 
-气象监测显示，截至4月7日，今年海南省平均降水量为31.1毫米，仅高于平均降水量30毫米的1971年。
+无论是赛场上的竞技比拼，还是场下的文化交流，都展现了湾区青少年昂扬向上的精神风貌。
 
-据悉，截至4月7日，海南岛18个市县均出现了不同程度的气象干旱。
+同时，嘉年华依托“专业体育内核+省体场社区场景”的模式，将全民健身与周边商业、文旅有机结合，为湾区青少年家庭打造了一个沉浸式体育交流平台。
 
-其中，文昌和琼海出现重度气象干旱，海口、澄迈、临高、儋州、白沙、五指山、保亭、陵水、琼中、万宁、屯昌和定安12个市县出现中度气象干旱，昌江、东方、乐东和三亚4个市县出现轻度气象干旱。
+当日，奥运冠军孙淑伟、杨景辉、张洁雯、罗玉通和世界冠军黄文仪，以及吴群立、赵利红、王惠良、胡志军、李海发等南粤足坛传奇人物亮相现场。
 
-海南省气候中心专家认为，今年海南异常高温与厄尔尼诺现象无直接关系，而是副热带高压偏强、西南干热气流和焚风效应的共同作用。
+据悉，本届嘉年华精心打造了“体育+科技+文化”的多元融合模式，面向公众开放。
 
-当前海南受副热带高压控制，空气下沉过程中压缩增温，加之晴朗少云天气使太阳辐射直接加热地面，进一步推高气温；同时，岛内中低层受西南干热气流影响，气流翻越五指山脉形成焚风效应，在下降过程中加速升温，导致北部和西部地区更易出现极端高温。
+除了传统的马术、射箭、公路自行车、旱地冰壶、跳绳等项目外，还有无人机足球、2v2机器人足球赛、花样智力拔河等充满科技感与趣味性的项目。
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 18:07 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 18:02 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 18:00 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 18:29 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 18:07 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 18:10 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 18:25 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 18:05 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 18:05 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 18:04 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 18:09 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 18:34 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 18:14 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 18:10 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 18:20 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 18:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 18:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 18:09 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 18:13 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 18:24 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 18:08 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/61644377445.shtml)
-- 2026-06-29 18:09 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/02702.shtml)
-- 2026-06-29 18:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/194730919.shtml)
-- 2026-06-29 18:24 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/37321.shtml)
-- 2026-06-29 18:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/4059822.shtml)
-- 2026-06-29 18:08 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/828682514.shtml)
-- 2026-06-29 18:04 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/652822.shtml)
-- 2026-06-29 18:15 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/6855188.shtml)
-- 2026-06-29 18:15 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/7740824.shtml)
-- 2026-06-29 18:08 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/6069749.shtml)
-- 2026-06-29 18:08 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/11083731805.shtml)
-- 2026-06-29 18:16 - [沉睡花园](http://www.blog.minike.top/Article/details/1196093010.shtml)
-- 2026-06-29 18:29 - [扫黑风暴](https://www.blog.minike.top/Article/details/595801.shtml)
-- 2026-06-29 18:01 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/6639383.shtml)
-- 2026-06-29 18:00 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/195426.shtml)
+- 2026-06-29 18:16 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/419701.shtml)
+- 2026-06-29 18:21 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/84847.shtml)
+- 2026-06-29 18:16 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/572755.shtml)
+- 2026-06-29 18:29 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/62730619.shtml)
+- 2026-06-29 18:18 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/97009.shtml)
+- 2026-06-29 18:26 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/38187065.shtml)
+- 2026-06-29 18:14 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/6084776267.shtml)
+- 2026-06-29 18:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/936811.shtml)
+- 2026-06-29 18:35 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/3898143.shtml)
+- 2026-06-29 18:31 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/17092.shtml)
+- 2026-06-29 18:10 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/649202829981.shtml)
+- 2026-06-29 18:10 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/76626079145.shtml)
+- 2026-06-29 18:28 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/2632270.shtml)
+- 2026-06-29 18:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/405262839.shtml)
+- 2026-06-29 18:14 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/58494231684.shtml)

@@ -1,57 +1,56 @@
-# 芝加哥联储行长古尔斯比：对经济持谨慎甚至紧张态度
+# 澳门学子走进琼海：在行走中厚植家国情怀
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-芝加哥联邦储备银行行长奥斯坦·古尔斯比表示，油价飙升叠加企业招聘处于低位，引发了对美国经济的担忧。 “我对此持谨慎态度，甚至有些紧张，”他周二在底特律的活动上表示。 古尔斯比重申，油价飙升可能以滞胀的方式推高通胀。 他还表示，持续的通胀可能会固化在合同定价中。 他表示，劳动力市场目前这种低招聘、低裁员的局面，很可能源于企业面临的不确定性。责任编辑：丁文武
+中新网海南琼海5月29日电 (记者 符宇群)走进红色娘子军纪念园感悟革命精神、在中国(海南)南海博物馆探秘南海文明、在博鳌亚洲论坛永久会址感受开放氛围……由中央政府驻澳门联络办公室、澳门特别行政区政府联合组织的澳门青少年国家安全主题参访游学团28日走进海南省琼海市，为澳门学子认识祖国风貌提供全新视角。 在红色娘子军纪念园，珍贵的历史照片、厚重的革命实物、一幕幕的实景场景复原，生
 
 ## 正文
 
-芝加哥联邦储备银行行长奥斯坦·古尔斯比表示，油价飙升叠加企业招聘处于低位，引发了对美国经济的担忧。
+中新网海南琼海5月29日电 (记者 符宇群)走进红色娘子军纪念园感悟革命精神、在中国(海南)南海博物馆探秘南海文明、在博鳌亚洲论坛永久会址感受开放氛围……由中央政府驻澳门联络办公室、澳门特别行政区政府联合组织的澳门青少年国家安全主题参访游学团28日走进海南省琼海市，为澳门学子认识祖国风貌提供全新视角。
 
-“我对此持谨慎态度，甚至有些紧张，”他周二在底特律的活动上表示。
+在红色娘子军纪念园，珍贵的历史照片、厚重的革命实物、一幕幕的实景场景复原，生动展现海南红色娘子军扎根海岛、不畏牺牲、保家卫国的峥嵘岁月。
 
-古尔斯比重申，油价飙升可能以滞胀的方式推高通胀。
+现场，全体学子齐声唱响经典红歌《万泉河水清又清》，共同缅怀巾帼先烈。
 
-他还表示，持续的通胀可能会固化在合同定价中。
+“红色娘子为家国拼搏，是女性抗争史上熠熠生辉的光辉典范。
 
-他表示，劳动力市场目前这种低招聘、低裁员的局面，很可能源于企业面临的不确定性。
+”澳门理工大学大一学生傅琰婻表示，“和平岁月来之不易，我们更当赓续红色血脉，汲取奋进力量，不负青春、不负家国。
 
-责任编辑：丁文武
+” 在中国(海南)南海博物馆，澳门濠江中学高二学生洪羽熙在一件件文物前驻足细看。
+
+“一件件历经岁月洗礼的出水文物，镌刻着先民深耕南海、扬帆远航的千年足迹。
+
+南海自然生态与岛礁风貌的详实展示，也让我对这片蓝色国土有了更加立体、具象的深刻认知。
 
 ## 相关推荐
 
-- 2026-06-29 18:21 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 18:03 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 18:10 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 18:22 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 18:08 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 18:06 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 18:17 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 18:10 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 18:04 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 18:16 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 18:25 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 18:07 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 18:07 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 18:23 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 18:08 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 18:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 18:24 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 18:13 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 18:09 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 18:30 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 18:22 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 18:15 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 18:35 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 18:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 18:35 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/11461076302.shtml)
-- 2026-06-29 18:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/681746572.shtml)
-- 2026-06-29 18:16 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/055654.shtml)
-- 2026-06-29 18:29 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/289750.shtml)
-- 2026-06-29 18:20 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/379301.shtml)
-- 2026-06-29 18:14 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/045309450.shtml)
-- 2026-06-29 18:13 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/8721784015.shtml)
-- 2026-06-29 18:20 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/370745239.shtml)
-- 2026-06-29 18:23 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/0166135774.shtml)
-- 2026-06-29 18:08 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/08328159452.shtml)
-- 2026-06-29 18:27 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/13929778075.shtml)
-- 2026-06-29 18:29 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/129491.shtml)
-- 2026-06-29 18:04 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/044253.shtml)
-- 2026-06-29 18:01 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/01079.shtml)
-- 2026-06-29 18:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/86614587.shtml)
+- 2026-06-29 18:31 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/88684299914.shtml)
+- 2026-06-29 18:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/60752.shtml)
+- 2026-06-29 18:22 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/98609374.shtml)
+- 2026-06-29 18:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/808957226.shtml)
+- 2026-06-29 18:33 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/44168348122.shtml)
+- 2026-06-29 18:13 - [绘画区你赢了](http://www.blog.minike.top/Article/details/72053212771.shtml)
+- 2026-06-29 18:28 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/009551110947.shtml)
+- 2026-06-29 18:20 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/992549649730.shtml)
+- 2026-06-29 18:18 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/54272589.shtml)
+- 2026-06-29 18:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/39175070059.shtml)
+- 2026-06-29 18:19 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/736554750320.shtml)
+- 2026-06-29 18:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/4922529764.shtml)
+- 2026-06-29 18:10 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.kurohicncr.top/Article/details/97291854965.shtml)
+- 2026-06-29 18:27 - [周生如故](http://www.blog.minike.top/Article/details/09809780297.shtml)
+- 2026-06-29 18:25 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/5735373291.shtml)

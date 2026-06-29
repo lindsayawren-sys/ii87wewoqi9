@@ -1,59 +1,50 @@
-# 全国社保基金副理事长王文灵被查，长期在金融领域任职
+# 芯能二号租赁（北京）有限公司成立 中银金租全资持股
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-据界面新闻查询中央纪委国家监委网站获悉，全国社会保障基金理事会党组成员、副理事长王文灵涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。 公开资料显示，王文灵‌于1966年10月出生，江西上高人，经济学博士。他长期在金融与社会保障领域任职，2002年进入全国社会保障基金理事会，历任法规及监管部主任、党组成员，2015年8月起任副理事长。 根据2018年国务院机构改
+5月29日金融一线消息，天眼查App显示，近日，芯能二号租赁（北京）有限公司成立，法定代表人为陈庆海，注册资本2万人民币，经营范围为融资租赁业务。股东信息显示，该公司由中国银行旗下中银金融租赁有限公司全资持股。责任编辑：秦艺
 
 ## 正文
 
-据界面新闻查询中央纪委国家监委网站获悉，全国社会保障基金理事会党组成员、副理事长王文灵涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
+5月29日金融一线消息，天眼查App显示，近日，芯能二号租赁（北京）有限公司成立，法定代表人为陈庆海，注册资本2万人民币，经营范围为融资租赁业务。
 
-公开资料显示，王文灵‌于1966年10月出生，江西上高人，经济学博士。
+股东信息显示，该公司由中国银行旗下中银金融租赁有限公司全资持股。
 
-他长期在金融与社会保障领域任职，2002年进入全国社会保障基金理事会，历任法规及监管部主任、党组成员，2015年8月起任副理事长。
-
-根据2018年国务院机构改革方案，全国社会保障基金理事会由原国务院直属的正部级事业单位，调整为由财政部管理的事业单位。
-
-副理事长‌属于中央管理的干部，由国务院任命。
-
-作为曾主管社保基金法规与监管、后任副理事长的人物，王文灵掌握着国家养老储备资金的运作话语权。
-
-截至2025年底，全国基本养老、失业、工伤保险参保人数分别为10.76亿人、2.49亿人、3.05亿人，分别比上年底增加316万人、329万人、102万人。
-
-全年三项社会保险基金总收入9.1万亿元、总支出8.1万亿元，年底累计结余10.2万亿元，基金运行总体平稳。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 18:11 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 18:23 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 18:20 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 18:18 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 18:09 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 18:22 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 18:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 18:05 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 18:09 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 18:25 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 18:17 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 18:28 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 18:13 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 18:15 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 18:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 18:10 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 18:34 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 18:26 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 18:25 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 18:21 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 18:08 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 18:07 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 18:18 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 18:17 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 18:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 18:22 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 18:26 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:23 - [小娘惹](https://www.blog.minike.top/Article/details/24485.shtml)
-- 2026-06-29 18:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/464360.shtml)
-- 2026-06-29 18:08 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/255420.shtml)
-- 2026-06-29 18:21 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/218781574374.shtml)
-- 2026-06-29 18:26 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/11069501561.shtml)
-- 2026-06-29 18:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/546066641602.shtml)
-- 2026-06-29 18:12 - [AG 宫斗](https://www.share.minike.top/Article/details/490853352934.shtml)
-- 2026-06-29 18:07 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/161045252399.shtml)
-- 2026-06-29 18:25 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/0293649524.shtml)
-- 2026-06-29 18:21 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/2100133169.shtml)
-- 2026-06-29 18:04 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/8571260.shtml)
-- 2026-06-29 18:09 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/6888823.shtml)
-- 2026-06-29 18:16 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/20462137890.shtml)
-- 2026-06-29 18:19 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/66143722089.shtml)
-- 2026-06-29 18:08 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/76447980.shtml)
+- 2026-06-29 18:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/57299608.shtml)
+- 2026-06-29 18:24 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/943417.shtml)
+- 2026-06-29 18:21 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/102290.shtml)
+- 2026-06-29 18:14 - [小娘惹](http://www.blog.minike.top/Article/details/206125298660.shtml)
+- 2026-06-29 18:18 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/8454168767.shtml)
+- 2026-06-29 18:07 - [花万元相亲对象是50元雇的演员](http://www.share.minike.top/Article/details/6585798.shtml)
+- 2026-06-29 18:18 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/37020722.shtml)
+- 2026-06-29 18:20 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/3825484.shtml)
+- 2026-06-29 18:15 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/34740.shtml)
+- 2026-06-29 18:17 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/843671872968.shtml)
+- 2026-06-29 18:26 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/57650.shtml)
+- 2026-06-29 18:11 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/55084867808.shtml)
+- 2026-06-29 18:06 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/143606546.shtml)
+- 2026-06-29 18:21 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/58143.shtml)
+- 2026-06-29 18:23 - [A股割裂行情有变化了吗](https://www.share.minike.top/Article/details/507218041262.shtml)

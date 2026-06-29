@@ -1,58 +1,56 @@
-# 两高：依法从严惩处涉民航飞行安全违法犯罪
+# 港交所集团行政总裁陈翊庭：A+H股两地上市形成了显著的良性互动效应
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新网北京4月8日电(记者 高萌)安全是飞行的生命线。4月8日，最高人民法院、最高人民检察院发布《关于办理危害民航飞行安全刑事案件适用法律若干问题的解释》，并发布一批典型案例。最高法介绍，对涉民航飞行安全违法犯罪，《解释》坚持依法从严惩处总体原则。 最高法介绍，《解释》通篇贯彻了从严惩处的总体原则，降低了编造、故意传播虚假恐怖信息罪的入罪标准，并增加了加重处罚具体规定；增加列举
+专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 5月28日-29日，深交所2026全球投资者大会在深圳举办。大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，香港交易所集团行政总裁陈翊庭出席并致辞。 陈翊庭称，港交所与深交所近年来推出多项改革，携手服务中国实体经济。从企业融资路径来看，由于投资者结构存在差异，港交所与内地交易
 
 ## 正文
 
-中新网北京4月8日电(记者 高萌)安全是飞行的生命线。
+专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 5月28日-29日，深交所2026全球投资者大会在深圳举办。
 
-4月8日，最高人民法院、最高人民检察院发布《关于办理危害民航飞行安全刑事案件适用法律若干问题的解释》，并发布一批典型案例。
+大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，香港交易所集团行政总裁陈翊庭出席并致辞。
 
-最高法介绍，对涉民航飞行安全违法犯罪，《解释》坚持依法从严惩处总体原则。
+陈翊庭称，港交所与深交所近年来推出多项改革，携手服务中国实体经济。
 
-最高法介绍，《解释》通篇贯彻了从严惩处的总体原则，降低了编造、故意传播虚假恐怖信息罪的入罪标准，并增加了加重处罚具体规定；增加列举了暴力危及飞行安全罪中“危及飞行安全”的具体情形；明确了相关犯罪的数罪并罚和从一重罪处罚原则。
+从企业融资路径来看，由于投资者结构存在差异，港交所与内地交易所具备极强互补性，A+H 股两地上市形成了显著的良性互动效应。
 
-《解释》明确，依法惩治违规开启民航飞机舱门、在民航飞机机舱内打架斗殴等常见“机闹”犯罪行为，明确了上述行为适用的罪名和定罪条件。
+例如，部分新经济企业初创阶段先登陆港交所，发展成熟后回归 A 股，即 “先 H 后 A”；也有不少 A 股龙头企业，为开拓国际市场选择在香港二次上市，也就是 “先 A 后 H”。
 
-例如，《解释》规定，并非所有的违规开启民航飞机舱门的行为都构成刑事犯罪，只有在民航飞机处于依靠自身动力移动期间或者空中飞行期间违规开启舱门、足以引发危害公共安全危险的情况下，才能以以危险方法危害公共安全罪定罪处罚。
+无论哪种模式，大多能形成双向利好，带动两地股票成交量与股价同步提升。
 
-同时，《解释》还特别明确，对民航乘务员使用暴力的行为可能构成暴力危及飞行安全罪。
+近期多家内地企业完成 H 股上市，也起到了良好的示范作用，企业登陆 H 股后，A 股的成交量与股价同步走高。
 
-《解释》还突出对编造、故意传播涉民航飞行安全虚假恐怖信息犯罪的从严惩治，规定行为人的行为影响民航航班、民用机场正常运行，或者致使公安、武警、消防救援、卫生检疫等部门采取应对措施的，应作犯罪处理；造成严重社会影响或者重大经济损失的，属于造成严重后果，处五年以上有期徒刑。
+责任编辑：尉旖涵
 
 ## 相关推荐
 
-- 2026-06-29 18:18 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 18:17 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 18:20 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 18:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 18:11 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 18:26 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 18:19 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 18:09 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 18:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 18:28 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 18:07 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 18:28 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 18:12 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 18:11 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 18:13 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 18:15 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 18:21 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 18:10 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 18:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 18:33 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 18:28 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 18:08 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:01 - [金刚川](https://www.share.kurohicncr.top/Article/details/7232395.shtml)
-- 2026-06-29 18:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/39335.shtml)
-- 2026-06-29 18:07 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/390986632.shtml)
-- 2026-06-29 18:08 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/28700.shtml)
-- 2026-06-29 18:18 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/549982.shtml)
-- 2026-06-29 18:07 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/751957291.shtml)
-- 2026-06-29 18:25 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/5670322.shtml)
-- 2026-06-29 18:18 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/179644683473.shtml)
-- 2026-06-29 18:04 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/659568435884.shtml)
-- 2026-06-29 18:28 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/09467254639.shtml)
-- 2026-06-29 18:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/134879379675.shtml)
-- 2026-06-29 18:01 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/41794015.shtml)
-- 2026-06-29 18:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/1039427052.shtml)
-- 2026-06-29 18:09 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/70690863025.shtml)
-- 2026-06-29 18:14 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/92599783.shtml)
+- 2026-06-29 18:32 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/392729036492.shtml)
+- 2026-06-29 18:34 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/2787970.shtml)
+- 2026-06-29 18:23 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/653430.shtml)
+- 2026-06-29 18:33 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/55937827.shtml)
+- 2026-06-29 18:30 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/35695191.shtml)
+- 2026-06-29 18:08 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/87052.shtml)
+- 2026-06-29 18:35 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.kurohicncr.top/Article/details/75716.shtml)
+- 2026-06-29 18:14 - [天道](https://www.blog.kurohicncr.top/Article/details/5452174861.shtml)
+- 2026-06-29 18:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/66470.shtml)
+- 2026-06-29 18:30 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/6937257941.shtml)
+- 2026-06-29 18:16 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/34333.shtml)
+- 2026-06-29 18:31 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/650923.shtml)
+- 2026-06-29 18:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/902270360135.shtml)
+- 2026-06-29 18:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/161561.shtml)
+- 2026-06-29 18:26 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/235332141692.shtml)

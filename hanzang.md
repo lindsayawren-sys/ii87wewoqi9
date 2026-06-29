@@ -1,59 +1,56 @@
-# 特朗普签署行政令限制邮寄投票
+# 明天，新材料龙头来了！A股又见“大肉签”
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普于当地时间周二签署了一项行政命令，旨在限制邮寄投票。投票权倡导者表示，此举将剥夺数百万美国人的投票权。 该命令要求美国国土安全部编制一份各州符合投票资格的美国公民名单，几乎可以肯定的是，该命令将面临法律挑战，这可能导致其无法在11月的中期选举前及时生效。 特朗普在白宫签署该命令后表示：“我们希望拥有公正的投票，因为如果没有公正的投票，就无法真正拥有一个国家，如果你
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！根据目前的发行安排，下周只有1只新股申购，即北交所新股金戈新材。 金戈新材是国内功能性粉体材料龙头企业。 金戈新材的发行价为9.65元/股，发行市盈率为14.93倍。公司拟公开发行不超过2231.74万股，拟募集资金2.05亿元。募集资金将主要用于年产3万吨功能性材料技术改造、研发试验基地建设、智能仓储建设
 
 ## 正文
 
-美国总统特朗普于当地时间周二签署了一项行政命令，旨在限制邮寄投票。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-投票权倡导者表示，此举将剥夺数百万美国人的投票权。
+根据目前的发行安排，下周只有1只新股申购，即北交所新股金戈新材。
 
-该命令要求美国国土安全部编制一份各州符合投票资格的美国公民名单，几乎可以肯定的是，该命令将面临法律挑战，这可能导致其无法在11月的中期选举前及时生效。
+金戈新材是国内功能性粉体材料龙头企业。
 
-特朗普在白宫签署该命令后表示：“我们希望拥有公正的投票，因为如果没有公正的投票，就无法真正拥有一个国家，如果你想知道真相的话。
+金戈新材的发行价为9.65元/股，发行市盈率为14.93倍。
 
-” 根据白宫的情况说明书，国土安全部将与社会保障署合作编制这份名单。
+公司拟公开发行不超过2231.74万股，拟募集资金2.05亿元。
 
-名单将发送给各州，该命令指示美国司法部长优先调查和起诉“向不符合资格的选民发放或分发联邦选票的选举官员、个人和其他违法实体”。
+募集资金将主要用于年产3万吨功能性材料技术改造、研发试验基地建设、智能仓储建设及补充流动资金。
 
-情况说明书还指出，该命令指示司法部长扣留不遵守规定的州的联邦资金。
+金戈新材专业从事功能性材料研发、生产和销售，是国家级专精特新“小巨人”、广东省制造业单项冠军企业。
 
-情况说明书指出，美国邮政总局将被要求“仅向已在各州指定的邮寄投票和缺席投票参与名单上登记的个人寄送选票”。
+公司深耕功能性材料行业多年，致力于研制高分散性、高填充效率、高稳定性的国产现代化功能性粉体材料，拥有导热粉体材料、阻燃粉体材料、吸波粉体材料等核心产品系列，广泛应用于新能源汽车、消费电子、5G通信、光伏储能等领域。
 
 ## 相关推荐
 
-- 2026-06-29 18:17 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 18:11 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 18:10 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 18:16 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 18:20 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 18:14 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 18:01 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 18:17 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 18:01 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 18:22 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 18:29 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 18:15 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 18:15 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 18:25 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 18:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 18:11 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 18:24 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 18:09 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 18:28 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 18:24 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 18:20 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 18:24 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 18:19 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/975234876511.shtml)
-- 2026-06-29 18:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/3759108848.shtml)
-- 2026-06-29 18:06 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/274836.shtml)
-- 2026-06-29 18:19 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/36157242.shtml)
-- 2026-06-29 18:05 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/6216569.shtml)
-- 2026-06-29 18:25 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/6590025.shtml)
-- 2026-06-29 18:21 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/576867.shtml)
-- 2026-06-29 18:09 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/089830.shtml)
-- 2026-06-29 18:15 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/14710.shtml)
-- 2026-06-29 18:12 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/32658.shtml)
-- 2026-06-29 18:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/61997.shtml)
-- 2026-06-29 18:10 - [美人鱼](http://www.share.minike.top/Article/details/625368026.shtml)
-- 2026-06-29 18:13 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/8441730687.shtml)
-- 2026-06-29 18:14 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/03514902024.shtml)
-- 2026-06-29 18:11 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/83721879254.shtml)
+- 2026-06-29 18:08 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.minike.top/Article/details/68301154106.shtml)
+- 2026-06-29 18:09 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/041528986877.shtml)
+- 2026-06-29 18:18 - [《贺子珍》](https://www.share.minike.top/Article/details/864764.shtml)
+- 2026-06-29 18:26 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/504163457190.shtml)
+- 2026-06-29 18:30 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/935544007.shtml)
+- 2026-06-29 18:29 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/19373.shtml)
+- 2026-06-29 18:28 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/410393700.shtml)
+- 2026-06-29 18:35 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/7690237884.shtml)
+- 2026-06-29 18:27 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/6976872.shtml)
+- 2026-06-29 18:33 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/543130364.shtml)
+- 2026-06-29 18:35 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/051617878926.shtml)
+- 2026-06-29 18:27 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/14219492744.shtml)
+- 2026-06-29 18:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/22005.shtml)
+- 2026-06-29 18:16 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/670994.shtml)
+- 2026-06-29 18:24 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/70439.shtml)

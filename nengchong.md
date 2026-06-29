@@ -1,61 +1,56 @@
-# 中国“两高”发文 依法惩治民航“机闹”犯罪行为
+# 焦炭成本上涨 钢价会继续涨吗
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月8日电 (记者 张素)中国最高人民法院、最高人民检察院8日联合发布关于办理危害民航飞行安全刑事案件适用法律若干问题的解释。 司法解释共7条，其中明确，依法惩治违规开启民航飞机舱门、在民航飞机机舱内打架斗殴等常见“机闹”犯罪行为。 根据司法解释，并非所有违规开启民航飞机舱门的行为都构成刑事犯罪，只有在民航飞机处于依靠自身动力移动期间或者空中飞行期间违规开启舱门、足以
+来源：@经济观察报微博记者 潘俊田根据“我的钢铁网”调研，因近期安监力度增强，山西主产区煤矿大规模停产自检。本周统计的523座炼焦煤样本矿山中，原煤日产环比减少32.6万吨，其中山西地区原煤日产环比减少30.6万吨。炼焦煤供应端出现明显收缩，坑口、竞拍及洗煤厂贸易商报价普遍上涨，涨幅多在50至150元/吨，市场成交顺畅，几无流拍。这让焦炭企业正在酝酿第五轮提价。今年4月，国内焦
 
 ## 正文
 
-中新社北京4月8日电 (记者 张素)中国最高人民法院、最高人民检察院8日联合发布关于办理危害民航飞行安全刑事案件适用法律若干问题的解释。
+来源：@经济观察报微博记者 潘俊田根据“我的钢铁网”调研，因近期安监力度增强，山西主产区煤矿大规模停产自检。
 
-司法解释共7条，其中明确，依法惩治违规开启民航飞机舱门、在民航飞机机舱内打架斗殴等常见“机闹”犯罪行为。
+本周统计的523座炼焦煤样本矿山中，原煤日产环比减少32.6万吨，其中山西地区原煤日产环比减少30.6万吨。
 
-根据司法解释，并非所有违规开启民航飞机舱门的行为都构成刑事犯罪，只有在民航飞机处于依靠自身动力移动期间或者空中飞行期间违规开启舱门、足以引发危害公共安全危险的情况下，才能以以危险方法危害公共安全罪定罪处罚。
+炼焦煤供应端出现明显收缩，坑口、竞拍及洗煤厂贸易商报价普遍上涨，涨幅多在50至150元/吨，市场成交顺畅，几无流拍。
 
-对于飞机尚未依靠自身动力移动等情况下违规开启舱门的行为，可以根据有关规定给予行政处罚，并由行为人承担相应的民事赔偿责任。
+这让焦炭企业正在酝酿第五轮提价。
 
-最高人民法院刑事审判第四庭庭长罗国良介绍，司法解释采用列举式规定，对在飞行中的民航飞机上使用暴力行为构成暴力危及飞行安全罪的定罪量刑标准作出了规定，特别明确乘务员属于“飞行安全保障人员”，对飞机乘务员使用暴力的行为可能构成暴力危及飞行安全罪。
+今年4月，国内焦炭市场连续完成两轮涨价，分别上涨100元/吨、110元/吨。
 
-实践中，部分行为人编造、故意传播诸如“飞机上有炸弹”等涉民航飞行安全虚假恐怖信息，严重干扰民航飞行安全和秩序。
+4月底焦炭企业继续提价50元—55元/吨。
 
-罗国良说，司法解释进一步突出对编造、故意传播涉民航飞行安全虚假恐怖信息犯罪的惩治力度。
+5月中旬焦炭又完成第四轮涨价。
 
-其中规定，行为人的行为影响民航航班、民用机场正常运行，或者致使公安、武警、消防救援、卫生检疫等部门采取应对措施的，应作犯罪处理；造成严重社会影响或者重大经济损失的，属于造成严重后果，处五年以上有期徒刑。
+焦炭期货现已涨至约1900元/吨，作为对比，2月份不足1400元/吨。
 
 ## 相关推荐
 
-- 2026-06-29 18:11 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 18:19 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 18:10 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 18:19 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 18:27 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 18:09 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 18:29 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 18:28 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 18:08 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 18:20 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 18:08 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 18:02 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 18:28 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 18:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 18:05 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 18:23 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 18:07 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 18:34 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 18:21 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 18:11 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 18:10 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 18:14 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 18:35 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 18:17 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 18:11 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:07 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/66621315.shtml)
-- 2026-06-29 18:21 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/862115947.shtml)
-- 2026-06-29 18:19 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/022256660244.shtml)
-- 2026-06-29 18:14 - [看大国重器“云端穿针引线”](https://www.blog.kurohicncr.top/Article/details/43785319161.shtml)
-- 2026-06-29 18:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/378408.shtml)
-- 2026-06-29 18:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/58100334.shtml)
-- 2026-06-29 18:19 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/7069236.shtml)
-- 2026-06-29 18:23 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/8533676.shtml)
-- 2026-06-29 18:28 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/06135.shtml)
-- 2026-06-29 18:23 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/502560.shtml)
-- 2026-06-29 18:23 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/934442760950.shtml)
-- 2026-06-29 18:06 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/2356821222.shtml)
-- 2026-06-29 18:01 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/90544595.shtml)
-- 2026-06-29 18:23 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/355727.shtml)
-- 2026-06-29 18:02 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/57100.shtml)
+- 2026-06-29 18:08 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/295779.shtml)
+- 2026-06-29 18:20 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/7536820.shtml)
+- 2026-06-29 18:31 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/42740.shtml)
+- 2026-06-29 18:18 - [请回答王牌2019](https://www.blog.minike.top/Article/details/88080791.shtml)
+- 2026-06-29 18:32 - [乔家的儿女](http://www.blog.minike.top/Article/details/9104671861.shtml)
+- 2026-06-29 18:13 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/2289468.shtml)
+- 2026-06-29 18:28 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/341311906667.shtml)
+- 2026-06-29 18:10 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/20377927690.shtml)
+- 2026-06-29 18:16 - [叠纸客服回应恋与深空新角色争议](https://www.blog.minike.top/Article/details/59907.shtml)
+- 2026-06-29 18:20 - [葛军透露高考出题思路](https://www.blog.kurohicncr.top/Article/details/960868.shtml)
+- 2026-06-29 18:24 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/993936587218.shtml)
+- 2026-06-29 18:20 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/97683.shtml)
+- 2026-06-29 18:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/360367595.shtml)
+- 2026-06-29 18:28 - [业内：全球市场迎来结构性投资窗口](https://www.share.kurohicncr.top/Article/details/4396378.shtml)
+- 2026-06-29 18:07 - [大马同意延长马航370残骸搜寻工作](https://www.share.minike.top/Article/details/4577706.shtml)

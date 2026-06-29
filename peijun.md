@@ -1,57 +1,58 @@
-# 中国水上交通安全协会低空应急分会落地广州
+# 扎根海底抗狂风巨浪 广东造出新型海洋牧场重器
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新网广州4月8日电 (记者 王坚)中国水上交通安全协会低空应急分会成立大会8日在广州举行。会上举行了分会会长等授牌仪式，并同期举办了水上低空应急科技应用专题研讨会。会议指出，这是我国水上交通安全发展进程中的重要事件，也是粤港澳大湾区推动水上安全与低空经济融合发展的标志性事件。 据介绍，此次大会由中国水上交通安全协会指导、中国水上交通安全协会低空应急分会主办。中国水上交通安全协
+中新网汕尾5月29日电 (记者 蔡敏婕)在广东汕尾碣石湾海域，两座巨大的六边形钢铁网箱静浮在蔚蓝海面，它们如海上堡垒，单座养殖水体容量接近2万立方米，这里是鱼儿专属的“海景房”与活动空间。 今年6月8日是第18个世界海洋日。记者日前探访内地首组六边形插桩可升降桁架式网箱——“港航2001”“港航2002”，该组网箱由广东省港航集团建设、中交广航局(以下简称“广航局”)研发建造。
 
 ## 正文
 
-中新网广州4月8日电 (记者 王坚)中国水上交通安全协会低空应急分会成立大会8日在广州举行。
+中新网汕尾5月29日电 (记者 蔡敏婕)在广东汕尾碣石湾海域，两座巨大的六边形钢铁网箱静浮在蔚蓝海面，它们如海上堡垒，单座养殖水体容量接近2万立方米，这里是鱼儿专属的“海景房”与活动空间。
 
-会上举行了分会会长等授牌仪式，并同期举办了水上低空应急科技应用专题研讨会。
+今年6月8日是第18个世界海洋日。
 
-会议指出，这是我国水上交通安全发展进程中的重要事件，也是粤港澳大湾区推动水上安全与低空经济融合发展的标志性事件。
+记者日前探访内地首组六边形插桩可升降桁架式网箱——“港航2001”“港航2002”，该组网箱由广东省港航集团建设、中交广航局(以下简称“广航局”)研发建造。
 
-据介绍，此次大会由中国水上交通安全协会指导、中国水上交通安全协会低空应急分会主办。
+目前该组网箱在广东汕尾碣石湾海域完成相关调试，具备交付使用条件。
 
-中国水上交通安全协会是我国水上交通安全领域的全国性社会团体，已设立水上消防、水上水下作业安全、海上风电及新业态、通信与网络安全、运输安全、环境安全、船员、港口安全等分支机构。
+该项目技术负责人许艳青介绍：“单个网箱俯视呈正六边形，边长24.5米，总高17米，重约900吨，可提供近2万立方米养殖水体。
 
-会上强调，“水上交通安全+低空经济”的结合，将促进低空经济应用拓展和水上交通行业形态升级，实现“1+1>2”的效应。
+这是内地首次采用六边形流线型结构的桁架式网箱，并获得国家发明专利授权，能高效分散风浪和海流冲击，减少涡流与网衣磨损。
 
-低空应急分会将发挥协会平台效应，聚焦水上低空应急救援、海事巡查、物资投送等重点方向，加快技术研发和标准制定，推动成果落地应用，努力打造成为国内领先、国际知名的低空应急专业组织。
+网箱还搭载智能升降系统，可沿立柱灵活调节水深，在海上自存状态下能抵御强台风、每秒1.44米流速及9.64米波高。
 
-广州市海珠区副区长陈宇表示，希望分会成立后，充分用好海珠区人工智能产业发展优势，深化低空应急领域与人工智能技术融合应用，着力打造粤港澳大湾区水上低空应急示范；并充分发挥桥梁纽带与平台聚合作用，助力构建现代化、智能化的水上交通安全与应急救援体系。
+” “简单来说，插桩式网箱，就是给鱼在海边建了个带健身房的天然海景房，根基稳、水质活、少生病，养出的鱼壮实又好吃。
 
 ## 相关推荐
 
-- 2026-06-29 18:15 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 18:03 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 18:19 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 18:18 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 18:12 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 18:08 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 18:04 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 18:23 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 18:24 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 18:26 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 18:25 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 18:14 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 18:27 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 18:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 18:33 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 18:15 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 18:35 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 18:20 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 18:13 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 18:22 - [V8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 18:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 18:35 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 18:12 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:12 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/55760855.shtml)
-- 2026-06-29 18:13 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/03496098.shtml)
-- 2026-06-29 18:02 - [爱很美味](http://www.share.kurohicncr.top/Article/details/095566249236.shtml)
-- 2026-06-29 18:01 - [明星大侦探第四季](https://www.share.minike.top/Article/details/942169319.shtml)
-- 2026-06-29 18:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/49718.shtml)
-- 2026-06-29 18:14 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/71812.shtml)
-- 2026-06-29 18:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/4013198888.shtml)
-- 2026-06-29 18:15 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/529010.shtml)
-- 2026-06-29 18:27 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/146731.shtml)
-- 2026-06-29 18:16 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/93930421.shtml)
-- 2026-06-29 18:00 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/6483387109.shtml)
-- 2026-06-29 18:12 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/932542171318.shtml)
-- 2026-06-29 18:13 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/4427574338.shtml)
-- 2026-06-29 18:02 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/5753419.shtml)
-- 2026-06-29 18:11 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/943896916823.shtml)
+- 2026-06-29 18:08 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/56441848.shtml)
+- 2026-06-29 18:07 - [斛珠夫人](http://www.share.minike.top/Article/details/132837984506.shtml)
+- 2026-06-29 18:22 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/751239.shtml)
+- 2026-06-29 18:14 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/939900163.shtml)
+- 2026-06-29 18:23 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/2373095029.shtml)
+- 2026-06-29 18:29 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/62313067410.shtml)
+- 2026-06-29 18:19 - [扬名立万](http://www.share.minike.top/Article/details/840802338155.shtml)
+- 2026-06-29 18:27 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/272495992.shtml)
+- 2026-06-29 18:32 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.kurohicncr.top/Article/details/58879069061.shtml)
+- 2026-06-29 18:11 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/7505498.shtml)
+- 2026-06-29 18:13 - [T1零封KC MSI](http://www.share.minike.top/Article/details/08535.shtml)
+- 2026-06-29 18:10 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/70476893120.shtml)
+- 2026-06-29 18:24 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/125969476673.shtml)
+- 2026-06-29 18:16 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/663674190.shtml)
+- 2026-06-29 18:25 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/31418.shtml)

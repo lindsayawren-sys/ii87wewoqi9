@@ -1,57 +1,57 @@
-# 创业板指大涨超4%！创业板人工智能ETF富国（159246）早盘一度涨超6%
+# 一份尘封11年的“抽屉协议”曝光，创新医疗跌停！连续7年亏损，脑机接口也救不了
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-4月8日，A股市场迎来普涨行情，三大指数早盘集体走强。其中，创业板指表现尤为亮眼，以超4%的涨幅领涨，显示出强劲的反弹动能，上证指数亦上涨1.59%，市场情绪显著回暖。 相关ETF产品中，富国创业板人工智能ETF（159246）一度涨逾6%，截至10：25涨幅为5.85%，成交额超7000万元，较昨日明显放量。成分股来看，蓝色光标、易点天下、东方国信等涨超10%，汉得信息、网宿
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！华夏时报记者 赵文娟 于娜 北京报道 5月29日，创新医疗（002173.SZ）大幅低开后封死跌停板。前一夜，公司公告收到浙江证监局警示函，直指11年前一份从未披露的“合作框架协议”。 这份被隐藏的协议牵出了一段复杂的资本运作：实控人与浙商创投在2015年公
 
 ## 正文
 
-4月8日，A股市场迎来普涨行情，三大指数早盘集体走强。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-其中，创业板指表现尤为亮眼，以超4%的涨幅领涨，显示出强劲的反弹动能，上证指数亦上涨1.59%，市场情绪显著回暖。
+华夏时报记者 赵文娟 于娜 北京报道 5月29日，创新医疗（002173.SZ）大幅低开后封死跌停板。
 
-相关ETF产品中，富国创业板人工智能ETF（159246）一度涨逾6%，截至10：25涨幅为5.85%，成交额超7000万元，较昨日明显放量。
+前一夜，公司公告收到浙江证监局警示函，直指11年前一份从未披露的“合作框架协议”。
 
-成分股来看，蓝色光标、易点天下、东方国信等涨超10%，汉得信息、网宿科技等跟涨。
+这份被隐藏的协议牵出了一段复杂的资本运作：实控人与浙商创投在2015年公司重大资产重组前夕签署了涉及公司重大股权变动等内容的“抽屉协议”，却始终未向市场和上市公司完整披露。
 
-消息面上，美伊局势逆转，引发亚太市场“狂欢”。
+更令人警惕的是，该公司相关股东曾多次因信披问题被监管点名。
 
-机构认为，四月下旬将成为国内外环境边际改善的关键时间窗口。
+比历史旧账更让投资者揪心的是：这家公司已连续亏损7年，最新一季度亏损同比扩大80%；而被热炒的脑机接口概念，一年收入仅11万元。
 
-外部冲击消退后，4月中下旬市场焦点将转向一季报业绩高增长领域。
+一份隐藏11年的协议，揭开规避借壳的“暗箱操作” 2015年，对于创新医疗（当时还叫千足珍珠）来说是命运的转折点。
 
-基于当前数据，有色金属、石油石化等资源板块，以及新能源、光通信、半导体产业链有望成为业绩增速最为亮眼的行业。
+那一年，公司从珍珠养殖跨界杀入医疗服务领域。
 
 ## 相关推荐
 
-- 2026-06-29 18:14 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 18:17 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 18:17 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 18:08 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 18:18 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 18:29 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 18:26 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 18:28 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 18:10 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 18:29 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 18:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 18:10 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 18:17 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 18:20 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 18:21 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 18:15 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 18:28 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 18:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 18:27 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 18:12 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 18:06 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 18:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/174246.shtml)
-- 2026-06-29 18:03 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/791701.shtml)
-- 2026-06-29 18:05 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/12620125936.shtml)
-- 2026-06-29 18:09 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/28289575787.shtml)
-- 2026-06-29 18:25 - [未成年少女长期吸毒导致卧床不起](https://www.blog.minike.top/Article/details/892015443.shtml)
-- 2026-06-29 18:28 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/4351419662.shtml)
-- 2026-06-29 18:18 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/5000609721.shtml)
-- 2026-06-29 18:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/4793441931.shtml)
-- 2026-06-29 18:26 - [范志毅看好日本淘汰巴西](https://www.share.kurohicncr.top/Article/details/14544.shtml)
-- 2026-06-29 18:14 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/4566159.shtml)
-- 2026-06-29 18:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/50227.shtml)
-- 2026-06-29 18:23 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/89005866397.shtml)
-- 2026-06-29 18:27 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/316500995486.shtml)
-- 2026-06-29 18:27 - [大马同意延长马航370残骸搜寻工作](http://www.blog.minike.top/Article/details/0185195527.shtml)
-- 2026-06-29 18:05 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/442247224.shtml)
+- 2026-06-29 18:35 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/3345926608.shtml)
+- 2026-06-29 18:13 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/399625.shtml)
+- 2026-06-29 18:08 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/3706351.shtml)
+- 2026-06-29 18:19 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.kurohicncr.top/Article/details/753317357.shtml)
+- 2026-06-29 18:18 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/12494434601.shtml)
+- 2026-06-29 18:12 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/67063.shtml)
+- 2026-06-29 18:27 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/25978617.shtml)
+- 2026-06-29 18:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/537625.shtml)
+- 2026-06-29 18:06 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/5108165992.shtml)
+- 2026-06-29 18:11 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/5708795.shtml)
+- 2026-06-29 18:14 - [歼-15型舰载机为何被歼-15T替代](https://www.share.minike.top/Article/details/286864374149.shtml)
+- 2026-06-29 18:22 - [叠纸](http://www.share.kurohicncr.top/Article/details/37339302987.shtml)
+- 2026-06-29 18:23 - [流金岁月](http://www.blog.minike.top/Article/details/837490.shtml)
+- 2026-06-29 18:33 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/776803969.shtml)
+- 2026-06-29 18:24 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/0997211139.shtml)

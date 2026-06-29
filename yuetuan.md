@@ -1,60 +1,57 @@
-# 深圳推出“金融顾问”联区赋能机制，首批12家金融机构获聘
+# 特朗普出言威胁阿曼，让“中东瑞士”成为焦点
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道 曹媛 深圳推出“金融顾问”联区赋能机制，首批12家金融机构正式受聘，包括银行、资产管理公司、证券公司等。 4月8日，在“深圳市投融资金融顾问团组建暨首场对接活动”上，深圳推出“金融顾问”联区赋能机制，首批12家金融机构正式受聘组成“金融顾问团”，并与深圳各区发改、财政、住建、城市更新等相关部门完成结对签约。 据悉，他们未来将围绕房地产项目纾困、专项债及债贷联动
+特朗普政府威胁对长期盟友及密切的安全与经济伙伴阿曼实施制裁和军事行动。 美国财政部长斯科特·贝森特周四警告称，如果阿曼帮助伊朗在霍尔木兹海峡建立收费系统，美国将“严厉”对阿曼实施制裁。 特朗普周三表示：“阿曼必须和其他国家一样行事，否则我们就把他们炸掉。他们明白这一点。他们会没事的。” 2026年2月5日，一名男子在阿曼首都马斯喀特的苏丹卡布斯港滨海大道上眺望拉苏尔·阿德汉姆清
 
 ## 正文
 
-21世纪经济报道 曹媛 深圳推出“金融顾问”联区赋能机制，首批12家金融机构正式受聘，包括银行、资产管理公司、证券公司等。
+特朗普政府威胁对长期盟友及密切的安全与经济伙伴阿曼实施制裁和军事行动。
 
-4月8日，在“深圳市投融资金融顾问团组建暨首场对接活动”上，深圳推出“金融顾问”联区赋能机制，首批12家金融机构正式受聘组成“金融顾问团”，并与深圳各区发改、财政、住建、城市更新等相关部门完成结对签约。
+美国财政部长斯科特·贝森特周四警告称，如果阿曼帮助伊朗在霍尔木兹海峡建立收费系统，美国将“严厉”对阿曼实施制裁。
 
-据悉，他们未来将围绕房地产项目纾困、专项债及债贷联动、国有资产盘活及国企发债、新型政策性金融工具等四大重点领域的首批82个投融资重点项目开展深度对接。
+特朗普周三表示：“阿曼必须和其他国家一样行事，否则我们就把他们炸掉。
 
-为何要推出“金融顾问团”？
+他们明白这一点。
 
-记者了解到，目前传统“财政直投+银行贷款”的单一融资模式已难以适配项目全周期资金需求。
+他们会没事的。
 
-为进一步落实国家“十五五”规划提出的“加快构建有效投资内生增长机制”工作部署，深圳市委金融办会同深圳市发展改革委、深圳市财政局等部门组建深圳市投融资“金融顾问团”，通过“债贷联动+资产证券化+政策性工具”的组合，构建多元化、市场化的投融资生态。
+” 2026年2月5日，一名男子在阿曼首都马斯喀特的苏丹卡布斯港滨海大道上眺望拉苏尔·阿德汉姆清真寺。
 
-据深圳市委金融办相关负责人介绍，金融顾问团将构建“日常对接+定期巡诊+重大项目联动”的闭环服务模式，通过“1+N”综合服务团队配置，深入各区项目一线，统筹运用各类金融工具，量身定制覆盖项目全周期的综合金融服务方案。
+特朗普政府对长期盟友阿曼的威胁，使这个以“中东瑞士”著称的国家被牢牢推入地缘政治聚光灯下。
 
-记者了解到，目前首批12家“深圳市投融资金融顾问”正式获聘。
+阿曼位于阿拉伯半岛东南沿海，与战略要地霍尔木兹海峡对面的伊朗隔海相望，曾在多次地区危机中担任关键调解人，包括美国和以色列主导的对伊朗战争。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 18:04 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 18:22 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 18:03 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 18:29 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 18:12 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 18:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 18:06 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 18:14 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 18:02 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 18:05 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 18:19 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 18:12 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 18:05 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 18:20 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 18:16 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 18:07 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 18:23 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 18:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 18:14 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 18:16 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 18:33 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 18:31 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 18:23 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 18:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:14 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/103187.shtml)
-- 2026-06-29 18:22 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/23225133741.shtml)
-- 2026-06-29 18:25 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/317470.shtml)
-- 2026-06-29 18:26 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/414384979.shtml)
-- 2026-06-29 18:01 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/74136324.shtml)
-- 2026-06-29 18:00 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/00002.shtml)
-- 2026-06-29 18:03 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/56488266292.shtml)
-- 2026-06-29 18:10 - [挪威王储妃长子2次强奸被判4年](https://www.blog.minike.top/Article/details/82111757943.shtml)
-- 2026-06-29 18:07 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/740135.shtml)
-- 2026-06-29 18:06 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/119117.shtml)
-- 2026-06-29 18:06 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/1142911.shtml)
-- 2026-06-29 18:12 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/176567619.shtml)
-- 2026-06-29 18:20 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/3466391259.shtml)
-- 2026-06-29 18:11 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/35235.shtml)
-- 2026-06-29 18:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/28885886.shtml)
+- 2026-06-29 18:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/562572406.shtml)
+- 2026-06-29 18:30 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/286933411.shtml)
+- 2026-06-29 18:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/90388912589.shtml)
+- 2026-06-29 18:31 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/297295722.shtml)
+- 2026-06-29 18:28 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/61183848713.shtml)
+- 2026-06-29 18:06 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/324712.shtml)
+- 2026-06-29 18:10 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/5718952.shtml)
+- 2026-06-29 18:09 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/831267.shtml)
+- 2026-06-29 18:11 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/4828498.shtml)
+- 2026-06-29 18:35 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/33732.shtml)
+- 2026-06-29 18:32 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/93497530237.shtml)
+- 2026-06-29 18:29 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/59336.shtml)
+- 2026-06-29 18:29 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/90719071698.shtml)
+- 2026-06-29 18:20 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/86942074117.shtml)
+- 2026-06-29 18:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/779734.shtml)

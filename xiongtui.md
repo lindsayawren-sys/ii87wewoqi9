@@ -1,50 +1,56 @@
-# 合作“崩盘”，罗永浩代言被下架?瑞幸官方回应
+# 花小钱办大事？警惕莲花控股市值管理新套路 算力布局三年大单“抛锚”贡献仍小
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月7日，近日，有网友发现，部分瑞幸门店 内罗永浩代言广告已不在点单屏幕播放，怀疑“双方合作崩盘”。 对此，新浪财经问询了瑞幸官方客服，其表示：“并未接到类似通知”。 此前，瑞幸官宣罗永浩成为“超大杯推荐官”，广告短片上线后引起广泛讨论。 责任编辑：宋雅芳
+登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：近期莲花控股股价被爆炒背后，一方面公司跨界接盘ABF膜标的，另一方面投资AI独角兽阶跃星辰。然而，公司曾三年期布局算力转型成效甚微，大单遭遇终止。值得注意的是，公司曾因蹭热点信披违规受罚。此次接连跨界动作究竟为转型还是为市值讲故事？ 近期，三重叙事引爆算力租赁市场。 其一，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：近期莲花控股股价被爆炒背后，一方面公司跨界接盘ABF膜标的，另一方面投资AI独角兽阶跃星辰。
 
-4月7日，近日，有网友发现，部分瑞幸门店 内罗永浩代言广告已不在点单屏幕播放，怀疑“双方合作崩盘”。
+然而，公司曾三年期布局算力转型成效甚微，大单遭遇终止。
 
-对此，新浪财经问询了瑞幸官方客服，其表示：“并未接到类似通知”。
+值得注意的是，公司曾因蹭热点信披违规受罚。
 
-此前，瑞幸官宣罗永浩成为“超大杯推荐官”，广告短片上线后引起广泛讨论。
+此次接连跨界动作究竟为转型还是为市值讲故事？
 
-责任编辑：宋雅芳
+近期，三重叙事引爆算力租赁市场。
+
+其一，供需失衡下的涨价预期。
+
+国家数据局数据显示，截至2026年3月，我国日均Token调用量已突破140万亿，较两年前增长超千倍。
+
+与此同时，高端GPU供应链持续紧张，相关芯片交付周期延长至6-7个月，导致算力租赁价格大幅上涨，供需格局呈现显著的卖方市场特征。
 
 ## 相关推荐
 
-- 2026-06-29 18:13 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 18:12 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 18:14 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 18:28 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 18:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 18:11 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 18:14 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 18:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 18:23 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 18:14 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 18:06 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 18:06 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 18:17 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 18:18 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 18:26 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 18:16 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 18:13 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 18:19 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 18:35 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 18:33 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:28 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/661605.shtml)
-- 2026-06-29 18:16 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/294854.shtml)
-- 2026-06-29 18:00 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/86217219579.shtml)
-- 2026-06-29 18:27 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/71639498199.shtml)
-- 2026-06-29 18:05 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/500017986929.shtml)
-- 2026-06-29 18:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/32192348.shtml)
-- 2026-06-29 18:18 - [第一炉香](http://www.share.minike.top/Article/details/719883035.shtml)
-- 2026-06-29 18:17 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/58862780.shtml)
-- 2026-06-29 18:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/74935.shtml)
-- 2026-06-29 18:18 - [人形机器人](http://www.share.minike.top/Article/details/113619.shtml)
-- 2026-06-29 18:17 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.kurohicncr.top/Article/details/9766454446.shtml)
-- 2026-06-29 18:21 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/942689815.shtml)
-- 2026-06-29 18:27 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/2577057819.shtml)
-- 2026-06-29 18:29 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/879516474027.shtml)
-- 2026-06-29 18:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/337974429.shtml)
+- 2026-06-29 18:32 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/17865946.shtml)
+- 2026-06-29 18:10 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/8762811.shtml)
+- 2026-06-29 18:19 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/55172.shtml)
+- 2026-06-29 18:23 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/5992007.shtml)
+- 2026-06-29 18:25 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/94110481.shtml)
+- 2026-06-29 18:08 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/8316236.shtml)
+- 2026-06-29 18:31 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/313662188.shtml)
+- 2026-06-29 18:29 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/86751221.shtml)
+- 2026-06-29 18:32 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/94465447678.shtml)
+- 2026-06-29 18:20 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/44224489136.shtml)
+- 2026-06-29 18:15 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/81818829837.shtml)
+- 2026-06-29 18:24 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/228300176.shtml)
+- 2026-06-29 18:21 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/935882.shtml)
+- 2026-06-29 18:19 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/9734814.shtml)
+- 2026-06-29 18:32 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/41866831.shtml)

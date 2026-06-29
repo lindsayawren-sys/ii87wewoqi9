@@ -1,50 +1,60 @@
-# 2026年一季度科创板半导体材料设备ETF份额较年初接近翻番
+# 龙宇股份（603003）索赔案收到一审胜诉判决 受损投资者可登记索赔
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新网上海4月7日电 (高志苗)记者7日从上海证券交易所获悉，2026年一季度科创板半导体材料设备ETF(交易型开放式指数基金)份额较年初接近翻番，区间净流入额近60亿元(人民币，下同)，截至目前3只上市产品总体规模已超百亿元。 2026年以来沪市陆续上市5只科创芯片设计主题ETF，共同推动资金加速汇聚国家自主创新产业赛道。相关市场人士分析称，市场资金加速流入科创板ETF产品，
+根据最新消息，赵敬国律师团队代理的投资者诉龙宇股份证券虚假陈述一案，收到一审胜诉判决。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2020年4月28日-2024年4月29日期间买入且有持仓，无论在2024年4月30日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。（赵敬国律师专栏） 回顾本案，2025年11月7日，龙宇
 
 ## 正文
 
-中新网上海4月7日电 (高志苗)记者7日从上海证券交易所获悉，2026年一季度科创板半导体材料设备ETF(交易型开放式指数基金)份额较年初接近翻番，区间净流入额近60亿元(人民币，下同)，截至目前3只上市产品总体规模已超百亿元。
+根据最新消息，赵敬国律师团队代理的投资者诉龙宇股份证券虚假陈述一案，收到一审胜诉判决。
 
-2026年以来沪市陆续上市5只科创芯片设计主题ETF，共同推动资金加速汇聚国家自主创新产业赛道。
+上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2020年4月28日-2024年4月29日期间买入且有持仓，无论在2024年4月30日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
 
-相关市场人士分析称，市场资金加速流入科创板ETF产品，彰显了“十五五”开局之年市场对国产替代加速发展的坚定信心，为强化原始创新和关键核心技术攻关注入长期活水，进一步提升了资本市场服务新质生产力培育的水平。
+（赵敬国律师专栏） 回顾本案，2025年11月7日，龙宇股份发布《关于公司及相关当事人收到行政处罚决定书的公告》。
 
-(完)
+公告显示，经查明，当事人违法违规事实如下：一、2019年、2020年、2021年、2022年年度报告虚增营业收入、利润；二、未按规定披露非经营性资金占用相关关联交易事项。
+
+2022年、2023年资金占用余额分别为3.33亿元、8.75亿元，占当期年度报告记载净资产的9.19%、23.64%。
+
+信本股民索赔团队提醒，赵敬国律师团队代理的投资者诉龙宇股份证券虚假陈述一案已有一审诉讼判决，受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
+
+索赔条件： 龙宇股份：于2020年4月28日-2024年4月29日期间买入且有持仓，无论在2024年4月30日及之后是否卖出（具体赔付范围由法院确定）（*ST龙宇维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
+
+赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
 
 ## 相关推荐
 
-- 2026-06-29 18:09 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 18:26 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 18:17 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 18:13 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 18:00 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 18:13 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 18:11 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 18:04 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 18:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 18:14 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 18:10 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 18:01 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 18:11 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 18:06 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 18:20 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 18:27 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 18:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 18:33 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 18:27 - [永远有话聊的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 18:22 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 18:08 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 18:20 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 18:08 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 18:10 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 18:07 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 18:12 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:13 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/82452899190.shtml)
-- 2026-06-29 18:15 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/59748018674.shtml)
-- 2026-06-29 18:20 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/0312610525.shtml)
-- 2026-06-29 18:06 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/728511954726.shtml)
-- 2026-06-29 18:28 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/808866.shtml)
-- 2026-06-29 18:21 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/8173263.shtml)
-- 2026-06-29 18:21 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/747514836452.shtml)
-- 2026-06-29 18:13 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.minike.top/Article/details/94500507.shtml)
-- 2026-06-29 18:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/46521734.shtml)
-- 2026-06-29 18:24 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/2436151.shtml)
-- 2026-06-29 18:06 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/61098062.shtml)
-- 2026-06-29 18:18 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/055122481.shtml)
-- 2026-06-29 18:25 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/71283346.shtml)
-- 2026-06-29 18:15 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/07874292.shtml)
-- 2026-06-29 18:02 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/783663278649.shtml)
+- 2026-06-29 18:06 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/43776736788.shtml)
+- 2026-06-29 18:11 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/463097975.shtml)
+- 2026-06-29 18:12 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/410895.shtml)
+- 2026-06-29 18:17 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/6421228687.shtml)
+- 2026-06-29 18:14 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/23828332488.shtml)
+- 2026-06-29 18:15 - [看大国重器“云端穿针引线”](http://www.blog.kurohicncr.top/Article/details/89343692218.shtml)
+- 2026-06-29 18:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/21665573.shtml)
+- 2026-06-29 18:07 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/163900833.shtml)
+- 2026-06-29 18:33 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/89285134.shtml)
+- 2026-06-29 18:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/80463401.shtml)
+- 2026-06-29 18:24 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/2565360.shtml)
+- 2026-06-29 18:23 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/658427796.shtml)
+- 2026-06-29 18:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/6065095.shtml)
+- 2026-06-29 18:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/25461896396.shtml)
+- 2026-06-29 18:35 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/628614260082.shtml)

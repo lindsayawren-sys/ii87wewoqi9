@@ -1,58 +1,56 @@
-# 专家呼吁全社会重视遗传咨询 健康夫妻也可能生下“缺陷儿”
+# 特斯拉与SpaceX合并传闻升温，马斯克被曝内部讨论
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新网上海4月8日电(记者 陈静)遗传咨询是预防出生缺陷、保障家庭幸福和社会人口素质的关键一环。它并非“有病才去”的补救措施，而是一种主动的、科学的健康管理行为。 “三类人群应优先进行遗传咨询：一是高龄夫妇，年龄增长会显著增加胎儿染色体异常的风险；二是有不良妊娠史的夫妻，例如：反复流产、曾生育过发育异常或畸形儿；三是家族中有明确遗传性疾病的人群。”中国优生优育协会孕育与生殖专委
+近日，一则重磅消息引发资本市场高度关注：据多家媒体报道，埃隆·马斯克已与同事探讨将旗下两大核心企业——特斯拉与SpaceX合并的可能性。随着SpaceX即将进行可能是史上最大规模的IPO，这一传闻迅速升温。 马斯克对此保持沉默，但两家公司深度融合的迹象十分明显。特斯拉员工透露，合并话题已在内部公开讨论。财务层面，SpaceX招股书披露，其在2024年和2025年斥资6.97亿美
 
 ## 正文
 
-中新网上海4月8日电(记者 陈静)遗传咨询是预防出生缺陷、保障家庭幸福和社会人口素质的关键一环。
+近日，一则重磅消息引发资本市场高度关注：据多家媒体报道，埃隆·马斯克已与同事探讨将旗下两大核心企业——特斯拉与SpaceX合并的可能性。
 
-它并非“有病才去”的补救措施，而是一种主动的、科学的健康管理行为。
+随着SpaceX即将进行可能是史上最大规模的IPO，这一传闻迅速升温。
 
-“三类人群应优先进行遗传咨询：一是高龄夫妇，年龄增长会显著增加胎儿染色体异常的风险；二是有不良妊娠史的夫妻，例如：反复流产、曾生育过发育异常或畸形儿；三是家族中有明确遗传性疾病的人群。
+马斯克对此保持沉默，但两家公司深度融合的迹象十分明显。
 
-”中国优生优育协会孕育与生殖专委会副主任委员蒋宇林教授8日在此间对记者表示，“如果家里已经有遗传病患者，夫妇两人一定要在计划怀孕前到遗传咨询门诊做全面评估，搞清楚是什么基因或染色体导致的。
+特斯拉员工透露，合并话题已在内部公开讨论。
 
-现有技术手段完全可以为这类家庭保驾护航。
+财务层面，SpaceX招股书披露，其在2024年和2025年斥资6.97亿美元购买特斯拉Megapack电池系统，并花费1.31亿美元购买Cybertruck。
 
-” “遗传咨询是指由遗传专业人员帮助咨询者理解遗传疾病的发生、传播风险、检测手段及应对策略，并做出知情决策的过程。
+特斯拉则曾向xAI投资20亿美元，在xAI与SpaceX合并后转为持有SpaceX股份。
 
-”蒋宇林介绍，“大家听到遗传咨询这个名词，可能觉得陌生又紧张。
+业务协同性日益增强。
 
-其实不必把它想象得那么严肃。
+双方共同面临的电力和算力挑战促使频繁合作，并已宣布共建巨型芯片工厂Terafab。
 
 ## 相关推荐
 
-- 2026-06-29 18:22 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 18:23 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 18:24 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 18:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 18:09 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 18:07 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 18:17 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 18:16 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 18:12 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 18:11 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 18:06 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 18:13 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 18:30 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 18:07 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 18:18 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 18:30 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 18:08 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 18:11 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 18:31 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 18:35 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 18:20 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 18:32 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:14 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/643628777.shtml)
-- 2026-06-29 18:06 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/55006706.shtml)
-- 2026-06-29 18:20 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/6846488773.shtml)
-- 2026-06-29 18:10 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/870702.shtml)
-- 2026-06-29 18:26 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/699408.shtml)
-- 2026-06-29 18:23 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/8420841638.shtml)
-- 2026-06-29 18:15 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.minike.top/Article/details/9687051184.shtml)
-- 2026-06-29 18:03 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/06106338.shtml)
-- 2026-06-29 18:23 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/45286229797.shtml)
-- 2026-06-29 18:19 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/71864031.shtml)
-- 2026-06-29 18:11 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/92790.shtml)
-- 2026-06-29 18:19 - [博主：AI泡沫必须破灭](http://www.blog.kurohicncr.top/Article/details/13978622725.shtml)
-- 2026-06-29 18:01 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/91646434.shtml)
-- 2026-06-29 18:17 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/2812404037.shtml)
-- 2026-06-29 18:03 - [小娘惹](https://www.blog.minike.top/Article/details/23400.shtml)
+- 2026-06-29 18:08 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/81803856.shtml)
+- 2026-06-29 18:10 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/601125928207.shtml)
+- 2026-06-29 18:20 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/595325397625.shtml)
+- 2026-06-29 18:17 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/773904358826.shtml)
+- 2026-06-29 18:18 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/04827477195.shtml)
+- 2026-06-29 18:27 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/8707704003.shtml)
+- 2026-06-29 18:17 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/01081652484.shtml)
+- 2026-06-29 18:30 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/73374.shtml)
+- 2026-06-29 18:12 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/012753456.shtml)
+- 2026-06-29 18:23 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/88893.shtml)
+- 2026-06-29 18:20 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/7731630.shtml)
+- 2026-06-29 18:22 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/25420.shtml)
+- 2026-06-29 18:25 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/9949492.shtml)
+- 2026-06-29 18:30 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/21994.shtml)
+- 2026-06-29 18:11 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/08891036108.shtml)

@@ -1,52 +1,59 @@
-# 中东停火，全球人钱包开始回血
+# 欧盟拟放宽油气企业甲烷排放规定
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月08日 21:08 来源：三里河 今日一早，中东局势反转。一夜前，特朗普还在威胁让伊朗文明消亡；一夜后，美以伊三方同意暂时停火的消息传遍全球。这一夜为人们带来了和平的信号，也给全球市场扎上一剂强心针。全球股市大涨、油价大跌，战火暂停，该轮到人们的钱包回回血了。(戴悦 陈庆洋 李金磊） 责任编辑：【程春雨】
+路透社看到的一份草案文件显示，由于伊朗战争对能源供应造成 disruption，欧盟将要求其成员国对违反甲烷排放法的石油和天然气公司免予处罚，为期三年。 此举是在美国政府及油气行业团体的施压下做出的，这些方面警告称，该法律可能阻碍欧洲获取燃料供应的能力。 此举将削弱这项全球首例的欧盟气候政策。该政策旨在遏制甲烷泄漏，甲烷是一种强效温室气体，是仅次于二氧化碳的气候变化第二大成因。
 
 ## 正文
 
-发布时间：2026年04月08日 21:08 来源：三里河 今日一早，中东局势反转。
+路透社看到的一份草案文件显示，由于伊朗战争对能源供应造成 disruption，欧盟将要求其成员国对违反甲烷排放法的石油和天然气公司免予处罚，为期三年。
 
-一夜前，特朗普还在威胁让伊朗文明消亡；一夜后，美以伊三方同意暂时停火的消息传遍全球。
+此举是在美国政府及油气行业团体的施压下做出的，这些方面警告称，该法律可能阻碍欧洲获取燃料供应的能力。
 
-这一夜为人们带来了和平的信号，也给全球市场扎上一剂强心针。
+此举将削弱这项全球首例的欧盟气候政策。
 
-全球股市大涨、油价大跌，战火暂停，该轮到人们的钱包回回血了。
+该政策旨在遏制甲烷泄漏，甲烷是一种强效温室气体，是仅次于二氧化碳的气候变化第二大成因。
 
-(戴悦 陈庆洋 李金磊） 责任编辑：【程春雨】
+路透社看到的这份欧盟委员会草案文件指出，除“大规模欺诈性违规”外，成员国在2027年、2028年和2029年不应向违反甲烷法律的公司施加处罚。
+
+文件称，这一变更将适用于现有的油气供应合同以及2028年1月之前签署或续签的合同。
+
+文件表示：“在当前中东危机的背景下，为了不危及能源供应安全……并应对欧洲消费者和企业因潜在能源供应短缺导致高油价所面临的风险，成员国不应施加处罚。
+
+” 该草案文件是欧盟委员会的一项“建议”——这是一种指示成员国以特定方式适用欧盟法律的欧盟法案，但不具有约束力。
 
 ## 相关推荐
 
-- 2026-06-29 18:02 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 18:02 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 18:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 18:03 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 18:25 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 18:21 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 18:11 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 18:18 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 18:04 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 18:15 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 18:09 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 18:19 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 18:28 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 18:16 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 18:15 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 18:27 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 18:12 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 18:29 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 18:15 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 18:16 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 18:22 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 18:31 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 18:30 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 18:17 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 18:27 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:12 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/749657013803.shtml)
-- 2026-06-29 18:11 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/41111.shtml)
-- 2026-06-29 18:15 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/660357.shtml)
-- 2026-06-29 18:10 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/960456654.shtml)
-- 2026-06-29 18:01 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/237712.shtml)
-- 2026-06-29 18:26 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/398878431270.shtml)
-- 2026-06-29 18:13 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/0316951.shtml)
-- 2026-06-29 18:16 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/922803131442.shtml)
-- 2026-06-29 18:16 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/4743358.shtml)
-- 2026-06-29 18:01 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/328709506409.shtml)
-- 2026-06-29 18:07 - [沙丘](https://www.share.kurohicncr.top/Article/details/94007193987.shtml)
-- 2026-06-29 18:05 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/5511169.shtml)
-- 2026-06-29 18:26 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.kurohicncr.top/Article/details/99409205461.shtml)
-- 2026-06-29 18:00 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/6881288756.shtml)
-- 2026-06-29 18:01 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/756975.shtml)
+- 2026-06-29 18:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/80663199236.shtml)
+- 2026-06-29 18:34 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/24947262341.shtml)
+- 2026-06-29 18:19 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/084184559.shtml)
+- 2026-06-29 18:27 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/398148504093.shtml)
+- 2026-06-29 18:21 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/8255589856.shtml)
+- 2026-06-29 18:23 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/529725.shtml)
+- 2026-06-29 18:26 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/5967919.shtml)
+- 2026-06-29 18:08 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/332250919.shtml)
+- 2026-06-29 18:27 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/488170.shtml)
+- 2026-06-29 18:17 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/114375783.shtml)
+- 2026-06-29 18:29 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.kurohicncr.top/Article/details/02262628517.shtml)
+- 2026-06-29 18:27 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/4553267.shtml)
+- 2026-06-29 18:10 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/479041.shtml)
+- 2026-06-29 18:10 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/05158.shtml)
+- 2026-06-29 18:29 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/27560966912.shtml)

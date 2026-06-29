@@ -1,60 +1,57 @@
-# 黄金交易提醒：金价暴涨3.5%却创16年最惨月度！多头还能逆转乾坤？
+# 2026“你好！中国”陕西文化旅游推介会举办
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周二（3月31日）现货黄金一度飙升3.5%，最高触及4687美元/盎司，最终收在4667美元附近，美国期金也大涨2.7%至4678.60美元。这一单日强势反弹看似提振人心，却无法掩盖一个残酷现实：3月金价累计暴跌11.8%，即将录得自2008年10月以来最差月度表现。短短一个月，黄金从地缘冲突初期的避险宠儿，迅速沦为高利率与通胀预期的牺牲品，而市场情绪正随着
+中新网西安5月31日电 (记者 阿琳娜 梅镱泷)记者30日从陕西省文化和旅游厅获悉，由陕西省文化和旅游厅、中国驻巴黎旅游办事处共同主办的2026“你好！中国”陕西文化旅游推介会于当地时间28日在法国巴黎举行。本次推介会以“丝绸之路的起点·兵马俑的故乡”为主题，旨在依托中国对法免签政策、西安至巴黎直航等便利条件，向法国乃至整个欧洲全面展现陕西厚重的历史底蕴、优美的生态风光与蓬勃的
 
 ## 正文
 
-汇通财经APP讯——周二（3月31日）现货黄金一度飙升3.5%，最高触及4687美元/盎司，最终收在4667美元附近，美国期金也大涨2.7%至4678.60美元。
+中新网西安5月31日电 (记者 阿琳娜 梅镱泷)记者30日从陕西省文化和旅游厅获悉，由陕西省文化和旅游厅、中国驻巴黎旅游办事处共同主办的2026“你好！
 
-这一单日强势反弹看似提振人心，却无法掩盖一个残酷现实：3月金价累计暴跌11.8%，即将录得自2008年10月以来最差月度表现。
+中国”陕西文化旅游推介会于当地时间28日在法国巴黎举行。
 
-短短一个月，黄金从地缘冲突初期的避险宠儿，迅速沦为高利率与通胀预期的牺牲品，而市场情绪正随着特朗普政府对伊朗军事行动的“缓和信号”剧烈摇摆。
+本次推介会以“丝绸之路的起点·兵马俑的故乡”为主题，旨在依托中国对法免签政策、西安至巴黎直航等便利条件，向法国乃至整个欧洲全面展现陕西厚重的历史底蕴、优美的生态风光与蓬勃的现代活力，不断深化陕西与法国文旅业界的交流合作，推动东西方文明互鉴。
 
-中东局势缓和预期点燃短期反弹火种 即使霍尔木兹海峡仍基本处于封锁状态，特朗普总统仍愿意结束对伊朗的军事行动，这一消息瞬间点燃市场乐观情绪。
+中国驻法国大使馆公使陈力表示，陕西作为中华文明重要发祥地，兵马俑、古城墙等文化遗产彰显中华文化开放包容的精神气质，多位法国总统访华时均将陕西作为必访之地。
 
-美国国防部长赫格塞思虽警告“未来几天将是决定性时刻”，若伊朗不妥协冲突将升级，但投资者更愿意押注“停火在即”。
+他说中国已对法国实施免签政策延期至今年12月31日，并推出一系列旅行便利措施，诚挚邀请法国友人到访陕西、感知中国。
 
-美元指数因此下跌0.6%至99.88，黄金作为非孳息资产的持有成本压力短暂缓解，叠加风险偏好回暖，金价实现久违的单日大涨。
+国际旅游联合会主席让·埃里克·杜吕克高度评价陕西在历史传承、生态旅游与创新发展上的卓越成就。
 
-Zaner Metals高级贵金属策略师Peter Grant直言：“黄金当前的涨势令人鼓舞，这源于市场对中东局势缓和的乐观情绪有所增强。
+他表示，陕西完美融合历史底蕴与现代风采，是真实性、可持续性、创新性旅游发展的典范，国际旅游联合会将继续与中国携手，助力陕西文旅走向世界，续写法中友谊与国际旅游合作新篇章。
 
-”然而他也提醒，要形成持续上涨形态，还需要看到更强劲的上行动能。
+推介会上，陕西省文化和旅游厅进行了文旅资源推介，精美的照片辅以生动的讲述，将三秦四季之美、文化陕西之韵展现得淋漓尽致。
 
 ## 相关推荐
 
-- 2026-06-29 18:28 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 18:21 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 18:12 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 18:04 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 18:06 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 18:01 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 18:15 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 18:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 18:09 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 18:15 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 18:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 18:04 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 18:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 18:23 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 18:29 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 18:28 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 18:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 18:27 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 18:15 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 18:08 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 18:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 18:21 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 18:28 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 18:36 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 18:21 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/37193821.shtml)
-- 2026-06-29 18:24 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/642884.shtml)
-- 2026-06-29 18:15 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/957384029665.shtml)
-- 2026-06-29 18:18 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/11461054750.shtml)
-- 2026-06-29 18:20 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/9130767308.shtml)
-- 2026-06-29 18:23 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/1151077279.shtml)
-- 2026-06-29 18:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/9585345.shtml)
-- 2026-06-29 18:23 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/241125.shtml)
-- 2026-06-29 18:06 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/65110.shtml)
-- 2026-06-29 18:17 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/66053.shtml)
-- 2026-06-29 18:00 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/096684383887.shtml)
-- 2026-06-29 18:04 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/86025645098.shtml)
-- 2026-06-29 18:22 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/899235697986.shtml)
-- 2026-06-29 18:02 - [沙丘](http://www.blog.minike.top/Article/details/8278041.shtml)
-- 2026-06-29 18:03 - [专家预计全球央行加息节奏将出现反复](http://www.blog.kurohicncr.top/Article/details/54592898793.shtml)
+- 2026-06-29 18:09 - [大马同意延长马航370残骸搜寻工作](https://www.blog.kurohicncr.top/Article/details/69865036333.shtml)
+- 2026-06-29 18:15 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/96404.shtml)
+- 2026-06-29 18:27 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/64597.shtml)
+- 2026-06-29 18:33 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/84268.shtml)
+- 2026-06-29 18:30 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/074048417042.shtml)
+- 2026-06-29 18:28 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/68935.shtml)
+- 2026-06-29 18:31 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/47307647.shtml)
+- 2026-06-29 18:22 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/8076967.shtml)
+- 2026-06-29 18:20 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/36473.shtml)
+- 2026-06-29 18:22 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/77987825252.shtml)
+- 2026-06-29 18:20 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/6031423309.shtml)
+- 2026-06-29 18:15 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/504226.shtml)
+- 2026-06-29 18:26 - [世界杯1/16决赛对阵出炉](http://www.share.minike.top/Article/details/69897239971.shtml)
+- 2026-06-29 18:15 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/48733.shtml)
+- 2026-06-29 18:08 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/2371289784.shtml)

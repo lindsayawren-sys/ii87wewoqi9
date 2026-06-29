@@ -1,60 +1,56 @@
-# CEO吴泳铭带队，技术派掌权！阿里挥刀AI组织重构
+# 巴黎圣日耳曼点球大战击败阿森纳 蝉联欧冠冠军
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-4月8日，阿里巴巴集团CEO吴泳铭发布内部信，宣布AI相关组织调整，包括新设立集团技术委员会，升级通义大模型事业部，加速AI建设。 今年3月，在前阿里千问大模型技术负责人林俊旸及部分团队成员的离职风波中，阿里曾表示公司将成立基础模型支持小组，由吴泳铭、周靖人、范禹共同协调集团资源支持基础模型建设。 如今，随着AI战略的深化，阿里在集团层面的AI资源整合与调配正加速落地。伴随着林
+中新社北京5月31日电 2025-2026赛季欧洲足球冠军联赛决赛当地时间30日在匈牙利布达佩斯进行。巴黎圣日耳曼经过点球大战，以总比分5:4击败阿森纳，成功卫冕。 上赛季，巴黎圣日耳曼主教练恩里克率队在欧冠决赛中大胜国际米兰，帮助俱乐部首次登上欧洲之巅；本赛季，球队在欧冠淘汰赛中仍展现出强大的攻击力和控制力。阿森纳则时隔22年再度夺得英超冠军，并在欧冠中一路闯入决赛，展现出比
 
 ## 正文
 
-4月8日，阿里巴巴集团CEO吴泳铭发布内部信，宣布AI相关组织调整，包括新设立集团技术委员会，升级通义大模型事业部，加速AI建设。
+中新社北京5月31日电 2025-2026赛季欧洲足球冠军联赛决赛当地时间30日在匈牙利布达佩斯进行。
 
-今年3月，在前阿里千问大模型技术负责人林俊旸及部分团队成员的离职风波中，阿里曾表示公司将成立基础模型支持小组，由吴泳铭、周靖人、范禹共同协调集团资源支持基础模型建设。
+巴黎圣日耳曼经过点球大战，以总比分5:4击败阿森纳，成功卫冕。
 
-如今，随着AI战略的深化，阿里在集团层面的AI资源整合与调配正加速落地。
+上赛季，巴黎圣日耳曼主教练恩里克率队在欧冠决赛中大胜国际米兰，帮助俱乐部首次登上欧洲之巅；本赛季，球队在欧冠淘汰赛中仍展现出强大的攻击力和控制力。
 
-伴随着林俊旸的离职，阿里内部对AI人才的管理方式及模型训练资源分配的合理性等曾受到外界关注，围绕AI的组织调整也变得更为迫切。
+阿森纳则时隔22年再度夺得英超冠军，并在欧冠中一路闯入决赛，展现出比以往更强的稳定性和成熟度，渴望在欧冠赛场上进一步实现历史突破。
 
-根据内部信，阿里巴巴将在集团层面设立技术委员会，由吴泳铭担任组长，成员包括周靖人、吴泽明、李飞飞（花名飞刀）。
+比赛开场仅6分钟，哈弗茨单刀突入禁区后破门，帮助阿森纳先声夺人；此后“大巴黎”展开围攻，但并未创造太好机会，阿森纳带着1:0的领先优势进入下半场。
 
-其中，周靖人担任技术委员会首席AI架构师，李飞飞负责阿里云技术以及AI云基础设施建设，吴泽明负责集团业务技术平台以及AI推理平台建设。
+易边之后，“大巴黎”攻势不减。
 
-值得注意的是，李飞飞为阿里巴巴集团副总裁、阿里云数据库产品事业部总裁。
+下半场第65分钟，2025年金球奖得主登贝莱主罚点球命中，扳平比分。
 
-此外，阿里还将通义实验室升级为通义大模型事业部，由周靖人负责；李飞飞出任阿里云CTO；吴泽明专注阿里巴巴集团CTO工作，淘宝闪购CEO职务由雷雁群接任。
+双方在常规时间内战平，在加时赛中再无建树，比赛进入点球大战。
 
 ## 相关推荐
 
-- 2026-06-29 18:03 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 18:13 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 18:07 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 18:21 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 18:30 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 18:13 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 18:28 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 18:24 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 18:06 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 18:27 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 18:22 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 18:06 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 18:03 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 18:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 18:33 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 18:22 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 18:25 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 18:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 18:31 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 18:10 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 18:35 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 18:23 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 18:35 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 18:22 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:12 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/191283358.shtml)
-- 2026-06-29 18:13 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/923323204.shtml)
-- 2026-06-29 18:11 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/875336080087.shtml)
-- 2026-06-29 18:07 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/0646722.shtml)
-- 2026-06-29 18:03 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/60622614601.shtml)
-- 2026-06-29 18:10 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/75488535.shtml)
-- 2026-06-29 18:24 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/583115416118.shtml)
-- 2026-06-29 18:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/66739.shtml)
-- 2026-06-29 18:14 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/12984783.shtml)
-- 2026-06-29 18:02 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/51069449.shtml)
-- 2026-06-29 18:21 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/8657053.shtml)
-- 2026-06-29 18:27 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/93974575033.shtml)
-- 2026-06-29 18:21 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/99290.shtml)
-- 2026-06-29 18:25 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/72804443054.shtml)
-- 2026-06-29 18:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/100416219.shtml)
+- 2026-06-29 18:32 - [毒液2](https://www.blog.minike.top/Article/details/9594063969.shtml)
+- 2026-06-29 18:30 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/55766387.shtml)
+- 2026-06-29 18:16 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/442661692887.shtml)
+- 2026-06-29 18:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/185846.shtml)
+- 2026-06-29 18:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/353552349.shtml)
+- 2026-06-29 18:12 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/906128832.shtml)
+- 2026-06-29 18:08 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/906515577.shtml)
+- 2026-06-29 18:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/156824.shtml)
+- 2026-06-29 18:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/77528260.shtml)
+- 2026-06-29 18:15 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/190317.shtml)
+- 2026-06-29 18:19 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/421247880.shtml)
+- 2026-06-29 18:33 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/11424023.shtml)
+- 2026-06-29 18:33 - [白玉兰答谢宴合影](https://www.blog.kurohicncr.top/Article/details/1190271.shtml)
+- 2026-06-29 18:24 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/939661886510.shtml)
+- 2026-06-29 18:18 - [美人鱼](http://www.blog.minike.top/Article/details/92382592.shtml)

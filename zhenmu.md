@@ -1,50 +1,60 @@
-# 国际金价大涨重上4800美元 国内金饰克价涨到1470元
+# 国家统计局：5月份综合PMI产出指数保持扩张
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新网4月8日电 (左雨晴)4月8日早盘，国际金价开盘大涨，重回4800美元。截至发稿，COMEX黄金涨超3%，伦敦现货黄金涨超2%。受国际金价影响，同日国内金饰价格上调。老凤祥足金饰品克价由前一日的1435元/克上调至1470元/克，一夜涨35元。
+中新网5月31日电 据国家统计局网站消息，2026年5月31日国家统计局服务业调查中心和中国物流与采购联合会发布了中国采购经理指数。对此，国家统计局服务业调查中心首席统计师霍丽慧进行了解读。 5月份，制造业采购经理指数为50.0%，比上月下降0.3个百分点；非制造业商务活动指数和综合PMI产出指数分别为50.1%和50.5%，比上月上升0.7个和0.4个百分点，我国经济总体产出
 
 ## 正文
 
-中新网4月8日电 (左雨晴)4月8日早盘，国际金价开盘大涨，重回4800美元。
+中新网5月31日电 据国家统计局网站消息，2026年5月31日国家统计局服务业调查中心和中国物流与采购联合会发布了中国采购经理指数。
 
-截至发稿，COMEX黄金涨超3%，伦敦现货黄金涨超2%。
+对此，国家统计局服务业调查中心首席统计师霍丽慧进行了解读。
 
-受国际金价影响，同日国内金饰价格上调。
+5月份，制造业采购经理指数为50.0%，比上月下降0.3个百分点；非制造业商务活动指数和综合PMI产出指数分别为50.1%和50.5%，比上月上升0.7个和0.4个百分点，我国经济总体产出保持扩张。
 
-老凤祥足金饰品克价由前一日的1435元/克上调至1470元/克，一夜涨35元。
+一、制造业采购经理指数位于临界点 5月份，制造业PMI为50.0%，企业生产经营状况总体保持稳定。
+
+(一)企业生产保持扩张。
+
+生产指数为51.2%，高于临界点，制造业企业生产活动继续保持扩张；新订单指数为49.9%，市场需求有所放缓。
+
+从行业看，医药、铁路船舶航空航天设备、计算机通信电子设备等行业生产指数和新订单指数均高于53.0%，相关行业产需两端较为活跃；石油煤炭及其他燃料加工、化学纤维及橡胶塑料制品、非金属矿物制品等行业两个指数持续低于临界点，供需两端仍显不足。
+
+(二)新动能发展态势继续向好。
 
 ## 相关推荐
 
-- 2026-06-29 18:00 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 18:21 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 18:23 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 18:27 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 18:09 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 18:22 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 18:16 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 18:18 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 18:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 18:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 18:25 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 18:12 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 18:29 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 18:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 18:16 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 18:13 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 18:13 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 18:12 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 18:20 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 18:19 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 18:35 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 18:10 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 18:33 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 18:23 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 18:26 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 18:16 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/79473.shtml)
-- 2026-06-29 18:25 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/545493815.shtml)
-- 2026-06-29 18:25 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/221121.shtml)
-- 2026-06-29 18:29 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/27124071.shtml)
-- 2026-06-29 18:15 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/72408211.shtml)
-- 2026-06-29 18:13 - [周生如故](http://www.blog.kurohicncr.top/Article/details/0784989345.shtml)
-- 2026-06-29 18:03 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/862467075.shtml)
-- 2026-06-29 18:02 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/19875.shtml)
-- 2026-06-29 18:11 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/824854408819.shtml)
-- 2026-06-29 18:17 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/921868145.shtml)
-- 2026-06-29 18:09 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/610129316738.shtml)
-- 2026-06-29 18:19 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/58357056414.shtml)
-- 2026-06-29 18:03 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/48930.shtml)
-- 2026-06-29 18:27 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/2872175.shtml)
-- 2026-06-29 18:27 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/085390.shtml)
+- 2026-06-29 18:23 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/16252243867.shtml)
+- 2026-06-29 18:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/21838265606.shtml)
+- 2026-06-29 18:19 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/218839366.shtml)
+- 2026-06-29 18:11 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/321487.shtml)
+- 2026-06-29 18:25 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/49787003.shtml)
+- 2026-06-29 18:22 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.minike.top/Article/details/4380302173.shtml)
+- 2026-06-29 18:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/051607.shtml)
+- 2026-06-29 18:20 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/204935.shtml)
+- 2026-06-29 18:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/5440654.shtml)
+- 2026-06-29 18:26 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/842703086.shtml)
+- 2026-06-29 18:24 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/02770672.shtml)
+- 2026-06-29 18:06 - [7款高价创新药有望降价](http://www.share.minike.top/Article/details/866008352549.shtml)
+- 2026-06-29 18:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/366620353.shtml)
+- 2026-06-29 18:11 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/07088349.shtml)
+- 2026-06-29 18:29 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/49887.shtml)

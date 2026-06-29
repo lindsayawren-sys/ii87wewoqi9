@@ -1,49 +1,56 @@
-# 国务院国资委成立境外国资工作局
+# 200余名中外嘉宾大理洱海畔共谋绿色治理良策
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-记者从国务院国资委获悉，国务院国资委新设境外国资工作局。（记者：王希）责任编辑：刘万里 SF014
+中新社云南大理5月30日电 (韩帅南 时文枝)2026推进全球生态文明建设(洱海)论坛5月30日在云南省大理白族自治州开幕。来自中国、德国、加拿大、泰国等16个国家的200余位中外嘉宾齐聚洱海之畔，共商生态发展之路、共谋绿色治理良策。 本届论坛以“聚力向新·建设美丽中国”为主题，绿色治理的“中国方案”成为各方关注焦点。 中国外文局局长常勃在致辞时介绍，近年来，中国与共建“一带一
 
 ## 正文
 
-记者从国务院国资委获悉，国务院国资委新设境外国资工作局。
+中新社云南大理5月30日电 (韩帅南 时文枝)2026推进全球生态文明建设(洱海)论坛5月30日在云南省大理白族自治州开幕。
 
-（记者：王希）责任编辑：刘万里 SF014
+来自中国、德国、加拿大、泰国等16个国家的200余位中外嘉宾齐聚洱海之畔，共商生态发展之路、共谋绿色治理良策。
+
+本届论坛以“聚力向新·建设美丽中国”为主题，绿色治理的“中国方案”成为各方关注焦点。
+
+中国外文局局长常勃在致辞时介绍，近年来，中国与共建“一带一路”国家深耕绿色基建、绿色能源、绿色交通等领域合作。
+
+面向未来，中国要深化生态领域的国际合作交流，为推动构建公平合理、合作共赢的全球生态环境治理体系贡献中国智慧、中国力量。
+
+泰中文化促进委员会主席披尼·扎禄颂巴接受采访时说，泰中两国应该加强生态文明交流互鉴，用云南、大理的成功经验，让世界看到中国式现代化的成果，同时也让更多的青年能够参与到生态文明建设中。
+
+中国工程院院士张福锁在论坛上分享古生村科技小院在保护洱海、促农增收方面的经验。
+
+他表示，目前科技小院这种“小而美”的模式已经推广至中非、马来西亚等国家和地区，希望能够带动更多中外企业通过科技支撑一起让科技小院出海，为全球的可持续发展作出中国贡献。
 
 ## 相关推荐
 
-- 2026-06-29 18:14 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 18:07 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 18:19 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 18:19 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 18:10 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 18:14 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 18:03 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 18:02 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 18:03 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 18:22 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 18:23 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 18:15 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 18:28 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 18:25 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 18:02 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 18:09 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 18:10 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 18:06 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 18:10 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 18:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 18:35 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 18:09 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 18:30 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 18:14 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 18:17 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/530598609.shtml)
-- 2026-06-29 18:26 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/79097079725.shtml)
-- 2026-06-29 18:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/40435.shtml)
-- 2026-06-29 18:24 - [青春环游记第三季](http://www.share.minike.top/Article/details/55268922017.shtml)
-- 2026-06-29 18:05 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/69986.shtml)
-- 2026-06-29 18:11 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/9229868379.shtml)
-- 2026-06-29 18:01 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/789708250.shtml)
-- 2026-06-29 18:11 - [明星大侦探第一季](http://www.share.minike.top/Article/details/822407596.shtml)
-- 2026-06-29 18:04 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/5506851.shtml)
-- 2026-06-29 18:18 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/30516757045.shtml)
-- 2026-06-29 18:24 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/062417217.shtml)
-- 2026-06-29 18:17 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/01281.shtml)
-- 2026-06-29 18:08 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/37738103.shtml)
-- 2026-06-29 18:16 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/072452.shtml)
-- 2026-06-29 18:07 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/778318.shtml)
+- 2026-06-29 18:19 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/6162719.shtml)
+- 2026-06-29 18:18 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/251521836074.shtml)
+- 2026-06-29 18:24 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/337208.shtml)
+- 2026-06-29 18:14 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/14363.shtml)
+- 2026-06-29 18:10 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/2497954312.shtml)
+- 2026-06-29 18:26 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/23417641078.shtml)
+- 2026-06-29 18:10 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/689096478.shtml)
+- 2026-06-29 18:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/453564416581.shtml)
+- 2026-06-29 18:09 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/6636732.shtml)
+- 2026-06-29 18:20 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/3957018367.shtml)
+- 2026-06-29 18:23 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/83089.shtml)
+- 2026-06-29 18:33 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/440076050842.shtml)
+- 2026-06-29 18:33 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/14131.shtml)
+- 2026-06-29 18:19 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/80011.shtml)
+- 2026-06-29 18:12 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/142227484457.shtml)

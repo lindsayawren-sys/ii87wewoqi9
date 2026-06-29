@@ -1,57 +1,56 @@
-# 603950，宣布重大资产重组！明天复牌！
+# 广西举办残疾人就业宣传月活动 助残就业产品集中推介
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！长源东谷（603950）4月7日公告，公司拟通过发行股份的方式向交易对方购买其持有的康豪机电100%股权，并向不超过35名特定投资者发行股份募集配套资金。根据相关规定，长源东谷股票将于4月8日开市起复牌。 截至预案签署日，康豪机电的审计和评估工作尚未完成，本次交易的具体交易价格尚未确定。长源东谷表示，本次交
+中新网南宁5月30日电(张广权)2026年广西残疾人就业宣传月活动暨“阳光助残 桂品出圈”助残就业产品推介活动30日在南宁市举办。 本次活动由广西壮族自治区残疾人联合会主办，广西残疾人劳动就业指导中心、广西盲人按摩指导中心、南宁市残疾人联合会承办。 活动现场发布广西助残就业宣传AI数字人形象“小光”。“小光”寓意以微光聚暖阳、以科技力量温暖残疾人的心。该数字人将依托智能交互、数
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网南宁5月30日电(张广权)2026年广西残疾人就业宣传月活动暨“阳光助残 桂品出圈”助残就业产品推介活动30日在南宁市举办。
 
-长源东谷（603950）4月7日公告，公司拟通过发行股份的方式向交易对方购买其持有的康豪机电100%股权，并向不超过35名特定投资者发行股份募集配套资金。
+本次活动由广西壮族自治区残疾人联合会主办，广西残疾人劳动就业指导中心、广西盲人按摩指导中心、南宁市残疾人联合会承办。
 
-根据相关规定，长源东谷股票将于4月8日开市起复牌。
+活动现场发布广西助残就业宣传AI数字人形象“小光”。
 
-截至预案签署日，康豪机电的审计和评估工作尚未完成，本次交易的具体交易价格尚未确定。
+“小光”寓意以微光聚暖阳、以科技力量温暖残疾人的心。
 
-长源东谷表示，本次交易构成关联交易，预计构成重大资产重组，但不构成重组上市，不会导致公司控股股东及实控人变更。
+该数字人将依托智能交互、数字传播优势，承担助残政策宣讲、助残就业岗位推介、弘扬残疾人自强精神等工作。
 
-公告显示，康豪机电专注于热交换系统、柴油动力单元集成的研发、生产及销售。
+本次活动集中展示广西助残就业成果，面向广西14个市甄选出200多家助残就业机构1000多款优质产品，涵盖非遗产品、特色农产、手工艺品及盲人按摩服务等品类产品和服务。
 
-康豪机电自2008年开始聚焦热管理核心技术，依托金属加工技术、规模化生产、品质管控、研发创新及快速响应能力，已与康明斯集团、卡特彼勒、MTU、广西玉柴、潍柴动力、苏美达、科泰电源等国内外头部厂商建立深度合作关系。
+活动现场开展助残就业产品推介，5家助残就业企业进行现场路演推介和典型案例展示。
 
-康豪机电旗下拥有武汉倍沃得热力技术集团有限公司、襄阳朗弘热力技术有限公司两家国家级专精特新“小巨人”企业，在北京、武汉、西安、襄阳、中国香港等地布局热交换系统、柴油动力单元相关电子调速器等产品及集成的生产基地，同时建有多个高性能实验室。
+同时，现场上线2026年助残产品专区，并举行助残就业展销市集，设置美丽工坊、残疾人就业孵化基地、产业帮扶基地、特校职教、就业联盟等展区，30多家助残就业机构产品现场进行展示展销。
 
 ## 相关推荐
 
-- 2026-06-29 18:13 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 18:07 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 18:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 18:20 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 18:21 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 18:17 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 18:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 18:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 18:19 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 18:06 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 18:25 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 18:12 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 18:15 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 18:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 18:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 18:06 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 18:26 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 18:11 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 18:30 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 18:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 18:15 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:29 - [斗破苍穹](http://www.share.minike.top/Article/details/35952579.shtml)
-- 2026-06-29 18:03 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/634005605.shtml)
-- 2026-06-29 18:16 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/566443848.shtml)
-- 2026-06-29 18:01 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/85129917.shtml)
-- 2026-06-29 18:04 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/313709.shtml)
-- 2026-06-29 18:26 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/78293.shtml)
-- 2026-06-29 18:21 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/032488.shtml)
-- 2026-06-29 18:18 - [美人鱼](http://www.blog.minike.top/Article/details/601407.shtml)
-- 2026-06-29 18:29 - [中国战机大片上新](https://www.blog.minike.top/Article/details/59123.shtml)
-- 2026-06-29 18:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/3931992192.shtml)
-- 2026-06-29 18:24 - [章若楠包场白敬亭特立独行](http://www.share.kurohicncr.top/Article/details/390157633.shtml)
-- 2026-06-29 18:22 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/4706524435.shtml)
-- 2026-06-29 18:18 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/95567293.shtml)
-- 2026-06-29 18:10 - [娜扎搂着我的腰和我合照](http://www.blog.minike.top/Article/details/4060759119.shtml)
-- 2026-06-29 18:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/719792528803.shtml)
+- 2026-06-29 18:23 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/23793595.shtml)
+- 2026-06-29 18:22 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/8774993470.shtml)
+- 2026-06-29 18:14 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/32304567.shtml)
+- 2026-06-29 18:33 - [外交部谈对日出口管制措施](https://www.blog.minike.top/Article/details/12356159165.shtml)
+- 2026-06-29 18:20 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/0308372590.shtml)
+- 2026-06-29 18:27 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/1348235.shtml)
+- 2026-06-29 18:10 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/78441.shtml)
+- 2026-06-29 18:07 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/556154344174.shtml)
+- 2026-06-29 18:25 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/324410909038.shtml)
+- 2026-06-29 18:26 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/22247.shtml)
+- 2026-06-29 18:35 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/6859479.shtml)
+- 2026-06-29 18:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/813106205.shtml)
+- 2026-06-29 18:19 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/72646083239.shtml)
+- 2026-06-29 18:15 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/879474302260.shtml)
+- 2026-06-29 18:31 - [看大国重器“云端穿针引线”](http://www.blog.minike.top/Article/details/6081007.shtml)

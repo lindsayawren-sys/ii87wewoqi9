@@ -1,59 +1,57 @@
-# 白宫试图平息对可能对伊朗使用核武器的猜测
+# 大美边疆看我家丨云南瑞丽：腊肠花开洒金雨，边城夏日诗意浓
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-美国副总统 JD・万斯周一在匈牙利对记者表示：“我们的工具箱里还有一些尚未决定使用的工具。美国总统可以决定启用它们。如果伊朗不改变其行为路线，他将决定使用这些工具。” 路透社记者贝尔纳黛特・萨博摄 这番言论 —— 连同美国总统唐纳德・特朗普在 “真相社交”（Truth Social）上警告 “整个文明将在今夜毁灭”—— 引发了网络上的一些猜测，认为万斯所指的是使用核武器。 白宫
+发布时间：2026年05月31日 14:16 来源：中国新闻网 初夏时节，云南瑞丽城中腊肠花进入盛花期。串串金黄花穗垂挂枝头，随风轻摇如“黄金雨”，为边城勾勒出清新浪漫的风景线。腊肠花又名阿勃勒，花期5月下旬至7月，花瓣飘落如金色花瀑。近年来瑞丽持续提升城市绿化，腊肠花与蓝花楹、凤凰花等竞相绽放，让“推窗见绿、四季有花”成为日常。这个夏天，不妨相约瑞丽，感受鎏金花事下的边城诗意
 
 ## 正文
 
-美国副总统 JD・万斯周一在匈牙利对记者表示：“我们的工具箱里还有一些尚未决定使用的工具。
+发布时间：2026年05月31日 14:16 来源：中国新闻网 初夏时节，云南瑞丽城中腊肠花进入盛花期。
 
-美国总统可以决定启用它们。
+串串金黄花穗垂挂枝头，随风轻摇如“黄金雨”，为边城勾勒出清新浪漫的风景线。
 
-如果伊朗不改变其行为路线，他将决定使用这些工具。
+腊肠花又名阿勃勒，花期5月下旬至7月，花瓣飘落如金色花瀑。
 
-” 路透社记者贝尔纳黛特・萨博摄 这番言论 —— 连同美国总统唐纳德・特朗普在 “真相社交”（Truth Social）上警告 “整个文明将在今夜毁灭”—— 引发了网络上的一些猜测，认为万斯所指的是使用核武器。
+近年来瑞丽持续提升城市绿化，腊肠花与蓝花楹、凤凰花等竞相绽放，让“推窗见绿、四季有花”成为日常。
 
-白宫快速反应团队的 X（原推特）账号回应了一个由民主党运营的账号。
+这个夏天，不妨相约瑞丽，感受鎏金花事下的边城诗意。
 
-该账号称万斯 “暗示特朗普可能使用核武器”。
-
-白宫账号写道：“副总统这番话完全没有‘暗示’这一点，你们这群十足的蠢货。
-
-” 但这种网络热议 —— 也出现在部分右翼圈子中 —— 凸显了在美国东部时间晚 8 点的最后期限前，公众的焦虑情绪。
+(来源：瑞丽融媒） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 18:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 18:24 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 18:12 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 18:11 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 18:28 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 18:25 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 18:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 18:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 18:30 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 18:13 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 18:02 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 18:23 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 18:05 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 18:32 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 18:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 18:28 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 18:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 18:20 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 18:12 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 18:29 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 18:14 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 18:17 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 18:28 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 18:31 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 18:12 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 18:17 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 18:24 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 18:18 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:01 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/965276.shtml)
-- 2026-06-29 18:27 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/84336.shtml)
-- 2026-06-29 18:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/3846801.shtml)
-- 2026-06-29 18:10 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/14168.shtml)
-- 2026-06-29 18:08 - [扬名立万](https://www.share.kurohicncr.top/Article/details/970539.shtml)
-- 2026-06-29 18:02 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/194344.shtml)
-- 2026-06-29 18:21 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/4889298382.shtml)
-- 2026-06-29 18:08 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.minike.top/Article/details/45633.shtml)
-- 2026-06-29 18:14 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/246863.shtml)
-- 2026-06-29 18:21 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/46181.shtml)
-- 2026-06-29 18:29 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/77253.shtml)
-- 2026-06-29 18:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/18933337.shtml)
-- 2026-06-29 18:29 - [和周杰伦在演唱会合唱了](https://www.share.kurohicncr.top/Article/details/211705979.shtml)
-- 2026-06-29 18:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/03666992.shtml)
-- 2026-06-29 18:27 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/3485951.shtml)
+- 2026-06-29 18:24 - [中国战机大片上新](https://www.blog.minike.top/Article/details/13582.shtml)
+- 2026-06-29 18:11 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.kurohicncr.top/Article/details/739755824828.shtml)
+- 2026-06-29 18:07 - [请回答王牌2019](https://www.share.minike.top/Article/details/7041748.shtml)
+- 2026-06-29 18:06 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/72243.shtml)
+- 2026-06-29 18:35 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/253364933.shtml)
+- 2026-06-29 18:14 - [斗破苍穹](https://www.share.minike.top/Article/details/261867233380.shtml)
+- 2026-06-29 18:07 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/913061050.shtml)
+- 2026-06-29 18:20 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/56991783356.shtml)
+- 2026-06-29 18:17 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/150830014767.shtml)
+- 2026-06-29 18:16 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/585800605.shtml)
+- 2026-06-29 18:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/86361.shtml)
+- 2026-06-29 18:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/235533.shtml)
+- 2026-06-29 18:16 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/64667183485.shtml)
+- 2026-06-29 18:35 - [章若楠包场白敬亭特立独行](http://www.share.kurohicncr.top/Article/details/52424262937.shtml)
+- 2026-06-29 18:14 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/4464177596.shtml)

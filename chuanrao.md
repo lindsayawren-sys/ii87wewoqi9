@@ -1,59 +1,46 @@
-# 宁夏召开2026年第一次为企业纾困解难集中办公会
+# 中国国际跨国公司促进会常务副会长张笑宇接受审查调查
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-中新网银川4月8日电 (李佩珊 孔婷婷)4月7日下午，宁夏回族自治区党委和政府在银川召开2026年第一次为企业纾困解难集中办公会。会议以“开局起步‘十五五’、助力企业高质量发展”为主题，宁夏回族自治区党委书记、人大常委会主任李邑飞，宁夏回族自治区党委副书记、自治区人民政府主席张雨浦出席会议，宁夏五市及相关厅局负责人参会，与10家重点企业代表面对面交流，现场听取企业诉求并办公答复
+中新网5月29日电 据中央纪委国家监委驻中央社会工作部纪检监察组、河北省纪委监委消息，中国国际跨国公司促进会常务副会长张笑宇涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中央社会工作部纪检监察组纪律审查和河北省监察委员会监察调查。
 
 ## 正文
 
-中新网银川4月8日电 (李佩珊 孔婷婷)4月7日下午，宁夏回族自治区党委和政府在银川召开2026年第一次为企业纾困解难集中办公会。
-
-会议以“开局起步‘十五五’、助力企业高质量发展”为主题，宁夏回族自治区党委书记、人大常委会主任李邑飞，宁夏回族自治区党委副书记、自治区人民政府主席张雨浦出席会议，宁夏五市及相关厅局负责人参会，与10家重点企业代表面对面交流，现场听取企业诉求并办公答复。
-
-会上，共享装备、杞里香枸杞、恒康科技、飞鹤乳业、金晶科技、瑞资联实业、美臣纺织、协鑫光伏、中金数据、凯信能源10家企业作了发言，围绕“十五五”发展规划、项目建设、要素保障、政策支持等提出具体诉求和意见建议，相关部门和地市针对企业反映问题逐一现场答复回应。
-
-听取大家的发言后，李邑飞表示，宁夏始终高度重视和支持企业发展，建立区市县三级为企业纾困解难机制为企业解决发展难题，构建良好营商环境，有效激发民营经济高质量发展活力。
-
-2026年，宁夏各部门将继续主动服务企业发展，坚持规划引领、加强政策协同、优化营商环境、强化法治保障，做好政策宣传解读、精准直达，支持企业创新发展、绿色转型、数字赋能，不断做强做优做大。
-
-同时，宁夏将完善为企服务体系，健全“高效办成一件事”重点事项清单管理和常态化推进机制，深化清理拖欠企业账款，规范涉企执法，做好要素供给，持续减负松绑，让企业安心投资发展。
-
-张雨浦表示，参加此次会议的主要是宁夏重点产业中发展意愿强烈、未来增长潜力大的代表性企业，目的就是要突出重点、以点带面，把解决实际问题与实现企业发展目标结合起来，助力企业高质量发展，推动“十五五”良好开局。
-
-宁夏各地将全面落实支持企业发展“十项机制”，在解决真问题上下更大功夫，切实增强各类经营主体预期。
+中新网5月29日电 据中央纪委国家监委驻中央社会工作部纪检监察组、河北省纪委监委消息，中国国际跨国公司促进会常务副会长张笑宇涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中央社会工作部纪检监察组纪律审查和河北省监察委员会监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 18:14 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 18:03 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 18:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 18:23 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 18:05 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 18:11 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 18:15 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 18:09 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 18:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 18:19 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 18:27 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 18:07 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 18:28 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 18:27 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 18:35 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 18:15 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 18:06 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 18:18 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 18:16 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 18:20 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 18:20 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 18:34 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 18:29 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 18:17 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 18:32 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 18:35 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 18:27 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/4709608.shtml)
-- 2026-06-29 18:24 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/53961433.shtml)
-- 2026-06-29 18:21 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/15911165923.shtml)
-- 2026-06-29 18:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/6282853.shtml)
-- 2026-06-29 18:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/549282678.shtml)
-- 2026-06-29 18:01 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/145818466804.shtml)
-- 2026-06-29 18:28 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/506781.shtml)
-- 2026-06-29 18:17 - [滚石就音乐人屠颖去世事件发声明](https://www.share.kurohicncr.top/Article/details/86029733.shtml)
-- 2026-06-29 18:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/329062.shtml)
-- 2026-06-29 18:12 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/5029855.shtml)
-- 2026-06-29 18:07 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/790221.shtml)
-- 2026-06-29 18:12 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/21190271.shtml)
-- 2026-06-29 18:10 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/6931520.shtml)
-- 2026-06-29 18:24 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/45406431.shtml)
-- 2026-06-29 18:07 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/5636996.shtml)
+- 2026-06-29 18:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/016999.shtml)
+- 2026-06-29 18:21 - [女心理师](http://www.blog.kurohicncr.top/Article/details/84251463852.shtml)
+- 2026-06-29 18:31 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/4088596896.shtml)
+- 2026-06-29 18:34 - [V8](http://www.blog.kurohicncr.top/Article/details/3372810.shtml)
+- 2026-06-29 18:32 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/966950686589.shtml)
+- 2026-06-29 18:11 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/551384559.shtml)
+- 2026-06-29 18:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/363591434670.shtml)
+- 2026-06-29 18:06 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/5833021.shtml)
+- 2026-06-29 18:30 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/85535155801.shtml)
+- 2026-06-29 18:09 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/9290070190.shtml)
+- 2026-06-29 18:21 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/8897114912.shtml)
+- 2026-06-29 18:06 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/9232872172.shtml)
+- 2026-06-29 18:07 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/6704568816.shtml)
+- 2026-06-29 18:21 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/7131449720.shtml)
+- 2026-06-29 18:15 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/685585320117.shtml)

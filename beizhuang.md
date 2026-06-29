@@ -1,50 +1,60 @@
-# 心泰医疗建议H股回购计划
+# 如何解决群众身边突出的环境问题？生态环境部回应
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-心泰医疗（02291）发布公告，公司董事会董事长已向董事会提议采纳一项计划（建议H股回购计划），据此，公司可视乎市况，并不时根据本公司股东于股东大会上批准的回购H股的一般性授权（建议回购授权），于公开市场回购公司H股。 目前预计根据建议H股回购计划，公司将动用不超过人民币1亿元，于公开市场回购最多550万股H股。责任编辑：卢昱君
+中新网北京5月29日电 (记者 阮煜琳)“当前我国生态环境质量改善的基础还不稳固，群众身边还有不少突出的环境问题。”生态环境部新闻发言人裴晓菲29日在北京举行的新闻发布会上表示，比如近年来媒体曝光的部分支流和小微水体污染、垃圾随意倾倒等问题，引发了社会广泛关注。对这些问题，我们要客观看、理性看，既不能用成绩掩盖问题，更不能因为局部问题而否定整体成绩。近年来，我国生态环境保护工作
 
 ## 正文
 
-心泰医疗（02291）发布公告，公司董事会董事长已向董事会提议采纳一项计划（建议H股回购计划），据此，公司可视乎市况，并不时根据本公司股东于股东大会上批准的回购H股的一般性授权（建议回购授权），于公开市场回购公司H股。
+中新网北京5月29日电 (记者 阮煜琳)“当前我国生态环境质量改善的基础还不稳固，群众身边还有不少突出的环境问题。
 
-目前预计根据建议H股回购计划，公司将动用不超过人民币1亿元，于公开市场回购最多550万股H股。
+”生态环境部新闻发言人裴晓菲29日在北京举行的新闻发布会上表示，比如近年来媒体曝光的部分支流和小微水体污染、垃圾随意倾倒等问题，引发了社会广泛关注。
 
-责任编辑：卢昱君
+对这些问题，我们要客观看、理性看，既不能用成绩掩盖问题，更不能因为局部问题而否定整体成绩。
+
+近年来，我国生态环境保护工作成效显著，也得到了人民群众的广泛认可。
+
+根据国家统计局调查，人民群众对生态环境的满意度，已经连续5年超过了90%。
+
+裴晓菲说，那些发生在群众家门口的污染，不仅影响到人民群众的身心健康和生活质量，也影响美丽中国建设的成效。
+
+生态环境部对此高度重视，这些年来，我们主动作为，采取了一系列措施，推动解决群众身边的小微水体污染等问题。
+
+据介绍，针对非法倾倒垃圾等问题，去年6月，生态环境部启动了全国非法倾倒处置固体废物专项整治行动。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 18:07 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 18:09 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 18:00 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 18:20 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 18:08 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 18:26 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 18:15 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 18:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 18:09 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 18:21 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 18:27 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 18:29 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 18:16 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 18:23 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 18:09 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 18:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 18:17 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 18:09 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 18:06 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 18:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 18:11 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 18:17 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 18:16 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 18:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 18:20 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 18:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 18:28 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/629903673.shtml)
-- 2026-06-29 18:17 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/03988370843.shtml)
-- 2026-06-29 18:12 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/737038.shtml)
-- 2026-06-29 18:14 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/803969830166.shtml)
-- 2026-06-29 18:21 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/68523436659.shtml)
-- 2026-06-29 18:15 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/23236.shtml)
-- 2026-06-29 18:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/871468448.shtml)
-- 2026-06-29 18:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/86083.shtml)
-- 2026-06-29 18:06 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/7710401769.shtml)
-- 2026-06-29 18:16 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/194514.shtml)
-- 2026-06-29 18:05 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/799703.shtml)
-- 2026-06-29 18:14 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/050041903395.shtml)
-- 2026-06-29 18:07 - [女生每天戴耳机18小时突发耳聋](https://www.blog.kurohicncr.top/Article/details/516874329664.shtml)
-- 2026-06-29 18:17 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/14227240302.shtml)
-- 2026-06-29 18:20 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/6294353786.shtml)
+- 2026-06-29 18:27 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/36292.shtml)
+- 2026-06-29 18:20 - [花万元相亲对象是50元雇的演员](https://www.share.minike.top/Article/details/54811995.shtml)
+- 2026-06-29 18:14 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/3124858.shtml)
+- 2026-06-29 18:27 - [娜扎搂着我的腰和我合照](http://www.blog.minike.top/Article/details/05891580.shtml)
+- 2026-06-29 18:22 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.kurohicncr.top/Article/details/4741418.shtml)
+- 2026-06-29 18:15 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/24545205.shtml)
+- 2026-06-29 18:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/19618658299.shtml)
+- 2026-06-29 18:21 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/65411.shtml)
+- 2026-06-29 18:35 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.minike.top/Article/details/99320781672.shtml)
+- 2026-06-29 18:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/5695768172.shtml)
+- 2026-06-29 18:13 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/492614.shtml)
+- 2026-06-29 18:25 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/01146.shtml)
+- 2026-06-29 18:30 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/12876278075.shtml)
+- 2026-06-29 18:16 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/47377781688.shtml)
+- 2026-06-29 18:30 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/2984128007.shtml)

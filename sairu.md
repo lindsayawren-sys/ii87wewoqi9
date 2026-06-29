@@ -1,56 +1,60 @@
-# 当春假遇上清明 旅游“成绩单”有这些亮点
+# 中方：保护主义只会损害欧洲消费者利益，削弱欧洲产业竞争力
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-清明假期遇上春假，出游热情一路高涨。家庭亲子游的需求集中释放，大家的出行半径拉长，夜间游也是人气爆棚。各种体验式消费点亮春日经济。 城乡居民出游意愿高涨 亲子游成为市场核心群体 今年多地春假与清明假期叠加连休，江苏、浙江、安徽、贵州等地中小学放春假，形成最长6天连休。数据显示，亲子游订单金额占全国旅游总订单金额的37%，高铁乘客中未成年人占比提升，家庭亲子出游需求集中释放。 中
+中新网北京5月29日电 (记者 李京泽)外交部发言人毛宁29日主持例行记者会。 有记者提问：欧盟委员会今天举行一场会议，预计会上将推出一些措施，以保护欧洲工业免受来自中国竞争的冲击。中方对此有何评论？ 毛宁：中欧经贸关系的本质是互利共赢，中方从不刻意追求对欧洲的贸易顺差。保护主义只会损害欧洲消费者的利益，削弱欧洲产业的竞争力。我们希望欧方全面、客观地看待中欧经贸关系，恪守自由贸
 
 ## 正文
 
-清明假期遇上春假，出游热情一路高涨。
+中新网北京5月29日电 (记者 李京泽)外交部发言人毛宁29日主持例行记者会。
 
-家庭亲子游的需求集中释放，大家的出行半径拉长，夜间游也是人气爆棚。
+有记者提问：欧盟委员会今天举行一场会议，预计会上将推出一些措施，以保护欧洲工业免受来自中国竞争的冲击。
 
-各种体验式消费点亮春日经济。
+中方对此有何评论？
 
-城乡居民出游意愿高涨 亲子游成为市场核心群体 今年多地春假与清明假期叠加连休，江苏、浙江、安徽、贵州等地中小学放春假，形成最长6天连休。
+毛宁：中欧经贸关系的本质是互利共赢，中方从不刻意追求对欧洲的贸易顺差。
 
-数据显示，亲子游订单金额占全国旅游总订单金额的37%，高铁乘客中未成年人占比提升，家庭亲子出游需求集中释放。
+保护主义只会损害欧洲消费者的利益，削弱欧洲产业的竞争力。
 
-中国旅游研究院院长 戴斌：清明节假日期间，城乡居民出游意愿高涨，国内旅游出游人数、旅游花费、农村居民出游人数及外国人入境旅游人数等多项指标创下历史新高。
+我们希望欧方全面、客观地看待中欧经贸关系，恪守自由贸易承诺。
 
-出游半径扩大 中远程旅游明显增长 与往年相比，今年清明假期的一个显著变化是，800公里以上出行旅客人数增幅明显。
+中方也在密切关注有关动向，将采取必要措施维护自身的正当权益。
 
-专家表示，这主要受益于多个省市中小学生放春假，推动了出游距离同步增长。
+(完）
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 18:10 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 18:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 18:21 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 18:17 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 18:26 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 18:02 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 18:21 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 18:13 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 18:00 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 18:27 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 18:21 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 18:35 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 18:26 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 18:33 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 18:29 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 18:26 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 18:16 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 18:16 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 18:06 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 18:28 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 18:11 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 18:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 18:06 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:00 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/70001.shtml)
-- 2026-06-29 18:28 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/8695117622.shtml)
-- 2026-06-29 18:10 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/83036374.shtml)
-- 2026-06-29 18:13 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/38518531279.shtml)
-- 2026-06-29 18:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/647196922.shtml)
-- 2026-06-29 18:01 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/374033309378.shtml)
-- 2026-06-29 18:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/64492.shtml)
-- 2026-06-29 18:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/4711440.shtml)
-- 2026-06-29 18:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/3568349850.shtml)
-- 2026-06-29 18:16 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/43774366.shtml)
-- 2026-06-29 18:00 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/8166093721.shtml)
-- 2026-06-29 18:07 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/461100797266.shtml)
-- 2026-06-29 18:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/0975985.shtml)
-- 2026-06-29 18:04 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/3706056.shtml)
-- 2026-06-29 18:16 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/865631151.shtml)
+- 2026-06-29 18:14 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/221649126197.shtml)
+- 2026-06-29 18:09 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/314948.shtml)
+- 2026-06-29 18:21 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/370399.shtml)
+- 2026-06-29 18:14 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/08829682.shtml)
+- 2026-06-29 18:20 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/231543387.shtml)
+- 2026-06-29 18:07 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/8112417209.shtml)
+- 2026-06-29 18:13 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/571226649.shtml)
+- 2026-06-29 18:22 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/515507.shtml)
+- 2026-06-29 18:25 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/4017922.shtml)
+- 2026-06-29 18:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/18460761667.shtml)
+- 2026-06-29 18:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/3075325575.shtml)
+- 2026-06-29 18:18 - [当我回母校教书](https://www.blog.minike.top/Article/details/37782.shtml)
+- 2026-06-29 18:30 - [税务总局披露5起合规申报个税案例](http://www.share.minike.top/Article/details/896541590190.shtml)
+- 2026-06-29 18:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/046111226.shtml)
+- 2026-06-29 18:13 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/0209385361.shtml)

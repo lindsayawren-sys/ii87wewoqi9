@@ -1,57 +1,56 @@
-# 劳合社市场协会欢迎美伊停火，但称 “高风险” 仍未消除
+# 东岳集团午前涨逾8% 制冷剂整体市场有望逐步回暖
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-劳合社市场协会（LMA）海运与航空业务主管尼尔・罗伯茨周三表示，美伊达成的两周停火协议值得欢迎，但该地区风险依然高企，所有潜在紧张局势均未得到根本解决。 美国总统唐纳德・特朗普周二宣布与伊朗达成两周停火，此时距他为德黑兰设定的 —— 要么重新开放航道、要么面临民用基础设施遭袭的最后期限，仅剩不到两小时。 伊朗外交部长阿拉格齐在声明中称，若针对伊朗的袭击停止，德黑兰将暂停反击，并
+东岳集团（00189）盘中涨超10%，截至发稿，股价上涨7.96%，现报17.64港元，成交额14.37亿港元。 近日英国和美国陆续宣布HFCs（三代制冷剂）等含氟气体使用配额削减计划推迟，HFCs淘汰降碳节奏整体放缓，主要因为HFCs价格上行导致制冷剂产业链运行成本上升等因素。东方证券指，配额驱动三代制冷剂，供给刚性，需求端制冷设备保持增长，英美放宽三代制冷剂管控边际延长其需
 
 ## 正文
 
-劳合社市场协会（LMA）海运与航空业务主管尼尔・罗伯茨周三表示，美伊达成的两周停火协议值得欢迎，但该地区风险依然高企，所有潜在紧张局势均未得到根本解决。
+东岳集团（00189）盘中涨超10%，截至发稿，股价上涨7.96%，现报17.64港元，成交额14.37亿港元。
 
-美国总统唐纳德・特朗普周二宣布与伊朗达成两周停火，此时距他为德黑兰设定的 —— 要么重新开放航道、要么面临民用基础设施遭袭的最后期限，仅剩不到两小时。
+近日英国和美国陆续宣布HFCs（三代制冷剂）等含氟气体使用配额削减计划推迟，HFCs淘汰降碳节奏整体放缓，主要因为HFCs价格上行导致制冷剂产业链运行成本上升等因素。
 
-伊朗外交部长阿拉格齐在声明中称，若针对伊朗的袭击停止，德黑兰将暂停反击，并确保船只安全通过海峡。
+东方证券指，配额驱动三代制冷剂，供给刚性，需求端制冷设备保持增长，英美放宽三代制冷剂管控边际延长其需求周期，看好三代制冷剂景气上行，配额份额居前企业有望受益，看好板块中长期配置价值。
 
-“时间会证明这只是暂时休战还是真正的和平，但眼下，海湾地区的贸易几乎不可能立即恢复。
+另据氟务在线，现阶段制冷剂基本面企业控价意愿强、行业默契意识依旧，工厂库存水位中等，无集中抛售压力。
 
-” 罗伯茨表示。
+美国、英国相继推迟削减HFCs淘汰进程，对国内形成利好支撑，后续随气温持续升高、海内外补库需求逐步释放，制冷剂整体市场有望逐步回暖。
 
-他称，已报备的损失将按常规流程处理，此前无法驶离的船只，预计在船东及船长认定安全后会尝试离港。
-
-“我们和所有人一样，只能静观事态发展。
-
-无论发生什么，伦敦保险市场都将继续为客户提供支持。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:11 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 18:19 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 18:12 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 18:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 18:25 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 18:22 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 18:16 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 18:01 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 18:07 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 18:16 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 18:25 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 18:29 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 18:23 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 18:21 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 18:08 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 18:07 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 18:09 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 18:28 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 18:30 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 18:06 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 18:07 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 18:34 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 18:32 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 18:15 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 18:28 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:09 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/925892205846.shtml)
-- 2026-06-29 18:04 - [外交部谈对日出口管制措施](https://www.blog.minike.top/Article/details/8985115677.shtml)
-- 2026-06-29 18:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/93391351834.shtml)
-- 2026-06-29 18:27 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/71138.shtml)
-- 2026-06-29 18:01 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/39749809002.shtml)
-- 2026-06-29 18:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/2391590.shtml)
-- 2026-06-29 18:08 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/39798568009.shtml)
-- 2026-06-29 18:24 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/993264.shtml)
-- 2026-06-29 18:08 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/161513067.shtml)
-- 2026-06-29 18:06 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/22610856098.shtml)
-- 2026-06-29 18:16 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/39149722690.shtml)
-- 2026-06-29 18:27 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/4869085.shtml)
-- 2026-06-29 18:00 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/2059669657.shtml)
-- 2026-06-29 18:00 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/02190934132.shtml)
-- 2026-06-29 18:23 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/188782248.shtml)
+- 2026-06-29 18:31 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/21078573725.shtml)
+- 2026-06-29 18:20 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/75302654971.shtml)
+- 2026-06-29 18:24 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/44651.shtml)
+- 2026-06-29 18:20 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/5614642.shtml)
+- 2026-06-29 18:10 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/949749541258.shtml)
+- 2026-06-29 18:13 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/43004701378.shtml)
+- 2026-06-29 18:08 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/0013823568.shtml)
+- 2026-06-29 18:06 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/4756174970.shtml)
+- 2026-06-29 18:10 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/49896.shtml)
+- 2026-06-29 18:06 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/39254180733.shtml)
+- 2026-06-29 18:23 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/062285275415.shtml)
+- 2026-06-29 18:24 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/8957673063.shtml)
+- 2026-06-29 18:24 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/926374236.shtml)
+- 2026-06-29 18:13 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/22507.shtml)
+- 2026-06-29 18:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/400051.shtml)

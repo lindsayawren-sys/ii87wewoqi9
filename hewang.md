@@ -1,58 +1,48 @@
-# 中信建投期货：4月8日农产品早报
+# “曾试图袭击俄总统官邸” 普京：无人机残骸已移交美国鉴定
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-玉米：中性 1．市场关注：隔夜受燃料题材牵引，美玉米明显回调，或带动内盘小幅下跌；猪粮比加速恶化，4月第一周已跌至3.57：1，连续8周处于过度下跌一级预警区间；玉米淀粉行业利润有所好转，企业开机率逐步升高，不过目前深加工企业库存已经回归安全线，4月下旬之前暂无大规模补库需求出现的可能。 2．观点总结：下游与渠道库存放量达成阶段性平衡，周内横盘判断，下方支撑2330元/吨，上方
+中新网5月30日电 据俄罗斯媒体当地时间29日报道，俄罗斯总统普京表示，俄罗斯已将2025年12月袭击瓦尔代总统官邸的无人机残骸移交给美国进行鉴定。 据报道，普京表示：“我们已将袭击俄总统官邸的无人机残骸移交给美国进行鉴定。” 报道还称，在分析相关数据后，专家认为，基辅方面的攻击目标正是普京官邸所在建筑群。
 
 ## 正文
 
-玉米：中性 1．市场关注：隔夜受燃料题材牵引，美玉米明显回调，或带动内盘小幅下跌；猪粮比加速恶化，4月第一周已跌至3.57：1，连续8周处于过度下跌一级预警区间；玉米淀粉行业利润有所好转，企业开机率逐步升高，不过目前深加工企业库存已经回归安全线，4月下旬之前暂无大规模补库需求出现的可能。
+中新网5月30日电 据俄罗斯媒体当地时间29日报道，俄罗斯总统普京表示，俄罗斯已将2025年12月袭击瓦尔代总统官邸的无人机残骸移交给美国进行鉴定。
 
-2．观点总结：下游与渠道库存放量达成阶段性平衡，周内横盘判断，下方支撑2330元/吨，上方2380元/吨，关注4-6月种植季天气演变及成本传导的实际影响。
+据报道，普京表示：“我们已将袭击俄总统官邸的无人机残骸移交给美国进行鉴定。
 
-策略上以区间操作对待，不宜追高。
-
-豆粕：中性 1．美伊双方阶段性接受停火提议，地缘叙事降温，隔夜CBOT大豆震荡收跌。
-
-随着种植意向报告以及美国生物燃料掺混目标相继落地，海外市场等待北美新季种植进度给予新的指引； 2．国内市场对前期围绕到港延迟题材的交易持续纠偏，叠加成本端支撑不足，连盘豆粕基本回吐此前涨幅，短期关注巴西大豆实际到港节奏。
-
-观点总结：观望为主，预计09合约日内运行区间2900-3000元/吨。
-
-鸡蛋：中性 主产区现货价格震荡，河北馆陶现货报价3.07元/斤，较上一日持平。
-
-养殖利润由亏转微利，约 +0.1-0.2元/斤。
+” 报道还称，在分析相关数据后，专家认为，基辅方面的攻击目标正是普京官邸所在建筑群。
 
 ## 相关推荐
 
-- 2026-06-29 18:04 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 18:03 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 18:03 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 18:13 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 18:00 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 18:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 18:14 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 18:09 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 18:04 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 18:18 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 18:23 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 18:21 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 18:21 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 18:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 18:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 18:08 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 18:19 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 18:29 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 18:20 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 18:35 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 18:27 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 18:30 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 18:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 18:11 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:03 - [世界杯在中国观看最多的比赛](http://www.share.minike.top/Article/details/509151975.shtml)
-- 2026-06-29 18:01 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/8474838276.shtml)
-- 2026-06-29 18:02 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/6702906992.shtml)
-- 2026-06-29 18:07 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/8280805383.shtml)
-- 2026-06-29 18:24 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/628047.shtml)
-- 2026-06-29 18:07 - [请回答王牌2019](http://www.blog.minike.top/Article/details/68179948710.shtml)
-- 2026-06-29 18:01 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/177511.shtml)
-- 2026-06-29 18:29 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/13110812.shtml)
-- 2026-06-29 18:22 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/92436178009.shtml)
-- 2026-06-29 18:05 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/50597782260.shtml)
-- 2026-06-29 18:12 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/667055.shtml)
-- 2026-06-29 18:12 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/206511276.shtml)
-- 2026-06-29 18:08 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/2469870088.shtml)
-- 2026-06-29 18:15 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/38783938.shtml)
-- 2026-06-29 18:05 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/76954.shtml)
+- 2026-06-29 18:16 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/17829934412.shtml)
+- 2026-06-29 18:34 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/02151238.shtml)
+- 2026-06-29 18:32 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/82582.shtml)
+- 2026-06-29 18:16 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/580750282732.shtml)
+- 2026-06-29 18:24 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/7641577525.shtml)
+- 2026-06-29 18:17 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/750433953436.shtml)
+- 2026-06-29 18:23 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/700303.shtml)
+- 2026-06-29 18:14 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/22936092.shtml)
+- 2026-06-29 18:08 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/17495181.shtml)
+- 2026-06-29 18:29 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/6881740075.shtml)
+- 2026-06-29 18:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/5821449390.shtml)
+- 2026-06-29 18:11 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/9792579996.shtml)
+- 2026-06-29 18:31 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.kurohicncr.top/Article/details/589870.shtml)
+- 2026-06-29 18:13 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/13386.shtml)
+- 2026-06-29 18:11 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/2234095003.shtml)

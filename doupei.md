@@ -1,57 +1,48 @@
-# 我国3月末外汇储备规模33421亿美元 央行连续17个月增持黄金 机构预计央行购金或将提速
+# 伊朗议会议长卡利巴夫：在对方采取行动之前 不会采取任何行动
 
-> 更新时间：2026-06-29 18:30:02 UTC+8
+> 更新时间：2026-06-29 18:36:02 UTC+8
 
 ## 摘要
 
-财联社4月7日讯 （记者 曹韵仪） 今日国家外汇管理局统计公布数据显示，截至2026年3月末，我国外汇储备规模为33421亿美元，较2月末下降857亿美元，降幅为2.5%。同期央行数据显示，3月末黄金储备为7438万盎司，较上月末增加16万盎司。 针对此次外汇储备下降规模较大的原因，有业内人士对财联社记者表示，受战争影响，油价上涨引起通胀预期升温，市场甚至开始押注美联储加息，在
+“我们不相信任何保证或承诺，唯一的标准是行动；在对方采取行动之前，我们不会采取任何行动，”伊朗与美国谈判的首席代表穆罕默德·巴格尔·卡利巴夫在X平台上表示。 “任何协议的赢家，都是在协议达成次日为战争做好更充分准备的一方。”责任编辑：江学思
 
 ## 正文
 
-财联社4月7日讯 （记者 曹韵仪） 今日国家外汇管理局统计公布数据显示，截至2026年3月末，我国外汇储备规模为33421亿美元，较2月末下降857亿美元，降幅为2.5%。
+“我们不相信任何保证或承诺，唯一的标准是行动；在对方采取行动之前，我们不会采取任何行动，”伊朗与美国谈判的首席代表穆罕默德·巴格尔·卡利巴夫在X平台上表示。
 
-同期央行数据显示，3月末黄金储备为7438万盎司，较上月末增加16万盎司。
+“任何协议的赢家，都是在协议达成次日为战争做好更充分准备的一方。
 
-针对此次外汇储备下降规模较大的原因，有业内人士对财联社记者表示，受战争影响，油价上涨引起通胀预期升温，市场甚至开始押注美联储加息，在高利率维持更久、避险资金回流的双重支撑下，美元指数延续走强态势。
-
-同时，尽管美元走强压制黄金涨幅，央行仍连续17个月加仓黄金储备，机构认为，短期来看，金价仍然面临多重宏观因素所带来的博弈情绪影响，或延续震荡走势；但中长期看，财政赤字、地缘紧张及货币担忧等中长期因素仍然支撑黄金需求。
-
-美元指数加速上涨 外汇储备规模降幅较大 “3月份，美以伊冲突持续升级，伊朗封锁航运要道霍尔木兹海峡，中东原油出口受阻，导致原油价格暴涨，全球资产价格普跌。
-
-油价上涨引起通胀预期升温，市场甚至开始押注美联储加息，在高利率维持更久、避险资金回流的双重支撑下，美元指数延续走强态势。
-
-受资产价格变化与汇率波动综合影响，3月末外储环比下跌857亿美元至33421亿美元。
-
-”民生银行首席经济学家温彬对财联社记者表示。
+”责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 18:24 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 18:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 18:28 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 18:08 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 18:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 18:13 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 18:10 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 18:13 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 18:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 18:07 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 18:22 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 18:30 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 18:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 18:34 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 18:31 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 18:08 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 18:30 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 18:12 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 18:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 18:22 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 18:21 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 18:30 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 18:12 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:12 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/22880229358.shtml)
-- 2026-06-29 18:17 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/4359373.shtml)
-- 2026-06-29 18:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/10911329720.shtml)
-- 2026-06-29 18:07 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/491155200161.shtml)
-- 2026-06-29 18:16 - [日本偶像龟梨和也宣布结婚](http://www.blog.kurohicncr.top/Article/details/70866581.shtml)
-- 2026-06-29 18:01 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/430698862.shtml)
-- 2026-06-29 18:18 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.minike.top/Article/details/28724.shtml)
-- 2026-06-29 18:19 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/10655864.shtml)
-- 2026-06-29 18:04 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/04026943015.shtml)
-- 2026-06-29 18:19 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/2763329173.shtml)
-- 2026-06-29 18:20 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/1779704624.shtml)
-- 2026-06-29 18:05 - [NBA交易](http://www.blog.minike.top/Article/details/0423326008.shtml)
-- 2026-06-29 18:25 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/0673170.shtml)
-- 2026-06-29 18:23 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/77424747.shtml)
-- 2026-06-29 18:22 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/2216547.shtml)
+- 2026-06-29 18:32 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/51362523.shtml)
+- 2026-06-29 18:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/775057.shtml)
+- 2026-06-29 18:36 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/381982.shtml)
+- 2026-06-29 18:11 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/632529.shtml)
+- 2026-06-29 18:31 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/137285449653.shtml)
+- 2026-06-29 18:12 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/281269.shtml)
+- 2026-06-29 18:19 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/142889855.shtml)
+- 2026-06-29 18:06 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/918640004073.shtml)
+- 2026-06-29 18:17 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/60933.shtml)
+- 2026-06-29 18:21 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/3704888817.shtml)
+- 2026-06-29 18:06 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/5389289883.shtml)
+- 2026-06-29 18:19 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/142969191.shtml)
+- 2026-06-29 18:07 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/4333437628.shtml)
+- 2026-06-29 18:28 - [小娘惹](https://www.blog.minike.top/Article/details/715233198419.shtml)
+- 2026-06-29 18:31 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/97630326.shtml)
