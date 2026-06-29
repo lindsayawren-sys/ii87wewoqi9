@@ -1,56 +1,56 @@
-# 翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局
+# 决策日指南：欧洲央行料将维持利率不变 继续耐心评估伊朗局势的影响
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 翼菲科技通过港交所聆讯，轻工业机器人赛道又要迎来一家上市公司。 4月20日，浙江翼菲智能科技股份有限公司披露通过聆讯后的资料集，农银国际担任独家保荐人。这家成立于2012年的工业机器人企业，已经走到港股IPO前夜。如果上市顺利，翼菲科技将成为“轻工业全品类机器人第一股”。 翼菲科技的故事并不复杂。它不是单押某一款机器人，而是围绕轻工业场景做了一套产品矩
+欧洲央行周四料将维持利率不变，继续评估对伊朗战争所产生经济影响的应对。 尽管能源成本飙升导致欧元区通胀率远高于目标水平，但经济学家调查预计欧洲央行将存款利率维持在2%不变，自2025年6月以来一直保持在该水平。 决策者关注的重点并非石油和天然气价格的短期波动，而是目前尚不明朗的中期后果。行长克里斯蒂娜·拉加德上周表示，“双重不确定性”冲击的持续时间和传导范围表明需要更多数据。这
 
 ## 正文
 
-文|新浪财经上海站 十里 翼菲科技通过港交所聆讯，轻工业机器人赛道又要迎来一家上市公司。
+欧洲央行周四料将维持利率不变，继续评估对伊朗战争所产生经济影响的应对。
 
-4月20日，浙江翼菲智能科技股份有限公司披露通过聆讯后的资料集，农银国际担任独家保荐人。
+尽管能源成本飙升导致欧元区通胀率远高于目标水平，但经济学家调查预计欧洲央行将存款利率维持在2%不变，自2025年6月以来一直保持在该水平。
 
-这家成立于2012年的工业机器人企业，已经走到港股IPO前夜。
+决策者关注的重点并非石油和天然气价格的短期波动，而是目前尚不明朗的中期后果。
 
-如果上市顺利，翼菲科技将成为“轻工业全品类机器人第一股”。
+行长克里斯蒂娜·拉加德上周表示，“双重不确定性”冲击的持续时间和传导范围表明需要更多数据。
 
-翼菲科技的故事并不复杂。
+这一表态暗示欧洲央行并不急于采取行动。
 
-它不是单押某一款机器人，而是围绕轻工业场景做了一套产品矩阵，包括并联机器人、AGV/AMR移动机器人、SCARA机器人、晶圆搬运机器人和六轴工业机器人，并配套自研控制及视觉系统。
+预测6月将加息25个基点的经济学家和交易员认为，欧洲央行的这种耐心不会持续。
 
-公司把这套体系拆成“脑、眼、手、足”：控制系统负责决策和协同，视觉系统负责识别和跟踪，本体结构负责执行，移动平台负责自主导航和避障。
+拉加德将会在政策决定公布半小时后举行新闻发布会，届时势必将会被问及货币政策走向。
 
-这也是翼菲科技冲刺IPO时最想讲清楚的一点：它卖的不只是机器人本体，而是面向轻工业场景的综合机器人解决方案。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 14:07 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 14:27 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 14:14 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 14:11 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 14:23 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 14:11 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 14:01 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 14:08 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 14:16 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 14:19 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 14:07 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 14:17 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 14:34 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 14:12 - [韩体育部长回应李在明痛批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 14:11 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 14:16 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 14:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 14:29 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 14:16 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 14:31 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:15 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.kurohicncr.top/Article/details/81974078.shtml)
-- 2026-06-29 14:27 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.kurohicncr.top/Article/details/98416.shtml)
-- 2026-06-29 14:17 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/13101119.shtml)
-- 2026-06-29 14:22 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/432304.shtml)
-- 2026-06-29 14:20 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/7451582.shtml)
-- 2026-06-29 14:04 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/6075685.shtml)
-- 2026-06-29 14:12 - [链博会上的机器人太全能了](https://www.blog.kurohicncr.top/Article/details/721364.shtml)
-- 2026-06-29 14:01 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/3856862.shtml)
-- 2026-06-29 14:11 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/91296243.shtml)
-- 2026-06-29 14:07 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/213415214.shtml)
-- 2026-06-29 14:09 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/15493029554.shtml)
-- 2026-06-29 14:08 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.minike.top/Article/details/0681831.shtml)
-- 2026-06-29 14:08 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/93761129642.shtml)
-- 2026-06-29 14:14 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.kurohicncr.top/Article/details/523140.shtml)
-- 2026-06-29 14:14 - [韩体育部长回应李在明痛批](http://www.share.minike.top/Article/details/902974355.shtml)
+- 2026-06-29 14:15 - [Mrbeast的30天不吃饭挑战](http://www.blog.kurohicncr.top/Article/details/093911.shtml)
+- 2026-06-29 14:32 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/5012629.shtml)
+- 2026-06-29 14:15 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/53659302470.shtml)
+- 2026-06-29 14:15 - [韩体育部长回应李在明痛批](https://www.share.minike.top/Article/details/655670.shtml)
+- 2026-06-29 14:35 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/999464025.shtml)
+- 2026-06-29 14:16 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/44125090624.shtml)
+- 2026-06-29 14:08 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/5895664.shtml)
+- 2026-06-29 14:25 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/047466.shtml)
+- 2026-06-29 14:25 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/66390.shtml)
+- 2026-06-29 14:22 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/599346040.shtml)
+- 2026-06-29 14:12 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/442645916313.shtml)
+- 2026-06-29 14:13 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/14005647.shtml)
+- 2026-06-29 14:06 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/4809844609.shtml)
+- 2026-06-29 14:22 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/658610221.shtml)
+- 2026-06-29 14:22 - [四川宜宾地震](https://www.share.kurohicncr.top/Article/details/936361.shtml)

@@ -1,57 +1,60 @@
-# 光大期货：4月28日能源化工日报
+# 韩国考虑将原油互换机制延长至7月
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周一油价重心上移，其中WTI 6月合约收盘上涨1.97美元至96.37美元/桶，涨幅2.09%。布伦特6月合约收盘上涨2.9美元至108.23美元/桶，涨幅2.75%。SC2606以654.5元/桶收盘，上涨7.1元/桶，涨幅1.1%。当前来看，地缘因素的计价正在弱化，美伊谈判进入僵局，公布的航
+韩国产业通商资源部副长官Yang Ghi-wuk周四表示，鉴于企业方面持续的需求，政府正在考虑将为稳定国内燃料供应而推出的与私营企业之间的原油互换机制延长至7月。 Yang Ghi-wuk在例行的能源供应简报会上发表了上述言论，此次简报会旨在探讨中东危机下的韩国能源供应状况。 Yang Ghi-wuk表示：“我们已决定将战略石油储备互换机制延长至6月，并正在考虑是否将该机制延长
 
 ## 正文
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周一油价重心上移，其中WTI 6月合约收盘上涨1.97美元至96.37美元/桶，涨幅2.09%。
+韩国产业通商资源部副长官Yang Ghi-wuk周四表示，鉴于企业方面持续的需求，政府正在考虑将为稳定国内燃料供应而推出的与私营企业之间的原油互换机制延长至7月。
 
-布伦特6月合约收盘上涨2.9美元至108.23美元/桶，涨幅2.75%。
+Yang Ghi-wuk在例行的能源供应简报会上发表了上述言论，此次简报会旨在探讨中东危机下的韩国能源供应状况。
 
-SC2606以654.5元/桶收盘，上涨7.1元/桶，涨幅1.1%。
+Yang Ghi-wuk表示：“我们已决定将战略石油储备互换机制延长至6月，并正在考虑是否将该机制延长至7月。
 
-当前来看，地缘因素的计价正在弱化，美伊谈判进入僵局，公布的航运数据显示，过去24小时内至少有七艘船只，主要是干散货船，穿越了霍尔木兹海峡，这与近日的低迷活动态势一致。
+”他还指出，如果企业需求持续存在，政府可能会进一步延长该机制的运行时间。
 
-在中东其他地区，以色列与黎巴嫩之间的停火协议也岌岌可危。
+根据本月推出的该机制，韩国政府将部分原油储备（主要来自中东）借给炼油厂，之后再由炼油厂通过其获得的替代供应来恢复库存。
 
-如今已步入第九周的伊朗战争推高了能源价格，导致诸多关键产品出现短缺，例如印度面临液化石油气的供应不足。
+该机制最初计划运行两个月，至五月底结束。
 
-国际能源署称这场冲突正在造成历史上最大规模的供应干扰。
+关于韩国承诺根据国际能源署（IEA）成员国之间的协议释放2246万桶原油储备，Yang Ghi-wuk表示，政府将首先在互换机制实施的情况下，评估炼油厂是否真的需要释放这些原油。
 
-欧洲央行将于周四召开会议，美伊停火缓解了其立即加息的压力。
+上个月，韩国同意在国际能源署成员国的集体行动下，于6月9日前释放原油库存，以期在中东持续冲突的背景下稳定全球石油市场。
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 14:07 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 14:03 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 14:18 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 14:18 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 14:17 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 14:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 14:00 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 14:13 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 14:28 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 14:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 14:23 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 14:14 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 14:27 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 14:08 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 14:20 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 14:07 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 14:31 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 14:15 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 14:35 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 14:17 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 14:08 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 14:09 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 14:24 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 14:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [一生一世](https://www.blog.minike.top/Article/details/1484936143.shtml)
-- 2026-06-29 14:09 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/33427520.shtml)
-- 2026-06-29 14:25 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/665815076.shtml)
-- 2026-06-29 14:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/4664870.shtml)
-- 2026-06-29 14:16 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/978298918886.shtml)
-- 2026-06-29 14:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/5669359176.shtml)
-- 2026-06-29 14:16 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/6561894.shtml)
-- 2026-06-29 14:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/91156.shtml)
-- 2026-06-29 14:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/5606053.shtml)
-- 2026-06-29 14:15 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/250067224.shtml)
-- 2026-06-29 14:00 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/69854986190.shtml)
-- 2026-06-29 14:14 - [周深双眼皮贴又掉了](https://www.share.minike.top/Article/details/928216453.shtml)
-- 2026-06-29 14:17 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/811017.shtml)
-- 2026-06-29 14:13 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/0511595.shtml)
-- 2026-06-29 14:27 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/8570950.shtml)
+- 2026-06-29 14:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/640608516916.shtml)
+- 2026-06-29 14:25 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/181694906.shtml)
+- 2026-06-29 14:34 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/99792.shtml)
+- 2026-06-29 14:22 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/54661.shtml)
+- 2026-06-29 14:15 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.kurohicncr.top/Article/details/392275271883.shtml)
+- 2026-06-29 14:27 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/825407.shtml)
+- 2026-06-29 14:10 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/752532.shtml)
+- 2026-06-29 14:14 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/62112788546.shtml)
+- 2026-06-29 14:28 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/74201349.shtml)
+- 2026-06-29 14:21 - [TOP 无畏契约](https://www.share.minike.top/Article/details/3285622.shtml)
+- 2026-06-29 14:18 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/2578223.shtml)
+- 2026-06-29 14:06 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/87825.shtml)
+- 2026-06-29 14:16 - [记者率先试乘西十高铁](http://www.blog.kurohicncr.top/Article/details/287467968067.shtml)
+- 2026-06-29 14:14 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/3940293912.shtml)
+- 2026-06-29 14:21 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/6482626462.shtml)

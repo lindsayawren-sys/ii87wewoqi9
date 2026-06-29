@@ -1,44 +1,56 @@
-# 视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？
+# 亚沙会三人篮球收官：中国女队卫冕，卡塔尔男队获三连冠
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：璐璐Young 责任编辑：宋雅芳
+中新网三亚4月30日电 (张月和)第六届亚洲沙滩运动会(简称“三亚亚沙会”)三人篮球赛29日晚打响收官之战。中国女队在决赛中以21-13力克菲律宾队，成功卫冕；卡塔尔男队在战胜对手泰国男队后，实现了三连冠。 本届亚沙会三人篮球赛事男子组共有15支队伍参赛，女子组参赛队伍是13支。 女子组决赛开始，中国队孙凤艺左侧突破强攻拿下全场首分，随后又命中一记两分球。士气大振的中国队接连得
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网三亚4月30日电 (张月和)第六届亚洲沙滩运动会(简称“三亚亚沙会”)三人篮球赛29日晚打响收官之战。
 
-来源：璐璐Young 责任编辑：宋雅芳
+中国女队在决赛中以21-13力克菲律宾队，成功卫冕；卡塔尔男队在战胜对手泰国男队后，实现了三连冠。
+
+本届亚沙会三人篮球赛事男子组共有15支队伍参赛，女子组参赛队伍是13支。
+
+女子组决赛开始，中国队孙凤艺左侧突破强攻拿下全场首分，随后又命中一记两分球。
+
+士气大振的中国队接连得分，以11-5迅速拉开分差。
+
+此后菲律宾队虽全力反扑，但始终未能缩小差距，双方分差维持在5分以上。
+
+最终，王丽丽突破上篮命中，为中国队锁定胜局。
+
+“能拿到金牌非常开心。
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 14:10 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 14:01 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 14:18 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 14:02 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 14:18 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 14:06 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 14:05 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 14:07 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 14:18 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 14:29 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 14:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 14:28 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 14:24 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 14:11 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 14:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 14:17 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 14:24 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 14:30 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 14:11 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/1176207248.shtml)
-- 2026-06-29 14:03 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/2303001.shtml)
-- 2026-06-29 14:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/66974203161.shtml)
-- 2026-06-29 14:04 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/99391.shtml)
-- 2026-06-29 14:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/3590115022.shtml)
-- 2026-06-29 14:18 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/464912159666.shtml)
-- 2026-06-29 14:10 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/979672.shtml)
-- 2026-06-29 14:10 - [金刚川](http://www.share.minike.top/Article/details/480774789840.shtml)
-- 2026-06-29 14:19 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/19950437.shtml)
-- 2026-06-29 14:21 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/31499.shtml)
-- 2026-06-29 14:08 - [高考志愿今起开始填报](http://www.share.minike.top/Article/details/798772736.shtml)
-- 2026-06-29 14:12 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/936987487.shtml)
-- 2026-06-29 14:19 - [王祖蓝现场观看美加墨世界杯](http://www.blog.minike.top/Article/details/0970513.shtml)
-- 2026-06-29 14:09 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/231218.shtml)
-- 2026-06-29 14:22 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/659219392.shtml)
+- 2026-06-29 14:18 - [请回答王牌2019](http://www.share.minike.top/Article/details/349991011666.shtml)
+- 2026-06-29 14:23 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/784611.shtml)
+- 2026-06-29 14:24 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/382147386409.shtml)
+- 2026-06-29 14:14 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/5903748.shtml)
+- 2026-06-29 14:18 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/75065332813.shtml)
+- 2026-06-29 14:07 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/09266980000.shtml)
+- 2026-06-29 14:12 - [【独家】牧神记 第89集 明心](https://www.share.minike.top/Article/details/574081151628.shtml)
+- 2026-06-29 14:16 - [未来5年全国能源体系将呈现这些特征](https://www.share.kurohicncr.top/Article/details/8581419561.shtml)
+- 2026-06-29 14:30 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/92024.shtml)
+- 2026-06-29 14:11 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/0304292.shtml)
+- 2026-06-29 14:32 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/7972821055.shtml)
+- 2026-06-29 14:27 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/18162.shtml)
+- 2026-06-29 14:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/7941986738.shtml)
+- 2026-06-29 14:29 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/67096448.shtml)
+- 2026-06-29 14:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/86840483156.shtml)

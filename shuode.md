@@ -1,60 +1,56 @@
-# 四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元
+# 追光的你 | “年轻的事业”走向世界舞台
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-四只获批，商业不动产REITs要来了！ 来源：金融时报 近日，证监会网站披露准予4只商业不动产REITs注册的批复，我国公募REITs市场再迈出坚实一步。 具体来看，4只获批产品分别为中金唯品会封闭式商业不动产证券投资基金、汇添富上海地产封闭式商业不动产证券投资基金、国泰海通砂之船封闭式商业不动产证券投资基金和中信建投首农食品集团封闭式商业不动产证券投资基金，募资规模预计合计1
+昨天(29日)湿漉漉的阴雨天。“模速空间”3楼的一场创新创业青年大讨论却聊得热火朝天。 围绕“从‘年轻的事业’到‘世界的舞台’”这个话题，人工智能领域的创业者、科研精英、产业嘉宾，及来自上海创智学院的青年学子，围坐一起，碰撞思想的火花。 就在一年前，同样的地点，一场以“下一代智能体的自主进化”为主题的沙龙正在举行。习近平总书记高兴地参与进来，同现场青年创新人才亲切交流。大家纷纷
 
 ## 正文
 
-四只获批，商业不动产REITs要来了！
+昨天(29日)湿漉漉的阴雨天。
 
-来源：金融时报 近日，证监会网站披露准予4只商业不动产REITs注册的批复，我国公募REITs市场再迈出坚实一步。
+“模速空间”3楼的一场创新创业青年大讨论却聊得热火朝天。
 
-具体来看，4只获批产品分别为中金唯品会封闭式商业不动产证券投资基金、汇添富上海地产封闭式商业不动产证券投资基金、国泰海通砂之船封闭式商业不动产证券投资基金和中信建投首农食品集团封闭式商业不动产证券投资基金，募资规模预计合计145.18亿元。
+围绕“从‘年轻的事业’到‘世界的舞台’”这个话题，人工智能领域的创业者、科研精英、产业嘉宾，及来自上海创智学院的青年学子，围坐一起，碰撞思想的火花。
 
-与此同时，还有多只REITs产品正在推进审核注册工作。
+就在一年前，同样的地点，一场以“下一代智能体的自主进化”为主题的沙龙正在举行。
 
-据《金融时报》记者统计，截至目前，全市场已受理17只商业不动产REITs，参与方既有央国企，也涵盖外资企业、民企等主体，其中9只产品已答复反馈意见，正在稳步推进中。
+习近平总书记高兴地参与进来，同现场青年创新人才亲切交流。
 
-根据相关规定，前述四只REITs产品在完成发售前准备和网下询价与定价后，即可正式向投资者公开发售。
+大家纷纷向总书记汇报所在团队开展人工智能技术研究和产业应用的收获体会。
 
-中信证券基础设施和现代服务产业首席分析师陈聪预计，二季度开始，商业不动产REITs有望挂牌上市。
+走过这一年，这群年轻人始终牢记总书记殷殷嘱托。
 
-商业不动产REITs推出所带来的发行规模增长，将有助于繁荣整个市场生态，推动增量资金入市。
+他们中有的打通了实验室与产线的“最后一公里”，有的筑高了企业的技术壁垒，有的凭借领先技术助力相关项目完成产业化落地。
 
 ## 相关推荐
 
-- 2026-06-29 14:26 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 14:06 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 14:05 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 14:05 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 14:25 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 14:28 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 14:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 14:18 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 14:04 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 14:10 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 14:15 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 14:06 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 14:29 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 14:08 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 14:31 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 14:32 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 14:27 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 14:36 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 14:20 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 14:17 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 14:16 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 14:23 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 14:27 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 14:22 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/3936178.shtml)
-- 2026-06-29 14:14 - [啊啊啊](https://www.blog.minike.top/Article/details/273952529096.shtml)
-- 2026-06-29 14:16 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/5483806847.shtml)
-- 2026-06-29 14:07 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/213704.shtml)
-- 2026-06-29 14:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/69578711489.shtml)
-- 2026-06-29 14:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/947932.shtml)
-- 2026-06-29 14:29 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/858685532292.shtml)
-- 2026-06-29 14:02 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.minike.top/Article/details/314091.shtml)
-- 2026-06-29 14:12 - [俄军新型无人机战力如何](http://www.blog.kurohicncr.top/Article/details/4110913302.shtml)
-- 2026-06-29 14:23 - [毒液2](http://www.share.minike.top/Article/details/1414018860.shtml)
-- 2026-06-29 14:24 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/47275.shtml)
-- 2026-06-29 14:11 - [四川宜宾地震](http://www.share.minike.top/Article/details/958178679505.shtml)
-- 2026-06-29 14:09 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/481773631.shtml)
-- 2026-06-29 14:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/33113371313.shtml)
-- 2026-06-29 14:11 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.minike.top/Article/details/8715804.shtml)
+- 2026-06-29 14:30 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/3498866.shtml)
+- 2026-06-29 14:13 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/455882406.shtml)
+- 2026-06-29 14:35 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/161334.shtml)
+- 2026-06-29 14:18 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/7698789025.shtml)
+- 2026-06-29 14:28 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/960724870983.shtml)
+- 2026-06-29 14:14 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/55343.shtml)
+- 2026-06-29 14:11 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/71032910296.shtml)
+- 2026-06-29 14:27 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/381378835.shtml)
+- 2026-06-29 14:14 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/26048.shtml)
+- 2026-06-29 14:16 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/85792.shtml)
+- 2026-06-29 14:17 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/168644662755.shtml)
+- 2026-06-29 14:12 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/442575.shtml)
+- 2026-06-29 14:23 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/379287599.shtml)
+- 2026-06-29 14:09 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/28608926002.shtml)
+- 2026-06-29 14:20 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/469226.shtml)

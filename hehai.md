@@ -1,56 +1,58 @@
-# 湖南新田废弃砖厂变身智慧蔬菜产业园
+# 柯新平：一个时代的科学攀登
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网长沙4月27日电(卓宇斌)在湖南新田县龙泉街道鱼游村一处昔日废弃砖厂，正在上演一场种菜的技术变革。 由新田青云集团与山东寿光农控集团合作共建的新田寿光设施蔬菜示范产业园，正以“寿光技术+新田模式”，为新田设施农业补短板、树样板。走进鱼游村试验大棚，工人们正忙着采摘、分拣。 “大棚配备了水肥一体化和智能温控系统，水果黄瓜产量比传统种植高出两到三倍。这个‘玉玲珑’品种皮薄肉脆
+柯新平 北京怀柔科学城的实验站里，一束比太阳亮万亿倍的高能X射线穿透物质微观世界——3月20日，亚洲首个第四代高能量同步辐射光源HEPS启动首轮课题征集，迈入正式开放运行准备阶段。 从合肥到上海再到北京，我国同步辐射装置接连实现历史性跨越，走出了一条自主创新的“追光之路”。 这束光，折射出我国基础研究取得的重大突破，映照出一个时代科学攀登的坚实足迹。 加强基础研究，建设科技强国
 
 ## 正文
 
-中新网长沙4月27日电(卓宇斌)在湖南新田县龙泉街道鱼游村一处昔日废弃砖厂，正在上演一场种菜的技术变革。
+柯新平 北京怀柔科学城的实验站里，一束比太阳亮万亿倍的高能X射线穿透物质微观世界——3月20日，亚洲首个第四代高能量同步辐射光源HEPS启动首轮课题征集，迈入正式开放运行准备阶段。
 
-由新田青云集团与山东寿光农控集团合作共建的新田寿光设施蔬菜示范产业园，正以“寿光技术+新田模式”，为新田设施农业补短板、树样板。
+从合肥到上海再到北京，我国同步辐射装置接连实现历史性跨越，走出了一条自主创新的“追光之路”。
 
-走进鱼游村试验大棚，工人们正忙着采摘、分拣。
+这束光，折射出我国基础研究取得的重大突破，映照出一个时代科学攀登的坚实足迹。
 
-“大棚配备了水肥一体化和智能温控系统，水果黄瓜产量比传统种植高出两到三倍。
+加强基础研究，建设科技强国的必由之路。
 
-这个‘玉玲珑’品种皮薄肉脆、口感特别清爽，在粤港澳市场很受欢迎。
+当新一轮科技革命与产业变革深度重塑全球竞争格局，基础研究成为大国博弈的前沿阵地，成为决胜未来的时代大考。
 
-”寿光农控集团驻新田项目技术员张文明介绍，试验棚已成功种植西红柿、黄瓜、辣椒三大类13个品种，陆续挂果并进入采收期。
+党的十八大以来，以习近平同志为核心的党中央高瞻远瞩、系统谋划，坚持以“四个面向”为战略方向，以新型举国体制为关键支撑，以体制机制改革为重要抓手，坚持目标导向和自由探索“两条腿走路”，积极构建基础研究发展的“中国模式”，引领新时代基础研究驶入高质量发展快车道，部分领域实现了从“跟跑”“并跑”向“领跑”的历史性跨越。
 
-长期以来，新田蔬菜产业以露天种植为主，抗风险能力弱、标准化程度低、市场议价能力不足。
+战略引领：擘画基础研究高质量发展蓝图 “科技创新的源头”——这是以习近平同志为核心的党中央对新时代基础研究的定位，亦是作答时代考卷的战略起点。
 
-新田寿光设施蔬菜示范产业园是新田县补齐设施农业短板的重点工程。
+面对奔涌向前的全球科技浪潮，面对产业变革迭代提速的迫切需求和关键核心技术受制于人的严峻挑战，习近平总书记洞察历史规律，把握时代大势，深刻阐明“基础研究”这一创新“源头”的重大意义。
 
 ## 相关推荐
 
-- 2026-06-29 14:04 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 14:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 14:08 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 14:27 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 14:23 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 14:17 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 14:11 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 14:19 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 14:22 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 14:05 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 14:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 14:25 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 14:18 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 14:15 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 14:34 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 14:17 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 14:26 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 14:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 14:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 14:24 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 14:26 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 14:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:00 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/131728972591.shtml)
-- 2026-06-29 14:23 - [第一炉香](https://www.blog.minike.top/Article/details/545746591797.shtml)
-- 2026-06-29 14:06 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/68048577409.shtml)
-- 2026-06-29 14:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/807379745.shtml)
-- 2026-06-29 14:19 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/08631.shtml)
-- 2026-06-29 14:18 - [王佳佳江疏影13年前后同框对比](http://www.share.minike.top/Article/details/581879315728.shtml)
-- 2026-06-29 14:06 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/098451.shtml)
-- 2026-06-29 14:05 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/81500864144.shtml)
-- 2026-06-29 14:09 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/9426544.shtml)
-- 2026-06-29 14:20 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/08043406.shtml)
-- 2026-06-29 14:02 - [久坐小心“死臀综合征”](http://www.share.kurohicncr.top/Article/details/093658664.shtml)
-- 2026-06-29 14:07 - [俄军新型无人机战力如何](http://www.blog.minike.top/Article/details/696411483183.shtml)
-- 2026-06-29 14:27 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/442833365172.shtml)
-- 2026-06-29 14:05 - [天道](http://www.share.minike.top/Article/details/56066.shtml)
-- 2026-06-29 14:17 - [F1奥地利正赛战报](https://www.share.minike.top/Article/details/8560484.shtml)
+- 2026-06-29 14:11 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/592687.shtml)
+- 2026-06-29 14:16 - [王楚钦3比0周启豪](http://www.share.minike.top/Article/details/61143.shtml)
+- 2026-06-29 14:27 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/5225633801.shtml)
+- 2026-06-29 14:14 - [医药股集体爆发](http://www.blog.minike.top/Article/details/90480896844.shtml)
+- 2026-06-29 14:20 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.minike.top/Article/details/15855217127.shtml)
+- 2026-06-29 14:07 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/24535044069.shtml)
+- 2026-06-29 14:08 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/140660227.shtml)
+- 2026-06-29 14:16 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.kurohicncr.top/Article/details/7951760245.shtml)
+- 2026-06-29 14:32 - [医药股集体爆发](https://www.blog.minike.top/Article/details/5103312.shtml)
+- 2026-06-29 14:32 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/985519958031.shtml)
+- 2026-06-29 14:16 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/09280173.shtml)
+- 2026-06-29 14:26 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/5766137.shtml)
+- 2026-06-29 14:22 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/330908449622.shtml)
+- 2026-06-29 14:08 - [千与千寻](https://www.blog.minike.top/Article/details/013001.shtml)
+- 2026-06-29 14:28 - [急先锋](http://www.share.kurohicncr.top/Article/details/62150630129.shtml)

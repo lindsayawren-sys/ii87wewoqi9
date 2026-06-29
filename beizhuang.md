@@ -1,59 +1,61 @@
-# 博时市场点评4月28日：沪深两市调整，创业板跌超1.4%
+# 民间救援者起底电诈园，称最恨“蛇头”，救人靠找“硬”关系谈钱
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-🌟【博时市场点评4月28日】沪深两市调整，创业板跌超1.4% 📝每日观点 🎈今日沪深三大指数调整，沪指调整0.19%，创业板指跌1.43%，两市成交较昨日缩量至2.55万亿。据新华社北京消息，中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。本次中央政治局会议延续稳中求进、抓落实的政策主线，在宏观层面强调更加积极的财政+适度宽松的货币，着力扩大内需与优化供给；在
+中新网北京4月29日电 (刘洋)近日，“女生受邀去泰国泼水节被转卖电诈园”一事引发全网关注，电诈园区的诱骗套路、当事人能否逃出生天再次成为焦点。 为何被骗至电诈园区的事件屡出不穷？旅游路上是否会被强行拉走？记者连线民间救援人员和曾误入电诈园区的当事人，起底电诈园区和救援内情。 苏磊从事电诈园区受害者救援工作近2年。去年，他曾耗时半年将一名中国留学生从电诈园区中解救出来。 该名在
 
 ## 正文
 
-🌟【博时市场点评4月28日】沪深两市调整，创业板跌超1.4% 📝每日观点 🎈今日沪深三大指数调整，沪指调整0.19%，创业板指跌1.43%，两市成交较昨日缩量至2.55万亿。
+中新网北京4月29日电 (刘洋)近日，“女生受邀去泰国泼水节被转卖电诈园”一事引发全网关注，电诈园区的诱骗套路、当事人能否逃出生天再次成为焦点。
 
-据新华社北京消息，中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。
+为何被骗至电诈园区的事件屡出不穷？
 
-本次中央政治局会议延续稳中求进、抓落实的政策主线，在宏观层面强调更加积极的财政+适度宽松的货币，着力扩大内需与优化供给；在结构层面以新型基础设施+人工智能+现代化产业体系为抓手，突出能源资源安全与全国统一大市场建设，房地产则以稳市场+城市更新与地方债务化解并重，同时明确提出稳定和增强资本市场信心。
+旅游路上是否会被强行拉走？
 
-结合一季度“开门红”、PPI转正与进出口加速的基本面情况，政策更偏向加快既有工具落地而非强刺激，守住底线、优化结构与提质增效成为主线。
+记者连线民间救援人员和曾误入电诈园区的当事人，起底电诈园区和救援内情。
 
-国内权益方面，目前核心问题是业绩验证能否支撑前期估值扩张，短期或继续呈现“指数震荡、结构轮动”的路径，结构上或可关注“红利底仓+景气成长”的哑铃配置。
+苏磊从事电诈园区受害者救援工作近2年。
 
-🔥消息面 🎈4月28日，中共中央政治局召开会议，分析研究当前经济形势和经济工作。
+去年，他曾耗时半年将一名中国留学生从电诈园区中解救出来。
 
-会议提出“四稳”：稳就业、稳企业、稳市场、稳预期。
+该名在韩留学生在招聘群内看到“带烟”的兼职。
 
-要求加紧实施更加积极的财政政策和适度宽松的货币政策，适时降准降息，创设新的结构性货币政策工具。
+中介告知他，回国途中从首尔转机到泰国，把香烟交给指定人员就能拿到一笔小费。
 
 ## 相关推荐
 
-- 2026-06-29 14:03 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 14:29 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 14:23 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 14:02 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 14:02 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 14:15 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 14:02 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 14:17 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 14:19 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 14:20 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 14:19 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 14:17 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 14:29 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 14:32 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 14:34 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 14:35 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 14:08 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 14:30 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 14:34 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 14:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 14:29 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 14:32 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 14:23 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 14:24 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 14:21 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 14:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 14:13 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 14:08 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/93910917.shtml)
-- 2026-06-29 14:12 - [毒液2](https://www.blog.kurohicncr.top/Article/details/56453184707.shtml)
-- 2026-06-29 14:06 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/524921837.shtml)
-- 2026-06-29 14:21 - [一生一世](https://www.blog.kurohicncr.top/Article/details/5763359497.shtml)
-- 2026-06-29 14:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/55419816879.shtml)
-- 2026-06-29 14:21 - [逃狱兄弟](https://www.blog.minike.top/Article/details/8118259660.shtml)
-- 2026-06-29 14:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/921468381.shtml)
-- 2026-06-29 14:12 - [《昨夜将至》为何是悬疑黑马](https://www.blog.minike.top/Article/details/21948379571.shtml)
-- 2026-06-29 14:11 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/1919831.shtml)
-- 2026-06-29 14:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/2171600.shtml)
-- 2026-06-29 14:16 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/74036.shtml)
-- 2026-06-29 14:24 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/761550415925.shtml)
-- 2026-06-29 14:13 - [爱很美味](https://www.blog.minike.top/Article/details/03568068009.shtml)
-- 2026-06-29 14:07 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/5000636.shtml)
-- 2026-06-29 14:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/714010612.shtml)
+- 2026-06-29 14:12 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/116345144472.shtml)
+- 2026-06-29 14:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/257368781.shtml)
+- 2026-06-29 14:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/370986.shtml)
+- 2026-06-29 14:09 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/91211.shtml)
+- 2026-06-29 14:19 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/049017321798.shtml)
+- 2026-06-29 14:29 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/39096759756.shtml)
+- 2026-06-29 14:11 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/77294223583.shtml)
+- 2026-06-29 14:26 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/247756.shtml)
+- 2026-06-29 14:17 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/49569.shtml)
+- 2026-06-29 14:31 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/65114.shtml)
+- 2026-06-29 14:06 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/46795143618.shtml)
+- 2026-06-29 14:35 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/3619086.shtml)
+- 2026-06-29 14:15 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/384072772251.shtml)
+- 2026-06-29 14:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/056451449.shtml)
+- 2026-06-29 14:34 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/5926347706.shtml)

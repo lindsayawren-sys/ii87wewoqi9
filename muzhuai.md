@@ -1,57 +1,50 @@
-# 财经早报：国家创业投资引导基金首投量子赛道 百亿级私募一季度调仓曝光丨2026年4月28日
+# 4月29日增减持汇总：华大九天披露增持情况，彤程新材等4股拟减持（表）
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 【头条要闻】 穆迪维持我国主权信用评级并上调展望至“稳定” 近日，穆迪国际信用评级公司发布报告称，决定维持中国主权信用评级“A1”，并将展望调升至“稳定”。对此，财政部有关负责人4月27日作出回应，对穆迪作出的决定表示赞赏，指出这次评级体现了穆迪高度认可中国宏观经济和财政实力在外部冲击下展现出的强大韧性，以及中国经济高质量发展的
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据统计，4月29日盘后，华大九天披露增持情况，彤程新材、富特科技、坤泰股份、思特威4家A股上市公司披露拟减持情况。 责任编辑：宋雅芳
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 【头条要闻】 穆迪维持我国主权信用评级并上调展望至“稳定” 近日，穆迪国际信用评级公司发布报告称，决定维持中国主权信用评级“A1”，并将展望调升至“稳定”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-对此，财政部有关负责人4月27日作出回应，对穆迪作出的决定表示赞赏，指出这次评级体现了穆迪高度认可中国宏观经济和财政实力在外部冲击下展现出的强大韧性，以及中国经济高质量发展的新动能和新进展。
+据统计，4月29日盘后，华大九天披露增持情况，彤程新材、富特科技、坤泰股份、思特威4家A股上市公司披露拟减持情况。
 
-过去五年，中国国内生产总值（GDP）累计增量超过35万亿元，相当于再造一个“长三角”的经济体量。
-
-即便历经多重风险挑战，“十四五”时期中国经济仍保持了年均5.4%的增速，对世界经济增长的贡献率稳定在30%左右。
-
-今年是“十五五”规划的开局之年，一季度中国经济实现高达5%的快速增长，超出市场预期。
-
-特朗普开会讨论伊朗新提案：不直接拒绝，但心存疑虑 莱维特说，不确定会议是否已经结束，但相关方案确实在讨论中。
-
-不过，她“不想抢在总统或其国家安全团队之前发表言论”。
-
-据美国阿克西奥斯新闻网站26日报道，一名美国官员和两名知情人士表示，美国已收到伊朗通过巴基斯坦转交的谈判新方案。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 14:07 - [曾沛慈夺冠后人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 14:12 - [人民日报评“AI脸看腻了”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 14:11 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 14:20 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 14:25 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 14:19 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 14:02 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 14:26 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 14:29 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 14:27 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 14:17 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 14:23 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 14:25 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 14:09 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 14:08 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 14:16 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 14:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 14:11 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 14:28 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 14:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 14:15 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 14:28 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 14:15 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 14:10 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:01 - [海军舰艇编队将赴香港](https://www.share.kurohicncr.top/Article/details/83197534.shtml)
-- 2026-06-29 14:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/4323895.shtml)
-- 2026-06-29 14:19 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/5332300545.shtml)
-- 2026-06-29 14:09 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/669197154.shtml)
-- 2026-06-29 14:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/14092988.shtml)
-- 2026-06-29 14:11 - [血糖高的人能吃西瓜吗](https://www.blog.minike.top/Article/details/9332849.shtml)
-- 2026-06-29 14:23 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/3611459611.shtml)
-- 2026-06-29 14:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/546250.shtml)
-- 2026-06-29 14:08 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/871513201.shtml)
-- 2026-06-29 14:18 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/037220857474.shtml)
-- 2026-06-29 14:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/94875710.shtml)
-- 2026-06-29 14:27 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/03287.shtml)
-- 2026-06-29 14:27 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/8692142.shtml)
-- 2026-06-29 14:19 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/40869313.shtml)
-- 2026-06-29 14:29 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/215047493940.shtml)
+- 2026-06-29 14:35 - [智界V9成为高端圈层共同选择](http://www.blog.minike.top/Article/details/63349838.shtml)
+- 2026-06-29 14:26 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.kurohicncr.top/Article/details/0147747928.shtml)
+- 2026-06-29 14:25 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/753548117.shtml)
+- 2026-06-29 14:13 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/43258536171.shtml)
+- 2026-06-29 14:30 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/1824834667.shtml)
+- 2026-06-29 14:32 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.kurohicncr.top/Article/details/727764916.shtml)
+- 2026-06-29 14:25 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/44202039.shtml)
+- 2026-06-29 14:10 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/341619.shtml)
+- 2026-06-29 14:15 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/55189325.shtml)
+- 2026-06-29 14:10 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/7077208.shtml)
+- 2026-06-29 14:26 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/524690794.shtml)
+- 2026-06-29 14:10 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/96001.shtml)
+- 2026-06-29 14:34 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/87460278.shtml)
+- 2026-06-29 14:34 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/1453805.shtml)
+- 2026-06-29 14:20 - [欧委会总部只给高层开空调](http://www.share.kurohicncr.top/Article/details/254680.shtml)

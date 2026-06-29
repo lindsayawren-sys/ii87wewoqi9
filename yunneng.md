@@ -1,61 +1,58 @@
-# 南亚、东南亚多国政商界代表贵阳话合作新机遇
+# Whitbread拟出售回租20亿美元物业，股价应声下跌
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网贵阳4月27日电 (记者 周燕玲)“中国作为世界第二大经济体，是全球发展的关键参与者。依托各类合作倡议，马中两国迎来教育、文化等领域全面战略合作的新机遇。”马尔代夫经济发展、交通和贸易部国务部长阿卜杜拉·西亚兹27日在贵阳举行的“一带一路”中国(贵州)——南亚、东南亚工商界合作对话会上说。 由马尔代夫、尼泊尔、印度等9国政党经济事务负责人、政府官员、商协会代表和企业家共同
+专题：聚焦美股2026年第一季度财报 截至 2 月 26 日本财年，Whitbread利润出现萎缩 酒店集团Whitbread（Whitbread） 宣布将通过售后回租方式处置价值15 亿英镑（约 20.2 亿美元） 的物业资产，同时推出转型重组计划，或伴随数千人裁员。消息公布后，公司股价走低。 作为普利米尔连锁酒店（Premier Inn）母公司，Whitbread推出全新五
 
 ## 正文
 
-中新网贵阳4月27日电 (记者 周燕玲)“中国作为世界第二大经济体，是全球发展的关键参与者。
+专题：聚焦美股2026年第一季度财报 截至 2 月 26 日本财年，Whitbread利润出现萎缩 酒店集团Whitbread（Whitbread） 宣布将通过售后回租方式处置价值15 亿英镑（约 20.2 亿美元） 的物业资产，同时推出转型重组计划，或伴随数千人裁员。
 
-依托各类合作倡议，马中两国迎来教育、文化等领域全面战略合作的新机遇。
+消息公布后，公司股价走低。
 
-”马尔代夫经济发展、交通和贸易部国务部长阿卜杜拉·西亚兹27日在贵阳举行的“一带一路”中国(贵州)——南亚、东南亚工商界合作对话会上说。
+作为普利米尔连锁酒店（Premier Inn）母公司，Whitbread推出全新五年战略规划，预计到 2031 财年，将为公司新增 2.75 亿英镑调整后税前利润。
 
-由马尔代夫、尼泊尔、印度等9国政党经济事务负责人、政府官员、商协会代表和企业家共同组成的南亚、东南亚多国政商界联合考察团近日来贵州考察。
+公司净资本支出将缩减超 10 亿英镑，后续增长性资本开支，将通过出售、盘活及循环利用自有永久产权物业来提供资金。
 
-中国经济联络中心主任可志忠表示，中国同南亚、东南亚各国是山水相连的好邻邦和命运与共的合作伙伴，中国秉持亲诚惠容理念，以高质量共建“一带一路”为平台，以绿色化、智能化、融合化发展现代化产业，为南亚、东南亚国家深化合作提供机遇与空间。
+Whitbread称，该计划预计可释放20 亿英镑自由现金流，未来可用于向股东进行现金回报分红。
 
-贵州资源丰富，与南亚、东南亚国家经贸优势互补，希望各方抓住机遇、深化交流，取得更多合作成果。
+重组计划或将裁撤英国及爱尔兰地区逾 10% 员工，该区域现有员工约 3 万人。
 
-近年来，贵州持续加强与东南亚、南亚国家的合作，这一区域已成为贵州企业“出海”拓展市场的重要版图。
+公司表示，相关方案仍需与员工协商沟通，并会通过内部转岗等方式尽量安置人员。
 
-贵州省商务厅副厅长朱霖毅表示，东南亚等地区是贵州对外开放的主攻方向，希望进一步推动与相关国家在制造业、农业、旅游业等领域的务实合作。
+公司伦敦上市股票早盘大跌5.4%，报 22.56 英镑；年内累计跌幅已超 11%。
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 14:15 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 14:14 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 14:02 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 14:10 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-29 14:23 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 14:00 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 14:08 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 14:24 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 14:20 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 14:10 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 14:11 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 14:07 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 14:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 14:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 14:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 14:16 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 14:12 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 14:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 14:24 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 14:26 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 14:21 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 14:06 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 14:24 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 14:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 14:20 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 14:24 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [唐艺昕女儿接唐艺昕回家](http://www.blog.kurohicncr.top/Article/details/11849474.shtml)
-- 2026-06-29 14:15 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/531131.shtml)
-- 2026-06-29 14:10 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/690246200.shtml)
-- 2026-06-29 14:17 - [发反科学内容为何会有200万粉丝](http://www.share.minike.top/Article/details/565836297859.shtml)
-- 2026-06-29 14:08 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/5765211.shtml)
-- 2026-06-29 14:10 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/008778.shtml)
-- 2026-06-29 14:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/3891788.shtml)
-- 2026-06-29 14:21 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/339619134.shtml)
-- 2026-06-29 14:25 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/046908.shtml)
-- 2026-06-29 14:12 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/148212688432.shtml)
-- 2026-06-29 14:29 - [韩国队启程回国众将回避镜头](http://www.share.minike.top/Article/details/930774792803.shtml)
-- 2026-06-29 14:19 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/84858.shtml)
-- 2026-06-29 14:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/4501299.shtml)
-- 2026-06-29 14:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/4906394913.shtml)
-- 2026-06-29 14:17 - [斛珠夫人](http://www.share.minike.top/Article/details/41501.shtml)
+- 2026-06-29 14:15 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/344613.shtml)
+- 2026-06-29 14:18 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/84900705183.shtml)
+- 2026-06-29 14:14 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/12148608645.shtml)
+- 2026-06-29 14:21 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/288054737414.shtml)
+- 2026-06-29 14:29 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/63725390.shtml)
+- 2026-06-29 14:10 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/047789.shtml)
+- 2026-06-29 14:15 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/86822881850.shtml)
+- 2026-06-29 14:32 - [强⁶](https://www.share.minike.top/Article/details/6368829418.shtml)
+- 2026-06-29 14:13 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/5490259.shtml)
+- 2026-06-29 14:34 - [俄称继续推进 乌称打击俄军设施](https://www.share.kurohicncr.top/Article/details/332192679.shtml)
+- 2026-06-29 14:32 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/497048.shtml)
+- 2026-06-29 14:30 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/580909689.shtml)
+- 2026-06-29 14:12 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/6506740536.shtml)
+- 2026-06-29 14:30 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/793642595943.shtml)
+- 2026-06-29 14:16 - [薛之谦演唱会](https://www.share.minike.top/Article/details/2527833.shtml)

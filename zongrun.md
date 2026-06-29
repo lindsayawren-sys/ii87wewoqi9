@@ -1,58 +1,60 @@
-# 美国股市：标普500指数刷新纪录高点 投资者准备迎接科技巨头财报
+# 香江观澜：生物医药成香港经济多元发展新引擎
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-美国股市周一收盘微涨，刷新纪录高点，英伟达创新高，一系列巨头企业即将披露财报，这些财报将考验4月这轮涨势能否持续。同时，交易员在等待各大央行就伊朗战争带来的经济影响给出最新评估。 尽管油价上涨背景下，股市涨势放缓，但市场仍延续升势，标普500指数有望录得自2020年以来最佳单月表现。 在地缘政治前景仍不明朗之际，投资者准备迎接多家科技巨头的业绩披露，这些公司合计市值接近16万亿
+中新社香港4月30日电 题：生物医药成香港经济多元发展新引擎 中新社记者 香卢平 创新药企迈威生物本周在香港上市，成为首家以“A股科创板+港股18A”方式上市的未盈利生物科技企业，开创资本市场先河。同日，香港特区政府投资推广署宣布，4家来自瑞士、法国的医疗科创企业将进驻港深创新及科技园(即河套深港科技创新合作区香港园区)。全球药企“用脚投票”，香港生物医药枢纽定位正获得市场有力
 
 ## 正文
 
-美国股市周一收盘微涨，刷新纪录高点，英伟达创新高，一系列巨头企业即将披露财报，这些财报将考验4月这轮涨势能否持续。
+中新社香港4月30日电 题：生物医药成香港经济多元发展新引擎 中新社记者 香卢平 创新药企迈威生物本周在香港上市，成为首家以“A股科创板+港股18A”方式上市的未盈利生物科技企业，开创资本市场先河。
 
-同时，交易员在等待各大央行就伊朗战争带来的经济影响给出最新评估。
+同日，香港特区政府投资推广署宣布，4家来自瑞士、法国的医疗科创企业将进驻港深创新及科技园(即河套深港科技创新合作区香港园区)。
 
-尽管油价上涨背景下，股市涨势放缓，但市场仍延续升势，标普500指数有望录得自2020年以来最佳单月表现。
+全球药企“用脚投票”，香港生物医药枢纽定位正获得市场有力验证。
 
-在地缘政治前景仍不明朗之际，投资者准备迎接多家科技巨头的业绩披露，这些公司合计市值接近16万亿美元，占该基准指数总市值的四分之一。
+全球巨头加速抢滩布局，产业集聚效应持续凸显。
 
-“这是财报季最重要的一周，”资深策略师Louis Navellier表示，“鉴于近期市场上涨主要由人工智能主题驱动，‘七巨头’的前景与支出计划将是维持这种势头的关键”。
+今年前4个月，香港已引入17家生命科技企业，带动逾13亿港元投资。
 
-白宫表示，美国官员正在讨论伊朗的最新提议，但坚称任何结束战争的协议都存在不可逾越的红线，包括必须阻止德黑兰获得核武器。
+在日前公布的特区政府引进的第六批重点企业名单中，全球制药巨头辉瑞在列，至此全球十大药厂已有半数落户香港，特区政府更明确提出吸引全球十大药企全部落户香港的目标。
 
-本周美联储、欧洲央行、以及日本、英国和加拿大的央行也将陆续公布利率决定，这些经济体合计约占全球经济的一半。
+不同于以往科创发展的泛化布局，此番全球顶尖生物科技资源持续向香港集聚，意味着香港打造国际生物医药枢纽，已稳步迈向产业生态逐步完善的新阶段。
 
-尽管投资者预计这些央行将按兵不动，但市场仍将密切关注美联储主席杰罗姆·鲍威尔和欧洲央行行长克里斯蒂娜·拉加德等官员是否对战争导致石油供应中断所带来的通胀威胁感到担忧。
+香港贸易发展局去年9月发表的报告显示，香港生物医药企业总数超3000家，10年增长近30%。
 
 ## 相关推荐
 
-- 2026-06-29 14:07 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 14:06 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 14:07 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 14:07 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 14:12 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 14:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 14:09 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 14:06 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 14:18 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 14:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 14:01 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 14:09 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 14:18 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 14:27 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 14:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 14:08 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 14:26 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 14:35 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 14:20 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 14:23 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 14:15 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 14:21 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 14:24 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 14:21 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 14:15 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 14:33 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:17 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/65611.shtml)
-- 2026-06-29 14:18 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.kurohicncr.top/Article/details/260676.shtml)
-- 2026-06-29 14:25 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/92020.shtml)
-- 2026-06-29 14:14 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/61035790.shtml)
-- 2026-06-29 14:18 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/734131579638.shtml)
-- 2026-06-29 14:13 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/414891207078.shtml)
-- 2026-06-29 14:08 - [AG 钟意](http://www.share.kurohicncr.top/Article/details/312010.shtml)
-- 2026-06-29 14:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/26657610.shtml)
-- 2026-06-29 14:12 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/736536197.shtml)
-- 2026-06-29 14:04 - [爱很美味](https://www.share.kurohicncr.top/Article/details/868138274.shtml)
-- 2026-06-29 14:14 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/91060.shtml)
-- 2026-06-29 14:07 - [美人鱼](http://www.share.minike.top/Article/details/5232729.shtml)
-- 2026-06-29 14:18 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/51171245.shtml)
-- 2026-06-29 14:05 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/61997.shtml)
-- 2026-06-29 14:08 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/82446261495.shtml)
+- 2026-06-29 14:11 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/003478718.shtml)
+- 2026-06-29 14:30 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/7672580071.shtml)
+- 2026-06-29 14:35 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/8310247.shtml)
+- 2026-06-29 14:08 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/9458020.shtml)
+- 2026-06-29 14:34 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.kurohicncr.top/Article/details/0548632492.shtml)
+- 2026-06-29 14:36 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/7057372.shtml)
+- 2026-06-29 14:34 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/66826.shtml)
+- 2026-06-29 14:26 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.minike.top/Article/details/09138.shtml)
+- 2026-06-29 14:11 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/33829763086.shtml)
+- 2026-06-29 14:33 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/0275985.shtml)
+- 2026-06-29 14:18 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/48228755021.shtml)
+- 2026-06-29 14:30 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/22001672097.shtml)
+- 2026-06-29 14:34 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/2135157.shtml)
+- 2026-06-29 14:15 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/8314181.shtml)
+- 2026-06-29 14:18 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/257454.shtml)

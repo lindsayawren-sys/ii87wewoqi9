@@ -1,61 +1,59 @@
-# 俞敏洪，再次“灭火”
+# 民企最低！滨江集团债券类融资成本击穿3%
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-新京报贝壳财经记者 丁爽 编辑 王进雨 校对 穆祥桐 俞敏洪，再一次因主播出走紧急灭火。 4月25日，东方甄选主播明明、天权、中灿、林林陆续在个人社交平台发长文宣布，离开东方甄选。 在当日的直播中，东方甄选董事长俞敏洪谈道，公司充分尊重主播的个人职业规划与选择，同时将针对此次事件全面复盘内部管理问题。他坦言，管理层调整后，公司管理方式出现偏差，过度侧重制度管控，忽视团队人文关怀
+4月28日，滨江集团（002244.SZ）成功发行2026年第一期短期融资券，规模6亿元人民币，利率2.07%，创下民营房企历史新低。据了解，此次短期融资券全场认购倍数4.13倍。各家银行金融市场部中标的金额为0，中标主体全为市场化金融机构。 这是滨江集团今年以来第二次债券发行，此前的3月份，滨江集团发行了6亿元2年期中期票据，利率2.75%。此次短期融资券2.07%的票息与央
 
 ## 正文
 
-新京报贝壳财经记者 丁爽 编辑 王进雨 校对 穆祥桐 俞敏洪，再一次因主播出走紧急灭火。
+4月28日，滨江集团（002244.SZ）成功发行2026年第一期短期融资券，规模6亿元人民币，利率2.07%，创下民营房企历史新低。
 
-4月25日，东方甄选主播明明、天权、中灿、林林陆续在个人社交平台发长文宣布，离开东方甄选。
+据了解，此次短期融资券全场认购倍数4.13倍。
 
-在当日的直播中，东方甄选董事长俞敏洪谈道，公司充分尊重主播的个人职业规划与选择，同时将针对此次事件全面复盘内部管理问题。
+各家银行金融市场部中标的金额为0，中标主体全为市场化金融机构。
 
-他坦言，管理层调整后，公司管理方式出现偏差，过度侧重制度管控，忽视团队人文关怀，导致团队氛围出现问题。
+这是滨江集团今年以来第二次债券发行，此前的3月份，滨江集团发行了6亿元2年期中期票据，利率2.75%。
 
-后续东方甄选将优化管理模式，平衡制度化运营与人文关怀，整改僵化、高压的管理问题。
+此次短期融资券2.07%的票息与央企头部房企融资成本水平相当，再次创下了民营房企债券类融资成本新低。
 
-这一幕似曾相识。
+据滨江集团2025年年报数据，公司全年综合融资成本降至3.0%，较2024年进一步下降0.4个百分点，年内发行的中期票据利率低至2.85%。
 
-2024年7月，董宇辉离职、“与辉同行”剥离时，东方甄选遭遇了前所未有的危机。
+这一融资成本几乎追平央企头部房企的融资成本。
 
-这一轮波澜，更像是“去头部化”战略留下的长期余震。
+以华润置地（01109.HK）为例，该公司近年来的债券类融资成本持续降低。
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 14:04 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 14:24 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 14:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 14:26 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 14:18 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 14:28 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 14:12 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 14:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 14:22 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 14:19 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 14:24 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 14:12 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 14:04 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 14:21 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 14:16 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 14:10 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 14:18 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 14:30 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 14:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 14:22 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 14:31 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 14:11 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 14:32 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 14:30 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 14:13 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 14:11 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 14:12 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/7408265649.shtml)
-- 2026-06-29 14:25 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.minike.top/Article/details/0013882.shtml)
-- 2026-06-29 14:14 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/0282331.shtml)
-- 2026-06-29 14:19 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/623041.shtml)
-- 2026-06-29 14:00 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/9472385936.shtml)
-- 2026-06-29 14:06 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/840720551947.shtml)
-- 2026-06-29 14:19 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/46637691739.shtml)
-- 2026-06-29 14:17 - [美人鱼](https://www.share.minike.top/Article/details/761863.shtml)
-- 2026-06-29 14:01 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/1912997.shtml)
-- 2026-06-29 14:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/98844996.shtml)
-- 2026-06-29 14:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/481017072133.shtml)
-- 2026-06-29 14:26 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/776102.shtml)
-- 2026-06-29 14:14 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/91718113.shtml)
-- 2026-06-29 14:28 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/0115040.shtml)
-- 2026-06-29 14:13 - [韩体育部长回应李在明痛批](https://www.share.minike.top/Article/details/28826178175.shtml)
+- 2026-06-29 14:35 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/89202227103.shtml)
+- 2026-06-29 14:19 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/8409663.shtml)
+- 2026-06-29 14:25 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/576230947.shtml)
+- 2026-06-29 14:33 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/3729289731.shtml)
+- 2026-06-29 14:08 - [航空运输旅客服务质量国标将实施](http://www.blog.kurohicncr.top/Article/details/358586154796.shtml)
+- 2026-06-29 14:28 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/02854929776.shtml)
+- 2026-06-29 14:22 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/926716.shtml)
+- 2026-06-29 14:35 - [金刚川](https://www.blog.kurohicncr.top/Article/details/9241597.shtml)
+- 2026-06-29 14:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/028874.shtml)
+- 2026-06-29 14:30 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/082363627.shtml)
+- 2026-06-29 14:24 - [中国避暑神器在欧洲卖爆了](http://www.blog.minike.top/Article/details/640013081074.shtml)
+- 2026-06-29 14:19 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/89626131.shtml)
+- 2026-06-29 14:34 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/65294.shtml)
+- 2026-06-29 14:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/10478740918.shtml)
+- 2026-06-29 14:30 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/88683644.shtml)

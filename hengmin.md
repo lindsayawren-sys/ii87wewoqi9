@@ -1,56 +1,58 @@
-# 美元走强，带动美元兑加元向上反弹
+# 中钢协：积极开展产能治理、产量调控、行业自律
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周二欧洲交易时段，美元/加元汇率震荡走高，主要受到地缘局势紧张与市场避险情绪升温的共同推动。近期中东地区局势再度成为市场关注焦点，围绕霍尔木兹海峡通行问题的讨论增加，使能源供应前景的不确定性明显上升。由于该海峡承担着全球重要的能源运输功能，约20%的全球海运原油运输依赖该通道，任何潜在扰动都可能迅速影响市场定价机制。 美国方面，总统唐纳德·特朗普与其国家安全
+4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，后期要控总量，积极开展产能治理、产量调控、行业自律。 政府工作报告明确提出，综合运用产能调控、标准引领、价格执法、质量监管等手段，深入整治“内卷式”竞争，营造良好市场生态。钢铁行业要根除“内卷式”竞争，必须发挥制度优势，政府、行业、企业协同治理，在当前严格落实粗钢产量调控政策、不断优化调控机制的基础上，推动产能治理新机制尽
 
 ## 正文
 
-汇通财经APP讯——周二欧洲交易时段，美元/加元汇率震荡走高，主要受到地缘局势紧张与市场避险情绪升温的共同推动。
+4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，后期要控总量，积极开展产能治理、产量调控、行业自律。
 
-近期中东地区局势再度成为市场关注焦点，围绕霍尔木兹海峡通行问题的讨论增加，使能源供应前景的不确定性明显上升。
+政府工作报告明确提出，综合运用产能调控、标准引领、价格执法、质量监管等手段，深入整治“内卷式”竞争，营造良好市场生态。
 
-由于该海峡承担着全球重要的能源运输功能，约20%的全球海运原油运输依赖该通道，任何潜在扰动都可能迅速影响市场定价机制。
+钢铁行业要根除“内卷式”竞争，必须发挥制度优势，政府、行业、企业协同治理，在当前严格落实粗钢产量调控政策、不断优化调控机制的基础上，推动产能治理新机制尽快落地，采用市场化、法治化方式严控增量、优化存量、畅通退出，清理违法违规产能，淘汰技术落后、环境污染重、生产效率低的装备，建立完善科学有效的长效机制。
 
-美国方面，总统唐纳德·特朗普与其国家安全团队正在评估来自伊朗方面的缓和提议，该提议涉及停止冲突并恢复关键航道通行，同时将部分敏感议题延后处理。
+严格落实部分钢铁产品实施出口许可证管理措施，按照“促高端、稳周边、严监管”的导向，进一步优化出口结构、规范出口秩序，实现出口平稳有序、有效化解外部风险。
 
-然而，据白宫方面表态，目前相关提议能否被接受仍存在较大不确定性，这使得市场短期内难以形成明确预期。
+按照党中央、国务院关于治理价格无序竞争的工作部署，发挥行业协会作用，开展分品种产能监测预警工作，建立中国钢铁行业价格监督员制度，构建“监测—识别—报告—研判—调解—认定—处置”闭环工作机制，引导企业严格自律。
 
-在这一背景下，资金更倾向流入美元等避险资产，从而对加元形成阶段性压制。
+同时，按照《关于推动行业协会商会深化改革的意见》提出的“行业协会商会要建立健全行业自律管理制度和自律约束机制，依法开展行业信用评价工作，提升行业诚信建设水平”等工作要求，有效衔接价格监督与信用评价，将行业价格监督作为行业信用评价体系的重要内容。
 
-与此同时，市场注意力逐步转向即将公布的美联储利率决议。
-
-当前市场普遍预计，美联储将在本次会议上维持利率不变，目标区间预计维持在3.50%–3.75%。
+责任编辑：李铁民
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 14:03 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 14:20 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 14:21 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 14:08 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 14:29 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 14:05 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 14:25 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 14:20 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 14:17 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 14:32 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 14:12 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 14:08 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 14:24 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 14:20 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 14:33 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 14:32 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 14:35 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 14:26 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 14:12 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 14:10 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 14:17 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 14:22 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 14:24 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/942492703.shtml)
-- 2026-06-29 14:14 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/8235672510.shtml)
-- 2026-06-29 14:22 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/24841.shtml)
-- 2026-06-29 14:16 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/130576.shtml)
-- 2026-06-29 14:16 - [记者率先试乘西十高铁](https://www.share.minike.top/Article/details/478653.shtml)
-- 2026-06-29 14:15 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/185211702123.shtml)
-- 2026-06-29 14:20 - [媒体评恋与深空争议](https://www.blog.minike.top/Article/details/7967310570.shtml)
-- 2026-06-29 14:26 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/91376660.shtml)
-- 2026-06-29 14:26 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/9501230182.shtml)
-- 2026-06-29 14:22 - [周生如故](http://www.share.kurohicncr.top/Article/details/360724.shtml)
-- 2026-06-29 14:25 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/93793587.shtml)
-- 2026-06-29 14:00 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/472856678.shtml)
-- 2026-06-29 14:24 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/6785908937.shtml)
-- 2026-06-29 14:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/1724611759.shtml)
-- 2026-06-29 14:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/704288439115.shtml)
+- 2026-06-29 14:10 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/828494.shtml)
+- 2026-06-29 14:30 - [流金岁月](https://www.share.minike.top/Article/details/60138911379.shtml)
+- 2026-06-29 14:11 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/034971593.shtml)
+- 2026-06-29 14:15 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/001479458.shtml)
+- 2026-06-29 14:35 - [上班主打一个薪尽自然凉](https://www.blog.minike.top/Article/details/857554782460.shtml)
+- 2026-06-29 14:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/81678.shtml)
+- 2026-06-29 14:29 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/4558669.shtml)
+- 2026-06-29 14:35 - [复盘曾沛慈浪姐夺冠之路](https://www.share.kurohicncr.top/Article/details/48901.shtml)
+- 2026-06-29 14:30 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/96407.shtml)
+- 2026-06-29 14:24 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/85611953099.shtml)
+- 2026-06-29 14:10 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.minike.top/Article/details/597623213.shtml)
+- 2026-06-29 14:29 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/260741283447.shtml)
+- 2026-06-29 14:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/764611014.shtml)
+- 2026-06-29 14:33 - [沉睡花园](https://www.share.minike.top/Article/details/21748450.shtml)
+- 2026-06-29 14:12 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/879447524.shtml)

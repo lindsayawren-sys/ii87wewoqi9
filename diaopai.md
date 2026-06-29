@@ -1,59 +1,56 @@
-# 第139届广交会中国智造持续“圈粉” 展现外贸新优势
+# 全红婵将缺席2026全国跳水冠军赛
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网广州4月28日电 (记者 程景伟)第139届广交会4月15日至5月5日分三期在广州举行，从人形机器人、外骨骼机器人、无人机，到智能空调、智能冰箱，再到新能源汽车、动力电池等，中国智能制造产品持续“圈粉”境外采购商，展现了中国外贸新活力、新优势和强劲的韧性。 本届广交会参展企业超3.2万家，展示展品超465万件，其中新产品、绿色产品和自主知识产权产品占比分别达23%、22%
+新华社广州4月30日电(记者王浩明)记者30日从广东省二沙体育训练中心了解到，全红婵目前处于伤病调整期，暂不具备参赛的条件，将缺席即将举行的2026年全国跳水冠军赛。 广东省二沙体育训练中心跳水中心相关负责人介绍，2026年全国跳水冠军赛是广东省跳水队备战十六运周期的首场重要比赛。但全红婵处于伤病调整期，所以将更多专注于学业，缺席今年上半年各项比赛。 随着陈艾森、谢思埸、何超等
 
 ## 正文
 
-中新网广州4月28日电 (记者 程景伟)第139届广交会4月15日至5月5日分三期在广州举行，从人形机器人、外骨骼机器人、无人机，到智能空调、智能冰箱，再到新能源汽车、动力电池等，中国智能制造产品持续“圈粉”境外采购商，展现了中国外贸新活力、新优势和强劲的韧性。
+新华社广州4月30日电(记者王浩明)记者30日从广东省二沙体育训练中心了解到，全红婵目前处于伤病调整期，暂不具备参赛的条件，将缺席即将举行的2026年全国跳水冠军赛。
 
-本届广交会参展企业超3.2万家，展示展品超465万件，其中新产品、绿色产品和自主知识产权产品占比分别达23%、22%、25%。
+广东省二沙体育训练中心跳水中心相关负责人介绍，2026年全国跳水冠军赛是广东省跳水队备战十六运周期的首场重要比赛。
 
-参展企业中，拥有专精特新、单项冠军等称号的优质企业超1.1万家，其中61%的企业在生产或服务中应用工业互联网、人工智能、5G、绿色低碳等新技术新模式。
+但全红婵处于伤病调整期，所以将更多专注于学业，缺席今年上半年各项比赛。
 
-中国家电在全球市场长期拥有竞争优势，这与家电企业注重技术创新密不可分。
+随着陈艾森、谢思埸、何超等老将退役，广东省跳水队将以锻炼年轻队员为此次参赛的核心目标，着力为新周期队伍建设培育后备力量。
 
-本届广交会上，志高空调展出的AI空调新品，搭载高效WIFI与AI智能语音交互系统，可精准响应语音指令；同时，引入毫米波雷达感知技术，这相当于为空调装上了“眼睛”和“大脑”，可采集室内外温度、湿度、人员活动等数据，依托AI自主学习与动态优化算法，实现空调运行模式的智能调节。
+年轻队员将在实战中挑战极限、超越自我，积累宝贵比赛经验。
 
-本届广交会上，志高空调斩获来自欧洲、中东、东南亚等市场的大批意向订单。
+为备战此次赛事，广东省二沙体育训练中心跳水中心在冬训中科学制定训练计划，后勤保障全方位跟进；队员们在训练场上刻苦钻研，精雕细刻技术细节，持续优化身体与心理状态，力争在赛场上发挥最佳水平。
 
-志高空调海外营销公司副总经理李彪表示，今年一季度，志高空调内外销全线飘红，其中海外销量同比增长超过35%。
-
-目前，其自主品牌CHIGO已在120余国完成商标注册。
+中心输送到国家队的三名运动员——陈艺文、林珊、蒋林静，正在备战5月1日至3日将在北京举行的跳水世界杯总决赛。
 
 ## 相关推荐
 
-- 2026-06-29 14:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 14:07 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 14:18 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 14:27 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 14:16 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 14:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 14:24 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 14:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 14:06 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 14:23 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 14:19 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 14:06 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 14:15 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 14:16 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 14:06 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 14:19 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 14:12 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 14:29 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 14:06 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 14:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 14:34 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 14:29 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 14:31 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 14:26 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 14:23 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:25 - [C罗关心罗德里戈伤情](http://www.blog.kurohicncr.top/Article/details/252451.shtml)
-- 2026-06-29 14:05 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/96069253.shtml)
-- 2026-06-29 14:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/73881726621.shtml)
-- 2026-06-29 14:03 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/8619960.shtml)
-- 2026-06-29 14:09 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/588994794136.shtml)
-- 2026-06-29 14:08 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/6015562473.shtml)
-- 2026-06-29 14:13 - [小娘惹](https://www.blog.minike.top/Article/details/69593016149.shtml)
-- 2026-06-29 14:25 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/594358318849.shtml)
-- 2026-06-29 14:29 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/596061868.shtml)
-- 2026-06-29 14:06 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/779842043.shtml)
-- 2026-06-29 14:20 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/238985922.shtml)
-- 2026-06-29 14:05 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/7749383.shtml)
-- 2026-06-29 14:01 - [T1对战KC](https://www.share.minike.top/Article/details/8276154.shtml)
-- 2026-06-29 14:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/5012190431.shtml)
-- 2026-06-29 14:09 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/733168728.shtml)
+- 2026-06-29 14:30 - [AG冠军五人组轮换](https://www.blog.minike.top/Article/details/956722529.shtml)
+- 2026-06-29 14:33 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/9563651.shtml)
+- 2026-06-29 14:34 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/255757607890.shtml)
+- 2026-06-29 14:11 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/30811339663.shtml)
+- 2026-06-29 14:11 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/04237891943.shtml)
+- 2026-06-29 14:24 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.kurohicncr.top/Article/details/57837428.shtml)
+- 2026-06-29 14:18 - [东部机场集团新增釜山航线](https://www.share.kurohicncr.top/Article/details/46054907558.shtml)
+- 2026-06-29 14:13 - [世界杯看到肖战了](https://www.share.kurohicncr.top/Article/details/052125673822.shtml)
+- 2026-06-29 14:31 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/0277678215.shtml)
+- 2026-06-29 14:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/774761799.shtml)
+- 2026-06-29 14:23 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/44393.shtml)
+- 2026-06-29 14:24 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/881803861.shtml)
+- 2026-06-29 14:28 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/65841.shtml)
+- 2026-06-29 14:34 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/5004378380.shtml)
+- 2026-06-29 14:07 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.kurohicncr.top/Article/details/7653287.shtml)

@@ -1,60 +1,57 @@
-# 人工智能法案将严打深度伪造传播、保护举报人
+# 赣江观澜：奋进“十五五”，江西如何“赣”出新精彩？
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-核心要点 一项全新人工智能法案出炉（由 CNBC 率先报道），旨在严打深度伪造影像及未经许可影像的传播，同时降低举报门槛，方便举报人上报各类人工智能相关风险与违规问题。 该法案由加州民主党众议员特德・刘牵头起草，他与加州共和党众议员杰伊・奥伯恩诺尔特共同领导众议院两党人工智能特别工作组，法案内容基于该工作组的调研报告建议制定。 特德・刘在接受 CNBC 采访时表示，这项法案是行
+中新网南昌4月29日电 题：赣江观澜：奋进“十五五”，江西如何“赣”出新精彩？ 记者 吴鹏泉 刘力鑫 “十五五”时期是奋力谱写中国式现代化江西篇章的关键时期。江西官方28日举行“开局起步‘十五五’”江西专场新闻发布会，介绍该省推进“十五五”高质量发展的主要目标和重大任务。奋进“十五五”，江西如何“赣”出新精彩？ 加快构建现代化产业体系 江西工业门类齐全、基础良好，拥有41个工业
 
 ## 正文
 
-核心要点 一项全新人工智能法案出炉（由 CNBC 率先报道），旨在严打深度伪造影像及未经许可影像的传播，同时降低举报门槛，方便举报人上报各类人工智能相关风险与违规问题。
+中新网南昌4月29日电 题：赣江观澜：奋进“十五五”，江西如何“赣”出新精彩？
 
-该法案由加州民主党众议员特德・刘牵头起草，他与加州共和党众议员杰伊・奥伯恩诺尔特共同领导众议院两党人工智能特别工作组，法案内容基于该工作组的调研报告建议制定。
+记者 吴鹏泉 刘力鑫 “十五五”时期是奋力谱写中国式现代化江西篇章的关键时期。
 
-特德・刘在接受 CNBC 采访时表示，这项法案是行业监管的重要进展。
+江西官方28日举行“开局起步‘十五五’”江西专场新闻发布会，介绍该省推进“十五五”高质量发展的主要目标和重大任务。
 
-他称：“法案无意制造争议，条文参考了其他议员提出的两党法案，以及众议院人工智能两党工作组的共识建议。
+奋进“十五五”，江西如何“赣”出新精彩？
 
-我们希望在本届国会任期内推动该法案落地生效。
+加快构建现代化产业体系 江西工业门类齐全、基础良好，拥有41个工业大类中的38个，目前已培育形成了电子信息、有色金属两个万亿级产业。
 
-” 该法案刻意避开人工智能领域诸多棘手争议议题，例如：是否设立联邦统一标准以优先于各州 AI 监管法规、关键基础设施及教育领域的 AI 系统是否需要强制安全测试等。
+江西省委副书记、省长叶建春在发布会上表示，江西将深入实施制造业重点产业链现代化建设“1269”行动计划，着力建设制造强省、质量强省，加快构建以先进制造业为骨干的现代化产业体系。
 
-法案覆盖范围广泛，关键条款包括： 尽管奥伯恩诺尔特已表态支持特德・刘的法案，这名共和党议员也在独立拟定一套人工智能综合法案，预计于今年晚些时候公布。
+今后五年，江西将在构建现代化产业体系上做好“改造升级”“动能转换”“精准布局”三篇大文章。
 
-两份法案均以两党工作组的研究成果为基础框架。
+围绕未来产业的“精准布局”，叶建春指出，江西将聚焦脑机接口、具身智能及人形机器人、生物制造等有一定产业基础和比较优势的细分赛道，坚持抢位、错位发展，“加快让这些未来产业形成新的经济增长点”。
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 14:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 14:06 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 14:26 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 14:01 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 14:20 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 14:01 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 14:09 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 14:23 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 14:03 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 14:16 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 14:17 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 14:08 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 14:04 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 14:28 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 14:20 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 14:30 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 14:14 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 14:36 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 14:19 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 14:28 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 14:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 14:34 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 14:06 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 14:15 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/981384952236.shtml)
-- 2026-06-29 14:12 - [扫黑风暴](http://www.blog.minike.top/Article/details/404404061.shtml)
-- 2026-06-29 14:25 - [农发行总行专家委员会委员杜晓力被查](https://www.share.kurohicncr.top/Article/details/681810.shtml)
-- 2026-06-29 14:20 - [急先锋](https://www.blog.minike.top/Article/details/3045734851.shtml)
-- 2026-06-29 14:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/594741711.shtml)
-- 2026-06-29 14:09 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/18853751358.shtml)
-- 2026-06-29 14:04 - [欧洲超1300例超额死亡与高温有关](https://www.blog.minike.top/Article/details/84972524797.shtml)
-- 2026-06-29 14:22 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/926984907727.shtml)
-- 2026-06-29 14:28 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/72186.shtml)
-- 2026-06-29 14:06 - [扫黑风暴](http://www.share.minike.top/Article/details/342205575.shtml)
-- 2026-06-29 14:14 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.minike.top/Article/details/990857018748.shtml)
-- 2026-06-29 14:15 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/239847710.shtml)
-- 2026-06-29 14:21 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/931265394908.shtml)
-- 2026-06-29 14:18 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/4447078.shtml)
-- 2026-06-29 14:24 - [沙丘](https://www.blog.minike.top/Article/details/5258142.shtml)
+- 2026-06-29 14:34 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/043780162.shtml)
+- 2026-06-29 14:07 - [金刚川](https://www.blog.kurohicncr.top/Article/details/096790929828.shtml)
+- 2026-06-29 14:21 - [请回答王牌2019](http://www.share.minike.top/Article/details/5476270053.shtml)
+- 2026-06-29 14:20 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/396781.shtml)
+- 2026-06-29 14:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/76087889161.shtml)
+- 2026-06-29 14:26 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/2102429.shtml)
+- 2026-06-29 14:28 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/94866338.shtml)
+- 2026-06-29 14:13 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/949426.shtml)
+- 2026-06-29 14:31 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/92443131.shtml)
+- 2026-06-29 14:12 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/73713975.shtml)
+- 2026-06-29 14:21 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.minike.top/Article/details/40477284.shtml)
+- 2026-06-29 14:24 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/2886232811.shtml)
+- 2026-06-29 14:10 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/743194.shtml)
+- 2026-06-29 14:22 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/6279217.shtml)
+- 2026-06-29 14:34 - [爱情有烟火你是知道我爱看什么的](https://www.blog.minike.top/Article/details/75546784.shtml)

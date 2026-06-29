@@ -1,54 +1,57 @@
-# 三大利好齐发！科创50ETF富国（588940）盘中涨3%
+# 央行北京市分行：一季度北京地区超50%曾有过逾期的借款人重获金融融资资格
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-4月27日，科创50ETF富国（588940）在多重利好共振下，盘中一度涨幅达3%，截至发稿涨幅达2.93%。标的指数成分股中，中控技术上涨11%，生益电子上涨6.32%，澜起科技上涨8.91%，科创龙头强势领涨。 消息面上，周末三大利好集中释放：一是顶层会议定调加强原创性、引领性科技攻关，政策信号直接提振科创板；二是海外科技巨头强势走高，打消市场对AI资本开支回报不足的疑虑，
+4月29日金融一线消息，中国人民银行北京市分行今日举行2026年第二季度新闻发布会，介绍2026年第一季度北京市金融统计数据、扎实做好首都金融“五篇大文章”、持续推动巩固一次性信用修复政策实施等情况和工作成效。 对于一次性信用修复政策实施成效工作相关情况，征信管理处二级巡视员林晓东表示，人民银行北京市分行坚决落实总行政策，统筹谋划、周密部署、扎实推动，全辖金融机构积极跟进。目前
 
 ## 正文
 
-4月27日，科创50ETF富国（588940）在多重利好共振下，盘中一度涨幅达3%，截至发稿涨幅达2.93%。
+4月29日金融一线消息，中国人民银行北京市分行今日举行2026年第二季度新闻发布会，介绍2026年第一季度北京市金融统计数据、扎实做好首都金融“五篇大文章”、持续推动巩固一次性信用修复政策实施等情况和工作成效。
 
-标的指数成分股中，中控技术上涨11%，生益电子上涨6.32%，澜起科技上涨8.91%，科创龙头强势领涨。
+对于一次性信用修复政策实施成效工作相关情况，征信管理处二级巡视员林晓东表示，人民银行北京市分行坚决落实总行政策，统筹谋划、周密部署、扎实推动，全辖金融机构积极跟进。
 
-消息面上，周末三大利好集中释放：一是顶层会议定调加强原创性、引领性科技攻关，政策信号直接提振科创板；二是海外科技巨头强势走高，打消市场对AI资本开支回报不足的疑虑，全球AI产业正式迈入业绩兑现阶段；三是国产AI产业生态打通关键闭环。
+目前，这一政策已结束实施，取得了积极效果，“免申即享”的便民效应充分释放。
 
-研究机构指出，AI基建扩张、先进制造国产化、新材料突破等多因素共振持续为硬科技产业提供上行动能。
+初步统计，北京地区受益人超过百万次，受益人群重新获得信贷支持超过百亿元。
 
-科创50ETF富国（588940）汇聚科创板市值最大、流动性最好的50只硬科技龙头，覆盖AI芯片、半导体设备、材料等产业链核心环节。
+“2026年一季度，北京地区超50%曾有过逾期的借款人重获金融融资资格，金融机构对该类主体的信贷支持超百亿元，有效实现了‘守信激励、失信惩戒’的效果。
 
-场外投资者可通过（A类023055/C类023056）便捷布局。
-
-责任编辑：郭栩彤
+”责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 14:09 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 14:23 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 14:10 - [多只A股发布股价异动公告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 14:22 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 14:27 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 14:15 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 14:23 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 14:25 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 14:17 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 14:09 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 14:16 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 14:27 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 14:18 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 14:35 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 14:21 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 14:10 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 14:09 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 14:27 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 14:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 14:28 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 14:34 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 14:35 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 14:32 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 14:34 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 14:16 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:17 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/35239.shtml)
-- 2026-06-29 14:20 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/52011254154.shtml)
-- 2026-06-29 14:02 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/34699614639.shtml)
-- 2026-06-29 14:04 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/43506.shtml)
-- 2026-06-29 14:28 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/81788.shtml)
-- 2026-06-29 14:22 - [请回答王牌2019](https://www.share.minike.top/Article/details/3082974.shtml)
-- 2026-06-29 14:15 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/55984485195.shtml)
-- 2026-06-29 14:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/110470.shtml)
-- 2026-06-29 14:29 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/740264175225.shtml)
-- 2026-06-29 14:01 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/0011611936.shtml)
-- 2026-06-29 14:01 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/935013067705.shtml)
-- 2026-06-29 14:11 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/66485.shtml)
-- 2026-06-29 14:06 - [双高胎](http://www.blog.kurohicncr.top/Article/details/68876539.shtml)
-- 2026-06-29 14:03 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/16682031418.shtml)
-- 2026-06-29 14:06 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/155507436003.shtml)
+- 2026-06-29 14:11 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/77475.shtml)
+- 2026-06-29 14:07 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/667273.shtml)
+- 2026-06-29 14:33 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/5929570.shtml)
+- 2026-06-29 14:27 - [刘仲华院士愿当贺永辉导师](https://www.share.kurohicncr.top/Article/details/06380787532.shtml)
+- 2026-06-29 14:26 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/7644958.shtml)
+- 2026-06-29 14:22 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/69758206.shtml)
+- 2026-06-29 14:15 - [爸爸当家](http://www.share.minike.top/Article/details/0491020.shtml)
+- 2026-06-29 14:09 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/082451665.shtml)
+- 2026-06-29 14:24 - [以前不让妆女二可以艳压女主](http://www.blog.kurohicncr.top/Article/details/61881839083.shtml)
+- 2026-06-29 14:18 - [高考志愿今起开始填报](https://www.blog.kurohicncr.top/Article/details/21210494.shtml)
+- 2026-06-29 14:09 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/7867068.shtml)
+- 2026-06-29 14:32 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/9840358792.shtml)
+- 2026-06-29 14:22 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/84087555.shtml)
+- 2026-06-29 14:35 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/044488.shtml)
+- 2026-06-29 14:18 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/977549603.shtml)

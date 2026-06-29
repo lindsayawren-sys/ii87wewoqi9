@@ -1,60 +1,61 @@
-# 6年骗22家险企780万！车险骗保竟有内鬼配合？
+# 欧洲支付服务巨头世界线一季度营收超预期，确认全年业绩目标
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-来源：险联社 最近，央视连续曝光两起横跨5-6年的特大车险诈骗案。 辽宁沈阳团伙6年制造2400余起假车祸，骗取22家保险公司780余万元；山西阳泉团伙以“免费修车”为诱饵，5年伪造300余起事故。 两案均因行业漏洞长期潜伏，最终38名涉案人员落网，28人已被依法判刑。案件揭开车险行业“数据孤岛”、“审核宽松”等深层问题，全体车主或成最终买单者。 第一案：沈阳：黑衣头目遥控24
+欧洲支付服务巨头世界线集团（Worldline-Le CA）周二公布的第一季度营收略高于市场预期，得益于商户服务业务自2024年底以来首次恢复增长，公司同时确认了全年业绩目标。 财报显示，在剔除所有已剥离业务的基础上，集团第一季度营收为8.31亿欧元，有机同比下降0.5%，但高于分析师平均预期的8.26亿欧元。按报告数据计算，集团营收为9.24亿欧元，同比下降1.5%。 商户服
 
 ## 正文
 
-来源：险联社 最近，央视连续曝光两起横跨5-6年的特大车险诈骗案。
+欧洲支付服务巨头世界线集团（Worldline-Le CA）周二公布的第一季度营收略高于市场预期，得益于商户服务业务自2024年底以来首次恢复增长，公司同时确认了全年业绩目标。
 
-辽宁沈阳团伙6年制造2400余起假车祸，骗取22家保险公司780余万元；山西阳泉团伙以“免费修车”为诱饵，5年伪造300余起事故。
+财报显示，在剔除所有已剥离业务的基础上，集团第一季度营收为8.31亿欧元，有机同比下降0.5%，但高于分析师平均预期的8.26亿欧元。
 
-两案均因行业漏洞长期潜伏，最终38名涉案人员落网，28人已被依法判刑。
+按报告数据计算，集团营收为9.24亿欧元，同比下降1.5%。
 
-案件揭开车险行业“数据孤岛”、“审核宽松”等深层问题，全体车主或成最终买单者。
+商户服务恢复增长 核心的商户服务业务录得营收6.52亿欧元，有机同比增长1.6%，为自2024年第四季度以来首次实现正增长，高于市场预期的6.41亿欧元。
 
-第一案：沈阳：黑衣头目遥控2400起假车祸，6年骗保780万 据央视《今日说法》2026年4月9日节目《六年骗保现形记》报道，辽宁新民市法院于2026年3月18日作出一审判决：以出租车司机信某为首的28名被告人，因犯保险诈骗罪分别被判处六年六个月至九个月有期徒刑，并处罚金，另有10名涉案人员案件正在进一步审理中。
+公司首席执行官表示，这证实了世界线正朝着正确方向前进。
 
-这起案件的侦破源于2025年初某保险公司的大数据预警。
+受在店和在线渠道双重推动，该业务收购商户销售价值增长3.5%。
 
-系统显示，多名人员短期内出险频次异常，且事故多为轻微剐蹭，却集中申报“软组织挫伤”相关的医疗费、误工费理赔，部分人员半个月内互换驾驶员、伤者身份交叉出险。
+金融服务业务持续受此前丢失和终止合同的拖累，营收为1.79亿欧元，有机下降7.4%。
 
-保险公司追溯2019年以来数据发现，同类异常事故达上千起，随即向沈阳公安经侦部门报案。
+不过该部门商业势头保持稳定，预计从2026年下半年起将逐步产生增量收入。
 
 ## 相关推荐
 
-- 2026-06-29 14:04 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 14:29 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 14:15 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 14:09 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 14:19 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 14:15 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 14:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 14:07 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 14:29 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 14:04 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 14:07 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 14:16 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 14:12 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 14:13 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 14:20 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 14:35 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 14:35 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 14:06 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 14:15 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 14:32 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 14:16 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 14:13 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 14:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 14:24 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 14:25 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 14:24 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 14:10 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 14:33 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 14:23 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:01 - [斗破苍穹](http://www.blog.minike.top/Article/details/104196632.shtml)
-- 2026-06-29 14:24 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/53358088069.shtml)
-- 2026-06-29 14:18 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/7581471538.shtml)
-- 2026-06-29 14:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/8070809.shtml)
-- 2026-06-29 14:20 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/219315.shtml)
-- 2026-06-29 14:04 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/275193.shtml)
-- 2026-06-29 14:26 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/43777540.shtml)
-- 2026-06-29 14:14 - [欧洲超1300例超额死亡与高温有关](http://www.share.kurohicncr.top/Article/details/711019303.shtml)
-- 2026-06-29 14:24 - [乔家的儿女](https://www.share.minike.top/Article/details/8958624.shtml)
-- 2026-06-29 14:22 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/80139904.shtml)
-- 2026-06-29 14:13 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/91206992632.shtml)
-- 2026-06-29 14:28 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/915063944538.shtml)
-- 2026-06-29 14:24 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/39733036547.shtml)
-- 2026-06-29 14:29 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/898483913.shtml)
-- 2026-06-29 14:20 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/5683857.shtml)
+- 2026-06-29 14:26 - [高考志愿今起开始填报](https://www.share.kurohicncr.top/Article/details/44859313549.shtml)
+- 2026-06-29 14:06 - [薛之谦演唱会](http://www.blog.kurohicncr.top/Article/details/59440420268.shtml)
+- 2026-06-29 14:15 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/6959909.shtml)
+- 2026-06-29 14:27 - [女生雨天开车发现雨刮条被掰走](http://www.blog.minike.top/Article/details/89430.shtml)
+- 2026-06-29 14:29 - [【独家】牧神记 第89集 明心](http://www.share.kurohicncr.top/Article/details/50306823396.shtml)
+- 2026-06-29 14:29 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/132654713.shtml)
+- 2026-06-29 14:24 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/727141888268.shtml)
+- 2026-06-29 14:27 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/3291262.shtml)
+- 2026-06-29 14:28 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/823538.shtml)
+- 2026-06-29 14:11 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/268876053.shtml)
+- 2026-06-29 14:27 - [久坐小心“死臀综合征”](http://www.blog.minike.top/Article/details/16629911504.shtml)
+- 2026-06-29 14:09 - [毒液2](http://www.blog.kurohicncr.top/Article/details/8570118.shtml)
+- 2026-06-29 14:35 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/8151577167.shtml)
+- 2026-06-29 14:28 - [久坐小心“死臀综合征”](http://www.share.kurohicncr.top/Article/details/55073584.shtml)
+- 2026-06-29 14:31 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/24041376.shtml)

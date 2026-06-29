@@ -1,61 +1,53 @@
-# 欧洲股市上涨，因特朗普考虑伊朗和平提议
+# 中国有数｜“买全球卖全球”，义乌不断有新纪录
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-周二欧洲股市小幅走高，投资者一方面等待华盛顿对伊朗和平提议的回应，另一方面消化多家欧洲企业发布的财报。 泛欧斯托克 600 指数不久上涨近 0.1%，伦敦、巴黎、法兰克福和米兰股市全线走高。 板块表现分化。能源板块领涨，涨幅达 1.6%，布伦特原油价格飙升至每桶 111 美元，创三周新高；银行股上涨 1.2%；化工板块下跌约 1.1%。 主要指数行情： 企业财报密集发布日： 地
+发布时间：2026年04月30日 08:47 来源：三里河 2026年是“十五五”开局之年，也是学习推广“义乌发展经验”20年。2026年一季度，义乌进出口总值达2093.7亿元，创历史同期新高。相比去年，提前一个月突破2000亿元大关；同比增长25%，高于全国进出口增速10个百分点。没有港口，不靠省会辐射，人均耕地不到半亩，义乌硬是在群山之间凿出了一条通往世界的黄金走廊。(查
 
 ## 正文
 
-周二欧洲股市小幅走高，投资者一方面等待华盛顿对伊朗和平提议的回应，另一方面消化多家欧洲企业发布的财报。
+发布时间：2026年04月30日 08:47 来源：三里河 2026年是“十五五”开局之年，也是学习推广“义乌发展经验”20年。
 
-泛欧斯托克 600 指数不久上涨近 0.1%，伦敦、巴黎、法兰克福和米兰股市全线走高。
+2026年一季度，义乌进出口总值达2093.7亿元，创历史同期新高。
 
-板块表现分化。
+相比去年，提前一个月突破2000亿元大关；同比增长25%，高于全国进出口增速10个百分点。
 
-能源板块领涨，涨幅达 1.6%，布伦特原油价格飙升至每桶 111 美元，创三周新高；银行股上涨 1.2%；化工板块下跌约 1.1%。
+没有港口，不靠省会辐射，人均耕地不到半亩，义乌硬是在群山之间凿出了一条通往世界的黄金走廊。
 
-主要指数行情： 企业财报密集发布日： 地缘政治消息： 白宫新闻秘书卡罗琳・莱维特周一证实，美国总统唐纳德・特朗普及其国家安全团队已讨论伊朗提出的和平提议：若美国解除封锁、结束战争，伊朗将重新开放霍尔木兹海峡。
-
-阿克西奥斯新闻网和美联社此前报道，该提议将推迟就伊朗核计划野心的谈判，留待日后进行。
-
-特朗普此前承诺，除非与伊朗的协议 “100% 达成”，否则不会解除封锁。
-
-目前尚不清楚他是否认真考虑了这项结束已持续两个月战争的提议。
+(查志远 黄蕾） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-29 14:06 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 14:17 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 14:05 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 14:18 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 14:29 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 14:13 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 14:14 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 14:00 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 14:26 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 14:15 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 14:12 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 14:20 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 14:00 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 14:14 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 14:13 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 14:08 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 14:07 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 14:07 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 14:21 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 14:29 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 14:30 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 14:21 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 14:12 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 14:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 14:14 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 14:18 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 14:28 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 14:21 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:24 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/0364189.shtml)
-- 2026-06-29 14:08 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/1984319.shtml)
-- 2026-06-29 14:06 - [手游300亿数据或被军事化运用](http://www.blog.kurohicncr.top/Article/details/2617226946.shtml)
-- 2026-06-29 14:05 - [84岁英国教授成中国网红](https://www.share.kurohicncr.top/Article/details/52996.shtml)
-- 2026-06-29 14:16 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/1828954.shtml)
-- 2026-06-29 14:11 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/30686790.shtml)
-- 2026-06-29 14:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/93143.shtml)
-- 2026-06-29 14:22 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/64707.shtml)
-- 2026-06-29 14:02 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/83474945068.shtml)
-- 2026-06-29 14:09 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/0922051.shtml)
-- 2026-06-29 14:08 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/6638647.shtml)
-- 2026-06-29 14:27 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/299301331436.shtml)
-- 2026-06-29 14:19 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/2068898.shtml)
-- 2026-06-29 14:22 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/12717005.shtml)
-- 2026-06-29 14:23 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/80316721.shtml)
+- 2026-06-29 14:11 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/855185361283.shtml)
+- 2026-06-29 14:06 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/679458.shtml)
+- 2026-06-29 14:20 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/93181378.shtml)
+- 2026-06-29 14:29 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/67762.shtml)
+- 2026-06-29 14:20 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/560241739.shtml)
+- 2026-06-29 14:16 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/767578024.shtml)
+- 2026-06-29 14:15 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/90552.shtml)
+- 2026-06-29 14:31 - [金刚川](http://www.share.kurohicncr.top/Article/details/41662.shtml)
+- 2026-06-29 14:06 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/19756465.shtml)
+- 2026-06-29 14:27 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/202871585481.shtml)
+- 2026-06-29 14:30 - [詹俊预测德国大胜巴拉圭](https://www.share.kurohicncr.top/Article/details/517138497356.shtml)
+- 2026-06-29 14:35 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/14664903189.shtml)
+- 2026-06-29 14:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/77419109829.shtml)
+- 2026-06-29 14:25 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/2507964.shtml)
+- 2026-06-29 14:28 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/13035107.shtml)

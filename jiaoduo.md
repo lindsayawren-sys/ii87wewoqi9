@@ -1,61 +1,61 @@
-# 2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路
+# 河南开封：“一县一业”聚链成势 订单农业助农企双赢
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-4月27日下午，2026“世界市长对话·西安”活动在西安正式启幕。本次盛会以“丝路起点·和合共生：科技与文化赋能城市高质量发展”为主题，由国务院新闻办公室主办，西安市人民政府、陕西省人民政府新闻办公室承办，汇聚7国7城市长及市长代表，共商城市发展大计、共话丝路文明交流、共绘国际合作蓝图。本次活动打破传统会议模式，创新采用圆桌对话、情景式对话、沉浸式文化体验与实地调研参访融合的形
+中新网开封4月29日电 (经晓佳 左起超)春日里，河南省开封市祥符区麦田和花生地一派忙碌景象，一些农户正在田间除草、施肥，悉心管护，努力种出更多优质麦子和高油酸花生，供应当地粮油供应链企业。 开封地处豫东平原，是小麦等粮食作物的重要产区，其辖属杞县、通许县、尉氏县、祥符区均为国家重要的产粮大县。这些产粮大县的众多农户已与开封龙大植物油有限公司、益海嘉里(开封)食品工业有限公司(
 
 ## 正文
 
-4月27日下午，2026“世界市长对话·西安”活动在西安正式启幕。
+中新网开封4月29日电 (经晓佳 左起超)春日里，河南省开封市祥符区麦田和花生地一派忙碌景象，一些农户正在田间除草、施肥，悉心管护，努力种出更多优质麦子和高油酸花生，供应当地粮油供应链企业。
 
-本次盛会以“丝路起点·和合共生：科技与文化赋能城市高质量发展”为主题，由国务院新闻办公室主办，西安市人民政府、陕西省人民政府新闻办公室承办，汇聚7国7城市长及市长代表，共商城市发展大计、共话丝路文明交流、共绘国际合作蓝图。
+开封地处豫东平原，是小麦等粮食作物的重要产区，其辖属杞县、通许县、尉氏县、祥符区均为国家重要的产粮大县。
 
-本次活动打破传统会议模式，创新采用圆桌对话、情景式对话、沉浸式文化体验与实地调研参访融合的形式，将交流对话延伸至智慧城市运行一线、智能制造生产现场、世界文化遗产实地，让与会嘉宾零距离感受数字技术对城市治理、产业升级的重塑力量。
+这些产粮大县的众多农户已与开封龙大植物油有限公司、益海嘉里(开封)食品工业有限公司(下称益海嘉里)等企业签了订单。
 
-活动为期三天，将持续至4月29日，期间将举办“智联天下·聚力同行：智慧城市低碳绿色融合发展”“绿动丝路·智汇长安：共创丝路城市现代化新动能”两场情景式对话，聚焦丝路城市发展核心议题展开深度研讨。
+走进位于开封市城乡一体化示范区的益海嘉里506亩工业园区，一桶桶花生油、一袋袋面粉从生产车间运出，随后发往全国各地。
 
-活动期间，中外嘉宾将先后走进“一带一路”城市展示体验中心、吉利“黑灯工厂”、隆基绿能、西安XR电影产业基地等特色点位，全方位了解西安在智能制造、绿色能源发展、文化遗产保护、智慧文旅融合等领域的创新实践与丰硕成果。
+益海嘉里开封工厂负责人介绍，该工厂立足当地原料优势，一方面构建“吃干榨净”式综合利用体系，实现原料100%转化增值；另一方面推广“保险+期货”的农户订单和价格兜底模式，最大限度利用市场机制保护农民收益，确保农企双赢。
 
-主对话环节将围绕文明根脉与智慧治理、绿色转型与数智焕新、丝路城市智慧治理合作机制构建等核心议题，搭建经验分享、理念碰撞的交流平台。
+近年来，开封立足农业、畜牧业资源禀赋，着力做好“粮头食尾”“畜头肉尾”“农头工尾”大文章，先后引进和培育益海嘉里等10多家龙头食品企业，拥有155家规上食品企业，形成面粉、油脂、肉类、酸辣粉、休闲食品、饲料六大板块齐头并进的格局，加快推进现代食品产业聚链强农的发展步伐。
 
-此外，以长安塔实景为背景的“长安之夜”活动将重磅举行，中外嘉宾将共同发布“世界市长对话——丝路城市发展西安共识”，进一步凝聚合作共识、深化国际友谊。
+在食品产业协同发展过程中，通许县探索出一条独具特色的“一县一业”之路。
 
-活动现场，多国嘉宾纷纷表达了对西安的赞誉，以及与中国、与西安深化多领域合作的热切期盼。
+通许县县长憨振强介绍，自2022年该县将酸辣粉确立为特色主导产业后，先后研发推广甘薯高产栽培、涂布式酸辣粉生产线等多项技术创新成果，规划建设酸辣粉产业园、淀粉产业园、京东物流产业园，构建起研发、生产、电商、物流、包装一体化格局。
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 14:11 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 14:09 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 14:19 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 14:23 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 14:19 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 14:06 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 14:06 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 14:16 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 14:07 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 14:19 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 14:27 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 14:28 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 14:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 14:12 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 14:13 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 14:15 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 14:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 14:22 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 14:30 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 14:09 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 14:24 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 14:12 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 14:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 14:20 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 14:10 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 14:16 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 14:25 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 14:16 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 14:12 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/08231.shtml)
-- 2026-06-29 14:05 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/20515609.shtml)
-- 2026-06-29 14:00 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/001130835946.shtml)
-- 2026-06-29 14:09 - [周生如故](http://www.share.minike.top/Article/details/57874514664.shtml)
-- 2026-06-29 14:27 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/462900079.shtml)
-- 2026-06-29 14:14 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/8754002.shtml)
-- 2026-06-29 14:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/951385959.shtml)
-- 2026-06-29 14:24 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/13577.shtml)
-- 2026-06-29 14:28 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/1781769.shtml)
-- 2026-06-29 14:05 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/4375985389.shtml)
-- 2026-06-29 14:06 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/094016999.shtml)
-- 2026-06-29 14:10 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/415372.shtml)
-- 2026-06-29 14:00 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/34943.shtml)
-- 2026-06-29 14:07 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/865174691484.shtml)
-- 2026-06-29 14:12 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/77148.shtml)
+- 2026-06-29 14:15 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/59405127419.shtml)
+- 2026-06-29 14:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/511998.shtml)
+- 2026-06-29 14:29 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/827789.shtml)
+- 2026-06-29 14:34 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/71798029.shtml)
+- 2026-06-29 14:09 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/7132283606.shtml)
+- 2026-06-29 14:16 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/091412768.shtml)
+- 2026-06-29 14:19 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/88393512.shtml)
+- 2026-06-29 14:13 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/12716.shtml)
+- 2026-06-29 14:06 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/52942805.shtml)
+- 2026-06-29 14:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/75323284.shtml)
+- 2026-06-29 14:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/8798781725.shtml)
+- 2026-06-29 14:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/745691633.shtml)
+- 2026-06-29 14:12 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/22205948.shtml)
+- 2026-06-29 14:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/9198967220.shtml)
+- 2026-06-29 14:17 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/951620998.shtml)

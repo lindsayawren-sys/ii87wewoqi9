@@ -1,57 +1,57 @@
-# 澳大利亚外长黄英贤将访华 中方介绍此访背景和期待
+# 港股4月收官！恒生科技指数本月涨超4%
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网北京4月27日电 (记者 张素)4月27日，中国外交部发言人宣布：应中共中央政治局委员、外交部长王毅邀请，澳大利亚外长黄英贤将于4月28日至30日访华。 当日例行记者会上，中国外交部发言人林剑在应询时介绍此访背景和中方期待。 林剑：在两国领导人战略引领下，中澳全面战略伙伴关系保持向好发展势头。黄英贤外长访华期间，王毅外长将同她共同主持第八轮中澳外交与战略对话，就中澳关系及
+4月30日消息，港股4月收官，本月三大指数均收涨，恒生科技指数涨超4%，恒生指数涨超3%，国企指数涨超3%。 今日，港股三大指数集体下跌。截至收盘，恒生指数跌1.28%，报25776.53，恒生科技指数跌0.79%，国企指数跌1.41%。盘面上，科网股跌多涨少，小米、阿里巴巴跌超3%，哔哩哔哩、腾讯跌超2%，网易涨超2%；芯片股大涨，天数智芯涨超21%；乳制品板块部分上涨，蒙牛
 
 ## 正文
 
-中新网北京4月27日电 (记者 张素)4月27日，中国外交部发言人宣布：应中共中央政治局委员、外交部长王毅邀请，澳大利亚外长黄英贤将于4月28日至30日访华。
+4月30日消息，港股4月收官，本月三大指数均收涨，恒生科技指数涨超4%，恒生指数涨超3%，国企指数涨超3%。
 
-当日例行记者会上，中国外交部发言人林剑在应询时介绍此访背景和中方期待。
+今日，港股三大指数集体下跌。
 
-林剑：在两国领导人战略引领下，中澳全面战略伙伴关系保持向好发展势头。
+截至收盘，恒生指数跌1.28%，报25776.53，恒生科技指数跌0.79%，国企指数跌1.41%。
 
-黄英贤外长访华期间，王毅外长将同她共同主持第八轮中澳外交与战略对话，就中澳关系及双方共同关心的国际、地区问题深入交换意见。
+盘面上，科网股跌多涨少，小米、阿里巴巴跌超3%，哔哩哔哩、腾讯跌超2%，网易涨超2%；芯片股大涨，天数智芯涨超21%；乳制品板块部分上涨，蒙牛乳业涨超3%；有色金属板块集体下跌，赤峰黄金跌超5%。
 
-中方期待通过此访推进落实两国领导人达成的重要共识，增进政治互信，深化互利合作，推动中澳关系稳定、健康、可持续发展，更好造福两国人民。
+芯片股大涨，天数智芯涨超21%。
 
-(完)
+消息面上，于美东时间4月29日盘后，谷歌母公司Alphabet递交了一份极具震撼力的2026财年第一季度成绩单。
+
+其中，作为财报中最耀眼的增长极，谷歌云（Google Cloud）业务的表现正式宣告其迈入成熟盈利期，季度营收首次触及200亿美元大关，同比增速高达63.4%，远超上年同期的122.6亿美元。
+
+市场分析指出，谷歌云的爆发主要受益于企业级客户对生成式AI基础设施及定制化TPU芯片的强劲需求。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 14:01 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 14:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 14:15 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 14:10 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 14:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 14:02 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 14:28 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 14:27 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 14:16 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 14:24 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 14:15 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 14:23 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 14:25 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 14:09 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 14:14 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 14:13 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 14:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 14:20 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 14:21 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 14:24 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 14:26 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 14:19 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 14:07 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 14:07 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 14:06 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:25 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/8603279789.shtml)
-- 2026-06-29 14:13 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/40815884.shtml)
-- 2026-06-29 14:01 - [T1零封KC MSI](https://www.share.minike.top/Article/details/5158312.shtml)
-- 2026-06-29 14:06 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/449969.shtml)
-- 2026-06-29 14:08 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/5808650301.shtml)
-- 2026-06-29 14:02 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/091390.shtml)
-- 2026-06-29 14:15 - [曾沛慈夺冠后人气](http://www.blog.kurohicncr.top/Article/details/145595978.shtml)
-- 2026-06-29 14:17 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/149376.shtml)
-- 2026-06-29 14:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/92609246.shtml)
-- 2026-06-29 14:02 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/110746311.shtml)
-- 2026-06-29 14:12 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/533485.shtml)
-- 2026-06-29 14:18 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/259577153070.shtml)
-- 2026-06-29 14:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/6274080108.shtml)
-- 2026-06-29 14:23 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/01560.shtml)
-- 2026-06-29 14:05 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/672545861066.shtml)
+- 2026-06-29 14:23 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/231328451.shtml)
+- 2026-06-29 14:35 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/3584378989.shtml)
+- 2026-06-29 14:06 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/511634507.shtml)
+- 2026-06-29 14:25 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/0659055676.shtml)
+- 2026-06-29 14:09 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/967035753599.shtml)
+- 2026-06-29 14:17 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/902326.shtml)
+- 2026-06-29 14:15 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/2081624.shtml)
+- 2026-06-29 14:11 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/400678.shtml)
+- 2026-06-29 14:18 - [异世界一点都不好玩！](http://www.blog.minike.top/Article/details/30224.shtml)
+- 2026-06-29 14:09 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/894895630.shtml)
+- 2026-06-29 14:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/67024010051.shtml)
+- 2026-06-29 14:22 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.minike.top/Article/details/9362069061.shtml)
+- 2026-06-29 14:08 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/2788434478.shtml)
+- 2026-06-29 14:17 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/1299189.shtml)
+- 2026-06-29 14:24 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/78055183306.shtml)

@@ -1,60 +1,59 @@
-# 嘉澳环保年报旧账爆雷：沈健罚250万，90后董秘吴逸敏罚200万 | 长三角资本局
+# 浙江通报5起违反中央八项规定精神问题
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 一笔迟到两年半的转固，把嘉澳环保2022年、2023年两份年报推向了监管处罚。 4月24日，嘉澳环保公告收到《行政处罚决定书》。公司子公司嘉澳鼎新的年产20000吨环保增塑剂项目，截至2021年12月已经试生产结束，通过安全设施竣工验收和环保验收，并取得《安全生产许可证》，但公司没有及时将该项目从在建工
+中新网4月29日电 据中央纪委国家监委网站消息，“五一”、端午将至，为进一步严明纪律规矩、强化警示教育，持续加固中央八项规定堤坝，坚决防止“四风”问题反弹回潮，浙江省纪委监委现将近期查处的5起违反中央八项规定精神典型问题通报如下。1.杭州市滨江区档案馆原负责人张烨接受可能影响公正执行公务的旅游和娱乐活动安排问题。2017年至2025年，张烨多次接受管理服务对象某公司法定代表人董
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 一笔迟到两年半的转固，把嘉澳环保2022年、2023年两份年报推向了监管处罚。
+中新网4月29日电 据中央纪委国家监委网站消息，“五一”、端午将至，为进一步严明纪律规矩、强化警示教育，持续加固中央八项规定堤坝，坚决防止“四风”问题反弹回潮，浙江省纪委监委现将近期查处的5起违反中央八项规定精神典型问题通报如下。
 
-4月24日，嘉澳环保公告收到《行政处罚决定书》。
+1.杭州市滨江区档案馆原负责人张烨接受可能影响公正执行公务的旅游和娱乐活动安排问题。
 
-公司子公司嘉澳鼎新的年产20000吨环保增塑剂项目，截至2021年12月已经试生产结束，通过安全设施竣工验收和环保验收，并取得《安全生产许可证》，但公司没有及时将该项目从在建工程结转至固定资产，也没有同步计提折旧和准确核算借款利息。
+2017年至2025年，张烨多次接受管理服务对象某公司法定代表人董某等人安排的旅游和娱乐活动，相关费用由对方支付。
 
-直到2024年6月，项目才完成结转。
+张烨还存在其他严重违纪违法问题，2025年12月被开除党籍、取消退休待遇，涉嫌犯罪问题被移送检察机关依法审查起诉。
 
-监管认定，这一会计处理直接导致嘉澳环保2022年、2023年年报相关财务数据存在虚假记载。
+2.宁海县西店镇原党委委员邬静东接受可能影响公正执行公务的宴请、违规收受礼品问题。
 
-2022年，公司虚减营业成本1344万元，虚减财务费用576.7万元，虚增利润总额1921万元，占当期披露利润总额绝对值的28.91%；虚增净利润1525.8万元，占当期披露净利润绝对值的49.06%。
+2018年至2025年，邬静东违规接受管理服务对象叶某某安排的宴请，相关费用由对方支付；多次收受管理服务对象某公司法定代表人孙某某等人所送高档香烟。
 
-到了2023年，影响更直接。
+邬静东还存在其他严重违纪违法问题，2026年2月被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
 
-公司虚减营业成本1355.8万元，虚增利润总额1355.8万元，占当期披露利润总额绝对值的63.72%；虚增净利润1044万元，占当期披露净利润的200.38%，并导致2023年净利润由亏损转为盈利。
+3.苍南县城市建设中心原党组书记、主任王岳东违规收受礼品、违规借用车辆问题。
 
 ## 相关推荐
 
-- 2026-06-29 14:12 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 14:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 14:17 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 14:13 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 14:29 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 14:13 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 14:06 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 14:04 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 14:20 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 14:08 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 14:01 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 14:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 14:20 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 14:01 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 14:07 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 14:25 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 14:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 14:12 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 14:14 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 14:29 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 14:19 - [多只A股发布股价异动公告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 14:11 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 14:12 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 14:13 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 14:30 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 14:32 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 14:30 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/44173508902.shtml)
-- 2026-06-29 14:14 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/851910.shtml)
-- 2026-06-29 14:22 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/71669.shtml)
-- 2026-06-29 14:02 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/3775791222.shtml)
-- 2026-06-29 14:20 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/3199719247.shtml)
-- 2026-06-29 14:21 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/6014889.shtml)
-- 2026-06-29 14:03 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/95564014.shtml)
-- 2026-06-29 14:09 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/3819471.shtml)
-- 2026-06-29 14:04 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/426081.shtml)
-- 2026-06-29 14:05 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.kurohicncr.top/Article/details/30474.shtml)
-- 2026-06-29 14:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/59090295900.shtml)
-- 2026-06-29 14:19 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/4952712.shtml)
-- 2026-06-29 14:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/262995.shtml)
-- 2026-06-29 14:17 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/96921685.shtml)
-- 2026-06-29 14:26 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/66675988.shtml)
+- 2026-06-29 14:16 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.minike.top/Article/details/85219781.shtml)
+- 2026-06-29 14:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/466922612658.shtml)
+- 2026-06-29 14:18 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/04005957.shtml)
+- 2026-06-29 14:25 - [异世界一点都不好玩！](http://www.blog.minike.top/Article/details/88786252255.shtml)
+- 2026-06-29 14:20 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/75619958.shtml)
+- 2026-06-29 14:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/829674424746.shtml)
+- 2026-06-29 14:16 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/719732851.shtml)
+- 2026-06-29 14:28 - [刘仲华院士愿当贺永辉导师](https://www.share.minike.top/Article/details/41227.shtml)
+- 2026-06-29 14:27 - [爱很美味](https://www.share.minike.top/Article/details/18177571.shtml)
+- 2026-06-29 14:34 - [沉睡花园](https://www.share.minike.top/Article/details/90137483599.shtml)
+- 2026-06-29 14:19 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/32338608.shtml)
+- 2026-06-29 14:18 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/1303403801.shtml)
+- 2026-06-29 14:24 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/7755464629.shtml)
+- 2026-06-29 14:21 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/09929448.shtml)
+- 2026-06-29 14:20 - [送你一朵小红花](https://www.share.minike.top/Article/details/56228212899.shtml)

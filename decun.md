@@ -1,59 +1,54 @@
-# 南方五省区电力需求旺盛供应稳定 价格波动影响有限
+# 碰瓷疗效、花样忽悠、平台失责 这些乱象将迎来官方严打！
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网广州4月27日电(王华 蓝旺)南方电网公司27日发布信息显示，今年3月底以来，南方五省区用电需求旺盛，电力供应总体充足，虽受清洁能源波动影响，电力现货市场价格出现阶段性上行，但对用户电价影响有限。今年南方五省区(广东、广西、云南、贵州、海南)入夏早气温高，经济向好，电力需求增长旺盛，截至20日，南方五省区4月用电量同比增长14.0%，尤其广东用电量累计同比增长16.0%，
+发布时间：2026年04月29日 18:11 来源：中国新闻网 4月29日，记者在市场监管总局食品安全专题新闻发布会上获悉，市场监管总局食品安全总监孙会川表示，此次专项整治，市场监管部门将实施精准锁定、靶向打击。检查对象涵盖电商平台、平台内经营者、营销服务机构及人员、广告活动主体、食品生产经营者等5类主体。据介绍，专项整治将重点整治3类违法违规行为：一是虚假宣传行为，比如普通食
 
 ## 正文
 
-中新网广州4月27日电(王华 蓝旺)南方电网公司27日发布信息显示，今年3月底以来，南方五省区用电需求旺盛，电力供应总体充足，虽受清洁能源波动影响，电力现货市场价格出现阶段性上行，但对用户电价影响有限。
+发布时间：2026年04月29日 18:11 来源：中国新闻网 4月29日，记者在市场监管总局食品安全专题新闻发布会上获悉，市场监管总局食品安全总监孙会川表示，此次专项整治，市场监管部门将实施精准锁定、靶向打击。
 
-今年南方五省区(广东、广西、云南、贵州、海南)入夏早气温高，经济向好，电力需求增长旺盛，截至20日，南方五省区4月用电量同比增长14.0%，尤其广东用电量累计同比增长16.0%，增速强劲。
+检查对象涵盖电商平台、平台内经营者、营销服务机构及人员、广告活动主体、食品生产经营者等5类主体。
 
-目前，南方五省区电力供应能力保持充足，系统运行安全稳定，未出现缺电限电情况。
+据介绍，专项整治将重点整治3类违法违规行为：一是虚假宣传行为，比如普通食品却通过各种手段明示暗示自己可以“治病、保健、防病”的；保健食品夸大功效、暗示自己可以“治病”的；二是违法广告行为，比如对食品的产地、成分、功能等胡编乱造、张冠李戴的，利用所谓“专家、学者、白大褂”站台背书，误导消费者的；三是平台机构违法行为，比如对于虚假宣传放任不管，甚至纵容造假、配合忽悠的。
 
-另一方面，该区域清洁能源在电源占比超过六成，受清洁能源波动、机组检修集中等多重因素影响，南方五省区电力现货市场价格出现阶段性上行，4月25日实时均价0.536元/千瓦时，环比显著增长。
+对于上述违法违规行为，市场监管部门将从严从重查处。
 
-广东省能源局表示，居民、农业用户执行政府核定电价，不受电力市场价格波动影响，电力现货市场价格对用户影响有限。
-
-据了解，今年南方五省区电力市场发、用两侧中长期合约签约比例达84%，且均价同比下降约3.8%。
-
-预计4月广东电力现货市场价格上涨影响工商业用户用电成本仅约1%，企业用电成本总体保持稳定，对经济社会运行影响可控。
-
-广州电力交易中心表示，4月以来会同北京电力交易中心连续组织跨电网经营区中长期、现货交易共14次，实现4月、5月满通道增购广东省外低价电源110万千瓦、200万千瓦。
+责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 14:18 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 14:04 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 14:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 14:29 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 14:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 14:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 14:27 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 14:16 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 14:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 14:21 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 14:05 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 14:20 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 14:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 14:10 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 14:11 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 14:13 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 14:19 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 14:22 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 14:08 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 14:10 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 14:11 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 14:22 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 14:08 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 14:22 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 14:27 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 14:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:10 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/986659317.shtml)
-- 2026-06-29 14:26 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/9015577.shtml)
-- 2026-06-29 14:16 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/472775754658.shtml)
-- 2026-06-29 14:08 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/195197983398.shtml)
-- 2026-06-29 14:15 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/34821.shtml)
-- 2026-06-29 14:27 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/79723042.shtml)
-- 2026-06-29 14:20 - [女心理师](https://www.share.minike.top/Article/details/5969405307.shtml)
-- 2026-06-29 14:04 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/392190729.shtml)
-- 2026-06-29 14:29 - [下飞机后，我做了个很蠢的决定......](https://www.share.minike.top/Article/details/73336779.shtml)
-- 2026-06-29 14:15 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/801525305.shtml)
-- 2026-06-29 14:02 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/24488178.shtml)
-- 2026-06-29 14:25 - [AG 钟意](http://www.share.kurohicncr.top/Article/details/37051104143.shtml)
-- 2026-06-29 14:09 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/333737855521.shtml)
-- 2026-06-29 14:19 - [Canna纳尔8-0对位单杀Doran](https://www.share.minike.top/Article/details/127430.shtml)
-- 2026-06-29 14:30 - [光与夜之恋](https://www.blog.minike.top/Article/details/53362.shtml)
+- 2026-06-29 14:07 - [多只A股发布股价异动公告](http://www.share.minike.top/Article/details/7297433346.shtml)
+- 2026-06-29 14:24 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/28363.shtml)
+- 2026-06-29 14:06 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/7791082609.shtml)
+- 2026-06-29 14:17 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/92417.shtml)
+- 2026-06-29 14:21 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/6137467.shtml)
+- 2026-06-29 14:18 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/998499323.shtml)
+- 2026-06-29 14:20 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/676374335.shtml)
+- 2026-06-29 14:35 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/36996.shtml)
+- 2026-06-29 14:31 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/8911202.shtml)
+- 2026-06-29 14:30 - [刘仲华院士愿当贺永辉导师](https://www.share.kurohicncr.top/Article/details/20152864514.shtml)
+- 2026-06-29 14:14 - [双高胎](http://www.share.minike.top/Article/details/871085813068.shtml)
+- 2026-06-29 14:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/369603.shtml)
+- 2026-06-29 14:18 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/3327205.shtml)
+- 2026-06-29 14:07 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/18859.shtml)
+- 2026-06-29 14:15 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/184165938.shtml)

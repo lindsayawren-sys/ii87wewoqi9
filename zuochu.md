@@ -1,53 +1,58 @@
-# 英诺赛科午后涨逾5% 针对英飞凌的两件氮化镓核心专利行政诉讼全面胜诉
+# 推进气象科技能力现代化和社会服务现代化——国新办发布会聚焦“十五五”时期加快推进气象高质量发展
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-英诺赛科（02577）盘中涨超5%，截至发稿，股价上涨4.98%，现报67.40港元，成交额3.14亿港元。 4月24日，英诺赛科公司迎来专利诉讼领域的重大进展，收到北京知识产权法院发来的两件专利行政诉讼胜诉判决。法院全面维持了英诺赛科公司两件氮化镓技术核心发明专利的有效性，驳回英飞凌公司的无效诉讼请求，英诺赛科在这两项关键行政诉讼中再次取得重大胜利。 值得注意的是，谷歌近期正
+新华社北京4月28日电 题：推进气象科技能力现代化和社会服务现代化——国新办发布会聚焦“十五五”时期加快推进气象高质量发展 新华社记者何晓 国新办28日举行“开局起步‘十五五’”系列主题新闻发布会，中国气象局相关负责人介绍“十五五”时期加快推进气象高质量发展、高质效服务国家服务人民、保障经济社会发展有关情况。 提升极端天气应对能力近年来，极端天气多发频发，对经济发展、人民生活带
 
 ## 正文
 
-英诺赛科（02577）盘中涨超5%，截至发稿，股价上涨4.98%，现报67.40港元，成交额3.14亿港元。
+新华社北京4月28日电 题：推进气象科技能力现代化和社会服务现代化——国新办发布会聚焦“十五五”时期加快推进气象高质量发展 新华社记者何晓 国新办28日举行“开局起步‘十五五’”系列主题新闻发布会，中国气象局相关负责人介绍“十五五”时期加快推进气象高质量发展、高质效服务国家服务人民、保障经济社会发展有关情况。
 
-4月24日，英诺赛科公司迎来专利诉讼领域的重大进展，收到北京知识产权法院发来的两件专利行政诉讼胜诉判决。
+提升极端天气应对能力近年来，极端天气多发频发，对经济发展、人民生活带来不小影响。
 
-法院全面维持了英诺赛科公司两件氮化镓技术核心发明专利的有效性，驳回英飞凌公司的无效诉讼请求，英诺赛科在这两项关键行政诉讼中再次取得重大胜利。
+中国气象局局长陈振林表示，“十五五”时期，中国气象局将从监测预报、预警“叫应”、应急联动和气候适应性支撑等全链条集中发力，提升极端天气应对能力。
 
-值得注意的是，谷歌近期正式发布其第八代TPU处理器的两款全新产品，分别是专为AI模型训练设计的TPU 8t与专为推理优化的TPU 8i。
+例如，在监测上将更加“精密灵敏”。
 
-据了解，TPU是AI计算核心，GaN为TPU集群高效供电的关键功率器件，共同支撑高算力、低功耗的AI基础设施。
+在容易受灾害影响的山洪地质灾害易发区、交通干线、人群密集、涉山涉水等高风险区域加密气象观测，补上盲点，从源头上做到“早发现”。
 
-英诺赛科2025年报显示，期内销售氮化镓模块所得收益4.462亿元，同比增加142.6%，责任编辑：卢昱君
+“此外，我们将气候风险评估作为国土空间规划、重大项目论证、基础设施建设的重要支撑，推动公共安全治理模式向事前预防转变，共同防范和减轻气候变化的风险。
+
+”陈振林说。
+
+中国气象局去年正式发布了全民早期预警中国方案“妈祖(MAZU)”，该方案是全球首个响应联合国全民早期预警倡议的国家级行动方案。
 
 ## 相关推荐
 
-- 2026-06-29 14:11 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 14:16 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 14:09 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 14:07 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 14:06 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 14:29 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 14:29 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 14:25 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 14:21 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 14:20 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 14:03 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 14:24 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 14:06 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 14:31 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 14:31 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 14:10 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 14:10 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 14:17 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 14:15 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 14:23 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 14:10 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 14:14 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 14:08 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/6986146198.shtml)
-- 2026-06-29 14:08 - [金价银价下跌 油价上涨](https://www.share.kurohicncr.top/Article/details/8133315301.shtml)
-- 2026-06-29 14:01 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/779592.shtml)
-- 2026-06-29 14:12 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/6641865.shtml)
-- 2026-06-29 14:15 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/99725893728.shtml)
-- 2026-06-29 14:19 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/52168920881.shtml)
-- 2026-06-29 14:24 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/276828136.shtml)
-- 2026-06-29 14:03 - [我和我的家乡](https://www.share.minike.top/Article/details/69011942735.shtml)
-- 2026-06-29 14:05 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/49695296586.shtml)
-- 2026-06-29 14:27 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/6968351.shtml)
-- 2026-06-29 14:21 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/1419483668.shtml)
-- 2026-06-29 14:25 - [异世界一点都不好玩！](https://www.blog.minike.top/Article/details/73647.shtml)
-- 2026-06-29 14:07 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/37772267.shtml)
-- 2026-06-29 14:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/0873184.shtml)
-- 2026-06-29 14:01 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/315653.shtml)
+- 2026-06-29 14:24 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/0163141.shtml)
+- 2026-06-29 14:28 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/94080985192.shtml)
+- 2026-06-29 14:10 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/445865.shtml)
+- 2026-06-29 14:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/9235884183.shtml)
+- 2026-06-29 14:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/5331763.shtml)
+- 2026-06-29 14:10 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.minike.top/Article/details/208965913202.shtml)
+- 2026-06-29 14:30 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/92660154.shtml)
+- 2026-06-29 14:10 - [吴昕要助理买的药6年前已停产](http://www.blog.kurohicncr.top/Article/details/810083672255.shtml)
+- 2026-06-29 14:19 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/802824470.shtml)
+- 2026-06-29 14:35 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/1784264.shtml)
+- 2026-06-29 14:10 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/45108462.shtml)
+- 2026-06-29 14:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/667183654598.shtml)
+- 2026-06-29 14:13 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/783299845157.shtml)
+- 2026-06-29 14:12 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/4234792631.shtml)
+- 2026-06-29 14:28 - [在委侨团负责人：家乡的帮助很及时](http://www.share.kurohicncr.top/Article/details/098295247.shtml)

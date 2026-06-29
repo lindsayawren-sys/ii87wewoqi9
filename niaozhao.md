@@ -1,57 +1,52 @@
-# MH迈汇:原油高位震荡关注谈判
+# 高市早苗将在访越时提新版“自由开放印太构想”，外交部：实际是挑动阵营对抗
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-4月28日，近期国际原油市场持续维持高位运行，WTI原油期货突破每桶96美元，布伦特原油盘中最高触及108美元附近，霍尔木兹海峡持续封闭所带来的供应冲击继续主导市场走势。MH迈汇表示，此轮冲突已延续逾九周，3月份全球产量受阻规模日均高达750万桶，美国能源信息署（EIA）4月短期能源展望预计4月峰值将进一步升至910万桶/日，全球原油供应结构性偏紧的格局正日益凸显。 从市场数据
+4月29日，外交部发言人林剑主持例行记者会。《朝日新闻》记者提问，据了解，日本首相高市早苗将于本周末访问越南期间，提出新版“自由开放的印度-太平洋构想”，请问中方对此有何评论？ 林剑表示，国与国交往不应针对第三方或损害第三方利益。日方打着“自由开放”的幌子，实际上做的却是挑动阵营对抗、打造“小圈子”。这种做法与地区国家和国际社会求和平、谋发展、促合作的共同愿景背道而驰，不得人心
 
 ## 正文
 
-4月28日，近期国际原油市场持续维持高位运行，WTI原油期货突破每桶96美元，布伦特原油盘中最高触及108美元附近，霍尔木兹海峡持续封闭所带来的供应冲击继续主导市场走势。
+4月29日，外交部发言人林剑主持例行记者会。
 
-MH迈汇表示，此轮冲突已延续逾九周，3月份全球产量受阻规模日均高达750万桶，美国能源信息署（EIA）4月短期能源展望预计4月峰值将进一步升至910万桶/日，全球原油供应结构性偏紧的格局正日益凸显。
+《朝日新闻》记者提问，据了解，日本首相高市早苗将于本周末访问越南期间，提出新版“自由开放的印度-太平洋构想”，请问中方对此有何评论？
 
-从市场数据来看，布伦特与WTI的价差在3月份扩大至平均每桶12美元，直接体现了霍尔木兹航线受阻对国际基准油价的非对称冲击。
+林剑表示，国与国交往不应针对第三方或损害第三方利益。
 
-MH迈汇认为，全球约20%的石油供应历史上途经这一战略咽喉，在航道持续受阻的情况下，这一价差预计将长期维持高位。
+日方打着“自由开放”的幌子，实际上做的却是挑动阵营对抗、打造“小圈子”。
 
-与此同时，伊朗向美方提交新一轮方案，建议延长停火并将核谈重启与解除海峡封锁相挂钩，消息传出后布伦特从108美元高位小幅回落至106美元区间，但回调力度有限，市场对外交前景仍持观望立场。
+这种做法与地区国家和国际社会求和平、谋发展、促合作的共同愿景背道而驰，不得人心。
 
-外交动向依然是影响油价走势的最大变量。
-
-尽管伊朗新提案带来短暂乐观情绪，但美方迄今维持暂停正式谈判的立场，市场情绪在地缘风险溢价与停火预期之间反复博弈。
-
-能源交易员普遍将布伦特-WTI价差作为观察霍尔木兹航线供应压力的实时窗口——若价差出现明显收窄，将预示着市场开始更积极地定价海峡重开的可能性。
+澎湃新闻记者 杨文钦 朱郑勇责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 14:08 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 14:12 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 14:02 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 14:24 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 14:11 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 14:21 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 14:01 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 14:13 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 14:28 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 14:00 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 14:13 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 14:22 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 14:18 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 14:11 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 14:23 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 14:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 14:10 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 14:26 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 14:10 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 14:27 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/511333212.shtml)
-- 2026-06-29 14:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/3012214.shtml)
-- 2026-06-29 14:02 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/0742660214.shtml)
-- 2026-06-29 14:09 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/9704959.shtml)
-- 2026-06-29 14:10 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/758473854.shtml)
-- 2026-06-29 14:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/61467253778.shtml)
-- 2026-06-29 14:05 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/94786095890.shtml)
-- 2026-06-29 14:24 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/82985392.shtml)
-- 2026-06-29 14:25 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/36783062.shtml)
-- 2026-06-29 14:00 - [血糖高的人能吃西瓜吗](http://www.blog.kurohicncr.top/Article/details/977344286827.shtml)
-- 2026-06-29 14:27 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/16705133518.shtml)
-- 2026-06-29 14:01 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/93987971.shtml)
-- 2026-06-29 14:22 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/660865.shtml)
-- 2026-06-29 14:24 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/718143073812.shtml)
-- 2026-06-29 14:01 - [吴海燕兰西雅漫步复兴岛](https://www.blog.minike.top/Article/details/45390.shtml)
+- 2026-06-29 14:21 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/6201949.shtml)
+- 2026-06-29 14:31 - [王楚钦 表演球擦网](http://www.share.minike.top/Article/details/350758892.shtml)
+- 2026-06-29 14:11 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/24329239.shtml)
+- 2026-06-29 14:15 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/948397.shtml)
+- 2026-06-29 14:13 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/9403205.shtml)
+- 2026-06-29 14:27 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/2255020952.shtml)
+- 2026-06-29 14:35 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/6523323899.shtml)
+- 2026-06-29 14:35 - [乔家的儿女](https://www.share.minike.top/Article/details/5956990241.shtml)
+- 2026-06-29 14:07 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/8745661.shtml)
+- 2026-06-29 14:09 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/06514683.shtml)
+- 2026-06-29 14:26 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/25671906177.shtml)
+- 2026-06-29 14:08 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/51310979.shtml)
+- 2026-06-29 14:24 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/49177592893.shtml)
+- 2026-06-29 14:14 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/945966866244.shtml)
+- 2026-06-29 14:32 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/5461395248.shtml)

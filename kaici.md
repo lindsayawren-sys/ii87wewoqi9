@@ -1,61 +1,58 @@
-# 特朗普遇刺未遂，市场如何定价？
+# CNBC调查：高油价将使2026年通胀高企，美联储降息之路受阻
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-来源：汇通网 汇通财经APP讯——4月27日周一欧市早盘，美国金融市场处于周末休市阶段，但前一日发生在华盛顿希尔顿酒店的白宫记者协会年度晚宴安全事件，为下周交易时段的市场情绪增添了不确定性。上周五收盘数据显示，标普500指数报收7165点，当日上涨0.8%，4月累计涨幅已超过9%；纳斯达克指数收于24836点，单日上涨1.6%；道琼斯工业平均指数收报49230点附近，表现相对平
+CNBC最新发布的美联储调查显示，持续高企的油价正在重塑2026年的通胀前景，美联储被迫维持谨慎立场，新任主席若想降息恐面临重重阻力。 油价冲击“不请自来”，通胀预期全面上调 调查结果显示，受访经济学家和市场策略师普遍认为，中东冲突引发的油价飙升是当前通胀压力的主要来源。布伦特原油价格自冲突爆发以来已大幅上涨，直接推高了汽油和燃油价格。 受访者预计，高油价将导致今年的整体通胀率
 
 ## 正文
 
-来源：汇通网 汇通财经APP讯——4月27日周一欧市早盘，美国金融市场处于周末休市阶段，但前一日发生在华盛顿希尔顿酒店的白宫记者协会年度晚宴安全事件，为下周交易时段的市场情绪增添了不确定性。
+CNBC最新发布的美联储调查显示，持续高企的油价正在重塑2026年的通胀前景，美联储被迫维持谨慎立场，新任主席若想降息恐面临重重阻力。
 
-上周五收盘数据显示，标普500指数报收7165点，当日上涨0.8%，4月累计涨幅已超过9%；纳斯达克指数收于24836点，单日上涨1.6%；道琼斯工业平均指数收报49230点附近，表现相对平淡。
+油价冲击“不请自来”，通胀预期全面上调 调查结果显示，受访经济学家和市场策略师普遍认为，中东冲突引发的油价飙升是当前通胀压力的主要来源。
 
-目前10年期美国国债收益率稳定在4.32%左右，美元指数徘徊于98.5附近。
+布伦特原油价格自冲突爆发以来已大幅上涨，直接推高了汽油和燃油价格。
 
-黄金现货价格维持在4710美元每盎司上下，原油价格受地缘因素影响，布伦特原油约101美元每桶，WTI原油约96美元每桶。
+受访者预计，高油价将导致今年的整体通胀率（PCE）额外上升0.6个百分点，同时可能拖累经济增长约0.5个百分点。
 
-VIX指数近期处于18.71的低位，显示市场整体风险情绪仍处相对克制区间。
+更令人担忧的是，高达81%的受访者认为，这种由能源驱动的价格压力将渗透并抬升剔除食品和能源后的核心通胀。
 
-在当前宏观背景下，美国经济增长预期约2.2%，失业率在4.3%至4.5%之间，通胀率约2.7%，叠加地缘紧张局势，此类周末突发事件容易通过风险溢价渠道传导至资产定价。
+芝加哥联储主席古尔斯比此前也警告，油价的“不合时宜的冲击”可能会显著推高公众的通胀预期，令美联储陷入更复杂的境地。
 
-事件细节与政治不确定性传导路径 此次晚宴期间，一名来自加州的男子携带多件武器试图闯入会场，与安保人员发生交火后被制服，现场约2600名与会者一度陷入混乱，美国总统随后被紧急护送离开。
+降息预期降温，美联储2026年将保持观望 强劲的通胀粘性直接浇灭了市场对美联储快速转向宽松的期待。
 
-事件发生后，总统在白宫简短讲话中强调安全设施的重要性，并提及需要建设更安全的白宫新设施，以取代外部会场的潜在风险。
+调查预测，联邦基金利率到年底只会小幅降至约3.5%，相比目前的利率区间几乎没有变化。
 
 ## 相关推荐
 
-- 2026-06-29 14:01 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 14:23 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 14:14 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 14:20 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 14:20 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 14:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 14:18 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 14:06 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 14:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 14:00 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 14:06 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 14:26 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 14:02 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 14:13 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 14:15 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 14:32 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 14:07 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 14:17 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 14:23 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 14:27 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 14:26 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 14:08 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 14:14 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 14:24 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 14:23 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 14:07 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 14:15 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:28 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/0340815.shtml)
-- 2026-06-29 14:11 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/4811092.shtml)
-- 2026-06-29 14:10 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/23653642.shtml)
-- 2026-06-29 14:27 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/063934.shtml)
-- 2026-06-29 14:16 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/6976329224.shtml)
-- 2026-06-29 14:14 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/031179.shtml)
-- 2026-06-29 14:08 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/38860178172.shtml)
-- 2026-06-29 14:26 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/19224514.shtml)
-- 2026-06-29 14:23 - [吴昕要助理买的药6年前已停产](http://www.share.minike.top/Article/details/07513.shtml)
-- 2026-06-29 14:18 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/7319998615.shtml)
-- 2026-06-29 14:15 - [詹俊预测德国大胜巴拉圭](http://www.blog.minike.top/Article/details/506540.shtml)
-- 2026-06-29 14:21 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/559695473.shtml)
-- 2026-06-29 14:03 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.minike.top/Article/details/24978681999.shtml)
-- 2026-06-29 14:10 - [三都主：淘汰赛我会支持日本](https://www.share.kurohicncr.top/Article/details/2813481.shtml)
-- 2026-06-29 14:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/824815520805.shtml)
+- 2026-06-29 14:30 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/4580156.shtml)
+- 2026-06-29 14:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/73061848195.shtml)
+- 2026-06-29 14:15 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/768984118440.shtml)
+- 2026-06-29 14:25 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/13134.shtml)
+- 2026-06-29 14:09 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/940552155.shtml)
+- 2026-06-29 14:24 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/144487.shtml)
+- 2026-06-29 14:06 - [沙丘](https://www.share.minike.top/Article/details/333164.shtml)
+- 2026-06-29 14:25 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/711138122920.shtml)
+- 2026-06-29 14:23 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.kurohicncr.top/Article/details/6991198.shtml)
+- 2026-06-29 14:18 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/1583219.shtml)
+- 2026-06-29 14:11 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/592321413586.shtml)
+- 2026-06-29 14:21 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.minike.top/Article/details/6718177.shtml)
+- 2026-06-29 14:18 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/88680.shtml)
+- 2026-06-29 14:11 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/12334.shtml)
+- 2026-06-29 14:32 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/360725664.shtml)

@@ -1,58 +1,55 @@
-# 成群“白色精灵”鹭鸟亮相羊城流溪河畔
+# 巨人网络：收到重庆证监局行政监管措施决定书 对董事长史玉柱出具警示函
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网广州4月27日电 (记者 王坚)广州的四月，绿意铺展。位于广州北部的流溪河畔碧波荡漾，林水相依间，一群群鹭鸟翩跹起舞、自在栖息，成为春日里最灵动的生态风景线。 清澈的流溪河水蜿蜒流淌，两岸林木葱郁、水草丰茂，白鹭、牛背鹭等多种鹭鸟结伴而来，在此安家落户。它们时而轻盈掠过水面，激起圈圈涟漪；时而静立枝头，悠闲梳理洁白羽毛；时而成群盘旋天际，振翅齐飞，身姿优雅。灵动的鹭鸟与绿
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财联社 巨人网络（002558.SZ）公告称，公司于4月29日收到中国证券监督管理委员会重庆监管局下发的《行政监管措施决定书》。经查，公司存在违规行为，2020年9月，公司全资子公司向上海卓闲互动网络技术有限公司转让合肥灵犀互动网络科技有限公司100%
 
 ## 正文
 
-中新网广州4月27日电 (记者 王坚)广州的四月，绿意铺展。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-位于广州北部的流溪河畔碧波荡漾，林水相依间，一群群鹭鸟翩跹起舞、自在栖息，成为春日里最灵动的生态风景线。
+来源：财联社 巨人网络（002558.SZ）公告称，公司于4月29日收到中国证券监督管理委员会重庆监管局下发的《行政监管措施决定书》。
 
-清澈的流溪河水蜿蜒流淌，两岸林木葱郁、水草丰茂，白鹭、牛背鹭等多种鹭鸟结伴而来，在此安家落户。
+经查，公司存在违规行为，2020年9月，公司全资子公司向上海卓闲互动网络技术有限公司转让合肥灵犀互动网络科技有限公司100%股权，上海卓闲支付的股权转让款资金穿透来源于公司关联方。
 
-它们时而轻盈掠过水面，激起圈圈涟漪；时而静立枝头，悠闲梳理洁白羽毛；时而成群盘旋天际，振翅齐飞，身姿优雅。
+关联方提供资金借款促成本次交易完成，系本次交易的共同参与方。
 
-灵动的鹭鸟与绿水青山相映成趣，勾勒出一幅人与自然和谐共生的绝美生态画卷。
+公司未按规定就上述交易履行关联交易审议程序及信息披露义务。
 
-广州市生态环境局介绍，这群“白色精灵”的如约而至，是该市从化区生态环境持续向好最生动的见证。
+中国证券监督管理委员会重庆监管局决定对公司、史玉柱、刘伟、孟玮采取出具警示函的行政监管措施，并将相关情况记入证券期货市场诚信档案。
 
-从化地处粤港澳大湾区北部生态屏障核心区，森林覆盖率高达69.1%，得天独厚的生态本底，为万物生长提供了优渥土壤。
-
-近年来，从化区始终坚守生态优先、绿色发展理念，以美丽河湖创建为核心抓手，全方位、全地域、全过程深化生态环境保护工作。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 14:27 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 14:20 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 14:02 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 14:09 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 14:24 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 14:13 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 14:03 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 14:00 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 14:24 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 14:28 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 14:24 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 14:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 14:24 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 14:07 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 14:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 14:31 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 14:35 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 14:16 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 14:21 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 14:09 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 14:22 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 14:29 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:09 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.kurohicncr.top/Article/details/504462619.shtml)
-- 2026-06-29 14:19 - [哈兰德这该死的胜负欲](http://www.share.minike.top/Article/details/254634.shtml)
-- 2026-06-29 14:06 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/69204686.shtml)
-- 2026-06-29 14:25 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/5345459.shtml)
-- 2026-06-29 14:26 - [光与夜之恋](https://www.share.minike.top/Article/details/7794663965.shtml)
-- 2026-06-29 14:17 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/49308.shtml)
-- 2026-06-29 14:28 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/678028.shtml)
-- 2026-06-29 14:23 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/9750015.shtml)
-- 2026-06-29 14:08 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/9369013.shtml)
-- 2026-06-29 14:28 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/9434692806.shtml)
-- 2026-06-29 14:22 - [斛珠夫人](http://www.share.minike.top/Article/details/51421380.shtml)
-- 2026-06-29 14:17 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/6073822863.shtml)
-- 2026-06-29 14:24 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/66644363.shtml)
-- 2026-06-29 14:20 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.kurohicncr.top/Article/details/4196746.shtml)
-- 2026-06-29 14:13 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.kurohicncr.top/Article/details/3858325.shtml)
+- 2026-06-29 14:12 - [韩国拟将部分刑责年龄降至13岁](http://www.share.minike.top/Article/details/5721878.shtml)
+- 2026-06-29 14:20 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/000366673.shtml)
+- 2026-06-29 14:09 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/466323.shtml)
+- 2026-06-29 14:34 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/520909.shtml)
+- 2026-06-29 14:28 - [普京称考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/1986185.shtml)
+- 2026-06-29 14:06 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/11571.shtml)
+- 2026-06-29 14:25 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/92211997.shtml)
+- 2026-06-29 14:12 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/37652532465.shtml)
+- 2026-06-29 14:08 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/89813.shtml)
+- 2026-06-29 14:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/464694792.shtml)
+- 2026-06-29 14:25 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/928563937.shtml)
+- 2026-06-29 14:09 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/372479855133.shtml)
+- 2026-06-29 14:26 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/6722680.shtml)
+- 2026-06-29 14:16 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/858548.shtml)
+- 2026-06-29 14:23 - [农发行总行专家委员会委员杜晓力被查](https://www.share.kurohicncr.top/Article/details/912063068.shtml)

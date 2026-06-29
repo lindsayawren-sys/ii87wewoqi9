@@ -1,57 +1,60 @@
-# 中共中央政治局：保持人民币汇率在合理均衡水平上的基本稳定
+# 田间地头显身手 我国农业科技进步贡献率超64%
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。会议强调，要用好用足宏观政策。持续优化财政支出结构，兜牢基层“三保”底线。 增强货币政策前瞻性灵活性针对性，保持流动性充裕。保持人民币汇率在合理均衡水平上的基本稳定。做好宏观政策取向一致性评估。 责任编辑：郭建
+原标题：新技术新装备 田间地头显身手(大数据观察) 温室大棚配备智能育种机器人，丘陵山地新添智慧农机，新型农场实现数字技术赋能……我国农业科技进步贡献率超过64%，新技术正在农业生产一线化作蓬勃生产力。 “十五五”规划纲要提出，强化农业科技和装备支撑。把农业建成现代化大产业，关键在科技进步和创新。当前，我国农业科技创新整体效能进一步提升，农业科技进步贡献率超过64%，农作物良种
 
 ## 正文
 
-中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。
+原标题：新技术新装备 田间地头显身手(大数据观察) 温室大棚配备智能育种机器人，丘陵山地新添智慧农机，新型农场实现数字技术赋能……我国农业科技进步贡献率超过64%，新技术正在农业生产一线化作蓬勃生产力。
 
-会议强调，要用好用足宏观政策。
+“十五五”规划纲要提出，强化农业科技和装备支撑。
 
-持续优化财政支出结构，兜牢基层“三保”底线。
+把农业建成现代化大产业，关键在科技进步和创新。
 
-增强货币政策前瞻性灵活性针对性，保持流动性充裕。
+当前，我国农业科技创新整体效能进一步提升，农业科技进步贡献率超过64%，农作物良种覆盖率超过96%，农作物耕种收综合机械化率达到76.7%，主要粮食作物基本实现全程机械化。
 
-保持人民币汇率在合理均衡水平上的基本稳定。
+各种智能装备在农业生产中大显身手，科技为现代农业插上了腾飞的翅膀。
 
-做好宏观政策取向一致性评估。
+智能育种机器人让机器人读懂每一朵花 阳光透过温室棚顶，洒在一排排绿油油的番茄秧上，藤蔓间淡黄色的小花开得正盛。
 
-责任编辑：郭建
+一台白色机器人沿轨道缓缓停下，伸出机械臂，识别、定位、授粉，动作一气呵成——这就是智能育种机器人“吉儿”工作的日常。
+
+“传统的杂交育种和制种全靠人工，人力成本高、效率低。
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 14:08 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 14:09 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 14:24 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 14:00 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 14:08 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 14:04 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 14:28 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 14:25 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 14:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 14:25 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 14:05 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 14:09 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 14:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 14:29 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 14:31 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 14:13 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 14:26 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 14:06 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 14:30 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 14:08 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 14:18 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 14:23 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 14:09 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 14:21 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 14:20 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 14:06 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [T1零封KC MSI](https://www.share.minike.top/Article/details/248312398.shtml)
-- 2026-06-29 14:26 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/108327.shtml)
-- 2026-06-29 14:00 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.minike.top/Article/details/3130129210.shtml)
-- 2026-06-29 14:19 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.minike.top/Article/details/89956654.shtml)
-- 2026-06-29 14:23 - [毒液2](http://www.blog.minike.top/Article/details/44943736.shtml)
-- 2026-06-29 14:24 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/579390.shtml)
-- 2026-06-29 14:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/274937278.shtml)
-- 2026-06-29 14:21 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.minike.top/Article/details/0992331946.shtml)
-- 2026-06-29 14:10 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/261426870200.shtml)
-- 2026-06-29 14:27 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/453261584808.shtml)
-- 2026-06-29 14:17 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/17080.shtml)
-- 2026-06-29 14:05 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/12544949.shtml)
-- 2026-06-29 14:15 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.minike.top/Article/details/644315437.shtml)
-- 2026-06-29 14:05 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/7399786.shtml)
-- 2026-06-29 14:16 - [起风了](https://www.blog.kurohicncr.top/Article/details/26078884.shtml)
+- 2026-06-29 14:06 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/620859258.shtml)
+- 2026-06-29 14:07 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/14495.shtml)
+- 2026-06-29 14:19 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/33920006445.shtml)
+- 2026-06-29 14:22 - [韩体育部长回应李在明痛批](http://www.blog.kurohicncr.top/Article/details/44652.shtml)
+- 2026-06-29 14:23 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/27175913412.shtml)
+- 2026-06-29 14:12 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/89945251.shtml)
+- 2026-06-29 14:21 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/67124161.shtml)
+- 2026-06-29 14:32 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/1370950192.shtml)
+- 2026-06-29 14:30 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/204087.shtml)
+- 2026-06-29 14:22 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/316079943810.shtml)
+- 2026-06-29 14:35 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/2790806676.shtml)
+- 2026-06-29 14:28 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/1739118.shtml)
+- 2026-06-29 14:34 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/03406125713.shtml)
+- 2026-06-29 14:27 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.minike.top/Article/details/10893885.shtml)
+- 2026-06-29 14:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/31135.shtml)

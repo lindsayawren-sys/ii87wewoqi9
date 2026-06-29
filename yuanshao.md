@@ -1,59 +1,57 @@
-# 上海论坛绿色金融分论坛：聚焦新型全球化下的能源转型与绿色投融资
+# 地毯地板强制性国家标准发布
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-专题：上海论坛2026 在全球碳中和进程加速、新型全球化格局重塑的关键节点，能源转型与绿色投融资正成为国际协作的核心议题。上海论坛期间举办的绿色金融分论坛聚焦“新型全球化下的能源转型与绿色投融资”，将汇聚全球政、产、学、研领袖，共谋绿色金融支撑可持续发展的新路径。 本次分论坛由复旦大学绿色金融研究中心和可持续发展研究中心承办，并特别邀请巴西气候与社会研究所（Institute
+中新网4月29日电 据市场监管总局网站消息，近日，市场监管总局发布了新修订的《室内装饰装修材料 地毯、地毯衬垫和聚氯乙烯地板中有害物质限量》(GB 18586—2026)强制性国家标准，该标准由工业和信息化部归口。新版标准在旧版标准的基础上，从严规定了地毯和聚氯乙烯地板两类室内装饰装修铺地材料的有害物质限量要求，为规范并提高相关产品质量安全水平、推动行业绿色转型升级提供了有力支
 
 ## 正文
 
-专题：上海论坛2026 在全球碳中和进程加速、新型全球化格局重塑的关键节点，能源转型与绿色投融资正成为国际协作的核心议题。
+中新网4月29日电 据市场监管总局网站消息，近日，市场监管总局发布了新修订的《室内装饰装修材料 地毯、地毯衬垫和聚氯乙烯地板中有害物质限量》(GB 18586—2026)强制性国家标准，该标准由工业和信息化部归口。
 
-上海论坛期间举办的绿色金融分论坛聚焦“新型全球化下的能源转型与绿色投融资”，将汇聚全球政、产、学、研领袖，共谋绿色金融支撑可持续发展的新路径。
+新版标准在旧版标准的基础上，从严规定了地毯和聚氯乙烯地板两类室内装饰装修铺地材料的有害物质限量要求，为规范并提高相关产品质量安全水平、推动行业绿色转型升级提供了有力支撑。
 
-本次分论坛由复旦大学绿色金融研究中心和可持续发展研究中心承办，并特别邀请巴西气候与社会研究所（Institute for Climate and Society， ICS）、巴西国际关系中心（Centro Brasileiro de Relações Internacionais， CEBRI）等权威机构联合参与。
+筑牢呼吸健康防线。
 
-论坛立足全球视野，旨在通过高水平、跨区域的深度对话，为推动构建更加公平、包容、可持续的新型全球化贡献智慧与务实方案。
+针对地毯及地毯衬垫产品，新标准严格设定甲醛、总挥发性有机化合物(TVOC)等指标限值。
 
-紧扣“十五五”目标，深化中巴绿色合作 “十五五”规划纲要明确“十五五”时期经济社会发展的主要目标，其中就包括绿色生产生活方式基本形成，碳达峰目标如期实现，单位国内生产总值二氧化碳排放降低17%，清洁低碳安全高效的新型能源体系初步建成。
+其中，TVOC释放限量统一收紧至不高于500 μg/(m²·h)，取消环保型、普通型产品分级划分，确立健康唯一核心准入准则。
 
-碳中和与能源转型不仅是美丽中国建设的关键支撑，更是中国式现代化的重要战略方向。
+该调整简化消费选购判定规则，所有符合国家标准的产品均需满足健康安全要求，切实保障消费者室内呼吸环境安全。
 
-与此同时，国际合作步伐持续深化。
+从严管控化学添加剂。
 
-2025年5月发布的中巴联合声明中，双方明确提出携手构建更公正世界和更可持续星球的中巴命运共同体，并在可持续发展领域不断拓展务实合作的广度与深度。
+针对家庭、公共场所广泛使用的聚氯乙烯地板，新标准全面扩容有害物质管控清单，除了严控氯乙烯单体，还对铅、镉、汞等重金属，邻苯二甲酸酯类增塑剂、甲醛、甲酰胺等高危有害物质明确限量要求。
 
 ## 相关推荐
 
-- 2026-06-29 14:01 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 14:12 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 14:14 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 14:16 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 14:07 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 14:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 14:27 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 14:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 14:28 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 14:08 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 14:13 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 14:29 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 14:27 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 14:34 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 14:06 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 14:29 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 14:34 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 14:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 14:27 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 14:25 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 14:25 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 14:28 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 14:29 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 14:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/652171678729.shtml)
-- 2026-06-29 14:17 - [我和我的家乡](https://www.blog.minike.top/Article/details/70006.shtml)
-- 2026-06-29 14:18 - [比亚迪为什么卖得越多市值越低](http://www.share.kurohicncr.top/Article/details/450227284460.shtml)
-- 2026-06-29 14:06 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/1121212095.shtml)
-- 2026-06-29 14:00 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/403104.shtml)
-- 2026-06-29 14:14 - [王佳佳江疏影13年前后同框对比](https://www.blog.minike.top/Article/details/24405.shtml)
-- 2026-06-29 14:15 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/72579789652.shtml)
-- 2026-06-29 14:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/157037695.shtml)
-- 2026-06-29 14:23 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/218980784832.shtml)
-- 2026-06-29 14:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/83836410.shtml)
-- 2026-06-29 14:14 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/88103327599.shtml)
-- 2026-06-29 14:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/489691.shtml)
-- 2026-06-29 14:02 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/72768645.shtml)
-- 2026-06-29 14:01 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.minike.top/Article/details/5988672383.shtml)
-- 2026-06-29 14:08 - [84岁英国教授成中国网红](http://www.share.kurohicncr.top/Article/details/20734520500.shtml)
+- 2026-06-29 14:35 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/228033.shtml)
+- 2026-06-29 14:28 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/451358576.shtml)
+- 2026-06-29 14:08 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/8055468582.shtml)
+- 2026-06-29 14:13 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/81378.shtml)
+- 2026-06-29 14:34 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/030389116661.shtml)
+- 2026-06-29 14:35 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/861708076104.shtml)
+- 2026-06-29 14:31 - [医药股集体爆发](https://www.share.minike.top/Article/details/95316.shtml)
+- 2026-06-29 14:23 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/3986021.shtml)
+- 2026-06-29 14:13 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/4352623.shtml)
+- 2026-06-29 14:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/58282.shtml)
+- 2026-06-29 14:34 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/7063589518.shtml)
+- 2026-06-29 14:09 - [A股](https://www.blog.minike.top/Article/details/12947.shtml)
+- 2026-06-29 14:20 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/574553819023.shtml)
+- 2026-06-29 14:08 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.minike.top/Article/details/3913353586.shtml)
+- 2026-06-29 14:12 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/87613213.shtml)

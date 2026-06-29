@@ -1,60 +1,51 @@
-# 中国驻美大使馆原商务公使朱洪：中国始终坚持对外开放，为企业来华投资兴业提供广阔空间和便利条件
+# 8分钟入境 边检为泰国榴莲丝滑入境按下“加速键”
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。中国驻美国大使馆原商务公使朱洪表示，贸易合作是中美关系的重要支柱。过去几十年，中美贸易合作实现了互利共赢，不仅推动了双方经济的发展，也为全球贸易增长作出了重要贡献。当前中美贸易合作的韧性依然存在，合作的潜力依然巨大。 他指出，中美双方应坚持平等互利、相互尊重
+发布时间：2026年04月30日 16:36 来源：中国新闻网 4月29日，一辆满载泰国榴莲的“澜湄快线”列车缓缓驶入，磨憨边检站的2名民警立即前往列车停靠点，快步登上列车驾驶室，认真核查列车员证件、开展列车车体检查，8分钟后，列车启动前往海关查验货场。 【同期】磨憨边检站执勤四队民警 程政 针对榴莲、山竹等生鲜货物“快通关、高保鲜、低损耗”的通关需求，我们同步优化货运查验流程
 
 ## 正文
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
+发布时间：2026年04月30日 16:36 来源：中国新闻网 4月29日，一辆满载泰国榴莲的“澜湄快线”列车缓缓驶入，磨憨边检站的2名民警立即前往列车停靠点，快步登上列车驾驶室，认真核查列车员证件、开展列车车体检查，8分钟后，列车启动前往海关查验货场。
 
-中国驻美国大使馆原商务公使朱洪表示，贸易合作是中美关系的重要支柱。
+【同期】磨憨边检站执勤四队民警 程政 针对榴莲、山竹等生鲜货物“快通关、高保鲜、低损耗”的通关需求，我们同步优化货运查验流程，上线运行5T车体检查视频监控系统，推行登车办理、简化铁路员工验证程序、7乘24小时全时通关等措施，货物通关边检查验时间大幅压缩至8分钟以内，有力保障中老铁路货运畅通。
 
-过去几十年，中美贸易合作实现了互利共赢，不仅推动了双方经济的发展，也为全球贸易增长作出了重要贡献。
-
-当前中美贸易合作的韧性依然存在，合作的潜力依然巨大。
-
-他指出，中美双方应坚持平等互利、相互尊重的原则，通过对话协商解决贸易领域的分歧，取消不合理的贸易关税和壁垒，重启双边经贸磋商，推动贸易合作健康发展。
-
-他强调，“中国始终坚持对外开放的基本国策，不断优化营商环境，为美国企业来华投资兴业提供了广阔的空间和便利的条件。
-
-希望美国企业能抓住机遇，积极参与中国市场，实现互利共赢。
-
-” 此外，朱洪还提到，中美在商务领域的合作不仅限于贸易，还包括投资、服务、技术交流等多个方面，双方应加强在这些领域的合作，拓展合作空间，提升合作水平。
+(黄远飞 雷雨 制作 陆星羽 视频来源 磨憨边检站） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 14:23 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 14:15 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 14:18 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 14:07 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 14:13 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 14:01 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 14:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 14:01 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 14:28 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 14:07 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 14:01 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 14:03 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 14:27 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 14:21 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 14:15 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 14:24 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 14:24 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 14:19 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 14:35 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 14:10 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 14:32 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 14:06 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 14:15 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 14:30 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 14:33 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 14:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 14:19 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 14:29 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:16 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/9480298.shtml)
-- 2026-06-29 14:16 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/298964218694.shtml)
-- 2026-06-29 14:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/0567211.shtml)
-- 2026-06-29 14:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/43821397116.shtml)
-- 2026-06-29 14:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/3595829339.shtml)
-- 2026-06-29 14:21 - [NBA交易](https://www.blog.minike.top/Article/details/75463608739.shtml)
-- 2026-06-29 14:12 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/34862.shtml)
-- 2026-06-29 14:04 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/724312.shtml)
-- 2026-06-29 14:10 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/869773.shtml)
-- 2026-06-29 14:27 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/1620560.shtml)
-- 2026-06-29 14:19 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/2626018618.shtml)
-- 2026-06-29 14:02 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/15438172048.shtml)
-- 2026-06-29 14:27 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/43244129802.shtml)
-- 2026-06-29 14:14 - [一见倾心](http://www.blog.minike.top/Article/details/62918.shtml)
-- 2026-06-29 14:15 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/827823.shtml)
+- 2026-06-29 14:07 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/607945161.shtml)
+- 2026-06-29 14:30 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/76770618522.shtml)
+- 2026-06-29 14:18 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/918184.shtml)
+- 2026-06-29 14:19 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.minike.top/Article/details/74995.shtml)
+- 2026-06-29 14:28 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/24918090.shtml)
+- 2026-06-29 14:09 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/96446678662.shtml)
+- 2026-06-29 14:10 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/546806367047.shtml)
+- 2026-06-29 14:17 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/24409270.shtml)
+- 2026-06-29 14:33 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/02009765662.shtml)
+- 2026-06-29 14:13 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/1040707.shtml)
+- 2026-06-29 14:35 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/060961946.shtml)
+- 2026-06-29 14:31 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/263816.shtml)
+- 2026-06-29 14:21 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/6723809009.shtml)
+- 2026-06-29 14:15 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/2513835410.shtml)
+- 2026-06-29 14:15 - [普京称考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/324925.shtml)

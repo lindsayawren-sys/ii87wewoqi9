@@ -1,57 +1,61 @@
-# 特斯拉注册与马斯克2018年薪酬方案相关的逾3亿股股票，价值近1150亿美元
+# 沪科普活动：研制专家揭秘“天舟”之后为何有“轻舟”？
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：持股还是持币？机构看好A股“红五月”行情 当地时间4月24日，特斯拉向美国证券交易委员会（SEC）提交文件，登记注册了与马斯克2018年薪酬方案相关的约3.04亿股普通股。按特斯拉当前约378美元的股价计算，这批股票总价值近1150亿美元。 特斯拉股东于2012年投票决定授予这项备受争议的期权。2024年，特拉华州一名法官
+中新网上海4月29日电 (记者 郑莹莹)“与天舟(货运飞船)相比，轻舟(货运飞船)的发射频次比较高，可以给航天员带去更多诸如水果之类的新鲜物资。”中国科学院微小卫星创新研究院轻舟货运飞船副总设计师陈蕞28日在上海称。 当天，以“遇见宇宙，发现更美”为主题的科普活动在沪举办。陈蕞在现场带来有关轻舟货运飞船的科普讲座。 “既然有‘天舟’可以送货，我们为何还需要‘轻舟’？”陈蕞在现场
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：持股还是持币？
+中新网上海4月29日电 (记者 郑莹莹)“与天舟(货运飞船)相比，轻舟(货运飞船)的发射频次比较高，可以给航天员带去更多诸如水果之类的新鲜物资。
 
-机构看好A股“红五月”行情 当地时间4月24日，特斯拉向美国证券交易委员会（SEC）提交文件，登记注册了与马斯克2018年薪酬方案相关的约3.04亿股普通股。
+”中国科学院微小卫星创新研究院轻舟货运飞船副总设计师陈蕞28日在上海称。
 
-按特斯拉当前约378美元的股价计算，这批股票总价值近1150亿美元。
+当天，以“遇见宇宙，发现更美”为主题的科普活动在沪举办。
 
-特斯拉股东于2012年投票决定授予这项备受争议的期权。
+陈蕞在现场带来有关轻舟货运飞船的科普讲座。
 
-2024年，特拉华州一名法官以股东信息披露不足为由，宣布该期权无效。
+“既然有‘天舟’可以送货，我们为何还需要‘轻舟’？
 
-同年，特斯拉股东再次批准了该期权，但法官并未改变判决。
+”陈蕞在现场问。
 
-最终，特拉华州最高法院于2025年支持特斯拉，维持了马斯克的股票期权。
+他接着解释，这是为了给中国空间站提供更灵活、更优成本的送货服务。
 
-为了获得该奖励，特斯拉的市值基本上必须达到6500亿美元。
+“轻舟”致力于开辟航天降本增效新路径。
 
 ## 相关推荐
 
-- 2026-06-29 14:02 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 14:04 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 14:20 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 14:23 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 14:08 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 14:00 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 14:29 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 14:25 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 14:23 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 14:29 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 14:17 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 14:29 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 14:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 14:28 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 14:11 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 14:15 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 14:06 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 14:11 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 14:25 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 14:16 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 14:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 14:33 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 14:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 14:30 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 14:15 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 14:33 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.kurohicncr.top/Article/details/221168.shtml)
-- 2026-06-29 14:24 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/061558560016.shtml)
-- 2026-06-29 14:07 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/28422933098.shtml)
-- 2026-06-29 14:22 - [《昨夜将至》为何是悬疑黑马](https://www.blog.kurohicncr.top/Article/details/648542573066.shtml)
-- 2026-06-29 14:05 - [强⁶](https://www.blog.minike.top/Article/details/767507.shtml)
-- 2026-06-29 14:00 - [2025年人口增长10强城市出炉](http://www.share.kurohicncr.top/Article/details/34829088925.shtml)
-- 2026-06-29 14:04 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/69898739357.shtml)
-- 2026-06-29 14:12 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/778622494.shtml)
-- 2026-06-29 14:09 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/70797471409.shtml)
-- 2026-06-29 14:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/76078.shtml)
-- 2026-06-29 14:29 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/438624977.shtml)
-- 2026-06-29 14:19 - [强⁶](https://www.share.minike.top/Article/details/44554070.shtml)
-- 2026-06-29 14:17 - [勇敢的心第二部](http://www.share.minike.top/Article/details/600173190.shtml)
-- 2026-06-29 14:01 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/4798072462.shtml)
-- 2026-06-29 14:18 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/38112849478.shtml)
+- 2026-06-29 14:30 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/9762699845.shtml)
+- 2026-06-29 14:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/861186253050.shtml)
+- 2026-06-29 14:35 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/885041532619.shtml)
+- 2026-06-29 14:35 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/09910780.shtml)
+- 2026-06-29 14:09 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/583183348266.shtml)
+- 2026-06-29 14:27 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/56586408784.shtml)
+- 2026-06-29 14:24 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/20847.shtml)
+- 2026-06-29 14:12 - [王楚钦周启豪爆分](https://www.blog.minike.top/Article/details/0066486.shtml)
+- 2026-06-29 14:27 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/53817148534.shtml)
+- 2026-06-29 14:16 - [欧委会总部只给高层开空调](http://www.blog.kurohicncr.top/Article/details/66368332134.shtml)
+- 2026-06-29 14:16 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/85870471864.shtml)
+- 2026-06-29 14:34 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/80055035.shtml)
+- 2026-06-29 14:29 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/83861764.shtml)
+- 2026-06-29 14:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/1985014.shtml)
+- 2026-06-29 14:16 - [周杰伦演唱会真的好多人啊](http://www.share.minike.top/Article/details/808218268367.shtml)

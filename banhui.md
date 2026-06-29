@@ -1,60 +1,58 @@
-# 韦德布什预测特斯拉和SpaceX明年合并概率达80-90%
+# 杨德龙：美联储继续维持利率不变 鲍威尔呼吁保持货币政策独立性
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-韦德布什证券公司董事总经理、科技股多头丹·艾夫斯预测，埃隆·马斯克的企业帝国将进行重大整合，并预测特斯拉和即将上市的SpaceX极有可能在2027年上半年合并。 在接受 Schwab Network 采访时，艾夫斯谈到了这两家公司合并的可能性，并概述了具体的流程。 他预测，SpaceX今年夏季的首次公开募股 （IPO） 将为随后不久的大规模企业合并奠定财务基础。 “我认为这就是
+北京时间4月30日凌晨2点，美联储宣布将基准利率维持在3.5%-3.75%不变，连续三次会议按兵不动，符合市场预期。这也是美联储主席鲍威尔在任期结束前的最后一次新闻发布会。5月15日鲍威尔任期结束，他可能继续担任美联储理事。特朗普新提名的继任者为沃什，沃什上任后可能采取“缩表+降息”的组合拳。鲍威尔首先祝贺沃什获得参议院银行委员会表决通过，他评价沃什拥有驱动共识的能力，并表示相
 
 ## 正文
 
-韦德布什证券公司董事总经理、科技股多头丹·艾夫斯预测，埃隆·马斯克的企业帝国将进行重大整合，并预测特斯拉和即将上市的SpaceX极有可能在2027年上半年合并。
+北京时间4月30日凌晨2点，美联储宣布将基准利率维持在3.5%-3.75%不变，连续三次会议按兵不动，符合市场预期。
 
-在接受 Schwab Network 采访时，艾夫斯谈到了这两家公司合并的可能性，并概述了具体的流程。
+这也是美联储主席鲍威尔在任期结束前的最后一次新闻发布会。
 
-他预测，SpaceX今年夏季的首次公开募股 （IPO） 将为随后不久的大规模企业合并奠定财务基础。
+5月15日鲍威尔任期结束，他可能继续担任美联储理事。
 
-“我认为这就是他们将要经历的步骤，”艾夫斯说道，“最终与特斯拉合并……我认为可能性在 80% 到 90% 之间。
+特朗普新提名的继任者为沃什，沃什上任后可能采取“缩表+降息”的组合拳。
 
-” 他指出，这一历史性的整合很可能在 2027 年上半年完成。
+鲍威尔首先祝贺沃什获得参议院银行委员会表决通过，他评价沃什拥有驱动共识的能力，并表示相信这将是一次标准、正常的人事更迭。
 
-尽管艾夫斯认为潜在的合并是其所谓的“全球最佳物理人工智能项目”合乎逻辑的战略发展，但其他一些知名投资者对这笔假设性交易的看法却截然不同。
+他特别提到，相信沃什会勇敢面对来自白宫的降息压力，维护美联储与财政部之间的边界，即保持美联储货币政策的独立性。
 
-格伯川崎财富管理公司CEO罗斯·格伯 （Ross Gerber） 近期指出，在电动汽车竞争和资本支出调整的背景下，这样的交易实际上可能成为这家汽车制造商的战略救命稻草。
+鲍威尔发出严厉警告，称美联储的独立性正受到威胁。
 
-“与其称之为合并，不如说 SpaceX 更像是通过收购来拯救特斯拉，”格伯在 X网站上表示。
+他强调，如果货币政策受到政治干预，市场将丧失对通胀目标的信心，这对美国经济将是灾难性的。
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 14:26 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 14:22 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 14:03 - [下飞机后，我做了个很蠢的决定......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 14:10 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 14:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 14:24 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 14:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 14:21 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 14:25 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 14:20 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 14:14 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 14:10 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 14:18 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 14:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 14:22 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 14:12 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 14:25 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 14:19 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 14:23 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 14:21 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 14:25 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 14:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 14:14 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 14:25 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 14:09 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [央视起底直播诈骗连环套](https://www.blog.minike.top/Article/details/5844292.shtml)
-- 2026-06-29 14:27 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/3451345.shtml)
-- 2026-06-29 14:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/07946.shtml)
-- 2026-06-29 14:09 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/25943615299.shtml)
-- 2026-06-29 14:25 - [北极荒岛生存挑战](http://www.blog.kurohicncr.top/Article/details/0913748.shtml)
-- 2026-06-29 14:17 - [2026年Mac能玩游戏了吗](http://www.share.kurohicncr.top/Article/details/6501227.shtml)
-- 2026-06-29 14:30 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/356486394788.shtml)
-- 2026-06-29 14:12 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/9015882.shtml)
-- 2026-06-29 14:07 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/928610611.shtml)
-- 2026-06-29 14:24 - [请回答王牌2019](http://www.blog.minike.top/Article/details/632511.shtml)
-- 2026-06-29 14:06 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/61289696.shtml)
-- 2026-06-29 14:29 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/0177582.shtml)
-- 2026-06-29 14:16 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/52957.shtml)
-- 2026-06-29 14:11 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/98143.shtml)
-- 2026-06-29 14:09 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/4475308312.shtml)
+- 2026-06-29 14:25 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/957333108.shtml)
+- 2026-06-29 14:10 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/510581.shtml)
+- 2026-06-29 14:32 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/849499316.shtml)
+- 2026-06-29 14:24 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/867903.shtml)
+- 2026-06-29 14:18 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/727723972.shtml)
+- 2026-06-29 14:19 - [天道](http://www.share.minike.top/Article/details/32903885012.shtml)
+- 2026-06-29 14:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/2673552.shtml)
+- 2026-06-29 14:12 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/6953384423.shtml)
+- 2026-06-29 14:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/3694683.shtml)
+- 2026-06-29 14:30 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/4460491.shtml)
+- 2026-06-29 14:21 - [俄军新型无人机战力如何](http://www.blog.minike.top/Article/details/899172256441.shtml)
+- 2026-06-29 14:28 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/12237.shtml)
+- 2026-06-29 14:11 - [逆天祖国人](https://www.blog.minike.top/Article/details/63567307.shtml)
+- 2026-06-29 14:18 - [Mrbeast的30天不吃饭挑战](http://www.blog.minike.top/Article/details/1010218.shtml)
+- 2026-06-29 14:07 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/10279983953.shtml)

@@ -1,57 +1,57 @@
-# 起底全球AI硅光芯片第一股，“算力之都”上海步入产业兑现期
+# 降幅扩大至近10%！格力营收连续两年下滑，仍计划大手笔分红
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-算力是AI的物理基础，作为中国的GPU之都，上海已有多家企业齐聚资本市场。 伴随全球大模型与算力需求的爆发式增长，全球首家以光电混合算力为核心的科技企业——曦智科技-P（01879.HK），今日（28日）正式登陆港交所，全球资本市场迎来“光计算与光互连”领域的首个对标标的。 上市首日曦智科技开盘价为880港元，发行价183.2港元，延续了公司招股阶段近5800倍认购的市场热度。
+界面新闻记者 | 宋佳楠 4月28日晚，格力电器发布2025年年度报告，数据显示公司全年营收1704.47亿元，同比下降9.89%，这已是该公司连续第二年营收下滑；归母净利润290.03亿元，同比亦下降9.89%。即便业绩承压，格力仍计划大手笔派发现金红利。 2025年，格力电器全年营收较2024年的1891.64亿元减少187.17亿元，而2024年公司营收已较2023年的2
 
 ## 正文
 
-算力是AI的物理基础，作为中国的GPU之都，上海已有多家企业齐聚资本市场。
+界面新闻记者 | 宋佳楠 4月28日晚，格力电器发布2025年年度报告，数据显示公司全年营收1704.47亿元，同比下降9.89%，这已是该公司连续第二年营收下滑；归母净利润290.03亿元，同比亦下降9.89%。
 
-伴随全球大模型与算力需求的爆发式增长，全球首家以光电混合算力为核心的科技企业——曦智科技-P（01879.HK），今日（28日）正式登陆港交所，全球资本市场迎来“光计算与光互连”领域的首个对标标的。
+即便业绩承压，格力仍计划大手笔派发现金红利。
 
-上市首日曦智科技开盘价为880港元，发行价183.2港元，延续了公司招股阶段近5800倍认购的市场热度。
+2025年，格力电器全年营收较2024年的1891.64亿元减少187.17亿元，而2024年公司营收已较2023年的2039.79亿元下滑7.31%，连续两年下滑趋势明确。
 
-“未来五年内，硅光芯片将占据数据中心30%~50%的芯片数量及市场规模。
+格力电器2025年核心业绩数据 对于营收下滑，格力在年报中解释称，“去年国内家电市场消费需求更趋理性，海外市场受全球经济复苏乏力、贸易政策变化等因素影响，整体需求偏弱，公司主营业务收入有所下降。
 
-”曦智科技公司创始人兼CEO沈亦晨博士告诉第一财经。
+” 分业务来看，消费电器仍为格力业务的绝对支柱，2025年实现收入1330.55亿元，占总营收比重78.06%，但同比下降10.44%，成为拖累营收的主要因素；工业制品及绿色能源业务收入173.81亿元，占比10.20%，同比仅微增0.78%；智能装备业务表现亮眼，收入6.81亿元，同比大增60.51%，成为多元化布局中为数不多的亮点。
 
-在全球大模型技术向多模态与垂直产业纵深演进的当下，算力已成为决定区域乃至国家数字经济话语权的核心底层资产。
+分地区而言，国内市场收入1264.07亿元，占比74.16%，同比下降10.67%，但仍是稳定业绩的重要支撑；海外市场收入273.75亿元，占比16.06%，同比下降2.93%。
 
-不只是曦智，近年来上海算力产业迎来了“资本丰收期”，尤其是2026以来，不仅以壁仞科技（06082.HK）、燧原科技（已完成IPO辅导冲刺科创板）为代表的通用智算龙头接连在资本市场取得突破性进展，沐曦（688802.SH）、曦智科技（01879.HK）等在异构计算与颠覆性前沿架构布局的独角兽也相继跨越商业化拐点，上海算力生态也正完成从“单点技术攻坚”到“全栈生态协同”的进化。
+研发与现金流层面，格力2025年研发投入64.44亿元，占营收比例3.78%，同比下降9.75%。
 
-在这场由Scaling Law（缩放定律）主导的“算力军备竞赛”中，上海正凭借前瞻性的产业集群规划与全要素赋能，加速兑现“全球算力之都”的布局。
+不过其研发人员数量保持15947人，占总员工数22.16%，累计专利申请量达13.89万件，其中发明专利7.69万件。
 
 ## 相关推荐
 
-- 2026-06-29 14:21 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 14:01 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 14:16 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 14:01 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 14:19 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 14:07 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 14:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 14:19 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 14:23 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 14:24 - [人民日报评“AI脸看腻了”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 14:07 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 14:11 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 14:13 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 14:11 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 14:27 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 14:32 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 14:28 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 14:35 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 14:32 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 14:15 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 14:26 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 14:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/86262738.shtml)
-- 2026-06-29 14:10 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/577951810582.shtml)
-- 2026-06-29 14:18 - [T1对战KC](http://www.blog.minike.top/Article/details/183228680.shtml)
-- 2026-06-29 14:16 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/48426.shtml)
-- 2026-06-29 14:11 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/965003.shtml)
-- 2026-06-29 14:02 - [农发行总行专家委员会委员杜晓力被查](http://www.share.kurohicncr.top/Article/details/14085435832.shtml)
-- 2026-06-29 14:13 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.minike.top/Article/details/1200254.shtml)
-- 2026-06-29 14:12 - [扫黑风暴](https://www.blog.minike.top/Article/details/4187851617.shtml)
-- 2026-06-29 14:12 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/78545350.shtml)
-- 2026-06-29 14:23 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.kurohicncr.top/Article/details/782529.shtml)
-- 2026-06-29 14:04 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/47710.shtml)
-- 2026-06-29 14:29 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/599159747569.shtml)
-- 2026-06-29 14:16 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/5507157795.shtml)
-- 2026-06-29 14:06 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/76670.shtml)
-- 2026-06-29 14:02 - [王佳佳江疏影13年前后同框对比](http://www.blog.minike.top/Article/details/196105196.shtml)
+- 2026-06-29 14:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/74001595908.shtml)
+- 2026-06-29 14:20 - [高考志愿今起开始填报](http://www.share.minike.top/Article/details/3223563850.shtml)
+- 2026-06-29 14:35 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/77403633815.shtml)
+- 2026-06-29 14:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/323388350.shtml)
+- 2026-06-29 14:16 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/18177.shtml)
+- 2026-06-29 14:11 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/70533828.shtml)
+- 2026-06-29 14:15 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/605003920664.shtml)
+- 2026-06-29 14:09 - [德国队前往比赛场地遭遇囧途](https://www.share.kurohicncr.top/Article/details/095349.shtml)
+- 2026-06-29 14:22 - [C罗关心罗德里戈伤情](http://www.share.kurohicncr.top/Article/details/61048459.shtml)
+- 2026-06-29 14:29 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/223276.shtml)
+- 2026-06-29 14:24 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/801690384529.shtml)
+- 2026-06-29 14:33 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/42812590661.shtml)
+- 2026-06-29 14:09 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/203392655811.shtml)
+- 2026-06-29 14:34 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/79877.shtml)
+- 2026-06-29 14:32 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/230905210792.shtml)

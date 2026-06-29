@@ -1,60 +1,58 @@
-# 【“十五五”开好局起好步】奋力书写中国式现代化内蒙古新篇章 山东加快建设绿色低碳高质量发展先行区
+# 特朗普告诉Axios称他拒绝解除对伊朗的海上封锁
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：近日，内蒙古、山东分别举行“开局起步‘十五五’”专题新闻发布会，围绕当地“十五五”规划纲要，全面解读《纲要》编制背景、总体思路、发展目标和重点任务。 奋力书写中国式现代化内蒙古新篇章 锚定“在中国式现代化建设中闯出新路”的战略目标，内蒙古从经济发展、创新驱动、民生福祉等5方面提出20项主要指标，并部署了13个方面重大任务举措。聚焦新能源、绿色算力、稀土新
+美国总统唐纳德·特朗普在接受Axios采访时表示，在与德黑兰达成解决核问题的协议前，他不会解除对伊朗港口的海上封锁。此举意味着霍尔木兹海峡的对峙将继续持续。 据Axios报道，特朗普周三在电话采访中称，“封锁在某种程度上比轰炸更有效。这对他们来说只会更糟。不能让他们拥有核武器。” 特朗普还表示，他已拒绝伊朗近期有关重新开放海峡，但将核谈判推迟到以后进行的提议。责任编辑：丁文武
 
 ## 正文
 
-央视网消息(新闻联播)：近日，内蒙古、山东分别举行“开局起步‘十五五’”专题新闻发布会，围绕当地“十五五”规划纲要，全面解读《纲要》编制背景、总体思路、发展目标和重点任务。
+美国总统唐纳德·特朗普在接受Axios采访时表示，在与德黑兰达成解决核问题的协议前，他不会解除对伊朗港口的海上封锁。
 
-奋力书写中国式现代化内蒙古新篇章 锚定“在中国式现代化建设中闯出新路”的战略目标，内蒙古从经济发展、创新驱动、民生福祉等5方面提出20项主要指标，并部署了13个方面重大任务举措。
+此举意味着霍尔木兹海峡的对峙将继续持续。
 
-聚焦新能源、绿色算力、稀土新材料、自贸试验区等重点领域明确主攻方向，主动融入、精准服务国家发展大局。
+据Axios报道，特朗普周三在电话采访中称，“封锁在某种程度上比轰炸更有效。
 
-“十五五”时期，内蒙古将落地通用大模型和行业垂直大模型50个左右，实施“人工智能+”行动，促进实体经济和数字经济深度融合。
+这对他们来说只会更糟。
 
-持续提高新能源供给比重，到“十五五”末，内蒙古新能源装机规模达到3.25亿千瓦，筑牢国家西电东送能源战略通道。
+不能让他们拥有核武器。
 
-前瞻布局氢能产业，打造全国重要的绿氢生产应用基地。
+” 特朗普还表示，他已拒绝伊朗近期有关重新开放海峡，但将核谈判推迟到以后进行的提议。
 
-努力把内蒙古自贸试验区建成投资贸易便利、创新生态良好、优势产业集聚、国际交往活跃的高水平自由贸易试验区。
-
-提升口岸能级，建设安全高效开放通道，打造联通内外的向北开放重要桥头堡。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 14:25 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 14:18 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 14:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 14:08 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 14:21 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 14:20 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 14:29 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 14:00 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 14:19 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 14:16 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 14:26 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 14:11 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 14:13 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 14:24 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 14:26 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 14:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 14:33 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 14:18 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 14:26 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 14:14 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 14:10 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 14:12 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 14:24 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 14:13 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 14:12 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 14:23 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 14:18 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 14:33 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:13 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/3838571.shtml)
-- 2026-06-29 14:09 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/6270225.shtml)
-- 2026-06-29 14:21 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/642499039.shtml)
-- 2026-06-29 14:06 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/27854659.shtml)
-- 2026-06-29 14:04 - [薛之谦演唱会](https://www.share.minike.top/Article/details/562526.shtml)
-- 2026-06-29 14:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/310249156.shtml)
-- 2026-06-29 14:21 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/92939.shtml)
-- 2026-06-29 14:15 - [市民骑哈啰单车79分钟付30元](https://www.blog.minike.top/Article/details/33705522.shtml)
-- 2026-06-29 14:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/035202508066.shtml)
-- 2026-06-29 14:27 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/762036208327.shtml)
-- 2026-06-29 14:15 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/02777727.shtml)
-- 2026-06-29 14:19 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/07260.shtml)
-- 2026-06-29 14:02 - [薛之谦演唱会](http://www.share.kurohicncr.top/Article/details/953368420.shtml)
-- 2026-06-29 14:23 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.share.minike.top/Article/details/86559698.shtml)
-- 2026-06-29 14:10 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/124800.shtml)
+- 2026-06-29 14:21 - [NBA交易](http://www.share.minike.top/Article/details/043062736565.shtml)
+- 2026-06-29 14:16 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/520659.shtml)
+- 2026-06-29 14:19 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/684259256.shtml)
+- 2026-06-29 14:29 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/511799675449.shtml)
+- 2026-06-29 14:19 - [一见倾心](https://www.blog.minike.top/Article/details/71990.shtml)
+- 2026-06-29 14:31 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/4383426.shtml)
+- 2026-06-29 14:35 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/54876952.shtml)
+- 2026-06-29 14:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/081274.shtml)
+- 2026-06-29 14:19 - [《贺子珍》](https://www.share.minike.top/Article/details/129107239.shtml)
+- 2026-06-29 14:18 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.share.minike.top/Article/details/103905267.shtml)
+- 2026-06-29 14:06 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/96530817.shtml)
+- 2026-06-29 14:24 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/86292383.shtml)
+- 2026-06-29 14:06 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/826224.shtml)
+- 2026-06-29 14:34 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/245499906088.shtml)
+- 2026-06-29 14:12 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/66663619.shtml)

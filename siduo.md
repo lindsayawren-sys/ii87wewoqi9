@@ -1,45 +1,59 @@
-# RIMBACO公布于4月27日上午起复牌
+# Alphabet营收同比增长22% 净利润同比增长81% 云业务加速增长
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-RIMBACO（01953）发布公告，公司股份将于2026年4月27日上午九时正起恢复买卖。责任编辑：卢昱君
+专题：聚焦美股2026年第一季度财报 Alphabet今日公布了截至2026年3月31日的第一季度财务业绩。 合并营收为1099亿美元，同比增长22%（按固定汇率计算增长19%），为连续第11个季度实现双位数增长。 谷歌服务营收为896亿美元，同比增长16%，其中： 谷歌搜索及其他营收同比增长19% 谷歌订阅、平台和设备营收同比增长19% YouTube广告营收同比增长11%
 
 ## 正文
 
-RIMBACO（01953）发布公告，公司股份将于2026年4月27日上午九时正起恢复买卖。
+专题：聚焦美股2026年第一季度财报 Alphabet今日公布了截至2026年3月31日的第一季度财务业绩。
 
-责任编辑：卢昱君
+合并营收为1099亿美元，同比增长22%（按固定汇率计算增长19%），为连续第11个季度实现双位数增长。
+
+谷歌服务营收为896亿美元，同比增长16%，其中： 谷歌搜索及其他营收同比增长19% 谷歌订阅、平台和设备营收同比增长19% YouTube广告营收同比增长11% 谷歌云营收为200亿美元，同比增长63%，主要受Google Cloud Platform（GCP）在企业AI解决方案、企业AI基础设施以及核心GCP服务方面的增长推动。
+
+合并营业利润为397亿美元，同比增长30%；营业利润率扩大2个百分点至36.1%。
+
+其他损益净额为377亿美元，主要来自非流通股本证券的未实现收益。
+
+净利润为626亿美元，同比增长81%。
+
+稀释每股收益为5.11美元，同比增长82%。
+
+公司宣布将股息提高5%，季度现金股息为每股0.22美元。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 14:06 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 14:29 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 14:25 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 14:01 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 14:26 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 14:29 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 14:11 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 14:14 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 14:23 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 14:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 14:21 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 14:17 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 14:11 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 14:34 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 14:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 14:13 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 14:32 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 14:24 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 14:09 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 14:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 14:17 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 14:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 14:13 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/1268289720.shtml)
-- 2026-06-29 14:05 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/17925391929.shtml)
-- 2026-06-29 14:27 - [2026年Mac能玩游戏了吗](http://www.share.minike.top/Article/details/873312365.shtml)
-- 2026-06-29 14:10 - [实习期把公司领导开除了](http://www.blog.minike.top/Article/details/3786620.shtml)
-- 2026-06-29 14:23 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/60261675.shtml)
-- 2026-06-29 14:04 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/86565317509.shtml)
-- 2026-06-29 14:12 - [爱很美味](https://www.share.minike.top/Article/details/070316706.shtml)
-- 2026-06-29 14:27 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/36401.shtml)
-- 2026-06-29 14:12 - [Mrbeast的30天不吃饭挑战](http://www.share.minike.top/Article/details/88361.shtml)
-- 2026-06-29 14:02 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/276432364.shtml)
-- 2026-06-29 14:04 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/83622161598.shtml)
-- 2026-06-29 14:03 - [ENC瓦中国香港负印度数据图](https://www.share.kurohicncr.top/Article/details/8746475397.shtml)
-- 2026-06-29 14:26 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/22576347.shtml)
-- 2026-06-29 14:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/30526380.shtml)
-- 2026-06-29 14:00 - [实习期把公司领导开除了](http://www.share.kurohicncr.top/Article/details/03493452138.shtml)
+- 2026-06-29 14:08 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/0052104031.shtml)
+- 2026-06-29 14:10 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/60467584101.shtml)
+- 2026-06-29 14:16 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/1429607796.shtml)
+- 2026-06-29 14:15 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/0676572.shtml)
+- 2026-06-29 14:15 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/087872085011.shtml)
+- 2026-06-29 14:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/461254.shtml)
+- 2026-06-29 14:06 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/780448925.shtml)
+- 2026-06-29 14:18 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/881009.shtml)
+- 2026-06-29 14:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/93600802.shtml)
+- 2026-06-29 14:08 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/913781217.shtml)
+- 2026-06-29 14:20 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/45051.shtml)
+- 2026-06-29 14:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/7849790.shtml)
+- 2026-06-29 14:08 - [起风了](http://www.blog.minike.top/Article/details/8162965642.shtml)
+- 2026-06-29 14:21 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/6894172479.shtml)
+- 2026-06-29 14:32 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/57482140795.shtml)

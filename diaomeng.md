@@ -1,57 +1,53 @@
-# 关注“体验经济”丨看风景到入剧情 大运河“体验经济”升温
+# 韩国农心与王老吉达成合作，推出胶原代白膳食补充剂
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-新华社南京4月26日电 题：看风景到入剧情 大运河“体验经济”升温 新华社记者邱冰清 暮春时节，运河三湾风景如画，游客沿运河边步道缓缓而行，岸边垂柳与远处的剪影桥在碧波中映出倒影，风一吹，涟漪荡开一幅水墨画。不远处的扬州中国大运河博物馆内传来阵阵惊叹——一群青少年“穿越”回明朝，化身监水使者，手持一本卷宗，在“大明都水监之运河迷踪”展厅里闯关解密。 这是一个开在博物馆里的“密室
+韩国方便面制造商农心周三宣布，已与一家中国公司合作，计划于今年下半年推出胶原蛋白膳食补充剂。 农心在一份新闻稿中表示，根据协议，农心将通过广州王老吉药业公司在中国的分销网络销售其Lifill胶原蛋白产品。 农心还计划于今年晚些时候将其合作伙伴的膳食补充剂引入韩国市场，以实现协同效应。 农心表示，中国膳食补充剂市场规模约为41万亿韩元（约合278亿美元），预计到2027年将以年均
 
 ## 正文
 
-新华社南京4月26日电 题：看风景到入剧情 大运河“体验经济”升温 新华社记者邱冰清 暮春时节，运河三湾风景如画，游客沿运河边步道缓缓而行，岸边垂柳与远处的剪影桥在碧波中映出倒影，风一吹，涟漪荡开一幅水墨画。
+韩国方便面制造商农心周三宣布，已与一家中国公司合作，计划于今年下半年推出胶原蛋白膳食补充剂。
 
-不远处的扬州中国大运河博物馆内传来阵阵惊叹——一群青少年“穿越”回明朝，化身监水使者，手持一本卷宗，在“大明都水监之运河迷踪”展厅里闯关解密。
+农心在一份新闻稿中表示，根据协议，农心将通过广州王老吉药业公司在中国的分销网络销售其Lifill胶原蛋白产品。
 
-这是一个开在博物馆里的“密室逃脱”，孩子们需要根据墙上视频资料选择大运河正确路线，判断适合出行的船只，根据风向决定船帆朝向，用铅块在卷宗上拓印文字、清理淤泥、操作澳闸让船只通行等，每道关卡都藏着运河历史知识。
+农心还计划于今年晚些时候将其合作伙伴的膳食补充剂引入韩国市场，以实现协同效应。
 
-“孩子玩了一个多小时，居然能跟我大致讲清古代漕运怎么运作。
+农心表示，中国膳食补充剂市场规模约为41万亿韩元（约合278亿美元），预计到2027年将以年均约7%的速度增长。
 
-”陪儿子“闯关”成功的徐州游客陈初感叹道，通过边玩边学，不知不觉就让孩子记住了很多知识点。
+该公司表示，此次合作是农心为实现产品组合多元化，摆脱对方便面和零食的依赖，并确保长期增长而采取的更广泛举措的一部分。
 
-当剧情成为注意力的锚点，用参与激发情感连接，文化不再是被灌输的知识，而是被亲身经历的记忆。
-
-改编自茅盾文学奖作品的电视剧《北上》的热播，让运河文化体验从博物馆的展厅“流淌”到更广阔的运河两岸。
-
-荧幕里，运河边的船来船往、青石板上的童年记忆、老茶馆里的家长里短，勾勒出一幅充满烟火气的水乡生活画卷。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 14:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 14:27 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 14:13 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 14:09 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 14:01 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 14:10 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 14:29 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 14:26 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 14:09 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 14:21 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 14:34 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 14:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 14:35 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 14:24 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 14:32 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 14:16 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 14:26 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 14:08 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 14:28 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 14:08 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 14:26 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:03 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/5832666343.shtml)
-- 2026-06-29 14:12 - [王楚钦3-0周启豪 晋级32强](https://www.blog.minike.top/Article/details/14074039641.shtml)
-- 2026-06-29 14:12 - [三都主：淘汰赛我会支持日本](https://www.share.minike.top/Article/details/473169560.shtml)
-- 2026-06-29 14:21 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/010404348.shtml)
-- 2026-06-29 14:28 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/243871.shtml)
-- 2026-06-29 14:01 - [叶一茜森碟一起回北京了](https://www.share.kurohicncr.top/Article/details/28942.shtml)
-- 2026-06-29 14:01 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/4663845.shtml)
-- 2026-06-29 14:17 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/49227921766.shtml)
-- 2026-06-29 14:24 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.minike.top/Article/details/114383.shtml)
-- 2026-06-29 14:01 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/42813625.shtml)
-- 2026-06-29 14:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/185736236.shtml)
-- 2026-06-29 14:22 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/366897.shtml)
-- 2026-06-29 14:14 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/35684627.shtml)
-- 2026-06-29 14:26 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/934173442310.shtml)
-- 2026-06-29 14:26 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/18582965470.shtml)
+- 2026-06-29 14:15 - [比亚迪为什么卖得越多市值越低](http://www.blog.minike.top/Article/details/41315156746.shtml)
+- 2026-06-29 14:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/50846379.shtml)
+- 2026-06-29 14:16 - [沙丘](http://www.blog.minike.top/Article/details/553445154642.shtml)
+- 2026-06-29 14:15 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/74593523.shtml)
+- 2026-06-29 14:18 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/152722889890.shtml)
+- 2026-06-29 14:07 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/67566343574.shtml)
+- 2026-06-29 14:32 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/110379747.shtml)
+- 2026-06-29 14:15 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.minike.top/Article/details/08686.shtml)
+- 2026-06-29 14:12 - [唐艺昕女儿接唐艺昕回家](http://www.blog.kurohicncr.top/Article/details/31814.shtml)
+- 2026-06-29 14:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/7746718.shtml)
+- 2026-06-29 14:27 - [中国避暑神器在欧洲卖爆了](http://www.share.kurohicncr.top/Article/details/2003381.shtml)
+- 2026-06-29 14:35 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/52352.shtml)
+- 2026-06-29 14:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/2495322572.shtml)
+- 2026-06-29 14:26 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/058715436905.shtml)
+- 2026-06-29 14:33 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/5461081723.shtml)

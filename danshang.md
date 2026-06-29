@@ -1,61 +1,58 @@
-# 亚马逊与Meta联手扩展AI基础设施，大规模芯片协议落地
+# 渝昆高铁全线四电工程施工进入冲刺阶段
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-亚马逊与Meta达成了一项重磅协议，展现了双方规模化扩展AI基础设施的决心。根据协议，Meta计划部署数千万颗亚马逊自研的Graviton芯片，为其日益庞大的AI系统提供算力支撑。 这些并非普通芯片。最新的Graviton5专为实时推理、搜索及处理复杂多步骤任务等重负载而设计，而这些正成为当前AI应用的核心。随着AI工作负载从训练更多转向部署，CPU正在AI计算中扮演更关键的角
+中新网昆明4月29日电 (记者 缪超)28日，由中铁电气化局承建的渝昆高铁云南段首条接触网导线成功架设、首座220kV牵引变电所一次受电成功，标志着渝昆高铁全线四电工程施工进入冲刺阶段，为全线开通运营奠定坚实基础。 “接触网导线作为高铁列车供电线路，直接影响列车供电与行车安全。渝昆高铁云南段接触网导线架设总任务量达1059条公里，需将导线平直度误差控制在0.1毫米以内。”中铁电
 
 ## 正文
 
-亚马逊与Meta达成了一项重磅协议，展现了双方规模化扩展AI基础设施的决心。
+中新网昆明4月29日电 (记者 缪超)28日，由中铁电气化局承建的渝昆高铁云南段首条接触网导线成功架设、首座220kV牵引变电所一次受电成功，标志着渝昆高铁全线四电工程施工进入冲刺阶段，为全线开通运营奠定坚实基础。
 
-根据协议，Meta计划部署数千万颗亚马逊自研的Graviton芯片，为其日益庞大的AI系统提供算力支撑。
+“接触网导线作为高铁列车供电线路，直接影响列车供电与行车安全。
 
-这些并非普通芯片。
+渝昆高铁云南段接触网导线架设总任务量达1059条公里，需将导线平直度误差控制在0.1毫米以内。
 
-最新的Graviton5专为实时推理、搜索及处理复杂多步骤任务等重负载而设计，而这些正成为当前AI应用的核心。
+”中铁电气化局渝昆高铁四电项目部总工程师袁红旗说，首条接触线的成功架设不仅验证了放线工艺在云贵高原复杂地形条件下的适应性，更为后续大规模导线架设作业提供了标准化施工范本。
 
-随着AI工作负载从训练更多转向部署，CPU正在AI计算中扮演更关键的角色。
+当天，在云南省昭通市八仙营牵引变电所内，经过五次冲击试验后，各项电气参数运行正常、状态稳定，顺利实现一次受电，标志着渝昆高铁云南段首座220kV牵引变电所受电成功，为后续接触网全线送电及联调联试提供了供电保障。
 
-此外，该协议还使Meta的计算资源来源更加多元化，降低了对单一芯片供应商的依赖。
+据悉，渝昆高铁云南段新建牵引所、分区所等共计42座，具有供电布局密集、安全冗余要求高、施工难度大等特点。
 
-此举反映了科技巨头们的一个共同趋势：不再仅依赖英伟达GPU，而是积极部署Arm架构的自研CPU，以优化成本与性能。
+目前，渝昆高铁建设全面进入攻坚阶段，路基、桥梁工程已基本完成，全线最复杂控制性工程昭通隧道即将实现全隧贯通，新建站房已进入装修阶段。
 
-深层次看，亚马逊正将自研芯片作为其云服务战略的核心组件。
+渝昆高铁开通运营后，重庆到昆明的行车时间将压缩至两个半小时左右，对促进成渝地区双城经济圈与滇中城市群之间互联互通，推动沿线地区经济社会高质量发展具有重要意义。
 
 ## 相关推荐
 
-- 2026-06-29 14:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 14:05 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 14:19 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 14:02 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 14:06 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 14:24 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 14:27 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 14:17 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 14:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 14:16 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 14:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 14:13 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 14:13 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 14:28 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 14:27 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 14:13 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 14:24 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 14:28 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 14:31 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 14:30 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 14:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 14:13 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 14:19 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 14:32 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 14:20 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 14:23 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 14:21 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/43021.shtml)
-- 2026-06-29 14:08 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/28565661.shtml)
-- 2026-06-29 14:10 - [双高胎](http://www.blog.minike.top/Article/details/8134401.shtml)
-- 2026-06-29 14:27 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/28594181.shtml)
-- 2026-06-29 14:03 - [【独家】牧神记 第89集 明心](https://www.share.minike.top/Article/details/444450.shtml)
-- 2026-06-29 14:05 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/57264242235.shtml)
-- 2026-06-29 14:12 - [亚洲成世界杯最大失意者联盟](http://www.share.kurohicncr.top/Article/details/90336095612.shtml)
-- 2026-06-29 14:03 - [2026年Mac能玩游戏了吗](http://www.blog.kurohicncr.top/Article/details/680806896132.shtml)
-- 2026-06-29 14:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/362520301.shtml)
-- 2026-06-29 14:08 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/940564.shtml)
-- 2026-06-29 14:22 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/283663.shtml)
-- 2026-06-29 14:05 - [三都主：淘汰赛我会支持日本](https://www.share.minike.top/Article/details/527659459.shtml)
-- 2026-06-29 14:26 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/72037397143.shtml)
-- 2026-06-29 14:23 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/2071878.shtml)
-- 2026-06-29 14:06 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/8203611.shtml)
+- 2026-06-29 14:10 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/1971290823.shtml)
+- 2026-06-29 14:19 - [俄称继续推进 乌称打击俄军设施](http://www.blog.kurohicncr.top/Article/details/3864082.shtml)
+- 2026-06-29 14:13 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/37722.shtml)
+- 2026-06-29 14:34 - [ENC瓦中国香港负印度数据图](http://www.share.minike.top/Article/details/945766.shtml)
+- 2026-06-29 14:20 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/8686385044.shtml)
+- 2026-06-29 14:14 - [起风了](https://www.blog.kurohicncr.top/Article/details/61609895.shtml)
+- 2026-06-29 14:17 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/10341.shtml)
+- 2026-06-29 14:13 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/70520.shtml)
+- 2026-06-29 14:15 - [逃狱兄弟](https://www.blog.minike.top/Article/details/887484.shtml)
+- 2026-06-29 14:16 - [张真源解读相思锁](https://www.share.minike.top/Article/details/003593724828.shtml)
+- 2026-06-29 14:30 - [T1零封KC MSI](https://www.share.minike.top/Article/details/155529.shtml)
+- 2026-06-29 14:21 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/246161422.shtml)
+- 2026-06-29 14:35 - [市民骑哈啰单车79分钟付30元](https://www.blog.minike.top/Article/details/315008005.shtml)
+- 2026-06-29 14:35 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/3832176.shtml)
+- 2026-06-29 14:14 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/143679359043.shtml)

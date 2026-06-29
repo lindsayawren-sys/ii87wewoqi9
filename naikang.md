@@ -1,60 +1,48 @@
-# 东莞桥头镇、万江街道侨联召开工作会议凝心聚力推动侨联工作提质增效
+# 工商银行大同分行被罚49.6万元：违反金融统计管理规定
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-桥头镇、万江街道侨联召开工作会议凝心聚力推动侨联工作提质增效 近日，东莞桥头镇、万江街道侨联相继召开工作会议，紧扣上级部署要求，总结工作、明确任务，持续凝聚侨心、汇聚侨智、发挥侨力，助力镇街高质量发展。 4月23日，桥头镇侨联召开工作座谈会，由镇侨联主席刘仲奇主持，镇统战办相关负责人及侨联班子成员参会。会议集中学习东莞市侨联八届五次全委会会议精神，通报近期工作情况，详细解读20
+4月30日金融一线消息，据中国人民银行大同市分行行政处罚决定信息公示表显示，中国工商银行股份有限公司大同分行因违反金融统计管理规定，被处罚款人民币49.6万元。 责任编辑：秦艺
 
 ## 正文
 
-桥头镇、万江街道侨联召开工作会议凝心聚力推动侨联工作提质增效 近日，东莞桥头镇、万江街道侨联相继召开工作会议，紧扣上级部署要求，总结工作、明确任务，持续凝聚侨心、汇聚侨智、发挥侨力，助力镇街高质量发展。
+4月30日金融一线消息，据中国人民银行大同市分行行政处罚决定信息公示表显示，中国工商银行股份有限公司大同分行因违反金融统计管理规定，被处罚款人民币49.6万元。
 
-4月23日，桥头镇侨联召开工作座谈会，由镇侨联主席刘仲奇主持，镇统战办相关负责人及侨联班子成员参会。
-
-会议集中学习东莞市侨联八届五次全委会会议精神，通报近期工作情况，详细解读2026年镇街侨联重点工作计划及市侨联助力“九大行动”工作方案，明确任务分工与推进要求。
-
-同时，传达东莞市、镇街侨联第三联系协作组活动安排，部署筹备工作。
-
-与会人员围绕侨资源盘活、侨乡文化建设、为侨服务提质等议题交流建言。
-
-会议强调，要夯实侨务工作基础，做细为侨服务，吸引侨界人才回乡兴业，推动侨联工作再上新台阶。
-
-4月24日，万江街道侨联班子在东莞铭丰包装股份有限公司召开2026年第一季度工作会议。
-
-会议总结一季度政治引领、侨情走访、为侨服务等工作进展，集中学习市侨联助力“九大行动”方案及年度工作部署，研究年度重点工作。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 14:21 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 14:17 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 14:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 14:27 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 14:09 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 14:10 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 14:12 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 14:17 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 14:03 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 14:23 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 14:24 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 14:21 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 14:05 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 14:17 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 14:10 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 14:27 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 14:08 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 14:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 14:21 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 14:14 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 14:34 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 14:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 14:21 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 14:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 14:20 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 14:31 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 14:25 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:00 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/914912868139.shtml)
-- 2026-06-29 14:05 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/80088793639.shtml)
-- 2026-06-29 14:11 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/3629698177.shtml)
-- 2026-06-29 14:07 - [委内瑞拉地震已致1450死3150伤](https://www.blog.minike.top/Article/details/27086.shtml)
-- 2026-06-29 14:01 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.kurohicncr.top/Article/details/107352357.shtml)
-- 2026-06-29 14:27 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/793119.shtml)
-- 2026-06-29 14:12 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/97176.shtml)
-- 2026-06-29 14:11 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/59599111.shtml)
-- 2026-06-29 14:03 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/51362374138.shtml)
-- 2026-06-29 14:09 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/12334.shtml)
-- 2026-06-29 14:06 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/8684630258.shtml)
-- 2026-06-29 14:00 - [金牌调解](http://www.share.kurohicncr.top/Article/details/626739235.shtml)
-- 2026-06-29 14:22 - [三都主：淘汰赛我会支持日本](http://www.share.kurohicncr.top/Article/details/5715252428.shtml)
-- 2026-06-29 14:18 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/5377941.shtml)
-- 2026-06-29 14:11 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/1716977.shtml)
+- 2026-06-29 14:30 - [绘画区你赢了](http://www.blog.minike.top/Article/details/331051.shtml)
+- 2026-06-29 14:19 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/9931331.shtml)
+- 2026-06-29 14:30 - [极限挑战第一季](https://www.blog.minike.top/Article/details/8252831.shtml)
+- 2026-06-29 14:34 - [崔韩率还以为韩娱来新人了](https://www.share.minike.top/Article/details/26468960705.shtml)
+- 2026-06-29 14:06 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/189015.shtml)
+- 2026-06-29 14:19 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/90973834.shtml)
+- 2026-06-29 14:27 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/209494064.shtml)
+- 2026-06-29 14:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/402682250884.shtml)
+- 2026-06-29 14:23 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/336487.shtml)
+- 2026-06-29 14:12 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/1426615022.shtml)
+- 2026-06-29 14:31 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/87767.shtml)
+- 2026-06-29 14:07 - [青春环游记第三季](http://www.blog.minike.top/Article/details/5688850598.shtml)
+- 2026-06-29 14:06 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/180158225.shtml)
+- 2026-06-29 14:31 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/755728741.shtml)
+- 2026-06-29 14:29 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/661368514.shtml)

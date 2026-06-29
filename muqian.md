@@ -1,56 +1,52 @@
-# 软银拓展AI边界：为“空中基站”研发新机翼材料
+# 特朗普威胁：“不再有好好先生”
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-软银正悄然将目光投向人工智能之外的新领域。这家日本科技投资巨头宣布，已与日本凸版印刷控股公司合作，为高海拔太阳能无人机开发一种新型轻量化机翼材料。 这种材料是专为“高空平台站”设计的。这种“空中基站”是一种在约20公里高度的平流层中运行的无人驾驶飞行器，覆盖范围广，能在发生大规模灾难或山区、偏远岛屿等难以建立传统通信设施的地区提供通信服务。 然而，平流层环境极其恶劣，气温可低至
+美国总统特朗普29日凌晨在社交媒体上发文称：“伊朗就是搞不明白，他们不知道怎么签署无核协议。他们最好快些放聪明点！” 特朗普还配发一张图片，图片上是他持枪的“造型”，配有文字“不再有好好先生”。 END 监 制：刘延棠 责任编辑：乐艳娜 责任编辑：郭建
 
 ## 正文
 
-软银正悄然将目光投向人工智能之外的新领域。
+美国总统特朗普29日凌晨在社交媒体上发文称：“伊朗就是搞不明白，他们不知道怎么签署无核协议。
 
-这家日本科技投资巨头宣布，已与日本凸版印刷控股公司合作，为高海拔太阳能无人机开发一种新型轻量化机翼材料。
+他们最好快些放聪明点！
 
-这种材料是专为“高空平台站”设计的。
+” 特朗普还配发一张图片，图片上是他持枪的“造型”，配有文字“不再有好好先生”。
 
-这种“空中基站”是一种在约20公里高度的平流层中运行的无人驾驶飞行器，覆盖范围广，能在发生大规模灾难或山区、偏远岛屿等难以建立传统通信设施的地区提供通信服务。
-
-然而，平流层环境极其恶劣，气温可低至零下100摄氏度，并伴随强烈的紫外线和高浓度臭氧侵蚀，这成为高空平台站长期驻留的技术瓶颈。
-
-此次联合开发的新型“机翼皮肤”，利用凸版印刷的多层薄膜技术，实现了轻量化设计，并能有效抵御平流层的极端条件，防止材料降解。
-
-这款新材料预计将在软银计划于2029年后推出的商业服务机型上投入使用。
-
-虽然这并非一个高调的AI领域公告，但它清晰地展示了软银在传统AI和投资业务之外，正积极探索构建未来通信网络的实体技术，为解决偏远地区联网和应急通信难题提供了新的思路。
+END 监 制：刘延棠 责任编辑：乐艳娜 责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-29 14:22 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 14:19 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 14:10 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 14:20 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 14:04 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 14:12 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 14:21 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 14:26 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 14:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 14:24 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 14:18 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 14:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 14:08 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 14:22 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 14:15 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 14:09 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 14:35 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 14:32 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 14:09 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 14:07 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 14:28 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 14:23 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 14:33 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 14:07 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/33283353574.shtml)
-- 2026-06-29 14:01 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.minike.top/Article/details/853130554.shtml)
-- 2026-06-29 14:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/836018.shtml)
-- 2026-06-29 14:25 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/094174910.shtml)
-- 2026-06-29 14:10 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/66574.shtml)
-- 2026-06-29 14:23 - [逃狱兄弟](http://www.blog.minike.top/Article/details/241679.shtml)
-- 2026-06-29 14:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/637171498413.shtml)
-- 2026-06-29 14:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/41806295.shtml)
-- 2026-06-29 14:27 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/327229053.shtml)
-- 2026-06-29 14:07 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/091022713.shtml)
-- 2026-06-29 14:03 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/63227681.shtml)
-- 2026-06-29 14:23 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/116513423.shtml)
-- 2026-06-29 14:26 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/9177989676.shtml)
-- 2026-06-29 14:20 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/6211782.shtml)
-- 2026-06-29 14:28 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/2969242530.shtml)
+- 2026-06-29 14:29 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/76448.shtml)
+- 2026-06-29 14:30 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/866273.shtml)
+- 2026-06-29 14:13 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/32148.shtml)
+- 2026-06-29 14:26 - [严浩翔FIY断层第一](https://www.blog.minike.top/Article/details/023841.shtml)
+- 2026-06-29 14:31 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/91300906737.shtml)
+- 2026-06-29 14:30 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/5635311390.shtml)
+- 2026-06-29 14:16 - [三星与SK集团或将投资2000万亿韩元](https://www.share.kurohicncr.top/Article/details/3466684.shtml)
+- 2026-06-29 14:09 - [海军舰艇编队将赴香港](http://www.blog.minike.top/Article/details/327034846.shtml)
+- 2026-06-29 14:24 - [一见倾心](https://www.share.kurohicncr.top/Article/details/159179.shtml)
+- 2026-06-29 14:27 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/69569090186.shtml)
+- 2026-06-29 14:31 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.kurohicncr.top/Article/details/98287917174.shtml)
+- 2026-06-29 14:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/2086051265.shtml)
+- 2026-06-29 14:21 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/582381331.shtml)
+- 2026-06-29 14:21 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/32367910.shtml)
+- 2026-06-29 14:25 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.kurohicncr.top/Article/details/63897736.shtml)

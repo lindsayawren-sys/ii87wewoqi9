@@ -1,42 +1,61 @@
-# 2026年昆明长水机场海关部门预算公开
+# 中加基金配置周报︱中东谈判陷入僵局，沃什强调美联储独立性
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-2026年昆明长水机场海关部门预算公开.pdf
+1、中国4月贷款市场报价利率（LPR）公布，1年期品种报3%，5年期以上品种报3.5%，连续11个月保持不变。此次LPR继续持平主要受政策利率稳定、银行净息差承压、国内经济修复韧性显现，以及外部通胀与海外政策等多重因素制约。 2、美国参议院银行委员会举行有关美联储主席提名的听证会。美联储主席候选人沃什表示，如果获确认出任美联储主席，将保持货币政策的独立性，绝不会听命于美国总统特
 
 ## 正文
 
-2026年昆明长水机场海关部门预算公开.pdf
+1、中国4月贷款市场报价利率（LPR）公布，1年期品种报3%，5年期以上品种报3.5%，连续11个月保持不变。
+
+此次LPR继续持平主要受政策利率稳定、银行净息差承压、国内经济修复韧性显现，以及外部通胀与海外政策等多重因素制约。
+
+2、美国参议院银行委员会举行有关美联储主席提名的听证会。
+
+美联储主席候选人沃什表示，如果获确认出任美联储主席，将保持货币政策的独立性，绝不会听命于美国总统特朗普行事。
+
+沃什指出，特朗普从未要求他作出降息的承诺，他也绝不会同意这样承诺。
+
+沃什希望对美联储进行多方面彻底改革，并建立一套全新的“通胀框架”。
+
+参议员蒂利斯坚称，司法部不结束对鲍威尔调查就不支持提名。
+
+3、巴基斯坦外交官表示，美国与伊朗谈判“陷入僵局”，进展“非常缓慢”。
 
 ## 相关推荐
 
-- 2026-06-29 14:19 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 14:20 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 14:26 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 14:02 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 14:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 14:22 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 14:02 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 14:26 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 14:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 14:28 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 14:15 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 14:33 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 14:18 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 14:26 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 14:31 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 14:34 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 14:24 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 14:22 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 14:17 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 14:18 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 14:10 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 14:16 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 14:28 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 14:23 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 14:34 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:27 - [流金岁月](http://www.share.minike.top/Article/details/907277534831.shtml)
-- 2026-06-29 14:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/701882582.shtml)
-- 2026-06-29 14:27 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/524252183679.shtml)
-- 2026-06-29 14:10 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/57553689240.shtml)
-- 2026-06-29 14:29 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/384641466.shtml)
-- 2026-06-29 14:21 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/45830.shtml)
-- 2026-06-29 14:20 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/329528322.shtml)
-- 2026-06-29 14:29 - [佛得角到底在哪个“角”](http://www.share.minike.top/Article/details/474840719153.shtml)
-- 2026-06-29 14:05 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/07799587.shtml)
-- 2026-06-29 14:22 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/58617350.shtml)
-- 2026-06-29 14:23 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/1746548054.shtml)
-- 2026-06-29 14:12 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/72536.shtml)
-- 2026-06-29 14:19 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/893326485.shtml)
-- 2026-06-29 14:21 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/370237.shtml)
-- 2026-06-29 14:28 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/0419478041.shtml)
+- 2026-06-29 14:11 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/06193.shtml)
+- 2026-06-29 14:30 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/667826756327.shtml)
+- 2026-06-29 14:11 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/331067.shtml)
+- 2026-06-29 14:35 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/98226195.shtml)
+- 2026-06-29 14:12 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/02703.shtml)
+- 2026-06-29 14:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/785459.shtml)
+- 2026-06-29 14:09 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/89557.shtml)
+- 2026-06-29 14:20 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/8611603.shtml)
+- 2026-06-29 14:12 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/34782265.shtml)
+- 2026-06-29 14:18 - [人民日报评“AI脸看腻了”](https://www.share.kurohicncr.top/Article/details/308878910947.shtml)
+- 2026-06-29 14:28 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/7358949.shtml)
+- 2026-06-29 14:23 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/060572150.shtml)
+- 2026-06-29 14:14 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/988045.shtml)
+- 2026-06-29 14:14 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/95385.shtml)
+- 2026-06-29 14:18 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/6311705.shtml)

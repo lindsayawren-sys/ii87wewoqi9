@@ -1,60 +1,61 @@
-# 三亚亚沙会：中国选手赵一程打破男子速度攀岩世界纪录
+# 片仔癀近十年罕见年度负增长
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新社三亚4月28日电 (周昕)第六届亚洲沙滩运动会攀岩项目28日在海南三亚开赛。在男子速度攀岩预赛上，中国选手赵一程以4秒58的成绩创造该项目世界纪录。 本届亚沙会攀岩项目设置男子和女子速度赛，下设个人标准速度赛和速度接力赛共计4个小项。中国队派出8人参赛，包括巴黎奥运会速度攀岩奖牌得主伍鹏、邓丽娟。 预赛分两轮进行，以每位选手两轮中的最快时间为最终成绩。小将赵一程在第一轮便
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！图片来源：片仔癀官网 4月29日，片仔癀（600436.SH）发布业绩公告，2025年实现营业收入90.01亿元，同比下降16.56%；归属于上市公司股东的净利润21.59亿元，同比下降27.49%；基本每股收益3.58元。公司拟以实施权益分派股权登记日登记的总股本为基数，向全体股东每10股派发现金红利15
 
 ## 正文
 
-中新社三亚4月28日电 (周昕)第六届亚洲沙滩运动会攀岩项目28日在海南三亚开赛。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在男子速度攀岩预赛上，中国选手赵一程以4秒58的成绩创造该项目世界纪录。
+图片来源：片仔癀官网 4月29日，片仔癀（600436.SH）发布业绩公告，2025年实现营业收入90.01亿元，同比下降16.56%；归属于上市公司股东的净利润21.59亿元，同比下降27.49%；基本每股收益3.58元。
 
-本届亚沙会攀岩项目设置男子和女子速度赛，下设个人标准速度赛和速度接力赛共计4个小项。
+公司拟以实施权益分派股权登记日登记的总股本为基数，向全体股东每10股派发现金红利15.7元（含税）。
 
-中国队派出8人参赛，包括巴黎奥运会速度攀岩奖牌得主伍鹏、邓丽娟。
+当日片仔癀股价报收139.32元每股，涨0.05%，总市值840.54亿元人民币。
 
-预赛分两轮进行，以每位选手两轮中的最快时间为最终成绩。
+从业绩走势来看，片仔癀2025年营收净利双降，是近十年来罕见的年度负增长，这份成绩单打破了其长期稳健增长的市场预期，盈利端承压态势显著。
 
-小将赵一程在第一轮便以4秒73秒的成绩追平了印度尼西亚选手拉哈贾蒂·努尔萨姆萨保持的亚洲纪录。
+分季度表现来看，其中第三季度单季营收20.64亿元，同比下滑26.28%，净利润6.87亿元，同比下滑 28.82%，下滑幅度呈加速态势。
 
-第二轮比赛，赵一程以4秒58的成绩创造该项目世界纪录，顺利晋级。
+核心盈利指标毛利率同步走弱，公司医药制造业毛利率从2024年的70%左右下滑至2025年的61.11%，回落9个百分点。
 
-原纪录是由美国选手沃森在2025年攀岩世界杯巴厘岛站中创造的4秒64。
+曾经被冠以 “药中茅台” 的中药龙头，正遭遇原材料成本飙升与消费市场收缩的双重夹击。
 
 ## 相关推荐
 
-- 2026-06-29 14:07 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 14:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 14:05 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 14:21 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 14:10 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 14:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 14:21 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 14:11 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 14:29 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 14:08 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 14:06 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 14:21 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 14:26 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 14:13 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 14:13 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 14:34 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 14:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 14:33 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 14:28 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 14:14 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 14:22 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 14:11 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 14:11 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 14:10 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 14:35 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 14:32 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 14:21 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 14:32 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 14:07 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/99693968195.shtml)
-- 2026-06-29 14:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/946549954169.shtml)
-- 2026-06-29 14:12 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/166462.shtml)
-- 2026-06-29 14:29 - [第一炉香](https://www.blog.minike.top/Article/details/82641.shtml)
-- 2026-06-29 14:02 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/0675804.shtml)
-- 2026-06-29 14:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/02570476901.shtml)
-- 2026-06-29 14:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/7368005.shtml)
-- 2026-06-29 14:02 - [6月我国降水为何偏多](https://www.share.kurohicncr.top/Article/details/57983021.shtml)
-- 2026-06-29 14:17 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/83713639148.shtml)
-- 2026-06-29 14:17 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/8985023565.shtml)
-- 2026-06-29 14:29 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/981747012592.shtml)
-- 2026-06-29 14:21 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/5154107394.shtml)
-- 2026-06-29 14:04 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/5533424.shtml)
-- 2026-06-29 14:01 - [爱情有烟火你是知道我爱看什么的](https://www.blog.kurohicncr.top/Article/details/216408.shtml)
-- 2026-06-29 14:07 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.kurohicncr.top/Article/details/3696063842.shtml)
+- 2026-06-29 14:35 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/7081160784.shtml)
+- 2026-06-29 14:27 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/2994260779.shtml)
+- 2026-06-29 14:14 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/872561130674.shtml)
+- 2026-06-29 14:20 - [爱情有烟火你是知道我爱看什么的](http://www.share.minike.top/Article/details/64684828.shtml)
+- 2026-06-29 14:13 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.minike.top/Article/details/1368634.shtml)
+- 2026-06-29 14:35 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/100649269287.shtml)
+- 2026-06-29 14:35 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/0807303419.shtml)
+- 2026-06-29 14:15 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/6883189.shtml)
+- 2026-06-29 14:14 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/08477726848.shtml)
+- 2026-06-29 14:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/0930830385.shtml)
+- 2026-06-29 14:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/446886854717.shtml)
+- 2026-06-29 14:31 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.minike.top/Article/details/747261203988.shtml)
+- 2026-06-29 14:34 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/42800.shtml)
+- 2026-06-29 14:27 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/0341426.shtml)
+- 2026-06-29 14:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/621087932.shtml)

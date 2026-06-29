@@ -1,61 +1,54 @@
-# 未竟航程的千万次续写——追记“人民英雄”张超
+# 范式智能午前涨逾3% 总价4亿元采购GPU服务器及相关配件
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-未竟航程的千万次续写 ——追记“人民英雄”张超 中国军网记者 邢晋 张熠南 潮起潮落，浪花一遍遍冲刷着海岸，卷走细沙，也悄然裹挟着流逝的光阴。十年，足以磨平礁石棱角，却磨不去那道镌刻在海天之间的航迹。十年间，这道戛然而止的航迹，延伸向一双双坚定的手，续写着同一本满载忠诚与信仰、热血与飞翔的日志。 一 阳光倾洒，一顶顶蓝色头盔熠熠生辉，新飞行员们从老飞行员的手中郑重接过。头盔很轻
+范式智能（06682）盘中涨超3%，截至发稿，股价上涨2.84%，现报36.22港元，成交额1.87亿港元。 4月30日，范式智能发布公告，计划以总价4亿人民币购买GPU服务器及相关配件。该等服务器可用于模型推理及训练，并将投入API业务，以满足市场迅速增长的API调用需求。 当前范式API业务保持高速增长态势，2026年第一季度客户Token调用量较2025年第四季度增长超4
 
 ## 正文
 
-未竟航程的千万次续写 ——追记“人民英雄”张超 中国军网记者 邢晋 张熠南 潮起潮落，浪花一遍遍冲刷着海岸，卷走细沙，也悄然裹挟着流逝的光阴。
+范式智能（06682）盘中涨超3%，截至发稿，股价上涨2.84%，现报36.22港元，成交额1.87亿港元。
 
-十年，足以磨平礁石棱角，却磨不去那道镌刻在海天之间的航迹。
+4月30日，范式智能发布公告，计划以总价4亿人民币购买GPU服务器及相关配件。
 
-十年间，这道戛然而止的航迹，延伸向一双双坚定的手，续写着同一本满载忠诚与信仰、热血与飞翔的日志。
+该等服务器可用于模型推理及训练，并将投入API业务，以满足市场迅速增长的API调用需求。
 
-一 阳光倾洒，一顶顶蓝色头盔熠熠生辉，新飞行员们从老飞行员的手中郑重接过。
+当前范式API业务保持高速增长态势，2026年第一季度客户Token调用量较2025年第四季度增长超400%，季度内每月调用量均实现成倍增长，算力资源的及时投放将进一步支撑业务持续高速扩张。
 
-头盔很轻，轻到单掌便能稳稳托起；头盔很重，当指尖触碰到头盔的刹那，一份承载着海空安危、家国使命的责任，便沉甸甸落在了肩头。
+依托领先的 vGPU 技术与大模型适配经验，范式能够在同等算力条件下持续提升Token调用效率，让算力释放更充分。
 
-新飞行员们昂首挺立，向着英模挂像庄严敬礼，目光澄澈而坚定。
+本次算力扩容体现公司对算力资源的中长期布局，范式将持续加大投入、稳步扩充算力基础设施，以长期匹配并支撑API业务未来的高速增长需求，助力公司抢抓Token产业发展红利。
 
-在北部战区海军航空兵某部——张超生前所在部队，每位新飞行员都会参加这样一场宣誓仪式，聆听英雄的故事。
-
-时光回溯到2016年4月27日，张超进入陆基模拟着舰最后一个训练周期，再过不久，他就能驾驶“飞鲨”圆梦海天。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:11 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 14:08 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 14:28 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 14:20 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 14:13 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 14:21 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 14:19 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 14:29 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 14:07 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 14:24 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 14:00 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 14:18 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 14:29 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 14:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 14:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 14:11 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 14:17 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 14:20 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 14:26 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 14:15 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 14:29 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 14:28 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 14:08 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 14:07 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 14:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/647040192.shtml)
-- 2026-06-29 14:05 - [赵露思爸爸拍vlog翻车了](https://www.share.kurohicncr.top/Article/details/8297183.shtml)
-- 2026-06-29 14:29 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/429747122762.shtml)
-- 2026-06-29 14:10 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/24990474188.shtml)
-- 2026-06-29 14:25 - [ENC瓦中国香港负印度数据图](http://www.blog.minike.top/Article/details/020213633.shtml)
-- 2026-06-29 14:24 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.kurohicncr.top/Article/details/258306380.shtml)
-- 2026-06-29 14:11 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/68367.shtml)
-- 2026-06-29 14:05 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/8225910752.shtml)
-- 2026-06-29 14:25 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/599245745924.shtml)
-- 2026-06-29 14:10 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.minike.top/Article/details/7594895.shtml)
-- 2026-06-29 14:02 - [多家银行收紧个人贵金属业务](https://www.blog.minike.top/Article/details/1617816647.shtml)
-- 2026-06-29 14:08 - [NBA交易](https://www.blog.minike.top/Article/details/5980420377.shtml)
-- 2026-06-29 14:16 - [天道](https://www.share.minike.top/Article/details/704931693974.shtml)
-- 2026-06-29 14:21 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/209445422547.shtml)
-- 2026-06-29 14:17 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/0726408.shtml)
+- 2026-06-29 14:27 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/6322835.shtml)
+- 2026-06-29 14:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/965381.shtml)
+- 2026-06-29 14:28 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/66623.shtml)
+- 2026-06-29 14:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/2909478038.shtml)
+- 2026-06-29 14:15 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/5218403933.shtml)
+- 2026-06-29 14:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/82684780.shtml)
+- 2026-06-29 14:19 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/240113.shtml)
+- 2026-06-29 14:11 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/77627.shtml)
+- 2026-06-29 14:19 - [急先锋](http://www.share.kurohicncr.top/Article/details/279969901785.shtml)
+- 2026-06-29 14:29 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/951343.shtml)
+- 2026-06-29 14:25 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.minike.top/Article/details/4695889.shtml)
+- 2026-06-29 14:25 - [比亚迪市值为何蒸发8000亿](http://www.share.kurohicncr.top/Article/details/356371662551.shtml)
+- 2026-06-29 14:16 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/20491208.shtml)
+- 2026-06-29 14:11 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/011328379.shtml)
+- 2026-06-29 14:29 - [欧洲超1300例超额死亡与高温有关](https://www.blog.minike.top/Article/details/831612.shtml)

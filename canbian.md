@@ -1,58 +1,53 @@
-# 特朗普谈枪击事件：“我们活在一个疯狂的世界”
+# 习近平向上海合作组织绿色和可持续发展论坛致贺信
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-上周六，白宫记者协会晚宴场外出现疑似枪手。美国总统特朗普表示，不知道自己是否是枪手的直接目标。事发时，他和多位政府官员均在晚宴现场。当地时间周日，哥伦比亚广播公司（CBS）主持人在采访中问道：“总统先生，您知道自己是否是枪手的目标吗？”“我不知道，”特朗普回答道。特朗普表示，他已经审阅了执法部门发现的与上周六宴会厅外开枪嫌疑人有关的文字材料。官员们称，这些文字显示，嫌疑枪手的目
+新华社北京4月29日电 4月29日，国家主席习近平向上海合作组织绿色和可持续发展论坛致贺信。 习近平指出，中国秉持绿水青山就是金山银山理念，坚定不移走生态优先、绿色发展之路，是全球生态文明建设的参与者、贡献者、引领者。 习近平强调，今年是上海合作组织成立25周年，也是中国“十五五”开局之年。中国愿同各方一道，弘扬“上海精神”，展现“上合担当”，加强政策对接、经验交流和项目合作，
 
 ## 正文
 
-上周六，白宫记者协会晚宴场外出现疑似枪手。
+新华社北京4月29日电 4月29日，国家主席习近平向上海合作组织绿色和可持续发展论坛致贺信。
 
-美国总统特朗普表示，不知道自己是否是枪手的直接目标。
+习近平指出，中国秉持绿水青山就是金山银山理念，坚定不移走生态优先、绿色发展之路，是全球生态文明建设的参与者、贡献者、引领者。
 
-事发时，他和多位政府官员均在晚宴现场。
+习近平强调，今年是上海合作组织成立25周年，也是中国“十五五”开局之年。
 
-当地时间周日，哥伦比亚广播公司（CBS）主持人在采访中问道：“总统先生，您知道自己是否是枪手的目标吗？
+中国愿同各方一道，弘扬“上海精神”，展现“上合担当”，加强政策对接、经验交流和项目合作，推动完善全球环境治理体系，携手共建清洁、美丽、可持续的世界。
 
-”“我不知道，”特朗普回答道。
-
-特朗普表示，他已经审阅了执法部门发现的与上周六宴会厅外开枪嫌疑人有关的文字材料。
-
-官员们称，这些文字显示，嫌疑枪手的目标是特朗普政府官员，还写道面对本届政府的所作所为，他再也无法袖手旁观。
-
-被问及上周六当时有多担心会出现伤亡，特朗普停顿了一下。
+本次论坛当日在浙江宁波开幕，主题为“践行全球治理倡议，共促上合组织绿色和可持续发展”，由上合组织睦邻友好合作委员会、生态环境部和浙江省人民政府共同主办。
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 14:10 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 14:14 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 14:06 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 14:29 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 14:09 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 14:13 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 14:27 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 14:20 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 14:08 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 14:25 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 14:20 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 14:16 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 14:28 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 14:08 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 14:26 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 14:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 14:32 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 14:33 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 14:20 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 14:08 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 14:10 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 14:35 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 14:21 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 14:35 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [手游300亿数据或被军事化运用](https://www.blog.minike.top/Article/details/240444626558.shtml)
-- 2026-06-29 14:18 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/2039762862.shtml)
-- 2026-06-29 14:24 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/01256456.shtml)
-- 2026-06-29 14:28 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/830288621.shtml)
-- 2026-06-29 14:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/9746780565.shtml)
-- 2026-06-29 14:29 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/57194579703.shtml)
-- 2026-06-29 14:26 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/323137.shtml)
-- 2026-06-29 14:16 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/269452328.shtml)
-- 2026-06-29 14:29 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/609789344799.shtml)
-- 2026-06-29 14:24 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/13724554845.shtml)
-- 2026-06-29 14:27 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/5706466.shtml)
-- 2026-06-29 14:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/53921675567.shtml)
-- 2026-06-29 14:01 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/61263937286.shtml)
-- 2026-06-29 14:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/5152831.shtml)
-- 2026-06-29 14:00 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/098392.shtml)
+- 2026-06-29 14:07 - [马斯克也站到了光里](http://www.share.minike.top/Article/details/285221.shtml)
+- 2026-06-29 14:13 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/687183989.shtml)
+- 2026-06-29 14:33 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/46138.shtml)
+- 2026-06-29 14:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/38134.shtml)
+- 2026-06-29 14:34 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/137739088498.shtml)
+- 2026-06-29 14:07 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/448747637.shtml)
+- 2026-06-29 14:31 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/0785020421.shtml)
+- 2026-06-29 14:26 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/5020156.shtml)
+- 2026-06-29 14:35 - [双高胎](http://www.blog.minike.top/Article/details/846869.shtml)
+- 2026-06-29 14:22 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/4635775.shtml)
+- 2026-06-29 14:11 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/06603422259.shtml)
+- 2026-06-29 14:33 - [6月我国降水为何偏多](https://www.share.kurohicncr.top/Article/details/066988409.shtml)
+- 2026-06-29 14:21 - [退休化学教授帮医药研发人员制毒](https://www.blog.minike.top/Article/details/656002.shtml)
+- 2026-06-29 14:14 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/378308.shtml)
+- 2026-06-29 14:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/6265215.shtml)

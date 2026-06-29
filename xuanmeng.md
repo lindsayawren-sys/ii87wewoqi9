@@ -1,42 +1,51 @@
-# 法学大先生·张晋藩
+# 乘风破浪！直击舟艇操作手集训现场
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 14:07 来源：法治日报-法治网 责任编辑：【杨彦宇】
+发布时间：2026年04月30日 09:45 来源：中国新闻网 近日，武警福建总队某支队紧贴实战需求，严密组织舟艇操作手集训。官兵围绕冲锋舟快速装卸、离岸靠岸、编队行进、水上救援等课目展开专攻精练，全面提升官兵复杂水域环境下抢险救援的实战能力。(作者：寇树玉 涂创 柏亿 肖克 王超 姚天宝） 责任编辑：【魏聪聪】
 
 ## 正文
 
-发布时间：2026年04月27日 14:07 来源：法治日报-法治网 责任编辑：【杨彦宇】
+发布时间：2026年04月30日 09:45 来源：中国新闻网 近日，武警福建总队某支队紧贴实战需求，严密组织舟艇操作手集训。
+
+官兵围绕冲锋舟快速装卸、离岸靠岸、编队行进、水上救援等课目展开专攻精练，全面提升官兵复杂水域环境下抢险救援的实战能力。
+
+(作者：寇树玉 涂创 柏亿 肖克 王超 姚天宝） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 14:03 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 14:11 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 14:22 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 14:10 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 14:15 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 14:20 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 14:23 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 14:05 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 14:11 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 14:21 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 14:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 14:09 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 14:30 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 14:13 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 14:06 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 14:26 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 14:34 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 14:33 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 14:35 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 14:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 14:27 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 14:31 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 14:35 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 14:07 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 14:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [周杰伦演唱会真的好多人啊](http://www.blog.kurohicncr.top/Article/details/978931.shtml)
-- 2026-06-29 14:10 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/53551629285.shtml)
-- 2026-06-29 14:20 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/276862078422.shtml)
-- 2026-06-29 14:02 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/2128877.shtml)
-- 2026-06-29 14:02 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/7569347.shtml)
-- 2026-06-29 14:09 - [异世界一点都不好玩！](https://www.blog.minike.top/Article/details/49332.shtml)
-- 2026-06-29 14:27 - [《昨夜将至》为何是悬疑黑马](http://www.blog.kurohicncr.top/Article/details/91418.shtml)
-- 2026-06-29 14:22 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/0835974927.shtml)
-- 2026-06-29 14:17 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/9326341.shtml)
-- 2026-06-29 14:17 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/454595291.shtml)
-- 2026-06-29 14:04 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/0379847.shtml)
-- 2026-06-29 14:06 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/654381336743.shtml)
-- 2026-06-29 14:24 - [斛珠夫人](http://www.share.minike.top/Article/details/736131941.shtml)
-- 2026-06-29 14:00 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/91102.shtml)
-- 2026-06-29 14:27 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/5037911816.shtml)
+- 2026-06-29 14:13 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/5882583.shtml)
+- 2026-06-29 14:14 - [四川宜宾地震](https://www.blog.minike.top/Article/details/974200848140.shtml)
+- 2026-06-29 14:07 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/30052.shtml)
+- 2026-06-29 14:09 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/717702100103.shtml)
+- 2026-06-29 14:15 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/396971383.shtml)
+- 2026-06-29 14:23 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.minike.top/Article/details/49360.shtml)
+- 2026-06-29 14:33 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/70878044.shtml)
+- 2026-06-29 14:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/435936531278.shtml)
+- 2026-06-29 14:19 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/982307544558.shtml)
+- 2026-06-29 14:31 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/1932821.shtml)
+- 2026-06-29 14:27 - [一生一世](http://www.blog.minike.top/Article/details/0998576323.shtml)
+- 2026-06-29 14:15 - [叶一茜森碟一起回北京了](https://www.share.minike.top/Article/details/59003.shtml)
+- 2026-06-29 14:30 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/31148125962.shtml)
+- 2026-06-29 14:15 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/046505.shtml)
+- 2026-06-29 14:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/27328593.shtml)

@@ -1,57 +1,56 @@
-# 广州黄埔：加速医疗资源全球化 打造国际医疗服务创新高地
+# 外交部领事保护中心提醒“五一”假期出境中国公民加强安全防范
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网广州4月28日电 (张璐 何俊杰 林文慧)近日，记者走进中山大学附属第六医院(简称“中山六院”)知识城院区的国际医疗部，一面挂满锦旗的长墙格外引人注目。 据了解，这些锦旗来自全球各地，其中一面属于一名15岁的赞比亚少年。他自出生起便患有罕见的Currarino综合征这一先天性疾病，辗转多国、历经7次手术仍未治愈，最终在中山六院盆底肛肠外科学科带头人、国际医疗部主任任东林教
+中新网4月29日电 据领事直通车微信公众号消息，“五一”假期将至，外交部领事保护中心提醒出境中国公民树牢安全意识，防范各类风险，平安顺利出行。 一、了解海外安全形势 提前通过中国领事服务网、“领事直通车”新媒体平台、中国驻外使领馆网站等渠道，了解目的地风险提示信息、涉外国人管理法规、入出境要求等，特别注意关于禁止、限制携带物品、药品、现金等事项要求，事先确认护照、签证等有效期，
 
 ## 正文
 
-中新网广州4月28日电 (张璐 何俊杰 林文慧)近日，记者走进中山大学附属第六医院(简称“中山六院”)知识城院区的国际医疗部，一面挂满锦旗的长墙格外引人注目。
+中新网4月29日电 据领事直通车微信公众号消息，“五一”假期将至，外交部领事保护中心提醒出境中国公民树牢安全意识，防范各类风险，平安顺利出行。
 
-据了解，这些锦旗来自全球各地，其中一面属于一名15岁的赞比亚少年。
+一、了解海外安全形势 提前通过中国领事服务网、“领事直通车”新媒体平台、中国驻外使领馆网站等渠道，了解目的地风险提示信息、涉外国人管理法规、入出境要求等，特别注意关于禁止、限制携带物品、药品、现金等事项要求，事先确认护照、签证等有效期，留存重要旅行证件复印件。
 
-他自出生起便患有罕见的Currarino综合征这一先天性疾病，辗转多国、历经7次手术仍未治愈，最终在中山六院盆底肛肠外科学科带头人、国际医疗部主任任东林教授团队的治疗下重获新生。
+避免前往安全风险高、社会治安不靖以及近期发生过恐袭、骚乱或大规模游行、示威的国家和地区。
 
-如今，中新广州知识城拥有完善的基础设施与政策服务。
+当前，中东地区军事冲突延宕，伊朗安全形势仍然复杂严峻。
 
-生物医药园内9条市政道路已通车，企业车辆10分钟即可通达各重点园区；2025年出台的“生物医药3.0”政策，覆盖从研发、转化到入院应用的全链条，创新药械目录遴选方案也已经启动。
+再次提醒中国公民暂勿前往伊朗，仍在当地中国公民坚持底线思维，加强安全防范，避免靠近军事等敏感设施，尽快转移至安全地区。
 
-今年2月，中山六院国际医疗部在中新广州知识城正式揭牌。
+二、强化安全风险意识增强自身“海外安全第一责任人”意识，提升安全风险防范应对能力，及时配置海外出行所需保险。
 
-国际医疗部配备多语种医学翻译与国际医疗服务团队，并与多家国内外高端医疗保险公司建立直付合作关系。
+遵守当地法律法规，尊重当地宗教信仰和风俗习惯，文明参观游览，避免前往未开发、缺乏安全保障、有禁令标识区域。
 
-此外，医院可通过远程会诊中心高效开展国内外专家会诊，并建立快速双向转诊通道。
+提前了解并严格遵照当地拍照、录像或使用无人机规定要求，不在敏感区域拍摄“打卡”。
 
 ## 相关推荐
 
-- 2026-06-29 14:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 14:28 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 14:06 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 14:02 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 14:16 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 14:19 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 14:09 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 14:07 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 14:07 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 14:13 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 14:16 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 14:24 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 14:34 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 14:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 14:06 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 14:27 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 14:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 14:07 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 14:35 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 14:35 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 14:20 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/2484163.shtml)
-- 2026-06-29 14:21 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/2565026.shtml)
-- 2026-06-29 14:10 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/634888811522.shtml)
-- 2026-06-29 14:13 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/3655472306.shtml)
-- 2026-06-29 14:22 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/77414891086.shtml)
-- 2026-06-29 14:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/9628519296.shtml)
-- 2026-06-29 14:14 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/7421632.shtml)
-- 2026-06-29 14:13 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/2797587692.shtml)
-- 2026-06-29 14:20 - [A股](http://www.share.minike.top/Article/details/45081.shtml)
-- 2026-06-29 14:26 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/93550138.shtml)
-- 2026-06-29 14:11 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/95432077906.shtml)
-- 2026-06-29 14:11 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/575342291043.shtml)
-- 2026-06-29 14:03 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/60884823.shtml)
-- 2026-06-29 14:29 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/349160.shtml)
-- 2026-06-29 14:18 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/82853141137.shtml)
+- 2026-06-29 14:29 - [女心理师](http://www.share.minike.top/Article/details/740018814763.shtml)
+- 2026-06-29 14:31 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/94786.shtml)
+- 2026-06-29 14:14 - [金刚川](https://www.share.minike.top/Article/details/62982.shtml)
+- 2026-06-29 14:06 - [三都主：淘汰赛我会支持日本](https://www.blog.minike.top/Article/details/750425994203.shtml)
+- 2026-06-29 14:10 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/16707.shtml)
+- 2026-06-29 14:07 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/94543.shtml)
+- 2026-06-29 14:13 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/4242056.shtml)
+- 2026-06-29 14:20 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/408661.shtml)
+- 2026-06-29 14:34 - [爱很美味](https://www.share.minike.top/Article/details/21246841332.shtml)
+- 2026-06-29 14:15 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/5075700.shtml)
+- 2026-06-29 14:15 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/991461895479.shtml)
+- 2026-06-29 14:08 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/861291.shtml)
+- 2026-06-29 14:20 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/43511373948.shtml)
+- 2026-06-29 14:23 - [女心理师](http://www.share.minike.top/Article/details/0444751717.shtml)
+- 2026-06-29 14:21 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/83666565.shtml)

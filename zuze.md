@@ -1,52 +1,60 @@
-# 2026年度中国青年五四奖章暨新时代青年先锋奖评选结果揭晓
+# 以城市思维经营乡村 浙江湖州青年入乡2.0的探路先行
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网北京4月27日电 (记者 余湛奕)为表彰先进、树立典型，集中展示新时代中国青年的精神品格和价值追求，共青团中央、全国青联决定，授予支德源等29名同志中国青年五四奖章，授予上海“模速空间”大模型创新生态社区青年团队等30个青年集体中国青年五四奖章集体，授予刁新宇等749名同志新时代青年先锋。荣获2026年度中国青年五四奖章的分别是：首都医科大学附属北京友谊医院医务处处长、重
+中新网湖州4月29日电(胡丰盛)从上海的水泥森林走进浙江的绿水青山，90后海归张羽泽把无人机研发团队安在湖州市安吉县杭垓镇的山野间。在这里，代码迭代、实地测试同步完成……他创办的探诺科技，凭14项发明专利成为美国联邦快递、约旦政府的技术供应商。 废弃矿坑变身青年策展公园，传统鱼塘升级为数字渔仓，千年古村在艺术乡建中重生……4月29日，在“世界乡村旅游小镇”潞村，浙江湖州举办青年
 
 ## 正文
 
-中新网北京4月27日电 (记者 余湛奕)为表彰先进、树立典型，集中展示新时代中国青年的精神品格和价值追求，共青团中央、全国青联决定，授予支德源等29名同志中国青年五四奖章，授予上海“模速空间”大模型创新生态社区青年团队等30个青年集体中国青年五四奖章集体，授予刁新宇等749名同志新时代青年先锋。
+中新网湖州4月29日电(胡丰盛)从上海的水泥森林走进浙江的绿水青山，90后海归张羽泽把无人机研发团队安在湖州市安吉县杭垓镇的山野间。
 
-荣获2026年度中国青年五四奖章的分别是：首都医科大学附属北京友谊医院医务处处长、重症医学科主任医师支德源，新疆生产建设兵团第三师图木舒克市叶城二牧场三连党支部副书记古再丽努尔·阿布拉(女)，江西中发天信航空发动机科技有限公司首席技术专家刘臣，天津市公安局治安管理总队攻坚狙击支队战力支援大队副大队长刘琳(女)，武警部队湖南省总队训练基地教研室孙江涛，中国科学院深海科学与工程研究所研究员杜梦然(女)，河北省唐山市乐亭县庞各庄乡阚田各庄村党支部书记兼村委会主任李瑶，山东农业大学园艺科学与工程学院教授李宏博，云南出入境边防检查总站清水河出入境边防检查站勐捧分站执勤一队副队长李金精，沈阳飞机工业(集团)有限公司钳工杨国心，江铃汽车股份有限公司智能装备中心工程车间工程1组班组长杨准正，一汽解放汽车有限公司商用车开发院数控机床特级技能师时敬龙，中国地质大学(北京
+在这里，代码迭代、实地测试同步完成……他创办的探诺科技，凭14项发明专利成为美国联邦快递、约旦政府的技术供应商。
 
-荣获2026年度中国青年五四奖章集体的分别是：上海“模速空间”大模型创新生态社区青年团队，75220部队42分队，中国铁路西安局集团有限公司西安铁路物流中心国际港营业部“丝路青锋”青年团队，北京首都机场航空安保有限公司综合安检部特检科青年先锋队，极地考察站青年突击队，中国农业银行西藏分行“格桑花”金融服务队，中船江南造船福建舰建造管理青年团队，国家税务总局平潭综合实验区税务局第一税务所(办税服务厅)青年集体，中国载人航天工程长征二号F运载火箭应急发射任务攻关团队，中国科学院天津工业生物技术研究所糖生物合成与绿色制造攻关团队，河北省沧州市消防救援支队浮阳北大道特勤站，北方农牧交错区保护性农业创新团队，特高压套管国产化应用青年集体，吉林碳谷“中国质量”35K碳纤维核心技术攻关青年团队，哈尔滨工业大学超精密仪器技术创新团队，“川藏青光明行”眼健康志愿服务队
+废弃矿坑变身青年策展公园，传统鱼塘升级为数字渔仓，千年古村在艺术乡建中重生……4月29日，在“世界乡村旅游小镇”潞村，浙江湖州举办青年入乡发展大会，以青年入乡2.0开启系统性变革，以“像经营城市一样经营乡村、像布局城市一样布局乡村”为理念，重构产业赛道、补齐公共服务、完善制度保障，让乡村既有田园诗意，更拥有城市般的创业土壤、生活质感与成长未来。
 
-共青团中央、全国青联号召广大团员青年向模范学习、向先进看齐，深刻领悟“两个确立”的决定性意义，增强“四个意识”、坚定“四个自信”、做到“两个维护”，更加紧密地团结在以习近平同志为核心的党中央周围，坚定不移听党话、跟党走，锚定“十五五”目标任务坚定信心、乘势而上，以昂扬向上的精神风貌和强国有我的责任担当，践行“请党放心、强国有我”的青春誓言，为全面推进强国建设、民族复兴伟业奋力书写新的青春篇章。
+这场社会实践，正在绿水青山间，为城乡融合与共同富裕写下新的答案。
 
-(完)
+乡村振兴2.0“升级版” 湖州是全国最早系统推进青年入乡的城市，也是这项工作的首创之地。
+
+过去几年，数十万青年带着创意与热情涌入乡村，民宿、露营、乡村咖啡馆遍地开花，乡土中国焕发出久违的活力。
+
+但热闹背后，隐忧悄然浮现。
+
+早期青年入乡多以农文旅为主，创意容易复制，产业深度不足。
 
 ## 相关推荐
 
-- 2026-06-29 14:02 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 14:06 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 14:16 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 14:29 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 14:02 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 14:20 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 14:29 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 14:22 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 14:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 14:17 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 14:12 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 14:23 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 14:29 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 14:06 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 14:14 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 14:32 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 14:07 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 14:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 14:24 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 14:26 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 14:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 14:18 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 14:10 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 14:33 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 14:07 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 14:24 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:16 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/39962802.shtml)
-- 2026-06-29 14:01 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/018874235287.shtml)
-- 2026-06-29 14:25 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/199432999125.shtml)
-- 2026-06-29 14:16 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/0551450402.shtml)
-- 2026-06-29 14:19 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/17041014.shtml)
-- 2026-06-29 14:19 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/3340720482.shtml)
-- 2026-06-29 14:25 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/6895220909.shtml)
-- 2026-06-29 14:15 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/6081122236.shtml)
-- 2026-06-29 14:06 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/6819590.shtml)
-- 2026-06-29 14:24 - [唐艺昕女儿接唐艺昕回家](http://www.blog.kurohicncr.top/Article/details/333713.shtml)
-- 2026-06-29 14:20 - [中国避暑神器在欧洲卖爆了](https://www.share.kurohicncr.top/Article/details/9205098.shtml)
-- 2026-06-29 14:27 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/38021.shtml)
-- 2026-06-29 14:08 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/99461.shtml)
-- 2026-06-29 14:12 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/188217526732.shtml)
-- 2026-06-29 14:01 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/60748902.shtml)
+- 2026-06-29 14:19 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/949191668.shtml)
+- 2026-06-29 14:13 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.minike.top/Article/details/02013853574.shtml)
+- 2026-06-29 14:08 - [灿如繁星定档](https://www.blog.minike.top/Article/details/98679426.shtml)
+- 2026-06-29 14:14 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/6655251910.shtml)
+- 2026-06-29 14:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/55394.shtml)
+- 2026-06-29 14:24 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/18723947.shtml)
+- 2026-06-29 14:18 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.minike.top/Article/details/51887826.shtml)
+- 2026-06-29 14:17 - [美人鱼](http://www.share.minike.top/Article/details/191307259.shtml)
+- 2026-06-29 14:13 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/015300844.shtml)
+- 2026-06-29 14:22 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/701594314.shtml)
+- 2026-06-29 14:16 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/543340145597.shtml)
+- 2026-06-29 14:26 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/179726013.shtml)
+- 2026-06-29 14:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/71995662552.shtml)
+- 2026-06-29 14:18 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/382680814.shtml)
+- 2026-06-29 14:09 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/16147.shtml)

@@ -1,60 +1,61 @@
-# 2026中国时尚体育季启动 数万市民现场体验杭州站活动
+# 2026宁夏银川马拉松报名人数突破历史新高
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网4月28日电 据全民健身活动推广与指导委员会消息，2026中国时尚体育季启动仪式暨浙江(杭州)国际时尚体育周西湖区/黄龙板块活动日前顺利落下帷幕。活动为期三天，集中展现了浙江及杭州西湖区时尚体育产业的硬实力。 本次活动于以“悦动・越时尚”为统一主题，聚焦“时尚引领、科技驱动、消费赋能”，通过“黄龙・潮”趋势发布、“黄龙・集”特卖市集、“黄龙・奕”互动体验、“黄龙・榜”榜单
+中新网银川4月30日电 (记者 杨迪)记者30日从相关新闻发布会上获悉，2026蒙牛宁夏银川马拉松将于5月17日上午7时鸣枪开跑。目前，赛事共吸引全国34个省、自治区、直辖市及特别行政区的5万余名跑者踊跃报名，报名人数突破历史新高。本届赛事为中国田径协会认证A类赛事，由宁夏体育局、贺兰山东麓葡萄酒产业园区管委会、银川市人民政府联合主办，银川市体育局等多部门协同承办。赛事设置马拉
 
 ## 正文
 
-中新网4月28日电 据全民健身活动推广与指导委员会消息，2026中国时尚体育季启动仪式暨浙江(杭州)国际时尚体育周西湖区/黄龙板块活动日前顺利落下帷幕。
+中新网银川4月30日电 (记者 杨迪)记者30日从相关新闻发布会上获悉，2026蒙牛宁夏银川马拉松将于5月17日上午7时鸣枪开跑。
 
-活动为期三天，集中展现了浙江及杭州西湖区时尚体育产业的硬实力。
+目前，赛事共吸引全国34个省、自治区、直辖市及特别行政区的5万余名跑者踊跃报名，报名人数突破历史新高。
 
-本次活动于以“悦动・越时尚”为统一主题，聚焦“时尚引领、科技驱动、消费赋能”，通过“黄龙・潮”趋势发布、“黄龙・集”特卖市集、“黄龙・奕”互动体验、“黄龙・榜”榜单发布四大核心板块，吸引300余家国内外品牌、800余名嘉宾参与，数万市民现场打卡体验。
+本届赛事为中国田径协会认证A类赛事，由宁夏体育局、贺兰山东麓葡萄酒产业园区管委会、银川市人民政府联合主办，银川市体育局等多部门协同承办。
 
-“黄龙・潮”正式启动2026中国时尚体育季，同时汇聚国内外一线品牌完成亚洲首秀、中国首发，发布年度运动潮流趋势与前沿科技成果；“黄龙・集”打造全品类潮流购物市集，体育品牌齐聚亮相，传统非遗、智能科技、地方特产、萌宠用品等多品类集中亮相，丰富“体育+”融合业态。
+赛事设置马拉松、半程马拉松两个项目。
 
-有关单位整合组织广西非遗壮锦文化、融水元宝山优质农特产品，集中呈现地方特产；宁夏枸杞、西飞模型、AI产品、宠物零食等多类品牌入驻市集，进一步丰富市集内容。
+总规模达25000人，其中马拉松项目8000人、半程马拉松项目17000人，较往年增加7000人。
 
-主办方表示，系列活动让体育不再局限于赛事与产业本身，更成为一种健康向上的体育生活方式，满足市民一站式体验与选购需求。
+本届赛事持续优化服务细节，让每一位跑者都能感受到银川的温暖与诚意。
 
-“黄龙・奕”三天共开展28项49场赛事活动，涉及25个体育运动项目，涵盖开课仪式、幼儿园运动会、交友活动、乐刻团课派对，以及足球、棒垒球、街舞等。
+参赛物资方面，参赛服、牛奶等13项暖心装备一键配齐，蛋白棒、宁夏枸杞等7项完赛礼包彰显地域特色。
 
-活动同步融入体育消费券、明星互动、夜间运动派对等元素，打通线上线下消费渠道。
+志愿服务方面，联动银川市13所高校，组建3285人规范化志愿者队伍，全程护航、贴心服务；住宿接待方面，协调银川市酒店推出跑者延迟退房举措，解决参赛后顾之忧。
 
 ## 相关推荐
 
-- 2026-06-29 14:00 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 14:29 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 14:00 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 14:26 - [王佳佳江疏影13年前后同框对比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 14:08 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 14:28 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 14:23 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 14:11 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 14:29 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 14:01 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 14:12 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 14:16 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 14:00 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 14:14 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 14:13 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 14:28 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 14:11 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 14:12 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 14:09 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 14:19 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 14:33 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 14:16 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 14:20 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 14:18 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 14:16 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 14:19 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 14:22 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 14:28 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 14:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/226237656993.shtml)
-- 2026-06-29 14:05 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/248530987859.shtml)
-- 2026-06-29 14:19 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/0667000859.shtml)
-- 2026-06-29 14:27 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/204239.shtml)
-- 2026-06-29 14:28 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/95242212.shtml)
-- 2026-06-29 14:17 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.kurohicncr.top/Article/details/13848.shtml)
-- 2026-06-29 14:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/691689.shtml)
-- 2026-06-29 14:12 - [媒体评恋与深空争议](http://www.blog.kurohicncr.top/Article/details/181122.shtml)
-- 2026-06-29 14:00 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/489733588014.shtml)
-- 2026-06-29 14:11 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/3200764.shtml)
-- 2026-06-29 14:16 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/726561781538.shtml)
-- 2026-06-29 14:27 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/101822.shtml)
-- 2026-06-29 14:19 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/90310.shtml)
-- 2026-06-29 14:01 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/69007.shtml)
-- 2026-06-29 14:02 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/274567760311.shtml)
+- 2026-06-29 14:16 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/3751596.shtml)
+- 2026-06-29 14:11 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/43272.shtml)
+- 2026-06-29 14:17 - [吴建豪老婆](https://www.share.minike.top/Article/details/28754636.shtml)
+- 2026-06-29 14:17 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/90725165107.shtml)
+- 2026-06-29 14:34 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/884363832383.shtml)
+- 2026-06-29 14:12 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/19589630.shtml)
+- 2026-06-29 14:25 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/85779.shtml)
+- 2026-06-29 14:32 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/848897.shtml)
+- 2026-06-29 14:08 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/44592270.shtml)
+- 2026-06-29 14:27 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/902148999759.shtml)
+- 2026-06-29 14:26 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/239899063.shtml)
+- 2026-06-29 14:19 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/7092460546.shtml)
+- 2026-06-29 14:30 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/106821409.shtml)
+- 2026-06-29 14:35 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/7109220.shtml)
+- 2026-06-29 14:30 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/18498379.shtml)

@@ -1,57 +1,56 @@
-# 广西北海聚力打造产业集群 向海经济多点突破
+# 泰国榴莲在磨憨铁路口岸实现8分钟入境
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网北海4月28日电 题：广西北海聚力打造产业集群 向海经济多点突破 作者 翟李强 4月的北部湾畔，春潮涌动。走进广西北海铁山港区广西蓝水海洋能源装备制造项目生产基地，工人们正在生产车间拼板焊接区开展切割、焊接作业；码头上一个个数十米高的海上风电导管架整齐排列，静待装船，将被运往广东的一个海上风电场。 坐拥得天独厚的海洋岸线资源、优质临港产业区位双重禀赋，北海市近年来主要在铁
+中新网云南西双版纳4月29日电 (黄远飞 雷雨)4月29日9时44分，一辆满载泰国榴莲的“澜湄快线”列车驶入中老边境磨憨铁路口岸。磨憨出入境边防检查站两名民警立即前往列车停靠点，快步登上列车驾驶室，认真核查列车员证件、开展列车车体检查。9时52分，列车启动前往海关查验货场。 磨憨铁路口岸位于云南省西双版纳傣族自治州勐腊县中老边境。作为中老铁路重要枢纽，该口岸已成为中国对东盟的第
 
 ## 正文
 
-中新网北海4月28日电 题：广西北海聚力打造产业集群 向海经济多点突破 作者 翟李强 4月的北部湾畔，春潮涌动。
+中新网云南西双版纳4月29日电 (黄远飞 雷雨)4月29日9时44分，一辆满载泰国榴莲的“澜湄快线”列车驶入中老边境磨憨铁路口岸。
 
-走进广西北海铁山港区广西蓝水海洋能源装备制造项目生产基地，工人们正在生产车间拼板焊接区开展切割、焊接作业；码头上一个个数十米高的海上风电导管架整齐排列，静待装船，将被运往广东的一个海上风电场。
+磨憨出入境边防检查站两名民警立即前往列车停靠点，快步登上列车驾驶室，认真核查列车员证件、开展列车车体检查。
 
-坐拥得天独厚的海洋岸线资源、优质临港产业区位双重禀赋，北海市近年来主要在铁山港布局海工装备产业，产业集群规模持续扩容。
+9时52分，列车启动前往海关查验货场。
 
-计划总投资210亿元的北海三峡海上风电国际产业园，规划建设涵盖科技研发平台、高端装备制造、运维服务、产业配套等全产业链体系。
+磨憨铁路口岸位于云南省西双版纳傣族自治州勐腊县中老边境。
 
-广西蓝水海洋能源装备制造项目是北海三峡海上风电国际产业园首个落地项目，主要建设大型石油和天然气海洋开采平台装备、LNG模块、海上风电升压站、换流站、漂浮式基础、导管架、海洋牧场等海洋工程高端装备，与金风科技、东方电缆等一批企业在北海共同构筑起日益完整的产业链，本地配套率超80%。
+作为中老铁路重要枢纽，该口岸已成为中国对东盟的第一大铁路口岸。
 
-在这样的产业布局下，广西蓝水海洋能源装备制造项目基地配置了2400吨级门式发运起重机，以及2万吨级一站式发运港池，从装备制造到开发运维，一条完整的海上风电产业链正在铁山港加速成型。
+4月中旬以来，泰国、马来西亚等东南亚国家榴莲迎来集中上市期，中国市场也迎来榴莲消费旺季。
 
-目前全球单机容量最大的漂浮式海上风电平台近日已从铁山港运出，在广东阳江青洲海上风电场水域安装。
+今年以来，中老铁路跨境水果运输成绩亮眼，累计运输进口东南亚榴莲超5万吨，同比增长超94%。
 
-“我们计划今年再新增一台3600吨级门式发运起重机，以后我们生产的产品会越来越大、越来越重。
+针对榴莲、山竹等生鲜货物“快通关、高保鲜、低损耗”的通关需求，磨憨出入境边防检查站同步优化货运查验流程，上线运行5T车体检查视频监控系统，推行登车办理、简化铁路员工验证程序、“7×24小时”全时通关等措施，货物通关边检查验时间大幅压缩至8分钟以内，有力保障中老铁路这条东南亚热带水果进入中国的“黄金通道”高效畅通。
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 14:05 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 14:06 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 14:21 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 14:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 14:19 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 14:24 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 14:15 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 14:02 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 14:27 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 14:00 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 14:15 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 14:14 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 14:16 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 14:22 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 14:16 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 14:25 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 14:27 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 14:17 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 14:35 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 14:25 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:24 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/334538061.shtml)
-- 2026-06-29 14:18 - [沙丘](http://www.share.minike.top/Article/details/0969929646.shtml)
-- 2026-06-29 14:04 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/208090729.shtml)
-- 2026-06-29 14:16 - [金刚川](https://www.share.kurohicncr.top/Article/details/5950503543.shtml)
-- 2026-06-29 14:28 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/853373486090.shtml)
-- 2026-06-29 14:14 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/3409727996.shtml)
-- 2026-06-29 14:28 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/275502.shtml)
-- 2026-06-29 14:02 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/30584768691.shtml)
-- 2026-06-29 14:25 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/7079638.shtml)
-- 2026-06-29 14:15 - [为什么6月以来北方频繁降雨](http://www.share.kurohicncr.top/Article/details/1659534.shtml)
-- 2026-06-29 14:19 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/593588972.shtml)
-- 2026-06-29 14:29 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/86046.shtml)
-- 2026-06-29 14:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/54925658247.shtml)
-- 2026-06-29 14:06 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/76744415197.shtml)
-- 2026-06-29 14:19 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/51322.shtml)
+- 2026-06-29 14:14 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/457086434602.shtml)
+- 2026-06-29 14:14 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/1346177080.shtml)
+- 2026-06-29 14:16 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/7329557629.shtml)
+- 2026-06-29 14:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/40320087017.shtml)
+- 2026-06-29 14:10 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/47696.shtml)
+- 2026-06-29 14:28 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/83169748.shtml)
+- 2026-06-29 14:14 - [崔韩率还以为韩娱来新人了](http://www.share.minike.top/Article/details/24931636660.shtml)
+- 2026-06-29 14:33 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/89456262558.shtml)
+- 2026-06-29 14:17 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/06249538.shtml)
+- 2026-06-29 14:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/8380742740.shtml)
+- 2026-06-29 14:11 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/2575995.shtml)
+- 2026-06-29 14:28 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/145462717239.shtml)
+- 2026-06-29 14:31 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/93964557.shtml)
+- 2026-06-29 14:16 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.kurohicncr.top/Article/details/13972491037.shtml)
+- 2026-06-29 14:13 - [刘仲华院士愿当贺永辉导师](http://www.share.minike.top/Article/details/90075375106.shtml)

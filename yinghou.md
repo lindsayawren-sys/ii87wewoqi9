@@ -1,56 +1,60 @@
-# 南京苏州两巨头抢滩无人驾驶：T3出行招股书提及78次，曹操出行计划2027年量产
+# 多只理财产品提前“退场”，啥情况？
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：鱼禾财经 4月下旬，来自江苏两大网约车巨头，接连在Robotaxi（无人驾驶出租车）赛道投下重磅消息。 4月24日，在2026北京国际汽车展览会上，苏州曹操出行深度参与定义研发的中国首款原生开发Robotaxi原型车——Eva Cab正式亮相。就在两天前，南京T3出行向港交所递交招股书，宣布IPO募集
+来源：金融时报 “前几天我突然收到通知，持有的一款理财产品即将提前终止。”近日，来自北京的投资者王凌（化名）向《金融时报》记者反馈，原本持有期限尚未到期的银行理财，被通知提前终止运作，打乱了自身的资金配置计划。 记者梳理近期理财市场公告发现，年内有多家银行理财子公司密集宣布旗下理财产品提前终止。尤其自今年4月以来，银行理财提前终止案例集中涌现。 4月23日，交银理财连发两则产品
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：金融时报 “前几天我突然收到通知，持有的一款理财产品即将提前终止。
 
-来源：鱼禾财经 4月下旬，来自江苏两大网约车巨头，接连在Robotaxi（无人驾驶出租车）赛道投下重磅消息。
+”近日，来自北京的投资者王凌（化名）向《金融时报》记者反馈，原本持有期限尚未到期的银行理财，被通知提前终止运作，打乱了自身的资金配置计划。
 
-4月24日，在2026北京国际汽车展览会上，苏州曹操出行深度参与定义研发的中国首款原生开发Robotaxi原型车——Eva Cab正式亮相。
+记者梳理近期理财市场公告发现，年内有多家银行理财子公司密集宣布旗下理财产品提前终止。
 
-就在两天前，南京T3出行向港交所递交招股书，宣布IPO募集资金将优先用于建设全栈Robotaxi能力。
+尤其自今年4月以来，银行理财提前终止案例集中涌现。
 
-“吉利Robotaxi最重要商业化载体” 曹操出行发布首款原生开发无人驾驶出租车 从硬件上看，曹操出行Eva Cab最抢眼的特征是没有方向盘，这正折射出其与市面上多数Robotaxi在开发逻辑上的不同。
+4月23日，交银理财连发两则产品提前终止公告，交银理财稳享灵动慧利半年鑫3号、稳享灵动慧利季季开6号私银尊享两款理财产品分别于今年5月11日、4月28日提前终止。
 
-图源：曹操出行 目前市面上的多数Robotaxi，都采用“后装改制”模式，即采购现成的量产车，通过追加自动驾驶设备，实现测试运营能力。
+除交银理财外，工银理财亦发布公告称，旗下鑫得利目标止盈策略ESG优选固收增强封闭式理财产品于今年4月22日提前终止。
 
-而Eva Cab从设计之初，就以L4级自动驾驶场景为参考，将智驾系统、感知硬件等内嵌到造车环节。
+公告显示，根据产品说明书的提前终止条款约定，在止盈观察期内，该产品份额成立以来的年化收益率在观察日不低于止盈目标收益率，已达到提前终止条件。
 
-据曹操出行披露，这款定制化车型计划于2027年实现量产，长远目标是到2030年累计投放10万辆，逐步推进规模化运营。
+理财产品提前终止是指理财产品管理人对一些有固定期限的理财产品在合同约定期限还没到时就提前终止，或者是一些无固定期限的理财产品不再继续运作。
 
 ## 相关推荐
 
-- 2026-06-29 14:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 14:06 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 14:23 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 14:19 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 14:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 14:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 14:11 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 14:05 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 14:26 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 14:28 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 14:14 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 14:14 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 14:32 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 14:25 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 14:09 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 14:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 14:17 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 14:35 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 14:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 14:18 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 14:35 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 14:25 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 14:33 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 14:08 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:16 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/2053542.shtml)
-- 2026-06-29 14:08 - [斗破苍穹](http://www.share.minike.top/Article/details/53855.shtml)
-- 2026-06-29 14:09 - [灿如繁星定档](https://www.share.minike.top/Article/details/584716619.shtml)
-- 2026-06-29 14:08 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/15535907.shtml)
-- 2026-06-29 14:08 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/277721459.shtml)
-- 2026-06-29 14:10 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/79083649497.shtml)
-- 2026-06-29 14:20 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/6162864691.shtml)
-- 2026-06-29 14:27 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/93517.shtml)
-- 2026-06-29 14:17 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/4551623.shtml)
-- 2026-06-29 14:04 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/969968775922.shtml)
-- 2026-06-29 14:13 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/48850.shtml)
-- 2026-06-29 14:16 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/449777.shtml)
-- 2026-06-29 14:13 - [一见倾心](https://www.blog.minike.top/Article/details/6803666503.shtml)
-- 2026-06-29 14:20 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/909478.shtml)
-- 2026-06-29 14:19 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/563986689656.shtml)
+- 2026-06-29 14:31 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/55552.shtml)
+- 2026-06-29 14:09 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/6543349.shtml)
+- 2026-06-29 14:07 - [国家体育总局政策法规司原副司长获刑](https://www.share.minike.top/Article/details/0431277.shtml)
+- 2026-06-29 14:27 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/89000127.shtml)
+- 2026-06-29 14:26 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/50234864251.shtml)
+- 2026-06-29 14:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/1861981650.shtml)
+- 2026-06-29 14:26 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/2870539635.shtml)
+- 2026-06-29 14:27 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/3705456.shtml)
+- 2026-06-29 14:33 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/5741668141.shtml)
+- 2026-06-29 14:27 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/87294307.shtml)
+- 2026-06-29 14:19 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/536438088.shtml)
+- 2026-06-29 14:25 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/05859.shtml)
+- 2026-06-29 14:06 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/6576655.shtml)
+- 2026-06-29 14:08 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/73968360201.shtml)
+- 2026-06-29 14:26 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/175102.shtml)

@@ -1,60 +1,60 @@
-# 港股硬科技“倒车接人”？规模最大港股通信息技术ETF（159131）缩量跌3.35%，资金狂买1亿份！
+# 李在明纪念抗倭名将李舜臣
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-4月28日，港股硬科技在连续强势上攻后迎来休整，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内收跌3.35%，全天溢价持续，资金逢跌涌入，单日申购1.05亿份，净申购5500万份，此前2日上行期间已连续获资金净流入4808万元。 自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数（简称港股通信息C）
+中新网4月29日电 据韩媒报道，韩国总统李在明28日参加在韩国忠清南道牙山市显忠祠举行的李舜臣将军诞辰481周年纪念活动并演讲。李在明表示：“其政府将以李舜臣将军的精神为指引，以强大的民族团结力量为动力，竭尽全力克服国家危机。” 报道称，李在明在演讲中说：“瞬息万变的国际秩序带来了难以预料的不确定性，中东战争导致能源价格上涨和物价波动，对我国经济和人民生活造成了重大影响。正如李
 
 ## 正文
 
-4月28日，港股硬科技在连续强势上攻后迎来休整，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内收跌3.35%，全天溢价持续，资金逢跌涌入，单日申购1.05亿份，净申购5500万份，此前2日上行期间已连续获资金净流入4808万元。
+中新网4月29日电 据韩媒报道，韩国总统李在明28日参加在韩国忠清南道牙山市显忠祠举行的李舜臣将军诞辰481周年纪念活动并演讲。
 
-自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数（简称港股通信息C）累计涨幅超17%，同期恒生科技、港股通科技的涨幅分别为5.33%、2.92%，港股通信息C指数的锐度和弹性显著领先。
+李在明表示：“其政府将以李舜臣将军的精神为指引，以强大的民族团结力量为动力，竭尽全力克服国家危机。
 
-统计区间：2026.3.31-2026.4.27。
+” 报道称，李在明在演讲中说：“瞬息万变的国际秩序带来了难以预料的不确定性，中东战争导致能源价格上涨和物价波动，对我国经济和人民生活造成了重大影响。
 
-港股通信息C指数2021-2025年年度历史收益分别为：-9.54%、-34.47%、-0.25%、21.58%、39.30%。
+正如李舜臣将军当年力挽狂澜，带领国家走出危机一样，我们有责任携手共渡当前的难关。
 
-指数过往业绩不预示未来表现。
+” 活动结束后，李在明前往显忠祠内的射箭场，观看第65届总统杯韩国射箭大赛。
 
-行业消息面上，据SEMI2026年4月最新数据，2025年全球半导体设备出货额达1351亿美元，同比增长15%创历史新高。
+李在明观看了射箭表演，并鼓掌喝彩。
 
-方正证券指出，当前半导体行业受AI算力需求驱动，国产芯片份额已超55%，关键领域采购占比超70%。
+随后，在一位现场参赛者的提议下，李在明也参与赛事，亲自射了一箭。
 
-先进逻辑产能加速扩张，国产芯片半导体厂商产能持续释放，设备端等受益于国产替代。
+李舜臣是朝鲜王朝中期武臣，朝鲜半岛历史上著名的军事家、民族英雄。
 
 ## 相关推荐
 
-- 2026-06-29 14:07 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 14:29 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 14:01 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 14:05 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 14:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 14:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 14:01 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 14:10 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 14:05 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 14:03 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 14:08 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 14:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 14:26 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 14:25 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 14:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 14:32 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 14:19 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 14:32 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 14:22 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 14:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 14:22 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 14:25 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 14:07 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 14:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 14:13 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 14:31 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 14:32 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 14:27 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.minike.top/Article/details/15610855574.shtml)
-- 2026-06-29 14:19 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.kurohicncr.top/Article/details/41272.shtml)
-- 2026-06-29 14:09 - [欧洲超1300例超额死亡与高温有关](https://www.share.kurohicncr.top/Article/details/5785576.shtml)
-- 2026-06-29 14:03 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/000125.shtml)
-- 2026-06-29 14:16 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.share.minike.top/Article/details/82544462827.shtml)
-- 2026-06-29 14:25 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/2602491.shtml)
-- 2026-06-29 14:01 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/657857088.shtml)
-- 2026-06-29 14:11 - [韩国拟将部分刑责年龄降至13岁](https://www.share.kurohicncr.top/Article/details/7526132524.shtml)
-- 2026-06-29 14:11 - [周生如故](http://www.share.minike.top/Article/details/28102854.shtml)
-- 2026-06-29 14:24 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/670847384835.shtml)
-- 2026-06-29 14:03 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/303788162590.shtml)
-- 2026-06-29 14:27 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/563300.shtml)
-- 2026-06-29 14:14 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/49106.shtml)
-- 2026-06-29 14:23 - [手游300亿数据或被军事化运用](https://www.blog.minike.top/Article/details/9670597.shtml)
-- 2026-06-29 14:04 - [天道](https://www.share.minike.top/Article/details/812892847.shtml)
+- 2026-06-29 14:15 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/462504.shtml)
+- 2026-06-29 14:18 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/0716070137.shtml)
+- 2026-06-29 14:32 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/545926.shtml)
+- 2026-06-29 14:13 - [金刚川](http://www.blog.minike.top/Article/details/1515575310.shtml)
+- 2026-06-29 14:17 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/186070864120.shtml)
+- 2026-06-29 14:34 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/013233764697.shtml)
+- 2026-06-29 14:26 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/5891182.shtml)
+- 2026-06-29 14:30 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/189356261.shtml)
+- 2026-06-29 14:23 - [6月我国降水为何偏多](https://www.blog.minike.top/Article/details/531556102364.shtml)
+- 2026-06-29 14:13 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/62247619232.shtml)
+- 2026-06-29 14:13 - [金牌调解](https://www.share.minike.top/Article/details/216309.shtml)
+- 2026-06-29 14:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/1867250.shtml)
+- 2026-06-29 14:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/553648.shtml)
+- 2026-06-29 14:32 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/74755418830.shtml)
+- 2026-06-29 14:07 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/6113777.shtml)

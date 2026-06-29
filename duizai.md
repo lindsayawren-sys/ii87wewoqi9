@@ -1,57 +1,51 @@
-# 上海一季度金融数据出炉：社融规模增加4743亿元，同比多增138亿元
+# 光大银行：一季度实现归母净利润114.59亿元，同比减少8.06%
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-财联社4月28日讯 （记者 曹韵仪）今日，人民银行上海总部召开2026年第二季度新闻发布会，介绍今年一季度上海金融运行情况。2026年一季度上海市社会融资规模同比多增，直接融资比重上升。从信贷业务来看，信息技术业、科研服务业和普惠小微贷款余额同比均两位数增长。 社会融资规模同比多增，直接融资比重上升 数据显示，一季度上海社会融资规模增加4743亿元，同比多增138亿元，较好满足
+4月29日金融一线消息，光大银行发布2026年一季度报告。数据显示，报告期末，本集团资产总额72，011.45亿元，比上年末增长0.50%，其中，贷款和垫款本金总额40，561.38亿元，比上年末增长1.91%；负债总额66，241.31亿元，比上年末增长1.01%。 报告期内，集团实现净利润115.21亿元，比上年同期下降8.05%；实现归属于本行股东的净利润114.59亿元
 
 ## 正文
 
-财联社4月28日讯 （记者 曹韵仪）今日，人民银行上海总部召开2026年第二季度新闻发布会，介绍今年一季度上海金融运行情况。
+4月29日金融一线消息，光大银行发布2026年一季度报告。
 
-2026年一季度上海市社会融资规模同比多增，直接融资比重上升。
+数据显示，报告期末，本集团资产总额72，011.45亿元，比上年末增长0.50%，其中，贷款和垫款本金总额40，561.38亿元，比上年末增长1.91%；负债总额66，241.31亿元，比上年末增长1.01%。
 
-从信贷业务来看，信息技术业、科研服务业和普惠小微贷款余额同比均两位数增长。
+报告期内，集团实现净利润115.21亿元，比上年同期下降8.05%；实现归属于本行股东的净利润114.59亿元，比上年同期下降8.06%；实现营业收入318.11亿元，比上年同期下降3.85%。
 
-社会融资规模同比多增，直接融资比重上升 数据显示，一季度上海社会融资规模增加4743亿元，同比多增138亿元，较好满足了实体经济的融资需求。
+报告期末，集团不良贷款余额534.49亿元，比上年末增加27.07亿元；不良贷款率1.32%，比上年末上升0.05个百分点；拨备覆盖率162.22%，比上年末下降11.92个百分点。
 
-从融资结构看，对实体经济发放的人民币贷款增加3495亿元。
-
-直接融资增加1550亿元，占社融增量的32.7%，同比上升17.7个百分点。
-
-其中，各类主体债券净融资1441亿元，同比多增781亿元；非金融企业股票净融资108亿元，同比多增79亿元。
-
-委托贷款、信托贷款和未贴现银行承兑汇票等表外净融资减少533亿元，同比多减559亿元。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 14:19 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 14:18 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 14:23 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 14:03 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 14:04 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 14:19 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 14:18 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 14:04 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 14:16 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 14:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 14:27 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 14:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 14:16 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 14:30 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 14:11 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 14:28 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 14:19 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 14:25 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 14:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 14:24 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 14:16 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/249002.shtml)
-- 2026-06-29 14:21 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/546949613.shtml)
-- 2026-06-29 14:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/043517838693.shtml)
-- 2026-06-29 14:13 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/59513176251.shtml)
-- 2026-06-29 14:12 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/8587581.shtml)
-- 2026-06-29 14:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/060162087.shtml)
-- 2026-06-29 14:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/88229938.shtml)
-- 2026-06-29 14:27 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/1094534161.shtml)
-- 2026-06-29 14:01 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/0248985016.shtml)
-- 2026-06-29 14:26 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/40973.shtml)
-- 2026-06-29 14:04 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/7599934.shtml)
-- 2026-06-29 14:17 - [韩体育部长回应李在明痛批](https://www.share.minike.top/Article/details/90554230.shtml)
-- 2026-06-29 14:20 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/9093367044.shtml)
-- 2026-06-29 14:13 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/4408468549.shtml)
-- 2026-06-29 14:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/12487.shtml)
+- 2026-06-29 14:06 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.minike.top/Article/details/34867197514.shtml)
+- 2026-06-29 14:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/80418.shtml)
+- 2026-06-29 14:35 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/15973954.shtml)
+- 2026-06-29 14:26 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/2237884913.shtml)
+- 2026-06-29 14:25 - [中国避暑神器在欧洲卖爆了](http://www.blog.minike.top/Article/details/596437176193.shtml)
+- 2026-06-29 14:24 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/5646704629.shtml)
+- 2026-06-29 14:35 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/25681766278.shtml)
+- 2026-06-29 14:34 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/63682049837.shtml)
+- 2026-06-29 14:31 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/38947985419.shtml)
+- 2026-06-29 14:21 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/12786308.shtml)
+- 2026-06-29 14:21 - [俄军新型无人机战力如何](http://www.share.kurohicncr.top/Article/details/6438827287.shtml)
+- 2026-06-29 14:06 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/711645.shtml)
+- 2026-06-29 14:21 - [第一炉香](http://www.blog.minike.top/Article/details/37443819688.shtml)
+- 2026-06-29 14:08 - [AG 钟意](http://www.blog.minike.top/Article/details/272485.shtml)
+- 2026-06-29 14:32 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/75799.shtml)

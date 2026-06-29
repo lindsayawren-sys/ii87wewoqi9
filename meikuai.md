@@ -1,60 +1,45 @@
-# 安徽欧美同学会召开二届五次会长会（扩大）会议
+# 华勤技术拟派发末期股息每10股12元
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-4月25日上午，安徽欧美同学会召开第二届理事会第五次会长会(扩大)会议，传达学习全国两会精神和全国、全省统战部长会议精神，总结2025年工作，部署2026年重点任务。安徽欧美同学会会长、同济大学校长杨金龙主持会议，副会长俞书宏、孙长银、王俊峰、余玉刚、胡艳军、王孝佳、朱国萍、洪静芳、严建文、王磊、方明、杨乐出席，秘书长和有关副秘书长、专委会副主任及各市欧美同学会有关负责同志参加
+华勤技术（03296）发布公告，该公司拟派发末期股息每10股12元。责任编辑：卢昱君
 
 ## 正文
 
-4月25日上午，安徽欧美同学会召开第二届理事会第五次会长会(扩大)会议，传达学习全国两会精神和全国、全省统战部长会议精神，总结2025年工作，部署2026年重点任务。
+华勤技术（03296）发布公告，该公司拟派发末期股息每10股12元。
 
-安徽欧美同学会会长、同济大学校长杨金龙主持会议，副会长俞书宏、孙长银、王俊峰、余玉刚、胡艳军、王孝佳、朱国萍、洪静芳、严建文、王磊、方明、杨乐出席，秘书长和有关副秘书长、专委会副主任及各市欧美同学会有关负责同志参加会议并作工作交流。
-
-会议指出，2025年，在会长会班子、各级组织及全体会员凝心聚力、协同奋进下，安徽欧美同学会各项工作扎实推进，留学人员事业实现提质突破。
-
-各市欧美同学会立足地方实际、精准谋划履职，工作举措务实、成效亮点突出。
-
-全省留学人员组织互学互鉴、争先创优的工作氛围逐渐形成。
-
-会议强调，认真抓好“十五五”开局之年重点任务，深入学习贯彻习近平总书记在全国两会期间的重要讲话精神和全国两会精神，贯彻落实中央及省委关于统一战线工作最新部署，牢固树立和践行正确政绩观，持续推进全省留学人员事业高质量发展。
-
-要强化思想引领，深入开展理论宣讲和国情省情研学，大力弘扬留学报国传统，广泛凝聚思想共识；要紧扣实干笃行，抓实工作部署，细化举措、压实责任，广泛调动会员活力，高质量完成年度工作；要抓好自身建设，发挥班子示范带头作用，建强工作队伍，深化组织联动，争先进位、聚力赋能，奋力开创留学人员工作新局面。
-
-会议还审议了新会员入会申请、长三角海创中心委托运营服务协议等事项。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:00 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 14:19 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 14:07 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 14:22 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 14:23 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 14:11 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 14:13 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 14:15 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 14:28 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 14:19 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 14:08 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 14:02 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 14:25 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 14:15 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 14:30 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 14:18 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 14:33 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 14:15 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 14:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 14:29 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 14:29 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 14:09 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 14:13 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 14:17 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 14:16 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:00 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/05247728755.shtml)
-- 2026-06-29 14:19 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/4977667.shtml)
-- 2026-06-29 14:00 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/822907.shtml)
-- 2026-06-29 14:09 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/5138128832.shtml)
-- 2026-06-29 14:18 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/99678862.shtml)
-- 2026-06-29 14:09 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/81316690.shtml)
-- 2026-06-29 14:12 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/34874.shtml)
-- 2026-06-29 14:12 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/6185362287.shtml)
-- 2026-06-29 14:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/505928.shtml)
-- 2026-06-29 14:20 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/472994473.shtml)
-- 2026-06-29 14:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/572763.shtml)
-- 2026-06-29 14:07 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/033407.shtml)
-- 2026-06-29 14:10 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/2930729.shtml)
-- 2026-06-29 14:07 - [金刚川](https://www.share.minike.top/Article/details/17018549299.shtml)
-- 2026-06-29 14:10 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/56400724.shtml)
+- 2026-06-29 14:24 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/380611.shtml)
+- 2026-06-29 14:30 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/8085702.shtml)
+- 2026-06-29 14:14 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/81302331661.shtml)
+- 2026-06-29 14:20 - [扬名立万](https://www.share.minike.top/Article/details/61379183.shtml)
+- 2026-06-29 14:23 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/74959.shtml)
+- 2026-06-29 14:28 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/65691817342.shtml)
+- 2026-06-29 14:18 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/25716866153.shtml)
+- 2026-06-29 14:15 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/99979641270.shtml)
+- 2026-06-29 14:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/089500.shtml)
+- 2026-06-29 14:18 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/362806.shtml)
+- 2026-06-29 14:30 - [沙特足协主席发布声明主动请辞](https://www.blog.minike.top/Article/details/563192171146.shtml)
+- 2026-06-29 14:09 - [赵露思爸爸拍vlog翻车了](https://www.blog.kurohicncr.top/Article/details/073234727140.shtml)
+- 2026-06-29 14:17 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.kurohicncr.top/Article/details/4712404404.shtml)
+- 2026-06-29 14:34 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/58814.shtml)
+- 2026-06-29 14:24 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/63258081673.shtml)

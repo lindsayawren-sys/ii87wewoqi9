@@ -1,61 +1,52 @@
-# 从办一案到治一域 浙江检察厚植民营经济法治沃土
+# 涉案资金超5亿 一名重大跨境网赌案主要犯罪嫌疑人被引渡回国
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月27日电(郭其钰)在浙江永康，一家深陷诉讼困境七年的企业，在检察机关的监督、引导下，不仅解决了经济纠纷，更重获信用新生，迎来发展转机。 一纸监督背后，检察官没有止步于办案，而是构建“异常失信名单预警模型”，帮助更多民营企业删除失信信息。当生产线重新启动，法治不再是抽象的概念，而成了民营企业最踏实的“定心丸”。 检察机关是法律监督机关。法治浙江建设二十年来，从个案纠
+4月29日，按照公安部部署，在泰国有关部门大力支持下，天津公安机关成功将一名重大跨境网络赌博案件主要犯罪嫌疑人黄某铠从泰国引渡回国。 经查，2022年9月至2023年6月，黄某铠伙同他人在柬埔寨组建犯罪团伙，通过互联网设立“万合足球”赌博平台，以高额利润为诱饵，网罗招募人员从事网络赌博犯罪活动，采用代理形式发展下线、赌客会员，在国内招揽各层级代理及赌客，涉案资金5亿余元。202
 
 ## 正文
 
-中新网杭州4月27日电(郭其钰)在浙江永康，一家深陷诉讼困境七年的企业，在检察机关的监督、引导下，不仅解决了经济纠纷，更重获信用新生，迎来发展转机。
+4月29日，按照公安部部署，在泰国有关部门大力支持下，天津公安机关成功将一名重大跨境网络赌博案件主要犯罪嫌疑人黄某铠从泰国引渡回国。
 
-一纸监督背后，检察官没有止步于办案，而是构建“异常失信名单预警模型”，帮助更多民营企业删除失信信息。
+经查，2022年9月至2023年6月，黄某铠伙同他人在柬埔寨组建犯罪团伙，通过互联网设立“万合足球”赌博平台，以高额利润为诱饵，网罗招募人员从事网络赌博犯罪活动，采用代理形式发展下线、赌客会员，在国内招揽各层级代理及赌客，涉案资金5亿余元。
 
-当生产线重新启动，法治不再是抽象的概念，而成了民营企业最踏实的“定心丸”。
+2026年2月，泰国有关部门裁定向中方引渡黄某铠。
 
-检察机关是法律监督机关。
+下一步，天津公安机关将全力开展案件侦办工作。
 
-法治浙江建设二十年来，从个案纠偏到类案治理，从人海战术到数智赋能，浙江检察机关不断探寻法律监督的边界与效能，厚植民营经济法治沃土。
-
-审慎善意 助企“轻装上阵” 在司法实践中，检察机关对涉企案件的办理往往面临矛盾，如果构罪即诉、一诉了之，可能会造成企业陷入困境甚至破产倒闭；如果简单从轻处理，可能导致企业“带病”运行，也有失法律公正。
-
-在民营经济大省浙江，检察机关逐渐形成一个共识，既坚守法治底线，又优化办案方式，最大限度减少司法办案的负面效应。
-
-杭州某国家高新技术企业累计纳税超亿元，拥有多项国家专利。
+(总台记者 朱辛未 陈昱)
 
 ## 相关推荐
 
-- 2026-06-29 14:11 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 14:27 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 14:12 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 14:04 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 14:24 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 14:28 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 14:25 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 14:22 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 14:23 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 14:03 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 14:23 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 14:28 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 14:21 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 14:28 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 14:11 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 14:23 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 14:12 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 14:29 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 14:15 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 14:28 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 14:28 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 14:16 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 14:34 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 14:14 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 14:25 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 14:24 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 14:18 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:16 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/50850781031.shtml)
-- 2026-06-29 14:18 - [俄称继续推进 乌称打击俄军设施](http://www.share.kurohicncr.top/Article/details/7162975.shtml)
-- 2026-06-29 14:29 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.kurohicncr.top/Article/details/698873819923.shtml)
-- 2026-06-29 14:20 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/9553098407.shtml)
-- 2026-06-29 14:13 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/23401.shtml)
-- 2026-06-29 14:20 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/641316.shtml)
-- 2026-06-29 14:10 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/2342704.shtml)
-- 2026-06-29 14:05 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/878054646.shtml)
-- 2026-06-29 14:15 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.kurohicncr.top/Article/details/276790174.shtml)
-- 2026-06-29 14:17 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/26686692027.shtml)
-- 2026-06-29 14:08 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/84507499274.shtml)
-- 2026-06-29 14:15 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/10669424765.shtml)
-- 2026-06-29 14:13 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/25925529042.shtml)
-- 2026-06-29 14:08 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.blog.kurohicncr.top/Article/details/618834920268.shtml)
-- 2026-06-29 14:16 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/43078.shtml)
+- 2026-06-29 14:31 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/3914164541.shtml)
+- 2026-06-29 14:23 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/481123937.shtml)
+- 2026-06-29 14:32 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/635975.shtml)
+- 2026-06-29 14:32 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/49214.shtml)
+- 2026-06-29 14:30 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/6210197.shtml)
+- 2026-06-29 14:17 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/8097520.shtml)
+- 2026-06-29 14:30 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/65033.shtml)
+- 2026-06-29 14:12 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/77162861607.shtml)
+- 2026-06-29 14:34 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/03559980.shtml)
+- 2026-06-29 14:09 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/22178722.shtml)
+- 2026-06-29 14:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/108131209760.shtml)
+- 2026-06-29 14:08 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/165111.shtml)
+- 2026-06-29 14:26 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/1278823.shtml)
+- 2026-06-29 14:30 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/952776115.shtml)
+- 2026-06-29 14:28 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/95323213.shtml)

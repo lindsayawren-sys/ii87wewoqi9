@@ -1,57 +1,51 @@
-# 山东省累计发放民营企业再贷款403亿元
+# 黑龙江省主要江河全线开江
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网济南4月28日电 (记者 沙见龙)4月28日，中国人民银行山东省分行在济南举行2026年一季度山东省金融统计数据新闻发布会，发布解读山东省金融数据情况及该分行重点工作举措及成效。 中国人民银行山东省分行调查统计处副处长胡杰在介绍中提到，截至今年3月末，该省累计发放民营企业再贷款403亿元(人民币，下同)，带动该省地方法人金融机构一季度新增民营中小微企业贷款507亿元，其中
+记者从黑龙江省水文水资源中心获悉，4月30日10时，黑龙江干流兴安段(漠河市兴安镇)开江；11时30分，黑龙江干流马伦段(塔河县开库康乡马伦村)开江。 至此，黑龙江省主要江河全线开江。 (总台记者 张艺馨)
 
 ## 正文
 
-中新网济南4月28日电 (记者 沙见龙)4月28日，中国人民银行山东省分行在济南举行2026年一季度山东省金融统计数据新闻发布会，发布解读山东省金融数据情况及该分行重点工作举措及成效。
+记者从黑龙江省水文水资源中心获悉，4月30日10时，黑龙江干流兴安段(漠河市兴安镇)开江；11时30分，黑龙江干流马伦段(塔河县开库康乡马伦村)开江。
 
-中国人民银行山东省分行调查统计处副处长胡杰在介绍中提到，截至今年3月末，该省累计发放民营企业再贷款403亿元(人民币，下同)，带动该省地方法人金融机构一季度新增民营中小微企业贷款507亿元，其中近八成投向制造业、批发零售业。
+至此，黑龙江省主要江河全线开江。
 
-今年1月中旬，中国人民银行推出一批货币金融政策，其中设立民营企业再贷款额度1万亿元。
-
-就此，山东建立民营企业再贷款落地工作机制，有效引导金融机构提升民营中小微企业金融服务质效。
-
-据中国人民银行山东省分行货币政策处副处长刘春波介绍，2026年以来，该行深入推进金融支持民营企业发展各项工作。
-
-民营企业再贷款政策出台以来，该行积极抓好政策落地，建规则、强宣传、优流程、聚合力，引导地方法人金融机构增强对民营中小微企业的支持力度。
-
-刘春波说，该行制定山东省民营企业再贷款实施细则，建立基于地方法人金融机构民营中小微企业贷款规模、增速等信贷投放效果的额度分配机制，发挥好政策激励引导作用。
-
-同时，指导地方法人金融机构建立健全内部管理制度，优化对民营中小微企业信贷投放的内部激励。
+(总台记者 张艺馨)
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 14:22 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 14:24 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 14:03 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 14:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 14:19 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 14:12 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 14:08 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 14:24 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 14:15 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 14:08 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 14:30 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 14:08 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 14:27 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 14:17 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 14:10 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 14:27 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 14:27 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 14:08 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 14:17 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 14:27 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 14:19 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 14:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 14:27 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 14:33 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 14:35 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [2025年人口增长10强城市出炉](http://www.blog.minike.top/Article/details/970724210.shtml)
-- 2026-06-29 14:13 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/67980904.shtml)
-- 2026-06-29 14:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/781944.shtml)
-- 2026-06-29 14:02 - [爱情有烟火你是知道我爱看什么的](http://www.blog.kurohicncr.top/Article/details/459658853.shtml)
-- 2026-06-29 14:13 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/565052312.shtml)
-- 2026-06-29 14:15 - [东部机场集团新增釜山航线](https://www.share.kurohicncr.top/Article/details/23272136219.shtml)
-- 2026-06-29 14:05 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/66828188.shtml)
-- 2026-06-29 14:20 - [TOP 无畏契约](http://www.share.minike.top/Article/details/0821875.shtml)
-- 2026-06-29 14:06 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/0214425865.shtml)
-- 2026-06-29 14:28 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/194756272.shtml)
-- 2026-06-29 14:20 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/4848627784.shtml)
-- 2026-06-29 14:18 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/54441006.shtml)
-- 2026-06-29 14:28 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.kurohicncr.top/Article/details/258546.shtml)
-- 2026-06-29 14:02 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/58335730.shtml)
-- 2026-06-29 14:07 - [【独家】牧神记 第89集 明心](http://www.blog.kurohicncr.top/Article/details/4640826.shtml)
+- 2026-06-29 14:16 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/8535103309.shtml)
+- 2026-06-29 14:13 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/06995812473.shtml)
+- 2026-06-29 14:25 - [金刚川](https://www.blog.minike.top/Article/details/8089018.shtml)
+- 2026-06-29 14:16 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/49284.shtml)
+- 2026-06-29 14:06 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/289037171868.shtml)
+- 2026-06-29 14:33 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/19826.shtml)
+- 2026-06-29 14:34 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/58839176.shtml)
+- 2026-06-29 14:19 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/613709.shtml)
+- 2026-06-29 14:12 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/50696538089.shtml)
+- 2026-06-29 14:17 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/861205871065.shtml)
+- 2026-06-29 14:28 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/477195402899.shtml)
+- 2026-06-29 14:12 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/7689423856.shtml)
+- 2026-06-29 14:09 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/1517119070.shtml)
+- 2026-06-29 14:17 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/50417.shtml)
+- 2026-06-29 14:06 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/72555426223.shtml)

@@ -1,51 +1,45 @@
-# 内蒙古：大漠驼羔选美比赛高萌来袭
+# 农发行上海市分行被罚134万元：违反金融统计管理规定
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 22:21 来源：中国新闻网 4月25日，2026“苍天千峰驼羔”系列活动启幕，特色驼羔选美比赛趣味上演，萌态十足的小骆驼瞬间俘获观众的心。 比赛从驼羔外观、发育、毛发、驯化、装扮5个方面设定评选标准，最美驼羔的主人将收获2000元的奖金。赛场上，一只只驼羔俏皮灵动，乌黑透亮的眼眸搭配卷翘纤长的睫毛，辅以蓬松柔软的卷曲毛发，可爱的模样直击观众萌
+4月30日金融一线消息，据中国人民银行上海市分行行政处罚信息公示表显示，中国农业发展银行上海市分行因违反金融统计管理规定，被警告，罚款人民币134万元。 责任编辑：秦艺
 
 ## 正文
 
-发布时间：2026年04月26日 22:21 来源：中国新闻网 4月25日，2026“苍天千峰驼羔”系列活动启幕，特色驼羔选美比赛趣味上演，萌态十足的小骆驼瞬间俘获观众的心。
+4月30日金融一线消息，据中国人民银行上海市分行行政处罚信息公示表显示，中国农业发展银行上海市分行因违反金融统计管理规定，被警告，罚款人民币134万元。
 
-比赛从驼羔外观、发育、毛发、驯化、装扮5个方面设定评选标准，最美驼羔的主人将收获2000元的奖金。
-
-赛场上，一只只驼羔俏皮灵动，乌黑透亮的眼眸搭配卷翘纤长的睫毛，辅以蓬松柔软的卷曲毛发，可爱的模样直击观众萌点。
-
-本次赛事同步联动赛驼、赛马等特色活动，吸引各地游客前来打卡观赏。
-
-(记者 陈峰 视频来源 额济纳旗融媒体中心) 责任编辑：【张令旗】
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 14:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 14:22 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 14:07 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 14:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 14:17 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 14:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 14:13 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 14:18 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 14:13 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 14:09 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 14:34 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 14:28 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 14:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 14:18 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 14:16 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 14:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 14:35 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 14:27 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 14:19 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 14:32 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 14:32 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/757096554678.shtml)
-- 2026-06-29 14:12 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/022641482.shtml)
-- 2026-06-29 14:17 - [Canna纳尔8-0对位单杀Doran](http://www.blog.minike.top/Article/details/573815.shtml)
-- 2026-06-29 14:24 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/65830.shtml)
-- 2026-06-29 14:01 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/84791311.shtml)
-- 2026-06-29 14:03 - [行程万里不忘初心](https://www.share.minike.top/Article/details/100317.shtml)
-- 2026-06-29 14:02 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.kurohicncr.top/Article/details/1635317050.shtml)
-- 2026-06-29 14:12 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/346260807.shtml)
-- 2026-06-29 14:27 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/6425508.shtml)
-- 2026-06-29 14:13 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/320429.shtml)
-- 2026-06-29 14:03 - [吴海燕兰西雅漫步复兴岛](https://www.blog.kurohicncr.top/Article/details/436154.shtml)
-- 2026-06-29 14:00 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/402781.shtml)
-- 2026-06-29 14:00 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/290803363.shtml)
-- 2026-06-29 14:07 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/77295973.shtml)
-- 2026-06-29 14:24 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/8025698594.shtml)
+- 2026-06-29 14:15 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/977836.shtml)
+- 2026-06-29 14:23 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/549142406530.shtml)
+- 2026-06-29 14:08 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/589113006.shtml)
+- 2026-06-29 14:10 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/40585394.shtml)
+- 2026-06-29 14:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/50483.shtml)
+- 2026-06-29 14:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/03528782.shtml)
+- 2026-06-29 14:24 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/5346805505.shtml)
+- 2026-06-29 14:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/09649543906.shtml)
+- 2026-06-29 14:18 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/379996.shtml)
+- 2026-06-29 14:10 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/721074.shtml)
+- 2026-06-29 14:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/450905865963.shtml)
+- 2026-06-29 14:24 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/347749523.shtml)
+- 2026-06-29 14:24 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/5695128.shtml)
+- 2026-06-29 14:29 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/11275.shtml)
+- 2026-06-29 14:22 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/88096.shtml)

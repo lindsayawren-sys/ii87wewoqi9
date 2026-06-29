@@ -1,52 +1,60 @@
-# 大华继显：长城汽车目标价降至15港元 维持“买入”评级
+# 叮咚买菜发布五一消费趋势：HPP食品热销，休闲卤味消费增长超40%
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-大华继显发布研报称，维持长城汽车（02333）“买入”评级，但因应较高的开支比率，下调长城汽车2026至2028年纯利预测15%、16%及17%，目标价由16港元下调至15港元，基于预测2026年市盈率12倍不变。 该行认为长城汽车首季纯利同比下跌46%至9.45亿元人民币（下同），逊预期，按季亦跌23%，仅相当于该行全年预测的9%。盈利下跌主要由于销售及研发开支高于预期，但若
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新浪科技讯 4月29日下午消息，叮咚买菜发布五一生鲜消费趋势观察。数据显示，今年五一期间，出游消费与宅家消费“双场景”特征进一步强化，围绕露营、踏青的即食健康肉制品、休闲卤味，以及宅家一人食场景下的品类均呈现明显增长。 叮咚买菜表示，伴随气温渐升，HPP果汁健康消费趋势进一步凸显。五一期间，鲜榨西瓜汁、红富
 
 ## 正文
 
-大华继显发布研报称，维持长城汽车（02333）“买入”评级，但因应较高的开支比率，下调长城汽车2026至2028年纯利预测15%、16%及17%，目标价由16港元下调至15港元，基于预测2026年市盈率12倍不变。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该行认为长城汽车首季纯利同比下跌46%至9.45亿元人民币（下同），逊预期，按季亦跌23%，仅相当于该行全年预测的9%。
+新浪科技讯 4月29日下午消息，叮咚买菜发布五一生鲜消费趋势观察。
 
-盈利下跌主要由于销售及研发开支高于预期，但若剔除去年同期的10.3亿元外汇收益，首季纯利实质应录得超过30%的同比增长。
+数据显示，今年五一期间，出游消费与宅家消费“双场景”特征进一步强化，围绕露营、踏青的即食健康肉制品、休闲卤味，以及宅家一人食场景下的品类均呈现明显增长。
 
-大华继显表示，长城汽车投资主题中的盈利复苏仍然完整，受惠于强劲产品管线、新技术推出及出口复苏。
+叮咚买菜表示，伴随气温渐升，HPP果汁健康消费趋势进一步凸显。
 
-责任编辑：卢昱君
+五一期间，鲜榨西瓜汁、红富士苹果汁为代表的清爽无添加HPP饮品预计环比增长超20%。
+
+4月18日，绝味系列卤味上线叮咚买菜，这也是绝味产品首次在即时零售平台上架销售。
+
+目前，绝味、周黑鸭、煌上煌、紫燕四大卤味品牌已全部在叮咚买菜上线。
+
+叮咚买菜预计，五一假期期间卤味产品的整体销售环比节前一周将有超40%的增长。
 
 ## 相关推荐
 
-- 2026-06-29 14:28 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 14:17 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 14:07 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 14:03 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 14:20 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 14:11 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 14:29 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 14:19 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 14:27 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 14:06 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 14:26 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 14:21 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 14:26 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 14:20 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 14:13 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 14:23 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 14:10 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 14:31 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 14:30 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 14:20 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 14:07 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 14:18 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 14:06 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 14:25 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 14:22 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 14:33 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:28 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.blog.minike.top/Article/details/86274217.shtml)
-- 2026-06-29 14:01 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/65117028.shtml)
-- 2026-06-29 14:19 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/38740.shtml)
-- 2026-06-29 14:02 - [【独家】牧神记 第89集 明心](https://www.share.kurohicncr.top/Article/details/979782.shtml)
-- 2026-06-29 14:14 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/98273004953.shtml)
-- 2026-06-29 14:28 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/6797222843.shtml)
-- 2026-06-29 14:13 - [双高胎](http://www.blog.minike.top/Article/details/80704157490.shtml)
-- 2026-06-29 14:11 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/055793830.shtml)
-- 2026-06-29 14:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/611844333.shtml)
-- 2026-06-29 14:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/00092268.shtml)
-- 2026-06-29 14:29 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/72662660033.shtml)
-- 2026-06-29 14:28 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/867366479.shtml)
-- 2026-06-29 14:29 - [恋与深空失控领地](http://www.share.minike.top/Article/details/02009721.shtml)
-- 2026-06-29 14:16 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.minike.top/Article/details/207677163700.shtml)
-- 2026-06-29 14:02 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/2371332997.shtml)
+- 2026-06-29 14:14 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/34769.shtml)
+- 2026-06-29 14:07 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/285179242.shtml)
+- 2026-06-29 14:15 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/35702903.shtml)
+- 2026-06-29 14:27 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.kurohicncr.top/Article/details/4517801.shtml)
+- 2026-06-29 14:31 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/182253100624.shtml)
+- 2026-06-29 14:24 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.kurohicncr.top/Article/details/78867.shtml)
+- 2026-06-29 14:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/4956832.shtml)
+- 2026-06-29 14:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/5993475921.shtml)
+- 2026-06-29 14:18 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/554707232.shtml)
+- 2026-06-29 14:17 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/5515370.shtml)
+- 2026-06-29 14:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/039085661460.shtml)
+- 2026-06-29 14:18 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/111308154306.shtml)
+- 2026-06-29 14:13 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/46558963.shtml)
+- 2026-06-29 14:12 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/787659270.shtml)
+- 2026-06-29 14:20 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/1199212.shtml)

@@ -1,59 +1,59 @@
-# 高盛：中国市场值得“稳定溢价”
+# 道达尔能源盈利大幅飙升 重启15亿美元股票回购计划
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-华尔街见闻 高盛认为，在全球宏观不确定性持续高企的当下，中国资产的低波动、政策可预期性以及结构性转型红利，正在构成一种可量化的“稳定溢价”。对于寻求组合避险属性的投资者，中国国债与人民币资产的防御价值值得重新审视；而出口链中的新能源“新三样”，以及受益于产业升级的制造业和生产性服务业，则是结构性受益方向。 当全球市场在中东冲突与能源价格飙升的双重压力下剧烈震荡之际，中国资产却展
+道达尔能源表示，中东冲突带来额外收益，公司将向股东返还更多现金。 这家法国能源巨头于周三宣布，受地缘冲突推高能源价格带动盈利及现金流增长，公司将在截至6月的第二季度重启股票回购，回购规模最高达15亿美元。今年2月，受油价下行冲击业绩影响，该公司曾将股票回购规模缩减至7.5亿美元。 在加大股东回报的同时，公司本财年一季度净利润环比翻倍，达到58.1亿美元。据数据分析机构Visib
 
 ## 正文
 
-华尔街见闻 高盛认为，在全球宏观不确定性持续高企的当下，中国资产的低波动、政策可预期性以及结构性转型红利，正在构成一种可量化的“稳定溢价”。
+道达尔能源表示，中东冲突带来额外收益，公司将向股东返还更多现金。
 
-对于寻求组合避险属性的投资者，中国国债与人民币资产的防御价值值得重新审视；而出口链中的新能源“新三样”，以及受益于产业升级的制造业和生产性服务业，则是结构性受益方向。
+这家法国能源巨头于周三宣布，受地缘冲突推高能源价格带动盈利及现金流增长，公司将在截至6月的第二季度重启股票回购，回购规模最高达15亿美元。
 
-当全球市场在中东冲突与能源价格飙升的双重压力下剧烈震荡之际，中国资产却展现出令人瞩目的稳定性——高盛认为，这种稳定性本身正在成为一种值得定价的溢价。
+今年2月，受油价下行冲击业绩影响，该公司曾将股票回购规模缩减至7.5亿美元。
 
-在4月24日发布的报告中，高盛将中国的稳定归纳成三个“稳定”：稳定的增长、稳定的市场、稳定的政策。
+在加大股东回报的同时，公司本财年一季度净利润环比翻倍，达到58.1亿美元。
 
-在全球宏观不确定性持续高企的当下，中国资产的低波动、政策可预期性以及结构性转型红利，正在构成一种可量化的“稳定溢价”。
+据数据分析机构Visible Alpha的市场一致预期数据，该业绩超出分析师预期的52.1亿美元。
 
-对于寻求组合避险属性的投资者，中国国债与人民币资产的防御价值值得重新审视；而出口链中的新能源“新三样”，以及受益于产业升级的制造业和生产性服务业，则是结构性受益方向。
+周二，其英国竞争对手英国石油（BP）同样表示，受中东冲突引发的市场波动提振，公司季度盈利同比翻倍有余。
 
-人民币与利率的“异类”表现 中国金融市场在外部冲击中展示的韧性引人侧目。
-
-自2月底以来，当多数亚欧石油进口新兴市场货币因贸易条件恶化而大幅贬值之际，人民币不仅对美元升值，对贸易加权汇率的表现甚至超越美元本身。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 14:03 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 14:06 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 14:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 14:21 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 14:26 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 14:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 14:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 14:00 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 14:20 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 14:26 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 14:23 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 14:16 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 14:13 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 14:28 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 14:28 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 14:28 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 14:13 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 14:24 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 14:25 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 14:31 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 14:28 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 14:28 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 14:11 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 14:18 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 14:34 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 14:29 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 14:19 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 14:28 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:25 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/656597.shtml)
-- 2026-06-29 14:04 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/6212362.shtml)
-- 2026-06-29 14:29 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/291513.shtml)
-- 2026-06-29 14:01 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/605274.shtml)
-- 2026-06-29 14:03 - [韩国队启程回国众将回避镜头](https://www.blog.minike.top/Article/details/0247901546.shtml)
-- 2026-06-29 14:01 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/5309418.shtml)
-- 2026-06-29 14:16 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/4057241731.shtml)
-- 2026-06-29 14:26 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/991502409.shtml)
-- 2026-06-29 14:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/430896141.shtml)
-- 2026-06-29 14:16 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/1419882710.shtml)
-- 2026-06-29 14:22 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.minike.top/Article/details/575045.shtml)
-- 2026-06-29 14:01 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/09020402837.shtml)
-- 2026-06-29 14:27 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/724103305.shtml)
-- 2026-06-29 14:23 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/140260292.shtml)
-- 2026-06-29 14:01 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/1230999001.shtml)
+- 2026-06-29 14:26 - [美人鱼](https://www.share.kurohicncr.top/Article/details/221690741.shtml)
+- 2026-06-29 14:20 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/256126137.shtml)
+- 2026-06-29 14:14 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/37398.shtml)
+- 2026-06-29 14:22 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/72384938350.shtml)
+- 2026-06-29 14:19 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/3763185907.shtml)
+- 2026-06-29 14:19 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/87680068.shtml)
+- 2026-06-29 14:33 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/236056253909.shtml)
+- 2026-06-29 14:19 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/92347661.shtml)
+- 2026-06-29 14:12 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/655899481.shtml)
+- 2026-06-29 14:15 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/16919549.shtml)
+- 2026-06-29 14:21 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/867962.shtml)
+- 2026-06-29 14:32 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/41455569.shtml)
+- 2026-06-29 14:15 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.minike.top/Article/details/3281432.shtml)
+- 2026-06-29 14:31 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/67829514238.shtml)
+- 2026-06-29 14:35 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/305261.shtml)

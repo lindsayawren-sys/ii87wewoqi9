@@ -1,57 +1,48 @@
-# 日韩股市创历史新高，美伊和谈僵局未影响市场情绪
+# 一季度文化服务业营业收入同比增长9.9%
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-亚太股市周一早盘普遍上涨，投资者忽略了美伊之间再度出现的外交挫折，尽管中东紧张局势升级推高了油价。 日本日经225指数上涨0.53%，创下历史新高；韩国综合股价指数（KOSPI）上涨1%，也创下历史新高。 澳大利亚S&P/ASX 200指数下跌0.54%。 尽管美国总统特朗普周六取消了派遣美国特使史蒂夫·威特科夫和贾里德·库什纳前往巴基斯坦伊斯兰堡与伊朗进行谈判的计划，但市场情
+央视新闻客户端消息(新闻联播)：国家统计局今天(4月29日)发布的数据显示，一季度，我国文化服务业营业收入比上年同期增长9.9%，实现较快增长。营业收入占规模以上文化企业的比重为58.2%，比上年同期提高1.8个百分点。 文化新业态行业对规模以上文化企业营业收入增长的贡献率为79.0%，持续发挥引领作用。其中，娱乐用智能无人飞行器制造、数字出版等行业营业收入均实现两位数增长。
 
 ## 正文
 
-亚太股市周一早盘普遍上涨，投资者忽略了美伊之间再度出现的外交挫折，尽管中东紧张局势升级推高了油价。
+央视新闻客户端消息(新闻联播)：国家统计局今天(4月29日)发布的数据显示，一季度，我国文化服务业营业收入比上年同期增长9.9%，实现较快增长。
 
-日本日经225指数上涨0.53%，创下历史新高；韩国综合股价指数（KOSPI）上涨1%，也创下历史新高。
+营业收入占规模以上文化企业的比重为58.2%，比上年同期提高1.8个百分点。
 
-澳大利亚S&P/ASX 200指数下跌0.54%。
+文化新业态行业对规模以上文化企业营业收入增长的贡献率为79.0%，持续发挥引领作用。
 
-尽管美国总统特朗普周六取消了派遣美国特使史蒂夫·威特科夫和贾里德·库什纳前往巴基斯坦伊斯兰堡与伊朗进行谈判的计划，但市场情绪依然坚挺。
-
-“浪费太多时间在旅途上，工作量太大！
-
-此外，他们的‘领导层’内部也存在巨大的内讧和混乱，”特朗普在Truth Social网站上发帖写道。
-
-美伊第二轮和平谈判计划再次破裂后，油价上涨约2%。
-
-截至美国东部时间周日晚上7点35分（北京时间周一上午7点35分），国际基准布伦特原油期货价格上涨超过2%，至每桶107.49美元；美国原油期货价格也上涨1.79%，至每桶96.19美元。
+其中，娱乐用智能无人飞行器制造、数字出版等行业营业收入均实现两位数增长。
 
 ## 相关推荐
 
-- 2026-06-29 14:28 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 14:08 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 14:23 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 14:04 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 14:29 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 14:24 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 14:11 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 14:07 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 14:22 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 14:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 14:14 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 14:09 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 14:32 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 14:21 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 14:30 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 14:35 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 14:30 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 14:28 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 14:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 14:25 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 14:07 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:15 - [上班主打一个薪尽自然凉](https://www.share.minike.top/Article/details/85030550735.shtml)
-- 2026-06-29 14:11 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/177183380212.shtml)
-- 2026-06-29 14:10 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/22808.shtml)
-- 2026-06-29 14:24 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/336681062522.shtml)
-- 2026-06-29 14:21 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/76166.shtml)
-- 2026-06-29 14:08 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/01720497.shtml)
-- 2026-06-29 14:11 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/88402.shtml)
-- 2026-06-29 14:18 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/845519.shtml)
-- 2026-06-29 14:16 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/977562764.shtml)
-- 2026-06-29 14:26 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/928374880.shtml)
-- 2026-06-29 14:03 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/368054108622.shtml)
-- 2026-06-29 14:09 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.minike.top/Article/details/17401407086.shtml)
-- 2026-06-29 14:13 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/18077150570.shtml)
-- 2026-06-29 14:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/9472288.shtml)
-- 2026-06-29 14:11 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/0971484.shtml)
+- 2026-06-29 14:19 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.minike.top/Article/details/98299.shtml)
+- 2026-06-29 14:30 - [韩国记者：解码“合肥模式”](https://www.blog.kurohicncr.top/Article/details/591063232.shtml)
+- 2026-06-29 14:20 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/8996086.shtml)
+- 2026-06-29 14:09 - [日本主帅：目标是冠军](https://www.share.minike.top/Article/details/447008.shtml)
+- 2026-06-29 14:21 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/6785731.shtml)
+- 2026-06-29 14:19 - [四川宜宾地震](https://www.blog.minike.top/Article/details/7763025.shtml)
+- 2026-06-29 14:19 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/2141819.shtml)
+- 2026-06-29 14:18 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/52122188289.shtml)
+- 2026-06-29 14:27 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/5140889.shtml)
+- 2026-06-29 14:17 - [血糖高的人能吃西瓜吗](http://www.blog.minike.top/Article/details/487645.shtml)
+- 2026-06-29 14:28 - [5万块的威力](http://www.blog.minike.top/Article/details/904189424738.shtml)
+- 2026-06-29 14:18 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/694651290.shtml)
+- 2026-06-29 14:17 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/41431640.shtml)
+- 2026-06-29 14:17 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/9856338.shtml)
+- 2026-06-29 14:27 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/92534.shtml)

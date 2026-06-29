@@ -1,58 +1,61 @@
-# 从恐龙成为常州“特产”，来看江苏文旅产业发展的流量密码
+# 高盛、贝恩领投人工智能营销初创企业
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-现代快报讯(记者 宋体佳 文/摄)在江苏，一座高速发展的工业城市怎么把文旅故事“讲”得活色生香？4月24日晚上，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动调研团来到常州中华恐龙园。在这里，从“角角”到“酱板龙”，因“苏超”走红的恐龙“明星”，都被捧上台前与游客互动，成了“快乐经济”新的增长点。这也是江苏文旅产业蓬勃发展的生动注脚。“那个恐龙是真的吗？好可爱啊！”在恐龙
+亦有广告科技公司 The Trade Desk 参投 Hightouch，公司估值现已达 27.5 亿美元 多家企业联合公告称，生成式 AI 营销平台 Hightouch 完成 1.5 亿美元新一轮融资，由高盛另类投资旗下增长股权部门、贝恩资本风投联合领投。 本轮融资还引入广告科技公司 The Trade Desk 旗下风投机构 TD7 参投，投后Hightouch 估值达 2
 
 ## 正文
 
-现代快报讯(记者 宋体佳 文/摄)在江苏，一座高速发展的工业城市怎么把文旅故事“讲”得活色生香？
+亦有广告科技公司 The Trade Desk 参投 Hightouch，公司估值现已达 27.5 亿美元 多家企业联合公告称，生成式 AI 营销平台 Hightouch 完成 1.5 亿美元新一轮融资，由高盛另类投资旗下增长股权部门、贝恩资本风投联合领投。
 
-4月24日晚上，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动调研团来到常州中华恐龙园。
+本轮融资还引入广告科技公司 The Trade Desk 旗下风投机构 TD7 参投，投后Hightouch 估值达 27.5 亿美元。
 
-在这里，从“角角”到“酱板龙”，因“苏超”走红的恐龙“明星”，都被捧上台前与游客互动，成了“快乐经济”新的增长点。
+公司上一轮融资在 2025 年 2 月，当时估值为 12 亿美元。
 
-这也是江苏文旅产业蓬勃发展的生动注脚。
+如今越来越多营销服务供应商向企业首席营销官及广告机构推介称，可借助 AI 快速高效批量生成营销内容。
 
-“那个恐龙是真的吗？
+Hightouch 表示，自身核心优势是可基于客户已有的营销文案素材训练 AI 智能体，确保 AI 生成内容贴合品牌调性，并沿用过往成功营销活动的成熟范式。
 
-好可爱啊！
+公司称，将客户数据库中的真实图片、视频与 AI 全新生成素材融合，还能避免普通 AI 内容常见的粗糙违和感。
 
-”在恐龙园，一位少年指着正在表演的机器恐龙“角角”问身边的家长。
+Hightouch 联合创始人兼联席首席执行官：特贾斯・马诺哈尔、卡希什・古普塔。
 
-此时，身披“苏超”常州队球服的“角角”恰好将一粒足球踢进球门，引来围观游客一阵欢笑。
+联合创始人兼联席首席执行官特贾斯・马诺哈尔谈及当前生成式 AI 浪潮时表示： “AI 模型性能确实在不断提升，但永远无法完全掌握一个品牌的全部深层背景与调性。
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 14:13 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 14:24 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 14:04 - [DSpark论文深度解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 14:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 14:22 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 14:00 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 14:02 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 14:18 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 14:04 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 14:22 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 14:25 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 14:26 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 14:15 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 14:07 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 14:15 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 14:27 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 14:18 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 14:14 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 14:17 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 14:17 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 14:27 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 14:18 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 14:16 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 14:21 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 14:31 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 14:29 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [三都主：淘汰赛我会支持日本](http://www.blog.kurohicncr.top/Article/details/3690897089.shtml)
-- 2026-06-29 14:12 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/79755468618.shtml)
-- 2026-06-29 14:19 - [东部机场集团新增釜山航线](https://www.share.kurohicncr.top/Article/details/165412100255.shtml)
-- 2026-06-29 14:14 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/814593521.shtml)
-- 2026-06-29 14:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/39541427.shtml)
-- 2026-06-29 14:10 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/887999.shtml)
-- 2026-06-29 14:27 - [四川宜宾地震](http://www.blog.minike.top/Article/details/898946177044.shtml)
-- 2026-06-29 14:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/150171150550.shtml)
-- 2026-06-29 14:27 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/0375494731.shtml)
-- 2026-06-29 14:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/605780386298.shtml)
-- 2026-06-29 14:16 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/2684652472.shtml)
-- 2026-06-29 14:24 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/87599.shtml)
-- 2026-06-29 14:07 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/610867.shtml)
-- 2026-06-29 14:07 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/80448728.shtml)
-- 2026-06-29 14:15 - [AG 钟意](http://www.blog.minike.top/Article/details/7648169.shtml)
+- 2026-06-29 14:14 - [实习期把公司领导开除了](https://www.share.kurohicncr.top/Article/details/8405078633.shtml)
+- 2026-06-29 14:06 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/997615752150.shtml)
+- 2026-06-29 14:12 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/7235691.shtml)
+- 2026-06-29 14:22 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/1950585.shtml)
+- 2026-06-29 14:32 - [吴海燕兰西雅漫步复兴岛](https://www.share.minike.top/Article/details/310093688360.shtml)
+- 2026-06-29 14:27 - [四川宜宾地震](https://www.blog.minike.top/Article/details/00928198.shtml)
+- 2026-06-29 14:19 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/422376.shtml)
+- 2026-06-29 14:13 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/383748211.shtml)
+- 2026-06-29 14:17 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/863779452155.shtml)
+- 2026-06-29 14:14 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/150310255.shtml)
+- 2026-06-29 14:20 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/68912.shtml)
+- 2026-06-29 14:21 - [媒体评恋与深空争议](https://www.share.minike.top/Article/details/9918224.shtml)
+- 2026-06-29 14:24 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/64337.shtml)
+- 2026-06-29 14:14 - [84岁英国教授成中国网红](http://www.share.minike.top/Article/details/28810.shtml)
+- 2026-06-29 14:09 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/98655.shtml)

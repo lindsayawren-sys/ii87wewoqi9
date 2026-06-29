@@ -1,59 +1,56 @@
-# 《围坐时光》EP02完整版丨春妮对话测测任永亮——INTP把治愈人心当成一场实验
+# 对话“新征程上的奋斗者”，五名产业工人讲述实干故事
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-专题：《围坐时光》 为何 MBTI 和星座能成为社交货币？为何越优秀越独立的人，反而越需要情绪出口？为何测测最大的竞争对手不是同类平台，而是演唱会、音乐、追星等一切能提供情绪价值的事物？为何作为一个INTP理工男会认为情绪可以被逻辑解释？ 由@新浪财经、微博联合打造，@微博财经 #达芬奇live# 出品的对话栏目#围坐时光# 第二期对话心言集团 测测创始人兼CEO@心言任永亮
+中新网北京4月29日电 (陶思阅)“五一”国际劳动节将至，国务院新闻办公室于29日举行“新征程上的奋斗者”中外记者见面会。五名产业工人代表讲述了各自勤恳工作的经历。 吉克达富来自四川省凉山彝族自治州雷波县，是山西一建集团有限公司塔机分公司塔吊班组长。他的职业被人们称为“高空舞者”。“我从一个大山里的孩子慢慢成长为一名熟练掌握塔吊操作技能和维修理论知识的城市建设者。”吉克达富说，
 
 ## 正文
 
-专题：《围坐时光》 为何 MBTI 和星座能成为社交货币？
+中新网北京4月29日电 (陶思阅)“五一”国际劳动节将至，国务院新闻办公室于29日举行“新征程上的奋斗者”中外记者见面会。
 
-为何越优秀越独立的人，反而越需要情绪出口？
+五名产业工人代表讲述了各自勤恳工作的经历。
 
-为何测测最大的竞争对手不是同类平台，而是演唱会、音乐、追星等一切能提供情绪价值的事物？
+吉克达富来自四川省凉山彝族自治州雷波县，是山西一建集团有限公司塔机分公司塔吊班组长。
 
-为何作为一个INTP理工男会认为情绪可以被逻辑解释？
+他的职业被人们称为“高空舞者”。
 
-由@新浪财经、微博联合打造，@微博财经 #达芬奇live# 出品的对话栏目#围坐时光# 第二期对话心言集团 测测创始人兼CEO@心言任永亮 ，和主持人@春妮 聊聊他是如何面对行业质疑与争议，以及商业与善意的平衡，又是为何选择自讨苦吃坚持做一个情感机器人。
+“我从一个大山里的孩子慢慢成长为一名熟练掌握塔吊操作技能和维修理论知识的城市建设者。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+”吉克达富说，未来也会继续坚守岗位，扎根一线，继续高空筑梦、向“上”而行。
 
-责任编辑：李昂
+第一拖拉机股份有限公司大拖公司分装车间调试班班长高斌分享，自己的工作是按照工艺要求，将零件一步步组合，拧紧每一颗螺丝，调整好每一个尺寸，组装成完整的拖拉机。
+
+他印象最深的事件是，2024年底，正在试制一款新型大马力拖拉机。
 
 ## 相关推荐
 
-- 2026-06-29 14:00 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 14:07 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 14:21 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 14:16 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 14:17 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 14:12 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 14:14 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 14:06 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 14:16 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 14:10 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 14:12 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 14:08 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 14:27 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 14:02 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 14:06 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 14:16 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 14:16 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 14:32 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 14:21 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 14:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 14:17 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 14:06 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 14:17 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 14:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 14:21 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/559737934098.shtml)
-- 2026-06-29 14:07 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/54427665598.shtml)
-- 2026-06-29 14:25 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/50573.shtml)
-- 2026-06-29 14:15 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/20370.shtml)
-- 2026-06-29 14:03 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/90760476.shtml)
-- 2026-06-29 14:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/8644126037.shtml)
-- 2026-06-29 14:08 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/4406825439.shtml)
-- 2026-06-29 14:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/95323570.shtml)
-- 2026-06-29 14:09 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/78771392.shtml)
-- 2026-06-29 14:27 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/8326155794.shtml)
-- 2026-06-29 14:15 - [斛珠夫人](https://www.blog.minike.top/Article/details/04492022.shtml)
-- 2026-06-29 14:29 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/979638.shtml)
-- 2026-06-29 14:21 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.share.minike.top/Article/details/1232247808.shtml)
-- 2026-06-29 14:29 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/463145156.shtml)
-- 2026-06-29 14:10 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/31069.shtml)
+- 2026-06-29 14:08 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/90602355683.shtml)
+- 2026-06-29 14:18 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/0994485278.shtml)
+- 2026-06-29 14:27 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/240884144781.shtml)
+- 2026-06-29 14:35 - [扫黑风暴](https://www.share.minike.top/Article/details/2023662.shtml)
+- 2026-06-29 14:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/681184307.shtml)
+- 2026-06-29 14:30 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/228363000013.shtml)
+- 2026-06-29 14:31 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/8074251301.shtml)
+- 2026-06-29 14:28 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/2039620679.shtml)
+- 2026-06-29 14:33 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/0044726.shtml)
+- 2026-06-29 14:27 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/9282158327.shtml)
+- 2026-06-29 14:23 - [复盘曾沛慈浪姐夺冠之路](https://www.share.minike.top/Article/details/1077839550.shtml)
+- 2026-06-29 14:22 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/516104.shtml)
+- 2026-06-29 14:29 - [速度与激情9](https://www.blog.minike.top/Article/details/00646469.shtml)
+- 2026-06-29 14:06 - [第一炉香](http://www.blog.minike.top/Article/details/497631.shtml)
+- 2026-06-29 14:20 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.kurohicncr.top/Article/details/736353563242.shtml)

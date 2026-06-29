@@ -1,58 +1,60 @@
-# 杜克大学温迪・库兰：人才是创新的核心驱动力
+# 台湾演员张震：带着笃定与投入完成每一场表演
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。杜克大学全球合作与创新高级总监、教务长特别顾问，前昆山杜克大学及杜克大学中国事务发展与校友联络副校长温迪・库兰（Wendy Kuran）表示，人才交流是中美合作的重要纽带。过去多年，中美两国在教育领域的交流与合作十分密切，培养了大量优秀人才，为双方的科技、经
+中新网广州4月30日电 (记者 程景伟)作为《暗恋桃花源》的精神续篇，话剧《江／云·之／间》将于5月2日至3日首次登陆广州大剧院。“演话剧有一气呵成的感觉。”在该剧中演绎经典角色“江滨柳”的台湾演员张震近日在广州接受记者采访时称，他带着笃定与投入，好好完成每一场表演。 2026年适逢赖声川执导的华语剧场传奇作品《暗恋桃花源》首演40周年。《江／云·之／间》脱胎于《暗恋桃花源》暗
 
 ## 正文
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
+中新网广州4月30日电 (记者 程景伟)作为《暗恋桃花源》的精神续篇，话剧《江／云·之／间》将于5月2日至3日首次登陆广州大剧院。
 
-杜克大学全球合作与创新高级总监、教务长特别顾问，前昆山杜克大学及杜克大学中国事务发展与校友联络副校长温迪・库兰（Wendy Kuran）表示，人才交流是中美合作的重要纽带。
+“演话剧有一气呵成的感觉。
 
-过去多年，中美两国在教育领域的交流与合作十分密切，培养了大量优秀人才，为双方的科技、经济发展作出了重要贡献。
+”在该剧中演绎经典角色“江滨柳”的台湾演员张震近日在广州接受记者采访时称，他带着笃定与投入，好好完成每一场表演。
 
-她指出，当前中美人才交流面临一些阻碍影响了双方人才合作的推进。
+2026年适逢赖声川执导的华语剧场传奇作品《暗恋桃花源》首演40周年。
 
-但她同时表示，中美两国的人才交流需求依然旺盛，双方的高校、科研机构依然有强烈的合作意愿。
+《江／云·之／间》脱胎于《暗恋桃花源》暗恋篇，聚焦两个主角“江滨柳”与“云之凡”的爱情故事，由赖声川编剧并执导，张震与萧艾携手出演，胡德夫参与特别演出。
 
-她强调，人才是创新的核心驱动力。
+张震坦言，接演此戏是因为一种“特别的缘分”：“我的姥爷是长春人，江滨柳也是长春人，这让我有机会通过角色去贴近那一代人的乡愁与生命轨迹。
 
-“中美应放宽人才交流限制，加强在教育、科研领域的合作，培养更多具有全球视野的人才，推动双方创新合作发展。
+”为了呈现角色数十载的沉浮，张震在舞台上的每一次转身与停顿，都努力呈现充满电影质感的细腻张力。
 
-” 针对科技和创新合作，温迪・库兰表示，杜克大学一直致力于推动中美之间的教育和科研合作，在人工智能、生物医药、环境科学等领域与中国的高校、科研机构开展了多项合作项目，取得了良好的成果。
+《牯岭街少年杀人事件》《卧虎藏龙》《绣春刀》……张震因为这些影视剧而被观众所熟知。
 
 ## 相关推荐
 
-- 2026-06-29 14:06 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 14:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 14:06 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 14:20 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 14:26 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 14:14 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 14:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 14:01 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 14:13 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 14:05 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 14:02 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 14:11 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 14:18 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 14:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 14:25 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 14:26 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 14:30 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 14:26 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 14:17 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 14:22 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 14:18 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 14:25 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 14:33 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 14:34 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 14:13 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 14:35 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:17 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.minike.top/Article/details/24408304.shtml)
-- 2026-06-29 14:21 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/831484815848.shtml)
-- 2026-06-29 14:19 - [84岁英国教授成中国网红](http://www.blog.minike.top/Article/details/648474726933.shtml)
-- 2026-06-29 14:01 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/3778337.shtml)
-- 2026-06-29 14:25 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/40232.shtml)
-- 2026-06-29 14:10 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/91813957928.shtml)
-- 2026-06-29 14:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/814610962202.shtml)
-- 2026-06-29 14:05 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/2307381399.shtml)
-- 2026-06-29 14:24 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.minike.top/Article/details/138050.shtml)
-- 2026-06-29 14:19 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/741514921912.shtml)
-- 2026-06-29 14:23 - [金牌调解](http://www.blog.minike.top/Article/details/322566119850.shtml)
-- 2026-06-29 14:25 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/1648398.shtml)
-- 2026-06-29 14:08 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/6127410009.shtml)
-- 2026-06-29 14:23 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/603249508.shtml)
-- 2026-06-29 14:15 - [多家银行收紧个人贵金属业务](http://www.blog.minike.top/Article/details/6773963.shtml)
+- 2026-06-29 14:29 - [AG 钟意](http://www.share.minike.top/Article/details/1225677573.shtml)
+- 2026-06-29 14:06 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/8222869.shtml)
+- 2026-06-29 14:16 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/983487.shtml)
+- 2026-06-29 14:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/86056331092.shtml)
+- 2026-06-29 14:16 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/915189192186.shtml)
+- 2026-06-29 14:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/529155725572.shtml)
+- 2026-06-29 14:31 - [一生一世](http://www.blog.kurohicncr.top/Article/details/6834867.shtml)
+- 2026-06-29 14:11 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/49777553248.shtml)
+- 2026-06-29 14:28 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/73259130859.shtml)
+- 2026-06-29 14:24 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/65202534.shtml)
+- 2026-06-29 14:26 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/44953986.shtml)
+- 2026-06-29 14:10 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/7844910.shtml)
+- 2026-06-29 14:26 - [扬名立万](https://www.blog.minike.top/Article/details/774438386.shtml)
+- 2026-06-29 14:33 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/717114.shtml)
+- 2026-06-29 14:06 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/864023379.shtml)

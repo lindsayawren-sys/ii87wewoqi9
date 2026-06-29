@@ -1,50 +1,56 @@
-# 特朗普：美国将不再派代表团前往巴基斯坦与伊朗谈判
+# 美国牵头部分拉美国家就巴拿马运河问题发布声明，外交部：无中生有，颠倒黑白
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据俄罗斯卫星通讯社27日报道，美国总统特朗普表示，美国将不再派遣代表团前往巴基斯坦与伊朗进行谈判。 特朗普还建议伊朗方面自行访美或电话交谈，他在接受美国福克斯新闻采访时说：“如果他们想谈，可以来找我们或打电话给我们。” 特朗普还称，美国无论如何都会赢得与伊朗的这场冲突。
+4月29日，外交部发言人林剑主持例行记者会。法新社记者提问，周二（28日），美国牵头部分拉美国家就巴拿马运河问题发布联合声明，声称中方相关举措对所有相关国家构成威胁。美国牵头玻利维亚、哥斯达黎加等国发布的这份声明还宣称“中国行为是公然将海上贸易政治化”。请问中方对此有何评论？ 林剑表示，有关言论完全是无中生有，颠倒黑白。谁长期霸占巴拿马运河、武装入侵巴拿马、肆意践踏巴拿马的主权
 
 ## 正文
 
-中新网4月27日电 据俄罗斯卫星通讯社27日报道，美国总统特朗普表示，美国将不再派遣代表团前往巴基斯坦与伊朗进行谈判。
+4月29日，外交部发言人林剑主持例行记者会。
 
-特朗普还建议伊朗方面自行访美或电话交谈，他在接受美国福克斯新闻采访时说：“如果他们想谈，可以来找我们或打电话给我们。
+法新社记者提问，周二（28日），美国牵头部分拉美国家就巴拿马运河问题发布联合声明，声称中方相关举措对所有相关国家构成威胁。
 
-” 特朗普还称，美国无论如何都会赢得与伊朗的这场冲突。
+美国牵头玻利维亚、哥斯达黎加等国发布的这份声明还宣称“中国行为是公然将海上贸易政治化”。
+
+请问中方对此有何评论？
+
+林剑表示，有关言论完全是无中生有，颠倒黑白。
+
+谁长期霸占巴拿马运河、武装入侵巴拿马、肆意践踏巴拿马的主权和尊严、谁在觊觎巴拿马运河，妄图将本应永久中立的国际航道变成自家的水渠，蔑视地区国家的主权，答案不言自明。
+
+“将港口问题泛政治化、泛安全化的是美国；惺惺作态，四处造谣抹黑的还是美国。
+
+”林剑说。
 
 ## 相关推荐
 
-- 2026-06-29 14:01 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 14:23 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 14:24 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 14:01 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 14:24 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 14:05 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 14:06 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 14:08 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 14:26 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 14:23 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 14:15 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 14:22 - [人民日报评“AI脸看腻了”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 14:20 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 14:29 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 14:14 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 14:25 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 14:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 14:29 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 14:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 14:28 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 14:23 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 14:30 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 14:27 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 14:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:06 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/6114673.shtml)
-- 2026-06-29 14:20 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/7228775054.shtml)
-- 2026-06-29 14:25 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/72854053529.shtml)
-- 2026-06-29 14:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/06606.shtml)
-- 2026-06-29 14:16 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/23400.shtml)
-- 2026-06-29 14:00 - [王佳佳江疏影13年前后同框对比](https://www.blog.minike.top/Article/details/17251990221.shtml)
-- 2026-06-29 14:03 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.kurohicncr.top/Article/details/0401829278.shtml)
-- 2026-06-29 14:25 - [吴建豪老婆](http://www.share.kurohicncr.top/Article/details/263500299.shtml)
-- 2026-06-29 14:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/847648.shtml)
-- 2026-06-29 14:04 - [韩国记者：解码“合肥模式”](https://www.share.minike.top/Article/details/216773.shtml)
-- 2026-06-29 14:05 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/6844669101.shtml)
-- 2026-06-29 14:19 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/407406.shtml)
-- 2026-06-29 14:23 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/8196912.shtml)
-- 2026-06-29 14:08 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/6576166.shtml)
-- 2026-06-29 14:19 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/424239386521.shtml)
+- 2026-06-29 14:11 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/6100504063.shtml)
+- 2026-06-29 14:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/48643142.shtml)
+- 2026-06-29 14:11 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/05503040645.shtml)
+- 2026-06-29 14:29 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/301306412625.shtml)
+- 2026-06-29 14:34 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/90448.shtml)
+- 2026-06-29 14:35 - [森保一：日本队要亲手改写历史](http://www.blog.minike.top/Article/details/62170.shtml)
+- 2026-06-29 14:27 - [实习期把公司领导开除了](http://www.share.kurohicncr.top/Article/details/4831622.shtml)
+- 2026-06-29 14:09 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/55927.shtml)
+- 2026-06-29 14:17 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/4610434970.shtml)
+- 2026-06-29 14:19 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/523924498680.shtml)
+- 2026-06-29 14:19 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/75793.shtml)
+- 2026-06-29 14:09 - [金牌调解](https://www.share.kurohicncr.top/Article/details/4401869171.shtml)
+- 2026-06-29 14:31 - [欧洲超1300例超额死亡与高温有关](http://www.share.kurohicncr.top/Article/details/222576662.shtml)
+- 2026-06-29 14:12 - [薛之谦演唱会](https://www.blog.minike.top/Article/details/105010474.shtml)
+- 2026-06-29 14:11 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/94645.shtml)

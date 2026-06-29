@@ -1,56 +1,59 @@
-# 从世界工厂到全球市场，中国对外贸易寻求进取之道
+# 最高检：医美领域药械使用乱象有待治理
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-首席记者谈首季经济·外贸篇丨从世界工厂到全球市场，中国对外贸易寻求进取之道 今年一季度，我国货物进出口双双实现两位数增长，彰显中国外贸强大韧性与活力。 开年以来，外贸人步履不停，奔走海外开拓市场；实验室里创新不止，升级迭代产品技术；从消博会到广交会，“买全球”“卖全球”齐头并进……面对风高浪急的外部环境，中国外贸破浪前行、稳中有进。 近日，记者走访从东南沿海到西部内陆的多个省市
+中新网4月29日电 据最高人民检察院微信公众号消息，为落实食品药品安全“四个最严”要求，纵深推进“食药安全益路行”检察公益诉讼监督活动，自2025年10月起，全国检察机关聚焦整治假药劣药、基层用药安全等开展药品安全公益诉讼监督活动。截至2026年3月，共立案办理公益诉讼2067件，占食药安全领域公益诉讼立案总数三分之一以上，其中制发检察建议1425件，提起诉讼137件，切实维护
 
 ## 正文
 
-首席记者谈首季经济·外贸篇丨从世界工厂到全球市场，中国对外贸易寻求进取之道 今年一季度，我国货物进出口双双实现两位数增长，彰显中国外贸强大韧性与活力。
+中新网4月29日电 据最高人民检察院微信公众号消息，为落实食品药品安全“四个最严”要求，纵深推进“食药安全益路行”检察公益诉讼监督活动，自2025年10月起，全国检察机关聚焦整治假药劣药、基层用药安全等开展药品安全公益诉讼监督活动。
 
-开年以来，外贸人步履不停，奔走海外开拓市场；实验室里创新不止，升级迭代产品技术；从消博会到广交会，“买全球”“卖全球”齐头并进……面对风高浪急的外部环境，中国外贸破浪前行、稳中有进。
+截至2026年3月，共立案办理公益诉讼2067件，占食药安全领域公益诉讼立案总数三分之一以上，其中制发检察建议1425件，提起诉讼137件，切实维护人民群众用药安全和生命健康权益。
 
-近日，记者走访从东南沿海到西部内陆的多个省市，探寻中国从“世界工厂”迈向“全球市场”的进取之道。
+一是网络售药违法问题有待整治。
 
-“进”在出口结构向新、向绿、向智 在深圳南山，雷鸟创新技术(深圳)有限公司的实验室里，工程师正专注调试即将出口的AR(增强现实)眼镜。
+随着互联网经济快速发展，部分不法分子利用网络平台的隐蔽性和便捷性，从事违法违规售药活动。
 
-面向工业维修人员，能叠加设备内部结构图，细致指导拆装；面向快递员，能随时显示派件信息并实时指路……雷鸟创新相关负责人陈俊斌细数公司研制的AR眼镜在工业、物流等领域的落地案例。
+部分电商平台未依法履行资质审查和管理义务，导致无资质售药、违规销售处方药或禁售药等现象时有发生。
 
-“凭借自主研发的核心技术，我们的产品在欧洲多国亚马逊站点开售2周就卖断货，一季度销量同比增长近4倍。
+如某地网络平台商户以“食用农产品”名义规避监管，违法销售假冒精神药品，检察机关依法履行公益诉讼检察职责，督促相关行政机关压实平台主体责任，监督涉案平台对万余家店铺开展专项排查，封禁百余款产品，清退几十家违法店铺，并与相关行政机关建立线索共享机制，及时移送刑事案件线索，保障百姓互联网购药用药安全。
 
-”他说。
+又如某自媒体利用网络发布虚构疗效的药品广告，致使未经备案、未获批准证明文件的药品通过无资质人员向市场销售。
 
-记者走访发现，面对复杂严峻的外部环境，不少外贸企业加大研发创新，以具有高附加值和差异化优势的产品，积极应对生产成本上涨、市场竞争激烈等多重挑战。
+检察机关依法制发检察建议，督促相关行政机关对案涉经营主体进行查处，规范药品网络销售行为。
 
 ## 相关推荐
 
-- 2026-06-29 14:26 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 14:00 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 14:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 14:28 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 14:21 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 14:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 14:04 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 14:05 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 14:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 14:09 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 14:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 14:11 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 14:09 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 14:09 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 14:19 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 14:22 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 14:26 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 14:26 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 14:23 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 14:06 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 14:08 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 14:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 14:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:15 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/065256.shtml)
-- 2026-06-29 14:27 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/8773864.shtml)
-- 2026-06-29 14:27 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/85442761.shtml)
-- 2026-06-29 14:21 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/42165124.shtml)
-- 2026-06-29 14:13 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/02554133705.shtml)
-- 2026-06-29 14:13 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/94365.shtml)
-- 2026-06-29 14:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/4248264.shtml)
-- 2026-06-29 14:16 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/591602.shtml)
-- 2026-06-29 14:00 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/794899937754.shtml)
-- 2026-06-29 14:24 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/1126798.shtml)
-- 2026-06-29 14:07 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/336841986.shtml)
-- 2026-06-29 14:06 - [沉睡花园](https://www.blog.minike.top/Article/details/926731105.shtml)
-- 2026-06-29 14:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/5431550.shtml)
-- 2026-06-29 14:26 - [东部机场集团新增釜山航线](http://www.blog.kurohicncr.top/Article/details/90974.shtml)
-- 2026-06-29 14:22 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/27380450.shtml)
+- 2026-06-29 14:17 - [天道](https://www.share.kurohicncr.top/Article/details/59577.shtml)
+- 2026-06-29 14:31 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.kurohicncr.top/Article/details/2800210621.shtml)
+- 2026-06-29 14:23 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/4738708.shtml)
+- 2026-06-29 14:16 - [为什么6月以来北方频繁降雨](https://www.share.kurohicncr.top/Article/details/751763.shtml)
+- 2026-06-29 14:35 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/496249566.shtml)
+- 2026-06-29 14:12 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/6033914468.shtml)
+- 2026-06-29 14:24 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.kurohicncr.top/Article/details/98450360016.shtml)
+- 2026-06-29 14:16 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/888651637344.shtml)
+- 2026-06-29 14:23 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/0888915363.shtml)
+- 2026-06-29 14:27 - [光与夜之恋](https://www.blog.minike.top/Article/details/105594699.shtml)
+- 2026-06-29 14:18 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/33690495248.shtml)
+- 2026-06-29 14:33 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/17650.shtml)
+- 2026-06-29 14:11 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/7804880.shtml)
+- 2026-06-29 14:10 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/35385384.shtml)
+- 2026-06-29 14:18 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/75827178953.shtml)

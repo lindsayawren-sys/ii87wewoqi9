@@ -1,47 +1,56 @@
-# 天津市城市管理委员会原党组成员翟家常接受审查调查
+# 寒武纪盈利暴涨！重点布局国产AI产业链——华宝基金科创人工智能ETF（589520）跳空大涨3%，展现右侧信号
 
-> 更新时间：2026-06-29 14:30:03 UTC+8
+> 更新时间：2026-06-29 14:36:02 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据天津市纪委监委消息，天津市城市管理委员会原党组成员，原天津市城市公用事业管理局党组书记、局长翟家常涉嫌严重违纪违法，目前正接受天津市纪委监委纪律审查和监察调查。
+或由于寒武纪业绩引爆，4月最后一个交易日（4月30日），重点布局国产AI产业链的科创人工智能ETF华宝（589520）跳空大涨，场内涨幅盘中上探3.3%，现涨3.14%，从日k线来看，该ETF4月以来震荡上扬，或已展现出低位攀升的右侧信号。 成份股方面，芯原股份领涨超17%，寒武纪涨逾8%，星环科技-U、晶晨股份涨超3%，威胜信息、澜起科技等个股跟涨。 消息面上，4月29日晚，
 
 ## 正文
 
-中新网4月27日电 据天津市纪委监委消息，天津市城市管理委员会原党组成员，原天津市城市公用事业管理局党组书记、局长翟家常涉嫌严重违纪违法，目前正接受天津市纪委监委纪律审查和监察调查。
+或由于寒武纪业绩引爆，4月最后一个交易日（4月30日），重点布局国产AI产业链的科创人工智能ETF华宝（589520）跳空大涨，场内涨幅盘中上探3.3%，现涨3.14%，从日k线来看，该ETF4月以来震荡上扬，或已展现出低位攀升的右侧信号。
+
+成份股方面，芯原股份领涨超17%，寒武纪涨逾8%，星环科技-U、晶晨股份涨超3%，威胜信息、澜起科技等个股跟涨。
+
+消息面上，4月29日晚，ASIC龙头寒武纪发布第一季度报告。
+
+2026年第一季度，寒武纪实现营业收入28.85亿元，同比增长159.56%；归属于上市公司股东的净利润为10.13亿元，同比增长185.04%。
+
+寒武纪称，业绩变动主要系报告期内受益于AI行业算力需求的持续攀升，公司凭借产品的优异竞争力持续拓展市场，积极推动AI应用场景落地，报告期内收入较上年同期大幅增长所致。
+
+根据IDC测算，2022年-2027年，中国智能算力规模年复合增长率达33.9%。
+
+预计到2027年，中国智能算力规模将达到1117.4EFLOPS（基于FP16计算）。
+
+寒武纪认为，以ChatGPT、DeepSeek等为代表的大模型AI技术，从训练到推理都需要强大的算力支持。
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 14:16 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 14:19 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 14:13 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 14:26 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 14:00 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 14:07 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 14:01 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 14:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 14:07 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 14:07 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 14:06 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 14:08 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 14:01 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 14:18 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 14:18 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 14:09 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 14:08 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 14:09 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 14:14 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 14:32 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 14:29 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 14:09 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 14:15 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 14:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/410784991769.shtml)
-- 2026-06-29 14:08 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/696631.shtml)
-- 2026-06-29 14:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/7045511.shtml)
-- 2026-06-29 14:02 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/23055451503.shtml)
-- 2026-06-29 14:21 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/5280739932.shtml)
-- 2026-06-29 14:25 - [新一代影后杨紫](https://www.share.minike.top/Article/details/7409570.shtml)
-- 2026-06-29 14:01 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.minike.top/Article/details/811460.shtml)
-- 2026-06-29 14:20 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/047964095849.shtml)
-- 2026-06-29 14:17 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/5311691008.shtml)
-- 2026-06-29 14:23 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/97410.shtml)
-- 2026-06-29 14:18 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/764363.shtml)
-- 2026-06-29 14:09 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.kurohicncr.top/Article/details/1408258.shtml)
-- 2026-06-29 14:22 - [高考志愿今起开始填报](https://www.blog.minike.top/Article/details/10823267385.shtml)
-- 2026-06-29 14:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/27229088578.shtml)
-- 2026-06-29 14:20 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/81351995.shtml)
+- 2026-06-29 14:32 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/940997101.shtml)
+- 2026-06-29 14:21 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/995301122.shtml)
+- 2026-06-29 14:28 - [爱很美味](https://www.blog.minike.top/Article/details/921435.shtml)
+- 2026-06-29 14:26 - [汪东城回应45岁婚约](https://www.blog.kurohicncr.top/Article/details/1076808.shtml)
+- 2026-06-29 14:06 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/090967004.shtml)
+- 2026-06-29 14:25 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/45619084060.shtml)
+- 2026-06-29 14:23 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/59328232.shtml)
+- 2026-06-29 14:08 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/150493296.shtml)
+- 2026-06-29 14:22 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/661723955254.shtml)
+- 2026-06-29 14:18 - [欧委会总部只给高层开空调](http://www.blog.kurohicncr.top/Article/details/647922.shtml)
+- 2026-06-29 14:34 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/62721266.shtml)
+- 2026-06-29 14:31 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/4656779.shtml)
+- 2026-06-29 14:13 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/5310208.shtml)
+- 2026-06-29 14:28 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/480499.shtml)
+- 2026-06-29 14:15 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/950814.shtml)
