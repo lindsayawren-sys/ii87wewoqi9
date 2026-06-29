@@ -1,57 +1,49 @@
-# “4·7操纵期货市场案”再起波澜，东北证券旗下公司被诉
+# 快讯：多晶硅主力合约日内涨幅扩大至8.00%
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 渤海期货子公司被公诉一案，是期货市场监管执法与刑事司法紧密协作、严厉打击市场操纵行为的标志性案例。5月19日晚间，东北证券发布公告，公司控股子公司渤海期货的全资子公司渤海融盛资本管理有限公司（下称“渤海融盛”）及全资孙公司渤海融幸（上海）商贸有限公司（下称“渤海融幸”）因“4·7操纵期货市场案”，收到上海市人民检察院第一分院起诉
+快讯：2026年6月11日，多晶硅主力合约日内涨幅扩大至8.00%，现报37370元/吨。 责任编辑：赵思远
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 渤海期货子公司被公诉一案，是期货市场监管执法与刑事司法紧密协作、严厉打击市场操纵行为的标志性案例。
+快讯：2026年6月11日，多晶硅主力合约日内涨幅扩大至8.00%，现报37370元/吨。
 
-5月19日晚间，东北证券发布公告，公司控股子公司渤海期货的全资子公司渤海融盛资本管理有限公司（下称“渤海融盛”）及全资孙公司渤海融幸（上海）商贸有限公司（下称“渤海融幸”）因“4·7操纵期货市场案”，收到上海市人民检察院第一分院起诉书。
-
-值得注意的是，本次公诉并非突发。
-
-该案最早可追溯至2021年，追责历时四年。
-
-彼时，东北证券公告披露，渤海融幸因涉嫌操纵期货合约，被中国证监会立案调查，这也成为后续行政查处与刑事追责的起点。
-
-受访律师认为，渤海期货相关子公司被公诉一案，是期货市场监管执法与刑事司法紧密协作、严厉打击市场操纵行为的标志性案例。
-
-同时，长达四年的“行政调查—行政处罚—刑事追诉”周期，清晰反映了当前对期货市场严重违法违规行为“行刑衔接、立体追责”的司法查处特点。
-
-旗下公司被诉据公告，2025年10月29日，上海市公安局以渤海融盛和渤海融幸涉嫌操纵期货市场罪，将上述主体移送上海市人民检察院第一分院审查起诉。
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-30 00:43 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 00:56 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 00:48 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 00:58 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 00:47 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 00:44 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 00:51 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 00:39 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 00:37 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 01:03 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 00:48 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 00:57 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 00:42 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 01:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 00:56 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 01:11 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 00:58 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 01:06 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 00:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 00:52 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 00:48 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 00:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 01:02 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 00:51 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 00:46 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 00:50 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:52 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/18164200.shtml)
-- 2026-06-30 00:50 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/718838867932.shtml)
-- 2026-06-30 00:39 - [东方风云榜直播](https://www.share.minike.top/Article/details/586470538.shtml)
-- 2026-06-30 00:51 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/6959447.shtml)
-- 2026-06-30 01:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/684617665.shtml)
-- 2026-06-30 00:46 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/903555.shtml)
-- 2026-06-30 00:51 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/012149618.shtml)
-- 2026-06-30 00:51 - [急先锋](https://www.blog.kurohicncr.top/Article/details/68778548676.shtml)
-- 2026-06-30 00:51 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/5158933047.shtml)
-- 2026-06-30 00:43 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/767286709618.shtml)
-- 2026-06-30 01:05 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/5494614725.shtml)
-- 2026-06-30 01:01 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/17389031.shtml)
-- 2026-06-30 00:43 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/241614984.shtml)
-- 2026-06-30 01:01 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/071519759.shtml)
-- 2026-06-30 00:50 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/119056110165.shtml)
+- 2026-06-30 00:58 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/598561543251.shtml)
+- 2026-06-30 01:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/13183897274.shtml)
+- 2026-06-30 00:58 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/9678914.shtml)
+- 2026-06-30 00:46 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/828071184.shtml)
+- 2026-06-30 01:01 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/21882.shtml)
+- 2026-06-30 00:56 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/0071871.shtml)
+- 2026-06-30 00:49 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/665411668.shtml)
+- 2026-06-30 00:50 - [千与千寻](http://www.blog.minike.top/Article/details/79569667.shtml)
+- 2026-06-30 00:48 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/8738422779.shtml)
+- 2026-06-30 00:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/273816410.shtml)
+- 2026-06-30 00:57 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/2930880.shtml)
+- 2026-06-30 00:43 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/8626441.shtml)
+- 2026-06-30 00:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/644218840561.shtml)
+- 2026-06-30 01:05 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/96902.shtml)
+- 2026-06-30 00:55 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/4875793237.shtml)

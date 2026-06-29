@@ -1,57 +1,54 @@
-# 时政微观察丨从四个“更高质量”看世界百年变局中的关键恒量
+# 天工国际盘中涨超9% 机构指公司钢材主业持续修复盈利能力回升
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-应国家主席习近平邀请，俄罗斯总统普京于5月19日至20日对中国进行国事访问。这是普京总统第25次访华，也是中俄两国元首今年以来首次面对面会晤。 今年是中俄战略协作伙伴关系建立30周年，也是《中俄睦邻友好合作条约》签署25周年。此次会晤，两国元首一致同意《中俄睦邻友好合作条约》继续延期。多年来，两国始终恪守这一条约确立的“不结盟、不对抗、不针对第三方”原则，坚持平等相待、相互尊重
+天工国际（00826）盘中涨超9%，截至发稿，股价上涨4.57%，现报3.43港元，成交额9474.20万港元。 国泰海通证券指出，公司模具钢主业利润稳健修复，叠加钛合金深度绑定高端产业链与核聚变新材料的前瞻布局，预计带来长期业绩增长空间。公司钢材主业持续修复，盈利能力回升；通过在消费电子钛合金领域的全产业链深度布局，已成为下游3C企业的核心原材料供应商；粉末冶金高硼钢材料切入
 
 ## 正文
 
-应国家主席习近平邀请，俄罗斯总统普京于5月19日至20日对中国进行国事访问。
+天工国际（00826）盘中涨超9%，截至发稿，股价上涨4.57%，现报3.43港元，成交额9474.20万港元。
 
-这是普京总统第25次访华，也是中俄两国元首今年以来首次面对面会晤。
+国泰海通证券指出，公司模具钢主业利润稳健修复，叠加钛合金深度绑定高端产业链与核聚变新材料的前瞻布局，预计带来长期业绩增长空间。
 
-今年是中俄战略协作伙伴关系建立30周年，也是《中俄睦邻友好合作条约》签署25周年。
+公司钢材主业持续修复，盈利能力回升；通过在消费电子钛合金领域的全产业链深度布局，已成为下游3C企业的核心原材料供应商；粉末冶金高硼钢材料切入核聚变领域，带来长期成长空间。
 
-此次会晤，两国元首一致同意《中俄睦邻友好合作条约》继续延期。
+兴业证券此前表示，公司卡位稀缺核心材料赛道，中长期来看，公司在消费电子钛合金、高性能核聚变材料、粉末钢一体化压铸模具领域成长空间广阔。
 
-多年来，两国始终恪守这一条约确立的“不结盟、不对抗、不针对第三方”原则，坚持平等相待、相互尊重、重信守义、合作共赢，为维护国际公平公道、推动构建新型国际关系作出重要贡献，成为世界百年变局中的关键恒量。
+公司是苹果钛合金重要供应商，2026年钛合金业务有望迎来增长拐点。
 
-如何理解“世界百年变局中的关键恒量”？
+远期展望，苹果钛合金战略或未发生变化，后续主力机型若回归钛合金中框及边框设计，公司钛合金业务或具备较大弹性。
 
-《时政微观察》通过四个“更高质量”为你解读。
-
-筑牢更高质量政治互信 从2013年习近平主席作为国家元首首次出访俄罗斯，到此次普京总统访华，中俄两国元首在不同场合会面已超过40次。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:39 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 00:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 01:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 00:44 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 00:40 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 00:49 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 00:48 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 00:43 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 00:54 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 00:39 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 00:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 00:48 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 01:07 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 01:02 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 00:43 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 01:09 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 01:00 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 00:54 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 00:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 00:52 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 01:01 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/6638507785.shtml)
-- 2026-06-30 00:56 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/518785459.shtml)
-- 2026-06-30 00:39 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/653516.shtml)
-- 2026-06-30 00:52 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/61985.shtml)
-- 2026-06-30 00:50 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/1860988.shtml)
-- 2026-06-30 01:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/507413294.shtml)
-- 2026-06-30 01:01 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/8575390.shtml)
-- 2026-06-30 00:38 - [沉睡花园](http://www.share.minike.top/Article/details/716825107218.shtml)
-- 2026-06-30 00:39 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/6121795.shtml)
-- 2026-06-30 00:50 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/06120694.shtml)
-- 2026-06-30 01:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/8630059.shtml)
-- 2026-06-30 00:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/9104780175.shtml)
-- 2026-06-30 00:45 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/112546893468.shtml)
-- 2026-06-30 01:01 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/72331971943.shtml)
-- 2026-06-30 00:54 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/31801.shtml)
+- 2026-06-30 01:00 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/35109179.shtml)
+- 2026-06-30 00:45 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/35533.shtml)
+- 2026-06-30 00:48 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/30639.shtml)
+- 2026-06-30 00:55 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/28692523358.shtml)
+- 2026-06-30 01:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/152960192333.shtml)
+- 2026-06-30 00:58 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/711624881.shtml)
+- 2026-06-30 00:47 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/91585323.shtml)
+- 2026-06-30 00:58 - [扬名立万](http://www.blog.minike.top/Article/details/969813.shtml)
+- 2026-06-30 01:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/704107817.shtml)
+- 2026-06-30 00:54 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/604634350257.shtml)
+- 2026-06-30 01:11 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/45147.shtml)
+- 2026-06-30 00:43 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/75572.shtml)
+- 2026-06-30 01:04 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/908392401.shtml)
+- 2026-06-30 00:43 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/317760.shtml)
+- 2026-06-30 01:11 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/8807590768.shtml)

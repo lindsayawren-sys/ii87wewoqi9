@@ -1,57 +1,58 @@
-# 闽籍侨商归桑梓：愿做家乡“传播者”和“架桥人”
+# 华仪电气（600290）、五粮液（000858）股民索赔案再提交法院立案
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网宁德5月21日电 (记者 吕巧琴 叶茂)初夏闽东，乡情绵长。世界福州十邑同乡总会宁德市招商推介会21日在福建省宁德市古田县鹤塘镇佳垅村举行，200余名福州十邑乡亲代表共叙乡情、共话发展。 世界福州十邑同乡总会总会长吴换炎说，此次考察是看准宁德正迎来产业升级、政策叠加、开放提速、生态赋能的发展机遇，可成为侨商回归兴业的理想之地。 世界福州十邑同乡总会是全球福州十邑籍侨胞的重
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年6月9日，上海久诚律师事务所股票索赔律师许峰代理的华仪电气（600290）投资者索赔案已再次向温州中院提交立案，目前正在等待法院的下一步安排。律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托，该案已经进入最后一个月倒计时，“过期作废”。 2024年1月13日，华仪电气公告收
 
 ## 正文
 
-中新网宁德5月21日电 (记者 吕巧琴 叶茂)初夏闽东，乡情绵长。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-世界福州十邑同乡总会宁德市招商推介会21日在福建省宁德市古田县鹤塘镇佳垅村举行，200余名福州十邑乡亲代表共叙乡情、共话发展。
+2026年6月9日，上海久诚律师事务所股票索赔律师许峰代理的华仪电气（600290）投资者索赔案已再次向温州中院提交立案，目前正在等待法院的下一步安排。
 
-世界福州十邑同乡总会总会长吴换炎说，此次考察是看准宁德正迎来产业升级、政策叠加、开放提速、生态赋能的发展机遇，可成为侨商回归兴业的理想之地。
+律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托，该案已经进入最后一个月倒计时，“过期作废”。
 
-世界福州十邑同乡总会是全球福州十邑籍侨胞的重要联谊平台，会员遍布全球五大洲。
+2024年1月13日，华仪电气公告收到浙江证监局《行政处罚决定书》，经查明，华仪电气存在以下违法事实： 2017年，华仪电气全资子公司华仪风能有限公司对不符合收入确认条件的风机销售业务确认收入，并结转相应的成本，涉及诺木洪、罗家山及渑池二期三个项目，上述事项导致华仪电气2017年年度报告合并财务报表虚增营业收入34，725.64万元，虚增应收账款，并多计提应收账款坏账准备812.58万元，虚增利润总额6，699.05万元。
 
-吴换炎说，将依托世界福州十邑同乡总会遍布全球的侨胞网络与海外传播优势，聚力推动海外资本、人才、产业向宁德汇聚。
+华仪电气2017年虚增风机销售收入形成的应收账款一直存续并每年计提坏账准备，导致2018年至2022年年度报告存在虚减利润总额，影响金额分别为959.78万元、3，729.13万元、5.501.49万元、4，600.77万元和6，258.11万元。
 
-吴换炎表示，期待海内外侨商透过此次交流，真切读懂宁德日新月异的发展和蕴藏的时代机遇，进一步当好家乡故事的讲述者、宁德形象的传播者、对外开放的架桥者。
+上述事项导致华仪电气2017年年度报告、2018年年度报告、2019年年度报告、2020年年度报告、2021年年度报告、2022年年度报告存在虚假记载。
 
-身为世界福州十邑同乡总会监事长、泰国福州总会永远名誉理事长，祖籍古田县的林立盛始终心系故土发展。
+许峰律师认为，在2018年4月10日到2023年6月22日之间买入华仪电气股票，并且在2023年6月22日后卖出或继续持有股票的投资者，目前还可发起索赔，提示注意时效风险。
 
-“我们海外侨胞生在他乡、根在故土。
+除了华仪电气投资者索赔案再次提交法院立案，2026年6月8日、9日，许峰律师代理的五粮液（维权）（000858）投资者索赔案也再提交法院立案，此前已有案件获得立案。
 
 ## 相关推荐
 
-- 2026-06-30 01:03 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 00:55 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 00:41 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 00:54 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 00:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 00:45 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 00:43 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 00:41 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 01:04 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 00:58 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 00:58 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 01:02 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 01:10 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 00:48 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 01:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 01:04 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 01:10 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 00:49 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 00:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 01:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 01:05 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 00:55 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 00:51 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/9941533.shtml)
-- 2026-06-30 00:53 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/31767531.shtml)
-- 2026-06-30 00:57 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/597241982368.shtml)
-- 2026-06-30 01:01 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/0794739.shtml)
-- 2026-06-30 00:43 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/81987794912.shtml)
-- 2026-06-30 01:01 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/747612.shtml)
-- 2026-06-30 00:40 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/541855.shtml)
-- 2026-06-30 00:41 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/1275957032.shtml)
-- 2026-06-30 01:05 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/81544.shtml)
-- 2026-06-30 01:04 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/779122340922.shtml)
-- 2026-06-30 01:00 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/092590.shtml)
-- 2026-06-30 00:54 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/548666.shtml)
-- 2026-06-30 00:37 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/06919.shtml)
-- 2026-06-30 01:02 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/89778.shtml)
-- 2026-06-30 00:47 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/373598.shtml)
+- 2026-06-30 00:45 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/368549610.shtml)
+- 2026-06-30 00:45 - [乔家的儿女](http://www.share.minike.top/Article/details/633596248.shtml)
+- 2026-06-30 01:07 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/98779031795.shtml)
+- 2026-06-30 00:57 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/0882747.shtml)
+- 2026-06-30 01:01 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/42296603448.shtml)
+- 2026-06-30 00:42 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/71844910776.shtml)
+- 2026-06-30 01:10 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/508150821123.shtml)
+- 2026-06-30 00:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/2753306.shtml)
+- 2026-06-30 01:05 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/1776845597.shtml)
+- 2026-06-30 00:46 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/367213.shtml)
+- 2026-06-30 00:44 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/01662679.shtml)
+- 2026-06-30 00:52 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/5885485966.shtml)
+- 2026-06-30 00:50 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/122988358234.shtml)
+- 2026-06-30 01:11 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/9427486749.shtml)
+- 2026-06-30 00:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/33137.shtml)

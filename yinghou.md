@@ -1,59 +1,60 @@
-# 澳门高校启动“沈括计划” 拟建新一代高精度地磁导航应用系统
+# 中东局势下15个经济体紧急求援亚行，40亿美元能否解围？
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新社澳门5月21日电 (记者 郑嘉伟)澳门科技大学21日宣布启动“沈括计划(2026—2030)”，拟在5年内建立新一代地磁场矢量导航与地磁场指纹导航应用系统。 据介绍，“沈括计划”由澳门科技大学、澳门空间技术与应用研究院以及中国内地航天科技公司联合实施，依托“澳门科学一号”(下称“澳科一号”)卫星，采用“磁场+量子、AI(人工智能)、芯片、导航”技术路径，较传统卫星导航系统
+亚行已将亚太地区2026年的经济增长预期从5.1%下调至4.7%，通胀预期则从3%大幅上调至5.2%。 在中东局势带来的能源危机下，亚洲部分经济体不得不向多边机构伸手求援。 6月12日，亚洲开发银行（ADB，以下简称“亚行”）宣布，已收到该地区15个受影响经济体的正式援助申请，其中包括此前已公开申请的孟加拉国、斐济、菲律宾和斯里兰卡。为此，亚行正调动40亿美元的资金池，帮助成员
 
 ## 正文
 
-中新社澳门5月21日电 (记者 郑嘉伟)澳门科技大学21日宣布启动“沈括计划(2026—2030)”，拟在5年内建立新一代地磁场矢量导航与地磁场指纹导航应用系统。
+亚行已将亚太地区2026年的经济增长预期从5.1%下调至4.7%，通胀预期则从3%大幅上调至5.2%。
 
-据介绍，“沈括计划”由澳门科技大学、澳门空间技术与应用研究院以及中国内地航天科技公司联合实施，依托“澳门科学一号”(下称“澳科一号”)卫星，采用“磁场+量子、AI(人工智能)、芯片、导航”技术路径，较传统卫星导航系统更实时，并可提供更精准方向定位，填补国家相关领域空白，创造显著经济效益。
+在中东局势带来的能源危机下，亚洲部分经济体不得不向多边机构伸手求援。
 
-2023年5月21日，“澳科一号”卫星在酒泉卫星发射中心成功发射。
+6月12日，亚洲开发银行（ADB，以下简称“亚行”）宣布，已收到该地区15个受影响经济体的正式援助申请，其中包括此前已公开申请的孟加拉国、斐济、菲律宾和斯里兰卡。
 
-当日是该卫星发射成功三周年，澳门科技大学同场举办发射三周年成果发布会，“澳科一号”卫星项目首席科学家、澳门空间技术与应用研究院院长张可可公布十大主要成果。
+为此，亚行正调动40亿美元的资金池，帮助成员国抵御中东冲突带来的多重冲击。
 
-张可可介绍，三年来，“澳科一号”成为中国磁洁净度最高的地磁卫星，地球磁场测量精度达世界最高水平。
+其中，约30亿美元来自各国政府的直接申请，另有10亿美元以能源和食品进口贸易融资的形式提供。
 
-研究团队基于卫星成功绘制首个地球液核发电机三维流场结构，揭示地球液核动力学特征；建立首个全球真实海洋磁结构，监测全球大尺度海洋运动。
+亚行行长浅川雅嗣（Masato Kanda）表示：“亚行正以最快的速度和规模采取行动，支持那些受到中东冲突多重影响的国家，包括面临财政、侨汇、旅游业以及燃料和化肥供应压力的国家。
 
-在产业开发方面，“澳科一号”研究团队成功研制中国首个高精度地磁芯片，可广泛应用于国民经济多个领域；首次成功验证室内无人车/无人机高精度地磁场指纹导航，精度达厘米级。
+”此前，亚行已将亚太地区2026年的经济增长预期从5.1%下调至4.7%，通胀预期则从3%大幅上调至5.2%。
 
-澳门科技大学校董会副主席兼秘书长陈季敏表示，未来学校将继续推动卫星成果更广泛应用在航空航海等领域，把“澳科一号”卫星打造成彰显澳门特色、贡献国家发展的“金名片”。
+全球投资咨询公司BCA Research地缘政治策略师马语书对第一财经记者表示，即便美伊协议能在近期达成，石油和其他原材料价格仍将高位运行相当长一段时间。
 
 ## 相关推荐
 
-- 2026-06-30 00:57 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 00:38 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 00:50 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 00:44 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 00:57 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 00:53 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 00:46 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 00:37 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 01:00 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 00:53 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 01:00 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 01:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 01:00 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 01:00 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 00:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 01:06 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 00:52 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 00:45 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 00:44 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 00:48 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 01:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 00:45 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 01:08 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 00:42 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 00:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 00:59 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 01:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:00 - [《贺子珍》](https://www.blog.minike.top/Article/details/8035313606.shtml)
-- 2026-06-30 00:44 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/68918.shtml)
-- 2026-06-30 00:45 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/492262.shtml)
-- 2026-06-30 00:53 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/55518.shtml)
-- 2026-06-30 00:43 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/89982745282.shtml)
-- 2026-06-30 00:48 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/66852.shtml)
-- 2026-06-30 01:05 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/724130670231.shtml)
-- 2026-06-30 00:55 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/839113.shtml)
-- 2026-06-30 00:45 - [恋与深空致歉](https://www.share.minike.top/Article/details/993935278458.shtml)
-- 2026-06-30 01:02 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/19076.shtml)
-- 2026-06-30 01:00 - [沙丘](http://www.share.kurohicncr.top/Article/details/404400725.shtml)
-- 2026-06-30 00:54 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/62144424672.shtml)
-- 2026-06-30 00:43 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/6266731.shtml)
-- 2026-06-30 00:48 - [世界杯](http://www.share.minike.top/Article/details/93650.shtml)
-- 2026-06-30 00:50 - [月亮](http://www.share.minike.top/Article/details/369159743591.shtml)
+- 2026-06-30 01:03 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/521794.shtml)
+- 2026-06-30 00:55 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/0655931900.shtml)
+- 2026-06-30 00:42 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/252891399.shtml)
+- 2026-06-30 01:03 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/685428865.shtml)
+- 2026-06-30 01:09 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/3384095.shtml)
+- 2026-06-30 00:53 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/51258116569.shtml)
+- 2026-06-30 00:48 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/24764798.shtml)
+- 2026-06-30 00:51 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/69831705250.shtml)
+- 2026-06-30 00:58 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/88489451.shtml)
+- 2026-06-30 01:06 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/37817916116.shtml)
+- 2026-06-30 00:43 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/725439677.shtml)
+- 2026-06-30 01:06 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/10159.shtml)
+- 2026-06-30 00:48 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/1147669876.shtml)
+- 2026-06-30 00:46 - [第一炉香](http://www.blog.minike.top/Article/details/38121920167.shtml)
+- 2026-06-30 00:56 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/915646516.shtml)

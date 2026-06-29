@@ -1,59 +1,58 @@
-# 沃尔玛电商业务发力，整体营收稳步上涨
+# 酒价内参6月11日价格发布：古井贡古20上涨5元，价格升至进入六月以来最高位
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 零售商称，最新季度消费者带动食品百货、日用商品及线上销售额同步走高 内容速览 消费者追求高性价比消费、线上购物需求攀升，推动沃尔玛最新季度销售额实现增长。 截至 5 月 1 日的最新财季，沃尔玛美国市场同店销售额（开业满一年及以上门店与线上渠道销售额）同比上涨 4.1%。 公司表示，旗下各大主营品类与线上业务销量均实现增长，高收入群体消费拉
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月11日整体低位小幅回弹。如果主要单品各取一瓶整体打包售卖，今日总售价为9888元，较昨日小幅上涨7元，结束此前连续两日的回调走势，但仍处于近30天低位区间。市场在前一日回落至近30天次低位后开始修复，终端交投情绪略有回暖，但核心单品的涨跌分化度依然显著。 今日11大白酒单品五涨四跌两平，赢家
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 零售商称，最新季度消费者带动食品百货、日用商品及线上销售额同步走高 内容速览 消费者追求高性价比消费、线上购物需求攀升，推动沃尔玛最新季度销售额实现增长。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月11日整体低位小幅回弹。
 
-截至 5 月 1 日的最新财季，沃尔玛美国市场同店销售额（开业满一年及以上门店与线上渠道销售额）同比上涨 4.1%。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9888元，较昨日小幅上涨7元，结束此前连续两日的回调走势，但仍处于近30天低位区间。
 
-公司表示，旗下各大主营品类与线上业务销量均实现增长，高收入群体消费拉动效应尤为明显。
+市场在前一日回落至近30天次低位后开始修复，终端交投情绪略有回暖，但核心单品的涨跌分化度依然显著。
 
-新兴业务成为业绩重要助力：本财季沃尔玛美国市场电商销售额大涨 26%，广告业务扩张与第三方线上交易规模提升是主要驱动力。
+今日11大白酒单品五涨四跌两平，赢家数量略占优势。
 
-沃尔玛于周四维持全年财务业绩预期不变。
+上涨方面，洋河梦之蓝M6+、古井贡古20与习酒君品涨幅居前，均上涨5元/瓶，其中洋河梦之蓝M6+自昨日创下的近30天最低价反弹，但价格囿于月内低位区间，古井贡古20连续两日上涨，价格升至进入六月以来最高位，习酒君品终结此前三连阴，但价格仍处于月内次低位；国窖1573上涨4元/瓶，连续三日反弹；五粮液1618上涨2元/瓶，收获两连阳，自前日月内最低位连续修复。
 
-食品生鲜、服饰家居等日用百货品类，成为其核心本土业务营收增长主力。
+下跌方面，精品茅台、五粮液普五八代与青花郎均下跌4元/瓶，其中精品茅台连续三日回调，前期反弹动能逐渐减弱；五粮液普五八代连续三日下探，今日价格将将守住800元整数关口，创今年2月2日以来最低价纪录，近一月价格中枢下移态势尤为明显；青花郎连续两日回落，再度跌破690元。
 
-近些年不少消费者缩减非必需消费，曾导致这类商品销售表现疲软。
+飞天茅台下跌2元/瓶，终结此前五连阳。
 
-本财季沃尔玛总营收同比增长 7.3%，达到 1778 亿美元。
+青花汾20与水晶剑南春价格环比保持不变，其中前者仍处在30天最低位。
 
 ## 相关推荐
 
-- 2026-06-30 00:52 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 00:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 01:02 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 00:36 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 01:01 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 00:39 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 00:48 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 00:56 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 00:56 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 00:51 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-30 00:48 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 01:00 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 00:53 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 00:45 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 01:02 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 01:01 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 01:08 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 00:57 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 00:43 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 00:42 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 00:52 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 00:47 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 01:04 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 00:43 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 01:09 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:57 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/6509641763.shtml)
-- 2026-06-30 00:54 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/7203880.shtml)
-- 2026-06-30 00:58 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/48916744819.shtml)
-- 2026-06-30 00:50 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/65929968.shtml)
-- 2026-06-30 01:04 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/3452683.shtml)
-- 2026-06-30 00:43 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/33798.shtml)
-- 2026-06-30 00:46 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/99592.shtml)
-- 2026-06-30 00:59 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/922388.shtml)
-- 2026-06-30 01:05 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/944534606.shtml)
-- 2026-06-30 00:44 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/77944.shtml)
-- 2026-06-30 00:48 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/39011.shtml)
-- 2026-06-30 01:03 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/132634552461.shtml)
-- 2026-06-30 00:55 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/8780216.shtml)
-- 2026-06-30 00:58 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/85582.shtml)
-- 2026-06-30 00:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/17793.shtml)
+- 2026-06-30 01:06 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/430667224.shtml)
+- 2026-06-30 00:51 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/24184.shtml)
+- 2026-06-30 00:43 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/950700466711.shtml)
+- 2026-06-30 01:06 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/680941.shtml)
+- 2026-06-30 01:04 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/03578252310.shtml)
+- 2026-06-30 00:45 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/260138763390.shtml)
+- 2026-06-30 00:47 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/39404296.shtml)
+- 2026-06-30 00:50 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/900824958.shtml)
+- 2026-06-30 01:11 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/4274295.shtml)
+- 2026-06-30 01:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/80381.shtml)
+- 2026-06-30 01:02 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/7858855.shtml)
+- 2026-06-30 01:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/684021015929.shtml)
+- 2026-06-30 01:04 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/257210503.shtml)
+- 2026-06-30 01:11 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/83478956.shtml)
+- 2026-06-30 01:07 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/682234.shtml)

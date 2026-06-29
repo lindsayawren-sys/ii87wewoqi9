@@ -1,56 +1,56 @@
-# 李显龙访沪 实地探访上海人形机器人产业生态
+# SpaceX上市是一场针对马斯克的全民信任公投
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新社上海5月21日电 (记者 许婧 康玉湛)新加坡国务资政李显龙21日实地参访上海市人形机器人创新孵化器，近距离观摩前沿人形机器人技术成果并体验各类产品。 “入驻企业是你们主动挑选引进的吗？”“企业入驻免租金，你们还会提供哪些补助扶持？”李显龙边看边问，围绕孵化器运营与企业培育抛出一系列问题。他还品尝了机器人制作的香草冰淇淋，并当场点赞称“不错啊”。 上海市人形机器人创新孵化
+多位市场分析人士表示，万众期待的 SpaceX 本周五上市，不仅会成为资本市场标志性事件，更是一场针对埃隆・马斯克领导能力的 “信任公投”。 SpaceX 给出的目标估值高达 1.75 万亿美元，市盈率接近 100 倍。作为对比，芯片巨头英伟达市盈率仅 20 至 25 倍，苹果市盈率约 10 倍。 纳斯达克交易所近期修改了上市规则，放宽门槛，方便 SpaceX 以及其他计划开展
 
 ## 正文
 
-中新社上海5月21日电 (记者 许婧 康玉湛)新加坡国务资政李显龙21日实地参访上海市人形机器人创新孵化器，近距离观摩前沿人形机器人技术成果并体验各类产品。
+多位市场分析人士表示，万众期待的 SpaceX 本周五上市，不仅会成为资本市场标志性事件，更是一场针对埃隆・马斯克领导能力的 “信任公投”。
 
-“入驻企业是你们主动挑选引进的吗？
+SpaceX 给出的目标估值高达 1.75 万亿美元，市盈率接近 100 倍。
 
-”“企业入驻免租金，你们还会提供哪些补助扶持？
+作为对比，芯片巨头英伟达市盈率仅 20 至 25 倍，苹果市盈率约 10 倍。
 
-”李显龙边看边问，围绕孵化器运营与企业培育抛出一系列问题。
+纳斯达克交易所近期修改了上市规则，放宽门槛，方便 SpaceX 以及其他计划开展巨型 IPO 的企业纳入纳斯达克 100 指数；但标普全球明确表态，不会破例让 SpaceX 提前纳入标普 500 指数。
 
-他还品尝了机器人制作的香草冰淇淋，并当场点赞称“不错啊”。
+马斯克将保留多少投票权？
 
-上海市人形机器人创新孵化器创始人汪兵逐一答疑回应。
+而投资者还要接受两大特殊条件：超高估值，以及马斯克坚持手握 SpaceX 约 80%-85% 投票权的条款。
 
-汪兵介绍，孵化器入驻企业自主研发的清洁机器人，已落地新加坡樟宜机场，常态化承担场地清洁、设施养护等工作，多款自主研发的机器人产品已具备跨境出口与市场化合作条件。
+即便不少持续稳定盈利的上市公司，这种高度集中的创始人控制权，也往往会劝退潜在投资方，尚未稳定盈利的 SpaceX 更是争议重重。
 
-上海社会科学院应用经济研究所助理研究员赵晓涛表示，李显龙此次访沪聚焦高端科创领域，释放出中新双边合作升级的明确信号。
+企业软件公司 Appian 首席执行官马特・卡尔金斯周四做客 CNBC《欧洲财经早间直播间》时表示：“这次 IPO 本质就是对埃隆本人的一次信任投票，考验投资者对这位创业者的信任程度。
 
 ## 相关推荐
 
-- 2026-06-30 01:04 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 00:37 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 00:50 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 00:57 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 00:41 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 00:42 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 00:54 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 00:37 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 00:47 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 00:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 00:46 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 01:09 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 00:49 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 01:00 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 00:59 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 00:53 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 01:06 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 00:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 01:03 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 00:46 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/67532507491.shtml)
-- 2026-06-30 00:43 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/1524953.shtml)
-- 2026-06-30 01:05 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/89989.shtml)
-- 2026-06-30 00:45 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/387014661.shtml)
-- 2026-06-30 00:58 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/6107708.shtml)
-- 2026-06-30 00:51 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/173842985011.shtml)
-- 2026-06-30 00:51 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/9564091164.shtml)
-- 2026-06-30 00:43 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/27723739100.shtml)
-- 2026-06-30 01:03 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/361856145211.shtml)
-- 2026-06-30 01:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/8025689.shtml)
-- 2026-06-30 00:40 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/3081058.shtml)
-- 2026-06-30 00:58 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/200274372.shtml)
-- 2026-06-30 01:04 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/347333667.shtml)
-- 2026-06-30 01:02 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/9816300.shtml)
-- 2026-06-30 01:03 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/000725650657.shtml)
+- 2026-06-30 00:52 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/11956.shtml)
+- 2026-06-30 01:00 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/59541446330.shtml)
+- 2026-06-30 00:59 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/496619.shtml)
+- 2026-06-30 00:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/25917957740.shtml)
+- 2026-06-30 01:10 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/54129.shtml)
+- 2026-06-30 01:09 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/56132.shtml)
+- 2026-06-30 00:53 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/850235783.shtml)
+- 2026-06-30 01:05 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/882463.shtml)
+- 2026-06-30 00:48 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/42223529.shtml)
+- 2026-06-30 00:51 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/01451969000.shtml)
+- 2026-06-30 01:00 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/8280192.shtml)
+- 2026-06-30 00:48 - [金刚川](http://www.share.kurohicncr.top/Article/details/81047.shtml)
+- 2026-06-30 01:03 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/2333722123.shtml)
+- 2026-06-30 00:42 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/80014620860.shtml)
+- 2026-06-30 00:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/26693964.shtml)

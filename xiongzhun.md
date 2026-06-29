@@ -1,52 +1,49 @@
-# 外交部回应中美经贸合作：双方将尽快锁定成果
+# 特朗普发文：今晚将对伊朗发动猛烈打击
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网北京5月20日电(记者 邢翀)中国外交部发言人郭嘉昆20日主持例行记者会。有记者就中美经贸合作提问。 郭嘉昆：中方主管部门已经介绍了中美经贸磋商的初步成果。中美元首在特朗普总统访华期间，深入讨论了中美经贸关系，为两国经贸合作明确了方向、提供了保障。双方将按照两国元首确定的共识方向，尽快锁定成果，共同做好落实，为下一步的中美经贸合作与世界经济注入更多的确定性和稳定性。(完)
+中新网6月11日电 当地时间11日，美国总统特朗普在“真实社交”平台发文称：“今晚将对伊朗发动非常猛烈的打击”，并称“伊朗的海军、空军、雷达、防空系统以及所有其他形式的防御，连同其大部分进攻能力，都已不复存在”。 特朗普还表示，在不久将来的某个时刻，美军将夺取哈尔克岛及其他石油基础设施，并完全控制其石油和天然气市场，就像对待委内瑞拉一样。
 
 ## 正文
 
-中新网北京5月20日电(记者 邢翀)中国外交部发言人郭嘉昆20日主持例行记者会。
+中新网6月11日电 当地时间11日，美国总统特朗普在“真实社交”平台发文称：“今晚将对伊朗发动非常猛烈的打击”，并称“伊朗的海军、空军、雷达、防空系统以及所有其他形式的防御，连同其大部分进攻能力，都已不复存在”。
 
-有记者就中美经贸合作提问。
-
-郭嘉昆：中方主管部门已经介绍了中美经贸磋商的初步成果。
-
-中美元首在特朗普总统访华期间，深入讨论了中美经贸关系，为两国经贸合作明确了方向、提供了保障。
-
-双方将按照两国元首确定的共识方向，尽快锁定成果，共同做好落实，为下一步的中美经贸合作与世界经济注入更多的确定性和稳定性。
-
-(完)
+特朗普还表示，在不久将来的某个时刻，美军将夺取哈尔克岛及其他石油基础设施，并完全控制其石油和天然气市场，就像对待委内瑞拉一样。
 
 ## 相关推荐
 
-- 2026-06-30 00:39 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 00:44 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 00:46 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 01:03 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 00:42 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 00:42 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 00:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 01:04 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 00:54 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 00:44 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 00:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 00:55 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 01:11 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 00:52 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 01:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 01:06 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 01:02 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 00:54 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 00:47 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 01:08 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 01:00 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 00:48 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 00:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 01:01 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 01:11 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/42696241062.shtml)
-- 2026-06-30 00:41 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/549288.shtml)
-- 2026-06-30 00:38 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/228137.shtml)
-- 2026-06-30 01:03 - [周生如故](http://www.blog.minike.top/Article/details/39725963.shtml)
-- 2026-06-30 01:00 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/009131.shtml)
-- 2026-06-30 00:46 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/465619849791.shtml)
-- 2026-06-30 00:53 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/50015763.shtml)
-- 2026-06-30 00:47 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/1420146632.shtml)
-- 2026-06-30 00:54 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/76863384.shtml)
-- 2026-06-30 00:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/6726151249.shtml)
-- 2026-06-30 00:53 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/725365771.shtml)
-- 2026-06-30 00:36 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/847814.shtml)
-- 2026-06-30 00:37 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/4541451802.shtml)
-- 2026-06-30 00:57 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/70356704.shtml)
-- 2026-06-30 00:39 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/5586103.shtml)
+- 2026-06-30 01:03 - [《贺子珍》](http://www.share.minike.top/Article/details/863693.shtml)
+- 2026-06-30 00:53 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/755478780.shtml)
+- 2026-06-30 01:07 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/64460.shtml)
+- 2026-06-30 01:07 - [85花告别古偶](https://www.share.minike.top/Article/details/63892699.shtml)
+- 2026-06-30 01:09 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/84765.shtml)
+- 2026-06-30 00:49 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/744953541398.shtml)
+- 2026-06-30 01:11 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/213245873832.shtml)
+- 2026-06-30 00:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/187382629306.shtml)
+- 2026-06-30 01:09 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/128794804.shtml)
+- 2026-06-30 00:49 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/3155141.shtml)
+- 2026-06-30 00:47 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/163741941.shtml)
+- 2026-06-30 01:10 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/2009616176.shtml)
+- 2026-06-30 00:43 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/466594213.shtml)
+- 2026-06-30 00:53 - [美人鱼](http://www.share.kurohicncr.top/Article/details/64796960481.shtml)
+- 2026-06-30 00:45 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/66206802.shtml)

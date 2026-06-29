@@ -1,60 +1,58 @@
-# 全国政协召开远程协商会 围绕“文旅融合促进各民族交往交流交融”协商议政 王沪宁主持
+# 微盟营销落地AI全链路覆盖，为业绩增长注入新动能
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-本报讯(记者 吕巍)全国政协5月21日在京召开远程协商会，中共中央政治局常委、全国政协主席王沪宁主持会议。他表示，中共十八大以来，以习近平同志为核心的中共中央高度重视铸牢中华民族共同体意识、推进中华民族共同体建设，高度重视推进文化和旅游深度融合发展，作出一系列重要部署。要深入学习贯彻习近平总书记关于促进各民族交往交流交融、铸牢中华民族共同体意识的重要论述，落实“十五五”时期推进
+中国达人营销市场近年来持续增长，贝哲斯咨询发布的行业研究报告显示，2025年该领域市场规模已突破数千亿元量级。然而，高增长的背后是一个长期被掩盖的结构性矛盾：行业运营模式仍高度依赖人力，效率与风控成本持续攀升。 一个服务于10个以上KA品牌的团队，每月需要处理大量达人笔记审核、进行高频达人筛选沟通、管理多个并行项目的邀约与订单状态。大量运营人员被消耗在“信息搬运”而非“策略决策
 
 ## 正文
 
-本报讯(记者 吕巍)全国政协5月21日在京召开远程协商会，中共中央政治局常委、全国政协主席王沪宁主持会议。
+中国达人营销市场近年来持续增长，贝哲斯咨询发布的行业研究报告显示，2025年该领域市场规模已突破数千亿元量级。
 
-他表示，中共十八大以来，以习近平同志为核心的中共中央高度重视铸牢中华民族共同体意识、推进中华民族共同体建设，高度重视推进文化和旅游深度融合发展，作出一系列重要部署。
+然而，高增长的背后是一个长期被掩盖的结构性矛盾：行业运营模式仍高度依赖人力，效率与风控成本持续攀升。
 
-要深入学习贯彻习近平总书记关于促进各民族交往交流交融、铸牢中华民族共同体意识的重要论述，落实“十五五”时期推进文化和旅游深度融合发展的部署要求，增强履职建言的针对性和可操作性。
+一个服务于10个以上KA品牌的团队，每月需要处理大量达人笔记审核、进行高频达人筛选沟通、管理多个并行项目的邀约与订单状态。
 
-王沪宁表示，人民政协要围绕坚持正确的中华民族历史观、加强对各民族交往交流交融历史文化和各民族携手推进中国式现代化的精神挖掘和价值阐释，围绕深化各民族交往交流交融创新完善文旅服务体系，围绕运用文旅融合讲述中华民族共同体故事、运用数智技术赋能文旅融合促进“三交”等，深入开展研究，通过视察考察调研、社情民意信息、提案等反映情况、提出建议。
+大量运营人员被消耗在“信息搬运”而非“策略决策”上。
 
-文化、旅游、民族等领域的政协委员要立足本职岗位和专业优势，为推动文旅融合促进“三交”发挥更大作用。
+针对这一结构性矛盾，微盟营销近期推出“天选AI达人智选系统”（简称“天选”），以AI智能化能力驱动流程提效、风险管控、资产沉淀与全域协同，对这一矛盾作出了系统性回应。
 
-全国政协委员边巴扎西、赵德明、迪丽娜尔·阿布拉、戴斌、杨向群、田沁鑫、韩文林、杨安娣、陈雍、李骏虎和专家丁赛分别在全国政协机关主会场和吉林、贵州、云南、青海、新疆等地通过视频连线等方式发言。
+从“人海战术”到“人机协同”，重新定义达人营销效率边界 据介绍，“天选”以数据与AI重构达人资源管理能力，覆盖达人筛选、内容风控、项目履约全场景，在达人营销领域建立起一套完整的“人机协同”作业标准，让重复化、标准化的基础工作交由AI系统承接，运营人员得以聚焦策略研判与达人关系运营维护，实现人力效能的结构性升级，助力品牌高效开展达人种草营销。
 
-大家建议，要聚焦铸牢中华民族共同体意识主线，深入挖掘、整理、开发各民族交往交流交融的历史事实、遗址遗迹、活态遗产等，推动各地依托自然景观、历史文化等文旅资源，深化对中华民族共同体基础问题和旅游叙事的研究阐释，以文旅铸同心、聚人心。
+在达人筛选与项目管理环节，传统模式下运营人员需要手动浏览社媒平台、逐个查阅达人主页、复制数据到Excel、团队间反复沟通对齐，一个资深运营每周能深度评估的达人数量相对有限。
 
-要支持民族地区加强文化创意等人才培养，补齐旅游配套设施短板，丰富产品供给，提升服务水平。
+“天选”系统支持自定义审核笔记数量、审核要求、审核参照的知识库规则，运营人员在浏览达人内容时，系统可依据自定义规则自动分析粉丝画像、内容调性、互动质量、历史合作效果等多维数据，给出匹配度评分及推荐理由。
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 00:55 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 00:38 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 01:04 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 00:56 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 00:51 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 01:05 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 01:00 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 00:53 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 00:42 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 01:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 00:44 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 00:46 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 00:39 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 01:10 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 00:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 00:49 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 00:53 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 00:48 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 01:08 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 00:52 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 01:09 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 01:00 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 01:02 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 01:06 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 00:59 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:02 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/843531636.shtml)
-- 2026-06-30 00:36 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/734050.shtml)
-- 2026-06-30 00:59 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/388106176458.shtml)
-- 2026-06-30 00:39 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/6051932580.shtml)
-- 2026-06-30 01:04 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/187627303.shtml)
-- 2026-06-30 00:44 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/8389281.shtml)
-- 2026-06-30 00:43 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/5806329.shtml)
-- 2026-06-30 00:38 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/005945.shtml)
-- 2026-06-30 00:50 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/8887707653.shtml)
-- 2026-06-30 00:45 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/3816179556.shtml)
-- 2026-06-30 00:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/17509828.shtml)
-- 2026-06-30 00:50 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/95045625.shtml)
-- 2026-06-30 00:44 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/01893.shtml)
-- 2026-06-30 00:36 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/0680578.shtml)
-- 2026-06-30 00:57 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/352645211.shtml)
+- 2026-06-30 00:55 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/908126681.shtml)
+- 2026-06-30 01:10 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/956070702871.shtml)
+- 2026-06-30 00:45 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/609554289.shtml)
+- 2026-06-30 01:10 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/3759787762.shtml)
+- 2026-06-30 00:57 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/11777562838.shtml)
+- 2026-06-30 01:02 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/608949062.shtml)
+- 2026-06-30 00:43 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/844346430865.shtml)
+- 2026-06-30 00:46 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/48759015.shtml)
+- 2026-06-30 01:08 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/631700613.shtml)
+- 2026-06-30 00:43 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/435921970288.shtml)
+- 2026-06-30 00:42 - [恋与深空 巧合](https://www.share.minike.top/Article/details/620483823603.shtml)
+- 2026-06-30 00:45 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/75867.shtml)
+- 2026-06-30 01:03 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/99117043.shtml)
+- 2026-06-30 00:46 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/0240180498.shtml)
+- 2026-06-30 00:44 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/51275.shtml)

@@ -1,61 +1,56 @@
-# “河北王”老白干酒换帅， “老兵”王占刚当选董事长
+# Rivian启动R2 SUV交付，低价版明年上市剑指大众市场
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-老白干酒官宣换帅。5月19日晚间，老白干酒披露公告，称全体董事选举王占刚为董事长，赵旭东、张煜行为副董事长。三位核心高管均是老白干酒体系内的“老兵”。其中，王占刚生于1972年8月，1995年7月在衡水老白干酒厂销售公司参加工作，逐步升任区域经理、销售公司总经理。2006年开始，王占刚进入老白干酒管理层，担任公司副总经理，后兼任营销公司总经理，并于2013年10月进入老白干酿酒
+美国电动汽车制造商Rivian本周正式向首批客户交付全新R2中型纯电动SUV。这款被公司创始人兼首席执行官RJ Scaringe称为公司迄今为止最重要产品的车型，标志着Rivian向大众市场规模化迈出了关键一步。 首批交付的R2为Performance搭配Launch Package版本，起售价为57，990美元，搭载双电机全轮驱动系统，最大输出功率达656马力，峰值扭矩为60
 
 ## 正文
 
-老白干酒官宣换帅。
+美国电动汽车制造商Rivian本周正式向首批客户交付全新R2中型纯电动SUV。
 
-5月19日晚间，老白干酒披露公告，称全体董事选举王占刚为董事长，赵旭东、张煜行为副董事长。
+这款被公司创始人兼首席执行官RJ Scaringe称为公司迄今为止最重要产品的车型，标志着Rivian向大众市场规模化迈出了关键一步。
 
-三位核心高管均是老白干酒体系内的“老兵”。
+首批交付的R2为Performance搭配Launch Package版本，起售价为57，990美元，搭载双电机全轮驱动系统，最大输出功率达656马力，峰值扭矩为609磅·英尺，0至60英里每小时加速仅需3.6秒，美国环保署估算续航里程最高可达330英里。
 
-其中，王占刚生于1972年8月，1995年7月在衡水老白干酒厂销售公司参加工作，逐步升任区域经理、销售公司总经理。
+该配置还标配Autonomy+免手驾驶辅助功能，覆盖美国及加拿大共350万英里的道路。
 
-2006年开始，王占刚进入老白干酒管理层，担任公司副总经理，后兼任营销公司总经理，并于2013年10月进入老白干酿酒集团，任董事、党委委员。
+Rivian计划在2026年下半年加快R2的生产和交付节奏，目标是在年底前交付2万至2.5万辆。
 
-至此，王占刚的职业版图全面铺开，三线并行。
+公司位于伊利诺伊州诺默尔的工厂未来年产能有望超过15万辆，并已在佐治亚州建设新工厂，预计2028年底投产。
 
-2013年11月至今，王占刚担任老白干营销公司董事长；2025年5月起，其任老白干酿酒集团董事长、党委书记。
+备受市场关注的入门版车型方面，Rivian已宣布将原定2027年底推出的约45，000美元版本提前至明年夏季投产。
 
-如今，他还肩挑老白干酒董事长、党委书记职位。
+根据规划，R2 Premium版本将于2026年底推出，起售价约53，990美元；2027年上半年推出标准续航后驱版，起售价约48，490美元；约44，990美元的入门版则将在2027年夏季面世。
 
 ## 相关推荐
 
-- 2026-06-30 01:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 01:00 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 00:46 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 00:57 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 01:03 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 00:37 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 01:04 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 00:55 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 00:55 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 00:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 00:38 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 00:59 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 00:46 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 00:43 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 00:51 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 00:56 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 00:53 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 01:03 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 00:52 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 00:54 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 00:44 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 01:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 01:04 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 01:04 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 01:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:47 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/80679.shtml)
-- 2026-06-30 00:38 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/079133.shtml)
-- 2026-06-30 00:44 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/7920537.shtml)
-- 2026-06-30 00:49 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/645950326.shtml)
-- 2026-06-30 00:50 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/1275256318.shtml)
-- 2026-06-30 00:51 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/028552819.shtml)
-- 2026-06-30 00:55 - [千香](http://www.share.kurohicncr.top/Article/details/3670536.shtml)
-- 2026-06-30 01:00 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/650927.shtml)
-- 2026-06-30 00:43 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/042089328.shtml)
-- 2026-06-30 00:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/0250517935.shtml)
-- 2026-06-30 00:41 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/79946488.shtml)
-- 2026-06-30 00:45 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/355488110.shtml)
-- 2026-06-30 00:50 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/88722414098.shtml)
-- 2026-06-30 00:50 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/53918677.shtml)
-- 2026-06-30 00:38 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/896082.shtml)
+- 2026-06-30 01:06 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/6435397680.shtml)
+- 2026-06-30 00:58 - [恋与深空致歉](http://www.blog.minike.top/Article/details/242100068.shtml)
+- 2026-06-30 01:01 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/8981795483.shtml)
+- 2026-06-30 00:42 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/2842352.shtml)
+- 2026-06-30 01:08 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/548394184.shtml)
+- 2026-06-30 00:55 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/1400324.shtml)
+- 2026-06-30 01:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/37920505393.shtml)
+- 2026-06-30 01:04 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/5016286221.shtml)
+- 2026-06-30 01:05 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/697611.shtml)
+- 2026-06-30 01:00 - [极限挑战第一季](https://www.blog.minike.top/Article/details/32933.shtml)
+- 2026-06-30 01:04 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/47806.shtml)
+- 2026-06-30 00:53 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/32136793126.shtml)
+- 2026-06-30 00:54 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/427603034541.shtml)
+- 2026-06-30 01:03 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/4800646.shtml)
+- 2026-06-30 01:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/990384.shtml)

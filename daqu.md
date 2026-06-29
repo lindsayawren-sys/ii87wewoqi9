@@ -1,56 +1,56 @@
-# 国际数据公司：全球AI超级周期开启 中国领先优势日益扩大
+# 福能东方索赔递交立案，曾因财务造假被处罚
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新社北京5月20日电 (记者 王梦瑶)全球知名科技市场研究与数据分析机构国际数据公司(IDC)20日在北京表示，全球AI(人工智能)超级周期开启，中国领先优势日益扩大。 在当天召开的“IDC Directions2026：中国ICT市场趋势论坛(北京站)”上，IDC全球首席执行官洛伦佐·拉里尼(Lorenzo Larini)表示，IDC自1986年进入中国市场以来，从未见过变
+上海沪紫律师事务所刘鹏律师代理的投资者诉福能东方证券虚假陈述，近日递交了38名投资者案件至法院立案。 回溯本案2025年12月19日，福能东方因涉嫌通过虚构交易虚增近3600万元利润，收到了中国证券监督管理委员会广东监管局开出的650万元罚单。 依据违规事实符合于2021年4月14日-2024年12月6日（含当日）期间买入，并在2024年12月7日之后卖出或仍持有而亏损的即可参
 
 ## 正文
 
-中新社北京5月20日电 (记者 王梦瑶)全球知名科技市场研究与数据分析机构国际数据公司(IDC)20日在北京表示，全球AI(人工智能)超级周期开启，中国领先优势日益扩大。
+上海沪紫律师事务所刘鹏律师代理的投资者诉福能东方证券虚假陈述，近日递交了38名投资者案件至法院立案。
 
-在当天召开的“IDC Directions2026：中国ICT市场趋势论坛(北京站)”上，IDC全球首席执行官洛伦佐·拉里尼(Lorenzo Larini)表示，IDC自1986年进入中国市场以来，从未见过变革的步伐像今天这样快。
+回溯本案2025年12月19日，福能东方因涉嫌通过虚构交易虚增近3600万元利润，收到了中国证券监督管理委员会广东监管局开出的650万元罚单。
 
-他说，中国正作为一股技术力量，积极重塑世界的发展方向。
+依据违规事实符合于2021年4月14日-2024年12月6日（含当日）期间买入，并在2024年12月7日之后卖出或仍持有而亏损的即可参与维权。
 
-在人工智能领域，IDC预测，2026年全球企业在人工智能上的支出将达到9400亿美元，到2029年增长至2.1万亿美元——中国是全球高增长市场之一。
+（福能东方维权入口） 据调查，2020年6月，福能东方的子公司大宇精雕与重庆市中光电显示技术有限公司达成协议，先由重庆中光电向大宇精雕支付虚假货款，大宇精雕确认虚假应收款。
 
-IDC指出，中国还有望在2029年前成为全球最大的机器人市场。
+随后，大宇精雕再以虚构采购业务、支付预付款的形式，最终将资金转回重庆中光电。
 
-中国制造商已在多个品类中占据全球出货量领先地位。
+2020年的虚假交易，直接导致福能东方虚增利润3579.85万元，占公司当年年报披露利润总额的120.18%。
 
-其研究预测，中国具身智能支出将在五年内从目前的14亿美元增长至770亿美元。
+这意味着公司当年实际利润本应为负。
 
-此外，IDC最新发布的市场追踪报告显示，2026年中国模型即服务(MaaS)市场的Token(词元)调用量将达到40000万亿次，营收约186亿元人民币，2024至2030年年复合增长率达1154.9%。
+2021年，大宇精雕对前述虚增预付款确认减值损失，导致福能东方虚减利润2265.09万元，占当年年报披露利润总额的6.64%。
 
 ## 相关推荐
 
-- 2026-06-30 00:39 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 01:01 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 00:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 00:59 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 00:38 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 00:44 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 00:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 00:45 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 01:05 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 00:56 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 01:03 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 00:53 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 01:03 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 00:43 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 01:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 01:08 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 00:53 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 00:45 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 01:04 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 01:09 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/7377168200.shtml)
-- 2026-06-30 00:39 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/311374094908.shtml)
-- 2026-06-30 00:53 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/03785.shtml)
-- 2026-06-30 01:01 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/002556071484.shtml)
-- 2026-06-30 00:54 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/3309647699.shtml)
-- 2026-06-30 00:38 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/557105.shtml)
-- 2026-06-30 01:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/196679911.shtml)
-- 2026-06-30 00:55 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/713974246011.shtml)
-- 2026-06-30 00:52 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/6740761364.shtml)
-- 2026-06-30 00:48 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/0340760234.shtml)
-- 2026-06-30 00:45 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/2707253.shtml)
-- 2026-06-30 00:36 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/12034703976.shtml)
-- 2026-06-30 00:43 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/624639954411.shtml)
-- 2026-06-30 00:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/57368.shtml)
-- 2026-06-30 01:03 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/5713628.shtml)
+- 2026-06-30 01:07 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/1475078208.shtml)
+- 2026-06-30 01:08 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/4077924228.shtml)
+- 2026-06-30 00:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/1922917.shtml)
+- 2026-06-30 00:49 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/34024151.shtml)
+- 2026-06-30 00:55 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/94076.shtml)
+- 2026-06-30 01:00 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/71519.shtml)
+- 2026-06-30 00:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/6600241238.shtml)
+- 2026-06-30 01:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/838722.shtml)
+- 2026-06-30 01:04 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/96454316.shtml)
+- 2026-06-30 01:04 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/584891955532.shtml)
+- 2026-06-30 00:55 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/85309.shtml)
+- 2026-06-30 00:54 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/530001.shtml)
+- 2026-06-30 01:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/815242.shtml)
+- 2026-06-30 01:08 - [急先锋](https://www.share.minike.top/Article/details/820979525.shtml)
+- 2026-06-30 01:03 - [锐评T1零封KC](http://www.share.minike.top/Article/details/974613.shtml)

@@ -1,57 +1,58 @@
-# Nature's Miracle签署意向书收购芝加哥CM Fabrication，布局美国本土无人机生产
+# 索赔末班车！得润电子案件已在审理，时效仅剩半年
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-美国农业科技公司Nature‘s Miracle Holding宣布，已与CM Fabrication， LLC签署意向书，将收购后者旗下三家投资组合公司55%的股权，包括CM Fabrication、CEA Studios及CM E-Commerce LLC。该交易将由第三方贷款机构提供约1100万美元收购融资，并计划用于偿还目标公司约1000万美元的现有债务。 CM Fab
+上海沪紫律师事务所刘鹏律师团队近日收到得润电子索赔案的案件受理通知，意味着案件正式进入审理程序。（刘鹏律师专栏） 需提醒投资者的是该案诉讼时效将在2026年12月30日到期，距今仅剩半年，建议适格投资者尽快加入。 其被起诉跟一纸处罚有关，深圳证监局已出具《行政处罚决定书》。2020年至2022年，因主要客户经营困难无法回款，公司实际控制人通过自有资金及对外借款，向客户、供应商等
 
 ## 正文
 
-美国农业科技公司Nature‘s Miracle Holding宣布，已与CM Fabrication， LLC签署意向书，将收购后者旗下三家投资组合公司55%的股权，包括CM Fabrication、CEA Studios及CM E-Commerce LLC。
+上海沪紫律师事务所刘鹏律师团队近日收到得润电子索赔案的案件受理通知，意味着案件正式进入审理程序。
 
-该交易将由第三方贷款机构提供约1100万美元收购融资，并计划用于偿还目标公司约1000万美元的现有债务。
+（刘鹏律师专栏） 需提醒投资者的是该案诉讼时效将在2026年12月30日到期，距今仅剩半年，建议适格投资者尽快加入。
 
-CM Fabrication在伊利诺伊州Sycamore运营着一座50万平方英尺的先进制造工厂，提供精密金属制造、机器人焊接及先进电子制造服务。
+其被起诉跟一纸处罚有关，深圳证监局已出具《行政处罚决定书》。
 
-三家公司共同构成垂直整合的制造平台，专注于无人机、AI数据中心及园艺行业所需的美国产关键设备。
+2020年至2022年，因主要客户经营困难无法回款，公司实际控制人通过自有资金及对外借款，向客户、供应商等提供资金支持，再由这些主体以“偿还历史欠款”的名义将资金转回公司。
 
-目标公司2025年实现营收约860万美元，预计2026年营收将增至约1820万美元。
+这一操作累计虚构回款超过5.34亿元，导致公司多期财报少计信用减值损失。
 
-Nature‘s Miracle董事长兼首席执行官Tie Li表示，公司此前已建立战略合作伙伴关系以开发AI驱动的自主机器人解决方案，收购CM Fabrication将使其获得美国本土无人机制造能力，这对全球供应链至关重要。
+上述行为导致得润电子披露的2020年年报、2021年年报及2022年半年报存在虚假记载。
 
-交易完成后，Nature’s Miracle计划通过与纳斯达克或纽交所上市的壳公司合并来实现转板上市。
+深圳证监局对ST得润（维权）处以700万元罚款，对实控人处以1200万元罚款并采取5年证券市场禁入措施。
 
-责任编辑：张俊 SF065
+投资者如符合于2020年8月27日-2023年12月30日期间买入，并在2023年12月31日之后卖出或仍持有而亏损的即可登记索赔。
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 00:52 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 00:51 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 00:43 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 00:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 01:00 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 00:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 00:54 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 00:46 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 00:47 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 00:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 01:10 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 00:42 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 01:01 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 01:08 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 01:05 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 00:54 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 00:49 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 00:44 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 00:59 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 01:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 01:00 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 01:08 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:41 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/235822280.shtml)
-- 2026-06-30 01:04 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/15745.shtml)
-- 2026-06-30 00:54 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/699099232.shtml)
-- 2026-06-30 00:58 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/55052308.shtml)
-- 2026-06-30 01:05 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/05180257.shtml)
-- 2026-06-30 00:37 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/25899439807.shtml)
-- 2026-06-30 00:52 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/99730329.shtml)
-- 2026-06-30 00:46 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/87348764.shtml)
-- 2026-06-30 00:54 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/8934628738.shtml)
-- 2026-06-30 00:44 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/89711.shtml)
-- 2026-06-30 00:40 - [急先锋](http://www.share.kurohicncr.top/Article/details/201969323261.shtml)
-- 2026-06-30 00:45 - [勇敢的心第二部](http://www.share.minike.top/Article/details/1542043953.shtml)
-- 2026-06-30 00:39 - [我们的少年时代2](https://www.share.minike.top/Article/details/52893220550.shtml)
-- 2026-06-30 00:51 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/8855356.shtml)
-- 2026-06-30 00:49 - [田曦薇没招了](http://www.blog.minike.top/Article/details/84648.shtml)
+- 2026-06-30 01:01 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/80428545449.shtml)
+- 2026-06-30 01:08 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/907963.shtml)
+- 2026-06-30 01:01 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/16638867.shtml)
+- 2026-06-30 01:07 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/92200998.shtml)
+- 2026-06-30 00:59 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/813328493.shtml)
+- 2026-06-30 01:09 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/1317464.shtml)
+- 2026-06-30 00:58 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/55154.shtml)
+- 2026-06-30 01:09 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/27658391606.shtml)
+- 2026-06-30 01:10 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/93526.shtml)
+- 2026-06-30 01:00 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/3567030.shtml)
+- 2026-06-30 00:50 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/7999414.shtml)
+- 2026-06-30 00:43 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/075959.shtml)
+- 2026-06-30 00:48 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/602050065.shtml)
+- 2026-06-30 00:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/67682019.shtml)
+- 2026-06-30 01:10 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/259003.shtml)

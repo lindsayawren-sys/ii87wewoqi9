@@ -1,56 +1,61 @@
-# 好评中国｜办好一场赛，激活座座城
+# 近期基金经理最新调仓路径曝光：张坤、徐彦差异化调仓广深铁路，杨锐文继续增持九号公司，高楠减持嘉益股份
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-办好一场赛，激活座座城。国务院办公厅印发的《关于释放体育消费潜力进一步推进体育产业高质量发展的意见》提出，开展商旅文体健联动，促进赛、展、节、游一体谋划、一体开展，丰富产业业态。如今，从城市到乡村，绿茵场上人声鼎沸、哨声震响，体育赛事越“赛”越“热”。进入5月，多项国际赛事密集开赛，观赛、赏演、逛市集一站式体验，让体育竞技的热血、城市烟火的温情、传统文化的底蕴相互交织，借助丰富
+每经记者|任飞 每经编辑|叶峰 近日，多家A股上市公司更新前十大流通股东名单，部分知名基金经理旗下产品持仓显示变动。其中，张坤旗下易方达蓝筹精选新进广深铁路前十大流通股名单，去年年报显示，该股未出现在其所有持股名单中，这也是他近年来增配低估值、高股息品种的又一写照；不过，大成基金徐彦则反其道行之，旗下三只基金均减持该股。 此外，杨锐文旗下三只基金增持了九号公司-WD，其中，景顺
 
 ## 正文
 
-办好一场赛，激活座座城。
+每经记者|任飞 每经编辑|叶峰 近日，多家A股上市公司更新前十大流通股东名单，部分知名基金经理旗下产品持仓显示变动。
 
-国务院办公厅印发的《关于释放体育消费潜力进一步推进体育产业高质量发展的意见》提出，开展商旅文体健联动，促进赛、展、节、游一体谋划、一体开展，丰富产业业态。
+其中，张坤旗下易方达蓝筹精选新进广深铁路前十大流通股名单，去年年报显示，该股未出现在其所有持股名单中，这也是他近年来增配低估值、高股息品种的又一写照；不过，大成基金徐彦则反其道行之，旗下三只基金均减持该股。
 
-如今，从城市到乡村，绿茵场上人声鼎沸、哨声震响，体育赛事越“赛”越“热”。
+此外，杨锐文旗下三只基金增持了九号公司-WD，其中，景顺长城环保优势、景顺长城优选混合在今年一季度末的第一大重仓股就是九号公司-WD，显示出持续增持的态势。
 
-进入5月，多项国际赛事密集开赛，观赛、赏演、逛市集一站式体验，让体育竞技的热血、城市烟火的温情、传统文化的底蕴相互交织，借助丰富多彩的体育赛事，不断激发消费活力。
+另外，嘉益股份近期公布的前十大流通股东名单中，高楠旗下的永赢睿信混合相较一季度末持仓有所减持，该公司此前热度较高，目前市值约52亿元，高楠也在一季度报告中总结道，考虑规模增长的客观因素，基金的持仓在向中大市值公司集中，淡化短期锐度，关注中长期确定性与安全边际。
 
-赛场热度集聚城市人气，流量价值藏于人群流动。
+张坤、徐彦旗下基金差异化调仓广深铁路 今年以来，A股结构性分化愈发极致，科技板块凭借AI、半导体等赛道走出不少牛股，资金也高度集中于此，而消费、基建、金融、传统周期等老赛道则鲜有资金问津。
 
-体育赛事自带强话题度与强聚集效应，一场赛事汇聚的不只是赛场内的呐喊助威，更是跨地域、跨圈层的消费人群。
+这也使得一众老牌基金经理的持仓争议较大，但客观来说，也是他们投资风格一致性延续的体现。
 
-“体育+”让“苏超”内生动力持续释放，江苏大地把赛场上的人气引流到千行百业，释放出乐见其成的“商旅文体健”融合效应；上海马术赛事吸引全国爱好者齐聚；东北超未赛先火，长春队主场揭幕战门票快速售罄……海量流量涌入城市，带来餐饮、住宿、出行、购物的即时消费需求，为本地消费市场注入鲜活客源。
+前不久，张坤旗下的易方达蓝筹精选显示调仓了，这一次看重的又与科技成长板块错开，选择了广深铁路。
 
-这些短期集聚的人流，是激活城市消费的基础势能，也是撬动全域市场的宝贵资源，让城市在赛事期间快速收获消费红利，展现旺盛的城市活力。
+根据广深铁路披露的最新前十大流通股东名单，截至6月5日，该基金新进成为公司第四大流通股东，持股数量达5000万股，占该股流通股比例0.88%。
 
 ## 相关推荐
 
-- 2026-06-30 00:48 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 00:40 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 00:50 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 00:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 00:42 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 01:02 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 00:51 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 00:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 00:55 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 00:44 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 01:06 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 01:07 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 00:46 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 01:00 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 00:55 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 01:10 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 00:50 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 01:03 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 01:10 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 01:04 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 00:51 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 00:44 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 01:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 00:43 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 01:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:58 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/296360979.shtml)
-- 2026-06-30 00:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/36118383.shtml)
-- 2026-06-30 00:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/8582868443.shtml)
-- 2026-06-30 00:46 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/347384854.shtml)
-- 2026-06-30 00:58 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/52069694648.shtml)
-- 2026-06-30 00:44 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/935699335.shtml)
-- 2026-06-30 01:05 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/08396109.shtml)
-- 2026-06-30 01:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/976330211.shtml)
-- 2026-06-30 00:56 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/58778.shtml)
-- 2026-06-30 01:01 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/144694086.shtml)
-- 2026-06-30 00:41 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/433769992.shtml)
-- 2026-06-30 00:58 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/869282.shtml)
-- 2026-06-30 00:40 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/8851417.shtml)
-- 2026-06-30 00:46 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/6799830.shtml)
-- 2026-06-30 01:03 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/93208.shtml)
+- 2026-06-30 01:05 - [流金岁月](http://www.blog.minike.top/Article/details/295657522624.shtml)
+- 2026-06-30 01:05 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/337426.shtml)
+- 2026-06-30 00:47 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/97235301929.shtml)
+- 2026-06-30 01:06 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/38418.shtml)
+- 2026-06-30 00:56 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/3507389.shtml)
+- 2026-06-30 00:53 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/892187694.shtml)
+- 2026-06-30 00:49 - [扫黑风暴](http://www.blog.minike.top/Article/details/8768526.shtml)
+- 2026-06-30 00:54 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/757892778.shtml)
+- 2026-06-30 01:06 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/470979.shtml)
+- 2026-06-30 01:08 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/4970220880.shtml)
+- 2026-06-30 01:01 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/73069488865.shtml)
+- 2026-06-30 00:59 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/86043.shtml)
+- 2026-06-30 01:04 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/44360475300.shtml)
+- 2026-06-30 00:48 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/74932119.shtml)
+- 2026-06-30 01:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/592431221899.shtml)

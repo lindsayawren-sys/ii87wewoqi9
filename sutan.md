@@ -1,52 +1,60 @@
-# 重塑能源拟向麦格理银行发行1000万份认股权证
+# 螃蟹、登科、状元考卷……这些送考文物又火出了圈
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-重塑能源（02570）公布，于2026年5月21日，公司与认购人（麦格理银行有限公司）订立认购协议，该公司拟向认购人发行1000万份认股权证，该等认股权证附带权利可以行使价（可予调整）认购1000万股认股权证股份。每份认股权证发行价为0.2657港元，拒绝价为27.29港元，较联交所于签署认购协议当日所报每股H股收市价 36.40港元折让约25.03%。 考虑到认股权证的条款及
+“愿考生提笔稳如古鼎沉实，十二年积淀尽数迸发，高考旗开得胜、鼎甲题名！”“愿你一鸣惊人，凯歌高奏！”在6月初，打开微博或小红书，大概率会被这些“碎碎念”刷屏。发出这些声音的，不是七大姑八大姨，而是各大博物馆里的“显眼包”文物。随着高考的钟声敲响，为了给Z世代的学子们加油打气，各大博物馆集体整活，在高考前后，“让文物说话”，送上最诚挚的祝福。 谐音梗依旧受欢迎 要论今年送考文物的
 
 ## 正文
 
-重塑能源（02570）公布，于2026年5月21日，公司与认购人（麦格理银行有限公司）订立认购协议，该公司拟向认购人发行1000万份认股权证，该等认股权证附带权利可以行使价（可予调整）认购1000万股认股权证股份。
+“愿考生提笔稳如古鼎沉实，十二年积淀尽数迸发，高考旗开得胜、鼎甲题名！
 
-每份认股权证发行价为0.2657港元，拒绝价为27.29港元，较联交所于签署认购协议当日所报每股H股收市价 36.40港元折让约25.03%。
+”“愿你一鸣惊人，凯歌高奏！
 
-考虑到认股权证的条款及定价机制，仅作说明用途，假设按拒绝价（即27.29港元）行使最少300万份认股权证（即最低承诺数额），并假设按283.00港元（即自H股在联交所上市日期起至本公告日期止期间的最高每日收市价）悉数行使1000万份认股权证，发行认股权证的估计所得款项总额将分别为8187万港元及28.3亿港元，所得净额分别约7919万港元及27.86亿港元，50%将用于通过偿还未偿还银行贷款及租赁负债而优化集团财务结构；及50%将用于一般公司用途。
+”在6月初，打开微博或小红书，大概率会被这些“碎碎念”刷屏。
 
-公司相信，与作为全球领先金融服务提供商的认购人订立认购协议，将为公司引入信誉良好的机构投资者。
+发出这些声音的，不是七大姑八大姨，而是各大博物馆里的“显眼包”文物。
 
-此外，本次发行将加强公司获取潜在国际业务机会的能力、吸引额外资源，并扩展公司的全球业务网络。
+随着高考的钟声敲响，为了给Z世代的学子们加油打气，各大博物馆集体整活，在高考前后，“让文物说话”，送上最诚挚的祝福。
 
-责任编辑：卢昱君
+谐音梗依旧受欢迎 要论今年送考文物的“顶流”，谐音梗依然是当仁不让的C位。
+
+在诸多社交媒体刷屏的短视频中，最受家长群欢迎的，当属那一只只“张牙舞爪”的螃蟹。
+
+“蟹”通“甲”，“芦”通“胪”。
 
 ## 相关推荐
 
-- 2026-06-30 00:46 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 00:51 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 00:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 00:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 01:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 00:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 01:04 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 01:06 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 00:44 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 01:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 01:01 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 00:50 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 01:06 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 00:58 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 00:43 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 00:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 01:08 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 00:42 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 01:04 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 01:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 00:53 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 01:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 00:59 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 00:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/383003.shtml)
-- 2026-06-30 00:57 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/401065654.shtml)
-- 2026-06-30 00:48 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/4707438.shtml)
-- 2026-06-30 00:40 - [时光音乐会](https://www.blog.minike.top/Article/details/784544.shtml)
-- 2026-06-30 01:00 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/82643556230.shtml)
-- 2026-06-30 00:56 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/437873863279.shtml)
-- 2026-06-30 00:48 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/96546.shtml)
-- 2026-06-30 01:00 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/00875895308.shtml)
-- 2026-06-30 00:49 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/59883.shtml)
-- 2026-06-30 00:49 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/323449.shtml)
-- 2026-06-30 00:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/265457996.shtml)
-- 2026-06-30 00:51 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/82860187760.shtml)
-- 2026-06-30 00:53 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/966711.shtml)
-- 2026-06-30 00:46 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/758697.shtml)
-- 2026-06-30 00:45 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/0889722.shtml)
+- 2026-06-30 00:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/17670.shtml)
+- 2026-06-30 00:55 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/00353655.shtml)
+- 2026-06-30 00:48 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/992440524.shtml)
+- 2026-06-30 00:42 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/003730190458.shtml)
+- 2026-06-30 01:10 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/3194868.shtml)
+- 2026-06-30 00:55 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/6147318218.shtml)
+- 2026-06-30 00:58 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/409126.shtml)
+- 2026-06-30 01:06 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/59771.shtml)
+- 2026-06-30 00:55 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/1994769547.shtml)
+- 2026-06-30 01:11 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/8391770098.shtml)
+- 2026-06-30 00:59 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/56456503.shtml)
+- 2026-06-30 00:45 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/65369907862.shtml)
+- 2026-06-30 01:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/105836479.shtml)
+- 2026-06-30 01:00 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/55526.shtml)
+- 2026-06-30 01:06 - [毒液2](https://www.blog.minike.top/Article/details/76657232566.shtml)

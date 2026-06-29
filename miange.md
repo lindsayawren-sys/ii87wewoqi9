@@ -1,61 +1,51 @@
-# Capstone Q1营收大增60%超预期，全年指引不变，Q2料调整后EBITDA转正
+# 恒生指数公司：恒生港美科技指数将纳入SpaceX
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-建材分销平台Capstone Holding Corp．周三发布2026年第一季度财报。尽管GAAP每股收益略低于预期，但营收与毛利率均录得强劲增长，且公司重申全年指引，预计第二季度调整后EBITDA将实现转正。 业绩概要：营收超预期，毛利率创四年新高 财报显示，Capstone第一季度营收达1260万美元，同比增长60%，超出市场预期180万美元。毛利润增长124%至300万
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 北京时间6月12日下午消息，恒生指数公司公告称，SpaceX于2026年6月12日上市。因此，恒生港美科技指数的编算方法将新增太空探索技术公司（‘SpaceX’，股票代号：SPCX.O）至指定美国成分股名单（目前：科技七巨头）。 8只美国上市成分股的比重将于2026年6月23日（SpaceX的第7个交易日）
 
 ## 正文
 
-建材分销平台Capstone Holding Corp．周三发布2026年第一季度财报。
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 北京时间6月12日下午消息，恒生指数公司公告称，SpaceX于2026年6月12日上市。
 
-尽管GAAP每股收益略低于预期，但营收与毛利率均录得强劲增长，且公司重申全年指引，预计第二季度调整后EBITDA将实现转正。
+因此，恒生港美科技指数的编算方法将新增太空探索技术公司（‘SpaceX’，股票代号：SPCX.O）至指定美国成分股名单（目前：科技七巨头）。
 
-业绩概要：营收超预期，毛利率创四年新高 财报显示，Capstone第一季度营收达1260万美元，同比增长60%，超出市场预期180万美元。
+8只美国上市成分股的比重将于2026年6月23日（SpaceX的第7个交易日）收市后重新计算至等权重，新增成分股和更新后的成分股比重将于2026年6月29日（SpaceX的第11个交易日）生效。
 
-毛利润增长124%至300万美元，增速为营收的两倍；毛利率从16.8%大幅提升至23.5%，创四年来最佳第一季度毛利率表现。
-
-然而，GAAP每股收益为-0.21美元，略低于市场预期的-0.19美元。
-
-调整后EBITDA为-90万美元，较上年同期的-60万美元有所扩大，但调整后EBITDA利润率从-7.5%改善至-6.9%。
-
-公司首席执行官Matthew Lipman表示，尽管第一季度是石材需求最弱的季节，且今年冬季严寒天气带来额外压力，但业绩反映了平台韧性。
-
-“毛利润增长速度是营收的两倍，体现了我们优先执行的定价纪律和利润率扩张战略。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 00:36 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 01:02 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 00:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 00:38 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 00:51 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 00:42 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 00:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 01:01 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 00:49 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 01:00 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 01:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 01:02 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 00:42 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 00:47 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 00:38 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 00:55 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 00:59 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 01:02 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 00:46 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 00:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 01:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 01:03 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 00:52 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 01:02 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 01:05 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 01:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 00:47 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 01:02 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/779316621293.shtml)
-- 2026-06-30 00:39 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/862497.shtml)
-- 2026-06-30 01:05 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/230280013.shtml)
-- 2026-06-30 00:40 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/552806125.shtml)
-- 2026-06-30 00:38 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/1587186150.shtml)
-- 2026-06-30 01:03 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/3667867.shtml)
-- 2026-06-30 00:45 - [周生如故](https://www.share.kurohicncr.top/Article/details/1605141.shtml)
-- 2026-06-30 01:03 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/798416.shtml)
-- 2026-06-30 00:47 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/9194148.shtml)
-- 2026-06-30 00:54 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/35951915638.shtml)
-- 2026-06-30 00:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/20583215278.shtml)
-- 2026-06-30 00:55 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/626831910858.shtml)
-- 2026-06-30 00:54 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/32149.shtml)
-- 2026-06-30 00:45 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/8633680976.shtml)
-- 2026-06-30 01:05 - [啊啊啊](https://www.blog.minike.top/Article/details/523890505.shtml)
+- 2026-06-30 01:10 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/803621.shtml)
+- 2026-06-30 00:55 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/090185.shtml)
+- 2026-06-30 00:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/4292358985.shtml)
+- 2026-06-30 00:57 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/054849.shtml)
+- 2026-06-30 00:59 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/568786.shtml)
+- 2026-06-30 00:46 - [张凌赫 客串](http://www.blog.minike.top/Article/details/09320722.shtml)
+- 2026-06-30 00:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/6403531076.shtml)
+- 2026-06-30 00:42 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/2804806591.shtml)
+- 2026-06-30 00:53 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/504665.shtml)
+- 2026-06-30 00:49 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/22697638113.shtml)
+- 2026-06-30 00:51 - [一见倾心](http://www.share.minike.top/Article/details/63760485.shtml)
+- 2026-06-30 00:44 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/66108440.shtml)
+- 2026-06-30 01:06 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/8204307.shtml)
+- 2026-06-30 00:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/09731133534.shtml)
+- 2026-06-30 01:06 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/96057.shtml)

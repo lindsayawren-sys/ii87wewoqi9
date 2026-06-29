@@ -1,55 +1,53 @@
-# 英国取消原定燃油税上调计划
+# 文脉同源架桥梁 青春携手促融合——长春市台联持续打造长台青年文化交流品牌
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-英国政府周三宣布，取消原定上调机动车燃油税的计划，并为货运企业提供为期一年的道路税免征优惠，以此缓解受中东局势影响加剧的民生生活成本压力。 英国政府表示，目前为车主每升燃油减免5便士税费的燃油税冻结政策原定于9月到期，现决定将该政策延续至今年年底。 政府补充称，此次为期一年的道路税减免政策，每辆货运车辆最高可节省912英镑开支。 英国首相基尔・斯塔默在声明中表示：“我深知众多民
+近日，由长春市台联主办的2026“长台青年文化交流营”圆满落下帷幕。本次交流营活动期间，先后举办两岸青年读书分享会，两岸青年共读经典著作、两岸文学作品，联合创作城市主题文创作品，开展图书捐赠搭建共享阅读平台；组织非遗体验活动，开展蛋雕、衍纸等传统技艺实操，结合全盲环境体验传递友爱互助精神；打卡城市历史文化街区与城市博物馆，追溯城市发展脉络与文脉遗存，推动两岸青年从相识相知走向心
 
 ## 正文
 
-英国政府周三宣布，取消原定上调机动车燃油税的计划，并为货运企业提供为期一年的道路税免征优惠，以此缓解受中东局势影响加剧的民生生活成本压力。
+近日，由长春市台联主办的2026“长台青年文化交流营”圆满落下帷幕。
 
-英国政府表示，目前为车主每升燃油减免5便士税费的燃油税冻结政策原定于9月到期，现决定将该政策延续至今年年底。
+本次交流营活动期间，先后举办两岸青年读书分享会，两岸青年共读经典著作、两岸文学作品，联合创作城市主题文创作品，开展图书捐赠搭建共享阅读平台；组织非遗体验活动，开展蛋雕、衍纸等传统技艺实操，结合全盲环境体验传递友爱互助精神；打卡城市历史文化街区与城市博物馆，追溯城市发展脉络与文脉遗存，推动两岸青年从相识相知走向心灵相通。
 
-政府补充称，此次为期一年的道路税减免政策，每辆货运车辆最高可节省912英镑开支。
+青年是两岸关系的未来，文化是连接两岸同胞的精神纽带。
 
-英国首相基尔・斯塔默在声明中表示：“我深知众多民众正承受能源与燃油成本上涨带来的压力，也担忧伊朗局势冲突会进一步加重经济负担。
+为持续深化两岸青年文化交流，长春市台联立足长春地域特色与对台工作实际，连续三年持续打造“文脉同源・青春同行”长台青年文化交流项目，先后举办以“文创 + 科技”为抓手、打造潮流交流场景的2024 年长台青年文创周，以“城市+研学”为载体、全景展现城市风貌的2025 年台籍青年城市文化之旅，以“阅读分享+ 非遗体验+ 历史寻迹”为延伸、深耕文化精神认同的2026 年长台青年文化交流营，累计吸引百余名次两岸青年参与，不仅实现长台青年常态化互动交往，更在促进文化传承、情感交融、融合发展等方面取得显著成效，构建起“常态化、多元化、沉浸式”的长台青年交流体系，有效拉近两岸青年距离、厚植同胞情谊、强化文化认同，探索出一条新时代推动长台两地深度融合、促进两岸同胞走近走亲走心的实践路径。
 
-” “正因如此，本届政府主动出台举措，为广大车主稳住燃油开支。
-
-” 据今年1月英国政府调研简报显示，燃油税冻结政策最早于2022年推出，历经数届政府四次延期，原定实施周期为12个月，彼时财政成本达24亿英镑，此次再度延期产生的具体开支目前暂未明确。
-
-责任编辑：江学思
+来源：市台联 初审：车守冬 复审：胡嘉惠 终审：张吉 来源：“长春统战”微信公众号
 
 ## 相关推荐
 
-- 2026-06-30 00:42 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 00:41 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 01:00 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 01:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 01:02 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 00:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 00:51 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 00:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 00:37 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 00:39 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 00:48 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 00:47 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 00:51 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 00:52 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 01:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 01:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 00:58 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 00:47 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 01:09 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 01:03 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 00:45 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 00:50 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 00:57 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 01:06 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/0349339767.shtml)
-- 2026-06-30 00:40 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/11697197.shtml)
-- 2026-06-30 00:37 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/74269193.shtml)
-- 2026-06-30 00:50 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/85023.shtml)
-- 2026-06-30 00:59 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/08123.shtml)
-- 2026-06-30 00:40 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/80361322173.shtml)
-- 2026-06-30 01:05 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/33958732.shtml)
-- 2026-06-30 00:51 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/68396.shtml)
-- 2026-06-30 00:50 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/888876140873.shtml)
-- 2026-06-30 00:43 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/72167.shtml)
-- 2026-06-30 01:00 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/17435.shtml)
-- 2026-06-30 00:42 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/582153424651.shtml)
-- 2026-06-30 00:59 - [田曦薇没招了](https://www.share.minike.top/Article/details/81235503.shtml)
-- 2026-06-30 01:01 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/9239681424.shtml)
-- 2026-06-30 01:02 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/836603.shtml)
+- 2026-06-30 00:43 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/6351878218.shtml)
+- 2026-06-30 00:42 - [送你一朵小红花](http://www.share.minike.top/Article/details/10401850.shtml)
+- 2026-06-30 00:46 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/09925409444.shtml)
+- 2026-06-30 01:02 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/5156261.shtml)
+- 2026-06-30 00:47 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/803915669832.shtml)
+- 2026-06-30 00:42 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/8881157.shtml)
+- 2026-06-30 00:52 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/440094527.shtml)
+- 2026-06-30 01:06 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/00779094.shtml)
+- 2026-06-30 00:42 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/340027343.shtml)
+- 2026-06-30 01:04 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/64574517.shtml)
+- 2026-06-30 00:43 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/2012931.shtml)
+- 2026-06-30 00:45 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/66323742.shtml)
+- 2026-06-30 00:44 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/4626143.shtml)
+- 2026-06-30 00:50 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/033006.shtml)
+- 2026-06-30 00:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/528237044293.shtml)

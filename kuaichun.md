@@ -1,57 +1,57 @@
-# 北京朝阳设立“社会保险国际化示范服务窗口” 为16个国家参保人办结社保业务
+# 湖北武汉通报昌盛泡花碱厂有关问题调查处理情况
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网北京5月20日电 北京市朝阳区相关负责人今天表示，人力资源和社会保障部社会保险事业管理中心近日正式批复，在北京市朝阳区社保经办大厅设立“社会保险国际化示范服务窗口”，这一国家级示范窗口的落地，标志着朝阳区涉外社保服务迈入标准化、标杆化新阶段。朝阳区人力社保局以科技赋能、队伍提质、服务延伸为抓手，构建起兼具“国际范”与“人情味”的社保服务体系，为建设“宜业朝阳”、吸引全球人
+中新网6月12日电 据“武汉发布”微信公众号消息，针对武汉新洲区昌盛泡花碱厂被指污染环境、致周边村民患癌等问题，武汉市联合调查组12日发布调查通报。全文如下： 关于武汉市新洲区昌盛泡花碱厂有关问题 调查处理情况的通报 2026年5月18日，媒体报道反映武汉市新洲区昌盛泡花碱厂(以下简称泡花碱厂)相关问题，武汉市委、市政府高度重视，5月19日成立由市委、市政府有关负责同志任组长，
 
 ## 正文
 
-中新网北京5月20日电 北京市朝阳区相关负责人今天表示，人力资源和社会保障部社会保险事业管理中心近日正式批复，在北京市朝阳区社保经办大厅设立“社会保险国际化示范服务窗口”，这一国家级示范窗口的落地，标志着朝阳区涉外社保服务迈入标准化、标杆化新阶段。
+中新网6月12日电 据“武汉发布”微信公众号消息，针对武汉新洲区昌盛泡花碱厂被指污染环境、致周边村民患癌等问题，武汉市联合调查组12日发布调查通报。
 
-朝阳区人力社保局以科技赋能、队伍提质、服务延伸为抓手，构建起兼具“国际范”与“人情味”的社保服务体系，为建设“宜业朝阳”、吸引全球人才提供坚实保障。
+全文如下： 关于武汉市新洲区昌盛泡花碱厂有关问题 调查处理情况的通报 2026年5月18日，媒体报道反映武汉市新洲区昌盛泡花碱厂(以下简称泡花碱厂)相关问题，武汉市委、市政府高度重视，5月19日成立由市委、市政府有关负责同志任组长，市纪委监委、市生态环境局、市卫健委、市自然资源和城建局、市农业农村局、市民政局、市公安局等部门组成的联合调查组，对有关问题依法依规开展调查。
 
-升级窗口服务，打造无国界办事新体验 “没想到在朝阳办社保这么方便！
+湖北省生态环境厅、湖北省疾控中心等部门派员现场指导，省纪委监委指导开展调查问责工作。
 
-”德国工程师保罗在朝阳区社保经办大厅办理个人信息变更业务时，通过双语标识迅速找到“社会保险国际化示范服务窗口”。
+联合调查组通过谈话询问、调阅资料、实地采样、数据分析等方式开展调查，并邀请高校、科研院所、医疗机构等单位专家开展咨询论证。
 
-窗口配备的双屏同声传译设备实时将工作人员的政策讲解翻译为德语，仅10分钟便顺利完成业务办理。
+省市生态环境部门组织220余人，对泡花碱厂及周边地表水、地下水、土壤等开展采样监测和环境调查；省市疾控中心、市职业病防治院组建35人联合流调队，深入开展黄土坡湾流行病学调查；市卫健、公安、民政等部门组织360余人，参与病例排查和健康调查；市农业农村局组织省植物保护总站、市农业科学院等单位专家，对泡花碱厂周边农作物生长情况进行调查；市自然资源和城建局对泡花碱厂用地及建设情况进行实地勘察；市纪委监委对市区生态环境、自然资源和城乡建设、信访等部门及新洲区有关人员履职尽责情况开展全面调查。
 
-这一场景是朝阳区社保服务国际化的生动缩影，从2025年自行探索设立“国际化服务窗口”到2026年人力资源社会保障部社会保险事业管理中心在朝阳区社保经办大厅设立“社会保险国际化示范服务窗口”，朝阳区在国际化服务上持续发力：经办大厅设置中英双语服务标识，方便外籍人士快速查找业务窗口、明晰办事区域；经办柜台引入多语种双屏翻译系统，支持121种语言实时互译，确保政策信息传递零误差、沟通过程可追溯，彻底消除跨语言沟通障碍。
+现将具体调查情况通报如下。
 
-窗口自设立以来，已成功为16个国家的参保人办结社保业务，外籍人员社保业务平均办理时长从40分钟缩短至25分钟。
+一、泡花碱厂违法违规问题调查情况 泡花碱厂位于武汉市新洲区李集街道张信村黄土坡湾，于1986年建成投产，原属乡镇企业，2000年由原经营者熊某某买断经营权，主要从事泡花碱生产活动，生产工艺为将外购的硅酸钠固体用蒸汽加热脱去结晶水，溶解制成硅酸钠水溶液(俗称“泡花碱”，也称“水玻璃”)。
 
-创新服务机制，构筑涉外服务新高地 朝阳区人力社保局还组建了“幸福社保外事服务队”，汇聚英语、西班牙语等多语种业务骨干，并开展社保业务、涉外礼仪等全流程实训。
+2019年，企业增加硅藻土过滤工艺，生产过程中产生碱性废渣。
 
 ## 相关推荐
 
-- 2026-06-30 00:40 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 00:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 01:03 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 00:53 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 00:55 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 00:54 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 00:44 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 00:41 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 00:41 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 00:37 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 00:57 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 00:59 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 00:54 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 01:04 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 01:06 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 01:01 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 00:59 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 00:56 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 00:49 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 01:02 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 00:43 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 00:46 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:04 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/45180.shtml)
-- 2026-06-30 00:39 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/367705700.shtml)
-- 2026-06-30 00:57 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/95969967.shtml)
-- 2026-06-30 00:40 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/4520804773.shtml)
-- 2026-06-30 00:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/02706372753.shtml)
-- 2026-06-30 00:38 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/70749713085.shtml)
-- 2026-06-30 01:02 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/226326538598.shtml)
-- 2026-06-30 00:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/98518.shtml)
-- 2026-06-30 00:51 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/70431297112.shtml)
-- 2026-06-30 01:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/164611385103.shtml)
-- 2026-06-30 01:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/36591564983.shtml)
-- 2026-06-30 00:45 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/54130468.shtml)
-- 2026-06-30 01:01 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/216483321443.shtml)
-- 2026-06-30 01:03 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/100459.shtml)
-- 2026-06-30 00:49 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/960814643.shtml)
+- 2026-06-30 00:54 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/390055.shtml)
+- 2026-06-30 00:44 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/785351534873.shtml)
+- 2026-06-30 01:11 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/84150.shtml)
+- 2026-06-30 01:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/42175668.shtml)
+- 2026-06-30 00:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/047241532.shtml)
+- 2026-06-30 00:48 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/22923056.shtml)
+- 2026-06-30 01:10 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/7119335917.shtml)
+- 2026-06-30 00:49 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/32933.shtml)
+- 2026-06-30 00:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/2351265021.shtml)
+- 2026-06-30 00:50 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/2716130.shtml)
+- 2026-06-30 00:59 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/113212.shtml)
+- 2026-06-30 00:45 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/72283.shtml)
+- 2026-06-30 00:43 - [我们的少年时代2](http://www.blog.minike.top/Article/details/9137087.shtml)
+- 2026-06-30 00:56 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/13402.shtml)
+- 2026-06-30 00:45 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/9363285.shtml)

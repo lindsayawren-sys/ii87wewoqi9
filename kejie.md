@@ -1,58 +1,61 @@
-# 信用卡市场冰与火：大行“瘦身”关停分中心，地方农商行纷纷借省级农信品牌突围
+# 大熊猫国家公园：一场人与自然和谐共生的生态文明实践
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-蓝鲸新闻5月21日讯（记者 金磊）从全国范围来看，信用卡市场已进入存量调整期。根据央行最新发布《2026年第一季度支付体系运行总体情况》显示，截至一季度末，全国共开立银行卡102.61亿张。其中，信用卡和借贷合一卡6.87亿张，较去年末减少900万张左右。 在存量时代，为控制运营成本，过去几年多家银行陆陆续续关停了不少地区性的信用卡中心。据不完全统计，仅2025年全年就有近65
+在四川北部青川县的大熊猫国家公园唐家河片区，见到野生大熊猫已经不是什么稀奇事了。2025年度的数据显示，唐家河片区白熊坪保护站基于粪便调查共鉴定出大熊猫个体31只，基于红外相机影像“猫脸识别”大熊猫个体13只。“司空见惯。”大熊猫国家公园唐家河管理处科研监测科科长肖梅说，“刚参加工作时见到憨憨的大熊猫，很兴奋，后来见得越来越多，就习以为常了”。 自大熊猫国家公园于2021年设立
 
 ## 正文
 
-蓝鲸新闻5月21日讯（记者 金磊）从全国范围来看，信用卡市场已进入存量调整期。
+在四川北部青川县的大熊猫国家公园唐家河片区，见到野生大熊猫已经不是什么稀奇事了。
 
-根据央行最新发布《2026年第一季度支付体系运行总体情况》显示，截至一季度末，全国共开立银行卡102.61亿张。
+2025年度的数据显示，唐家河片区白熊坪保护站基于粪便调查共鉴定出大熊猫个体31只，基于红外相机影像“猫脸识别”大熊猫个体13只。
 
-其中，信用卡和借贷合一卡6.87亿张，较去年末减少900万张左右。
+“司空见惯。
 
-在存量时代，为控制运营成本，过去几年多家银行陆陆续续关停了不少地区性的信用卡中心。
+”大熊猫国家公园唐家河管理处科研监测科科长肖梅说，“刚参加工作时见到憨憨的大熊猫，很兴奋，后来见得越来越多，就习以为常了”。
 
-据不完全统计，仅2025年全年就有近65家信用卡分中心获准终止营业，仅2025年一年退出的数量，已超过2020—2024年五年总和。
+自大熊猫国家公园于2021年设立以来，这种变化肉眼可见。
 
-国内国有大行、股份制银行的信用卡业务，彻底告别了过去跑马圈地、盲目发卡的粗放扩张模式。
+作为我国国家公园体制的试点，大熊猫国家公园的设立，正给中国生态文明实践带来更多的新气象。
 
-不过如今有个现象是，今年以来有不少地方农信旗下的农商行信用卡业务陆续获批。
+为大熊猫及其他生物的生存繁衍保留良好的生态空间 随着见到野生大熊猫的次数越来越多，肖梅有了另一层理解：这意味着大熊猫的数量可能增加了，也表明它出现在了过去没去过的地方，它的活动区域在扩大，生态环境、种群数量都在持续向好。
 
-5月7日，国家金融监督管理总局佛山监管分局批复信息显示，佛山农商银行获批使用广东农信“悦农”统一信用卡品牌开办信用卡发卡业务；4月10日，广东阳山农村商业银行获批使用“悦农”品牌开办信用卡发卡业务；2月24日，广东翁源农村商业银行获批使用“悦农”品牌开办信用卡发卡业务。
+白熊坪保护站是唐家河最远的一个保护站，海拔1800米，管护总面积57平方公里，因当地俗称大熊猫为“白熊”且大熊猫分布密集而得名。
 
 ## 相关推荐
 
-- 2026-06-30 00:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 00:51 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 01:01 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 01:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 01:01 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 01:01 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 00:41 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 00:45 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 00:44 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 00:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 00:47 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 01:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 00:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 00:56 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 00:48 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 01:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 00:46 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 00:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 01:11 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 01:03 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 01:03 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 01:01 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 00:43 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 00:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 01:00 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 00:47 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 00:58 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:53 - [斗破苍穹](https://www.blog.minike.top/Article/details/67155.shtml)
-- 2026-06-30 00:46 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/51878818.shtml)
-- 2026-06-30 00:54 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/67001033.shtml)
-- 2026-06-30 01:05 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/6618275977.shtml)
-- 2026-06-30 00:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/83642.shtml)
-- 2026-06-30 00:51 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/60160755.shtml)
-- 2026-06-30 00:40 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/980681.shtml)
-- 2026-06-30 00:39 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/0554930.shtml)
-- 2026-06-30 00:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/36408.shtml)
-- 2026-06-30 00:37 - [东方风云榜](https://www.blog.minike.top/Article/details/186455833.shtml)
-- 2026-06-30 01:03 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/6517106.shtml)
-- 2026-06-30 01:03 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/0075473501.shtml)
-- 2026-06-30 00:43 - [扬名立万](https://www.share.minike.top/Article/details/0603381.shtml)
-- 2026-06-30 01:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/97825427.shtml)
-- 2026-06-30 00:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/333807.shtml)
+- 2026-06-30 01:09 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/93737.shtml)
+- 2026-06-30 01:02 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/088083634861.shtml)
+- 2026-06-30 01:05 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/27285767.shtml)
+- 2026-06-30 00:55 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/3280605.shtml)
+- 2026-06-30 00:59 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/29114168.shtml)
+- 2026-06-30 00:50 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/9527203.shtml)
+- 2026-06-30 01:05 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/482611405394.shtml)
+- 2026-06-30 00:58 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/17717.shtml)
+- 2026-06-30 00:51 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/745810.shtml)
+- 2026-06-30 01:02 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/396857527630.shtml)
+- 2026-06-30 00:57 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/05485554.shtml)
+- 2026-06-30 01:04 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/642831298.shtml)
+- 2026-06-30 01:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/20375414.shtml)
+- 2026-06-30 01:09 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/108138.shtml)
+- 2026-06-30 00:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/45627.shtml)

@@ -1,44 +1,59 @@
-# 美军：“尼米兹”号航母已进入加勒比海
+# 杨德龙：美股5月通胀数据创三年新高 导致美联储降息预期推迟 美股三大股指重挫
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网5月21日电 综合报道，当地时间5月20日，美军南方司令部在社交媒体上称，美军“尼米兹”号航空母舰战斗群已进入加勒比海。 美军南方司令部表示，随同“尼米兹”号航母进入加勒比海的还有“格里德利”号驱逐舰和“帕图克森特”号补给舰。
+近期市场风格发生了一定切换，前期涨幅较大的科技股出现较大幅度回调，而前期表现低迷的传统板块则受资金流入推动出现反弹。市场整体仍处于震荡调整阶段。在5月20日左右，我曾提到，由于科技股短期涨幅过大，许多投资者盲目追高，积累了较大的获利盘，科技股回调压力加大。虽然中长期来看，本轮AI科技革命具有极大的想象力，但股价过快上涨也会产生局部泡沫，出现回调风险。当然，这轮回调或不意味着科技
 
 ## 正文
 
-中新网5月21日电 综合报道，当地时间5月20日，美军南方司令部在社交媒体上称，美军“尼米兹”号航空母舰战斗群已进入加勒比海。
+近期市场风格发生了一定切换，前期涨幅较大的科技股出现较大幅度回调，而前期表现低迷的传统板块则受资金流入推动出现反弹。
 
-美军南方司令部表示，随同“尼米兹”号航母进入加勒比海的还有“格里德利”号驱逐舰和“帕图克森特”号补给舰。
+市场整体仍处于震荡调整阶段。
+
+在5月20日左右，我曾提到，由于科技股短期涨幅过大，许多投资者盲目追高，积累了较大的获利盘，科技股回调压力加大。
+
+虽然中长期来看，本轮AI科技革命具有极大的想象力，但股价过快上涨也会产生局部泡沫，出现回调风险。
+
+当然，这轮回调或不意味着科技牛行情的结束，反而回调之后，科技行情或会走得更加持久、健康。
+
+2024年9月24日，多个部门集中推出一揽子稳增长政策，开启了本轮牛市行情，至今已超过一年半。
+
+本轮行情与往年牛市有很大差别，一是大盘上了4000点，但仍有不少人对此怀疑，根本原因在于本轮牛市是结构严重分化的牛市。
+
+配置科技创新板块的投资者获得了很好的收益，而配置传统板块的投资者则出现了较大亏损，许多传统股票的价格甚至跌破行情启动时的价格，创出新低。
 
 ## 相关推荐
 
-- 2026-06-30 00:37 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 00:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 00:56 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 00:46 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 00:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 00:55 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 00:51 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 00:37 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 00:36 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 01:02 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 00:53 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 00:49 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 01:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 00:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 01:09 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 01:11 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 00:44 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 00:57 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 00:44 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 00:42 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 00:55 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 01:04 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 01:05 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:40 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/579940.shtml)
-- 2026-06-30 00:38 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/15321.shtml)
-- 2026-06-30 00:45 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/465235.shtml)
-- 2026-06-30 00:45 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/836578906.shtml)
-- 2026-06-30 00:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/9919434061.shtml)
-- 2026-06-30 00:56 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/83035511564.shtml)
-- 2026-06-30 00:52 - [扬名立万](https://www.blog.minike.top/Article/details/541629.shtml)
-- 2026-06-30 00:50 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/218474.shtml)
-- 2026-06-30 00:49 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/27792.shtml)
-- 2026-06-30 01:04 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/252177.shtml)
-- 2026-06-30 00:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/411328039.shtml)
-- 2026-06-30 00:54 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/461893866714.shtml)
-- 2026-06-30 00:43 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/400070945.shtml)
-- 2026-06-30 00:50 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/28258.shtml)
-- 2026-06-30 00:45 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/646549957934.shtml)
+- 2026-06-30 01:05 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/022259620.shtml)
+- 2026-06-30 00:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/58447.shtml)
+- 2026-06-30 00:46 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/570107753793.shtml)
+- 2026-06-30 00:42 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/989594.shtml)
+- 2026-06-30 00:53 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/57784.shtml)
+- 2026-06-30 00:45 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/636019733490.shtml)
+- 2026-06-30 01:06 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/091827.shtml)
+- 2026-06-30 00:46 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/25137870.shtml)
+- 2026-06-30 01:07 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/3245149032.shtml)
+- 2026-06-30 00:51 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/85844693.shtml)
+- 2026-06-30 01:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/31910101820.shtml)
+- 2026-06-30 00:59 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/07916729.shtml)
+- 2026-06-30 00:58 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/97454356.shtml)
+- 2026-06-30 01:09 - [这一刀 会很帅](https://www.share.minike.top/Article/details/3304633264.shtml)
+- 2026-06-30 00:43 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/12379.shtml)

@@ -1,46 +1,54 @@
-# 伊朗议长：敌人正在寻求新一轮战争
+# 厦金“小三通”客运航线调整航道
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 15:49 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月11日 16:50 来源：中国新闻网 6月11日起，厦金“小三通”客运航线正式切换全新规划航路。此次调整，是保障厦金大桥厦门段工程建设进度、保障2026年年底顺利通车的举措。厦金“小三通”金通航道三期临时改线工程于10日启动。此次改线的新航道按照正式规划航道标准建设，双线航道通航宽度200米，桥区段单线航道通航宽度80米，可满足厦金航线主力客船在全潮条
 
 ## 正文
 
-发布时间：2026年05月21日 15:49 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月11日 16:50 来源：中国新闻网 6月11日起，厦金“小三通”客运航线正式切换全新规划航路。
+
+此次调整，是保障厦金大桥厦门段工程建设进度、保障2026年年底顺利通车的举措。
+
+厦金“小三通”金通航道三期临时改线工程于10日启动。
+
+此次改线的新航道按照正式规划航道标准建设，双线航道通航宽度200米，桥区段单线航道通航宽度80米，可满足厦金航线主力客船在全潮条件下的双向通航需求。
+
+项目同步完成新航道航标布设与新型助航设施升级，新型助航设施升级，其中新设的8座灯浮标中，JT19升级多功能化航标，可全天候采集风速、能见度、流速数据并实时对外推送，航道通行安全性与智能化水平显著提升。
+
+(记者 李思源 视频来源 厦门海事局） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 00:53 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 00:39 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 00:55 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 00:37 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 01:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 00:45 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 00:44 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 00:45 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 00:37 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 00:39 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 01:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 00:40 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 00:42 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 00:39 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 00:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 01:09 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 01:06 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 01:04 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 01:07 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 00:54 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 00:59 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 00:59 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 00:55 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 00:45 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 00:49 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 00:53 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:38 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/13775972937.shtml)
-- 2026-06-30 00:36 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/86042596285.shtml)
-- 2026-06-30 00:39 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/8189382224.shtml)
-- 2026-06-30 00:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/00767900.shtml)
-- 2026-06-30 00:56 - [千香](https://www.share.kurohicncr.top/Article/details/5177035.shtml)
-- 2026-06-30 00:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/604648.shtml)
-- 2026-06-30 00:49 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/54970792.shtml)
-- 2026-06-30 00:58 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/25437898104.shtml)
-- 2026-06-30 00:36 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/89434599.shtml)
-- 2026-06-30 01:00 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/60742.shtml)
-- 2026-06-30 00:51 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/42688279854.shtml)
-- 2026-06-30 00:46 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/236635.shtml)
-- 2026-06-30 00:42 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/67858.shtml)
-- 2026-06-30 00:44 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/04951807.shtml)
-- 2026-06-30 00:39 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/73474196.shtml)
+- 2026-06-30 00:45 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/09371846252.shtml)
+- 2026-06-30 00:48 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/6368743261.shtml)
+- 2026-06-30 00:51 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/537495.shtml)
+- 2026-06-30 00:47 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/30620474.shtml)
+- 2026-06-30 00:44 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/54527541.shtml)
+- 2026-06-30 00:49 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/84891.shtml)
+- 2026-06-30 00:57 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/099042031.shtml)
+- 2026-06-30 00:51 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/070607750.shtml)
+- 2026-06-30 00:44 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/0184416.shtml)
+- 2026-06-30 00:58 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/5425609255.shtml)
+- 2026-06-30 00:45 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/721767633.shtml)
+- 2026-06-30 00:58 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/59401.shtml)
+- 2026-06-30 01:05 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/9084134.shtml)
+- 2026-06-30 00:51 - [明星大侦探第四季](http://www.share.minike.top/Article/details/5672148470.shtml)
+- 2026-06-30 00:42 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/9072975.shtml)

@@ -1,59 +1,61 @@
-# 欧洲股市小幅走弱，投资者静待中东和平局势最新进展
+# 东方甄选丢了“F4”，怎么又离开一个“治理剩菜”的志胜
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-周四欧洲股市小幅走低，投资者保持谨慎，静待美伊和平谈判的进一步进展。 伊朗表示正在审议华盛顿方面提出的结束冲突的最新方案；而美国总统特朗普称，他愿意耐心等待德黑兰方面给出“满意答复”，但如果双方未能达成协议，美方将重启打击。 截至格林尼治标准时间07：01，泛欧斯托克600指数下跌0.2%，报618.79点；该指数周三曾上涨1.5%，逼近两周高位。 全球股市普遍反弹，但欧洲股市
+不到两个月，东方甄选又离开一位主播。 6月10日，东方甄选主播志胜在社交平台发视频回顾直播之路，并配文称“休假结束，再见啦。这份‘情书’比悲伤更悲伤”。 根据公开报道，志胜以接地气的试吃风格、幽默的表达被用户熟知，有粉丝戏称其为“治理剩菜剩饭的吃播主播”，抖音平台粉丝约8600个。 当天，有网友在志胜视频下评论称，“休假，本来是多么美好的事！现在它却成了一个代名词”，志胜回应称
 
 ## 正文
 
-周四欧洲股市小幅走低，投资者保持谨慎，静待美伊和平谈判的进一步进展。
+不到两个月，东方甄选又离开一位主播。
 
-伊朗表示正在审议华盛顿方面提出的结束冲突的最新方案；而美国总统特朗普称，他愿意耐心等待德黑兰方面给出“满意答复”，但如果双方未能达成协议，美方将重启打击。
+6月10日，东方甄选主播志胜在社交平台发视频回顾直播之路，并配文称“休假结束，再见啦。
 
-截至格林尼治标准时间07：01，泛欧斯托克600指数下跌0.2%，报618.79点；该指数周三曾上涨1.5%，逼近两周高位。
+这份‘情书’比悲伤更悲伤”。
 
-全球股市普遍反弹，但欧洲股市却未能回升至战前水平，主要受两大因素拖累：欧洲经济体高度依赖石油进口，且在人工智能科技领域布局有限。
+根据公开报道，志胜以接地气的试吃风格、幽默的表达被用户熟知，有粉丝戏称其为“治理剩菜剩饭的吃播主播”，抖音平台粉丝约8600个。
 
-消息人士向路透社透露，欧洲央行6月加息的理由已基本成立，但该行可能对后续加息行动持模糊态度。
+当天，有网友在志胜视频下评论称，“休假，本来是多么美好的事！
 
-目前货币市场定价显示，市场预期欧洲央行在年底前将累计加息超过两次。
+现在它却成了一个代名词”，志胜回应称，“是个悲伤故事”。
 
-个股方面，英国廉价航空公司易捷航空股价下跌1.8%。
+新京报贝壳财经记者了解到，志胜目前确已离开东方甄选。
 
-该公司公布上半年业绩亏损，并表示受伊朗战争影响，全年业绩前景仍存在不确定性。
+早在2024年7月，董宇辉离职、东方甄选剥离“与辉同行”。
 
 ## 相关推荐
 
-- 2026-06-30 00:46 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 00:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 00:57 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 01:01 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 00:41 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 00:48 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 00:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 00:38 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 00:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 01:03 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 01:03 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 00:53 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 00:56 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 00:47 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 00:58 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 00:44 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 00:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 00:45 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 01:06 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 01:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 00:49 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 00:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 01:01 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 01:08 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 01:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 01:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 01:03 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 01:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:49 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/033726503.shtml)
-- 2026-06-30 00:39 - [女心理师](http://www.share.minike.top/Article/details/437957940.shtml)
-- 2026-06-30 01:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/48471.shtml)
-- 2026-06-30 00:36 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/60906.shtml)
-- 2026-06-30 00:46 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/2664119682.shtml)
-- 2026-06-30 00:50 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/5184696.shtml)
-- 2026-06-30 00:39 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/6176398736.shtml)
-- 2026-06-30 00:49 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/913765.shtml)
-- 2026-06-30 00:38 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/437883538.shtml)
-- 2026-06-30 00:52 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/49256.shtml)
-- 2026-06-30 00:54 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/7050053245.shtml)
-- 2026-06-30 00:51 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/639925566.shtml)
-- 2026-06-30 00:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/63228.shtml)
-- 2026-06-30 00:52 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/79811.shtml)
-- 2026-06-30 00:51 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/845163195939.shtml)
+- 2026-06-30 01:03 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/718410649399.shtml)
+- 2026-06-30 01:07 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/776784223144.shtml)
+- 2026-06-30 01:06 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/7713352328.shtml)
+- 2026-06-30 01:04 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/7119013623.shtml)
+- 2026-06-30 01:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/088953195.shtml)
+- 2026-06-30 00:44 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/549446089.shtml)
+- 2026-06-30 00:42 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/210418327.shtml)
+- 2026-06-30 00:47 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/089578.shtml)
+- 2026-06-30 01:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/092172.shtml)
+- 2026-06-30 00:55 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/45186.shtml)
+- 2026-06-30 01:04 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/664286577803.shtml)
+- 2026-06-30 00:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/56367710924.shtml)
+- 2026-06-30 01:03 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/86465466.shtml)
+- 2026-06-30 00:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/011952.shtml)
+- 2026-06-30 00:47 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/6254767181.shtml)

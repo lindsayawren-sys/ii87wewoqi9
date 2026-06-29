@@ -1,57 +1,56 @@
-# 中国人民银行广西壮族自治区分行全力做好抗震救灾金融服务保障工作
+# 南新制药收到证监会行政处罚事先告知书 投资者可参与索赔
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-5月18日凌晨00：21左右，广西柳州市柳南区发生5.2级地震。 中国人民银行广西壮族自治区分行党委立即启动应急预案，第一时间指导中国人民银行柳州市分行开展灾情排查，全力开展抗震救灾及金融服务各项工作。 保障救灾资金直达一线。第一时间开通国库资金汇划“绿色通道”，截至5月20日，已安全高效完成2000万元抗震救灾应急专项资金紧急拨付，全力支持柳州市做好抗震救灾工作，保障人民群众
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年6月9日晚间，南新制药发布关于收到《行政处罚事先告知书》的公告。公告显示：湖南南新制药股份有限公司于2025 年9 月29 日收到中国证券监督管理委员会出具的《立案告知书》（编号：证监立案字 0132025024 号），2026 年 6 月 9 日
 
 ## 正文
 
-5月18日凌晨00：21左右，广西柳州市柳南区发生5.2级地震。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-中国人民银行广西壮族自治区分行党委立即启动应急预案，第一时间指导中国人民银行柳州市分行开展灾情排查，全力开展抗震救灾及金融服务各项工作。
+2026年6月9日晚间，南新制药发布关于收到《行政处罚事先告知书》的公告。
 
-保障救灾资金直达一线。
+公告显示：湖南南新制药股份有限公司于2025 年9 月29 日收到中国证券监督管理委员会出具的《立案告知书》（编号：证监立案字 0132025024 号），2026 年 6 月 9 日，公司收到中国证监会湖南监管局出具的《行政处罚事先告知书》（〔2026〕6 号）。
 
-第一时间开通国库资金汇划“绿色通道”，截至5月20日，已安全高效完成2000万元抗震救灾应急专项资金紧急拨付，全力支持柳州市做好抗震救灾工作，保障人民群众生命财产安全。
+根据湖南证监局下达的行政处罚事先告知书显示，南新制药涉及的主要违规为：2023 年，南新制药控股子公司广州南新制药有限公司（以下简称广州南新）在部分客户退货后，未冲减当期收入和利润，导致南新制药2023 年年度报告虚增营业收入 4435.88 万元，占当期营业收入 5.96%；虚增利润总额908.77 万元，占当期利润总额 119.46%。
 
-足额保障灾区现金供应。
+2023 年，广州南新与部分客户分别签订《应收账款协议》，在《应收账款协议》约定的现金折扣生效后，未冲减当期收入和利润，导致南新制药2023 年年度报告虚增营业收入2032.40万元，占当期营业收入2.73%；虚增利润总额286.45万元，占当期利润总额 37.65%。
 
-第一时间对发行库开展安全排查，确认发行库稳定运行、调拨通道畅通。
+以上事项，导致南新制药共计虚增 2023 年度营业收入6468.28 万元，占当期营业收入 8.69%；虚增利润总额 1195.22 万元，占当期利润总额157.11%。
 
-及时为金融机构办理现金存取业务、现金调拨出库，确保震区现金供应充足、调运高效，切实满足群众取现和救灾用现需求。
+湖南证监局拟对湖南南新制药股份有限公司给予警告，并处以500 万元罚款。
 
-全力保障支付结算畅通。
+南新制药表示对于《事先告知书》中涉及的相关事项，公司进行深刻的自查自纠并整改。
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 01:02 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 00:37 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 00:59 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-30 00:40 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 00:42 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 01:02 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 00:52 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 00:47 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 01:03 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 01:03 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 01:04 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 01:04 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 01:09 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-30 00:42 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 00:47 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 00:49 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 00:47 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 01:05 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 00:52 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 00:53 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:42 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/2803051650.shtml)
-- 2026-06-30 00:50 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/3562373.shtml)
-- 2026-06-30 00:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/50282.shtml)
-- 2026-06-30 00:37 - [斗破苍穹](https://www.blog.minike.top/Article/details/255865389758.shtml)
-- 2026-06-30 00:38 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/781947679.shtml)
-- 2026-06-30 00:43 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/904087.shtml)
-- 2026-06-30 00:45 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/776734142.shtml)
-- 2026-06-30 01:05 - [千与千寻](https://www.share.kurohicncr.top/Article/details/24872.shtml)
-- 2026-06-30 00:47 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/847176785590.shtml)
-- 2026-06-30 00:52 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/3766002.shtml)
-- 2026-06-30 00:58 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/0671155.shtml)
-- 2026-06-30 00:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/463462208.shtml)
-- 2026-06-30 00:55 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/412447741331.shtml)
-- 2026-06-30 01:05 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/072348016.shtml)
-- 2026-06-30 00:53 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/836675411687.shtml)
+- 2026-06-30 00:53 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/34445.shtml)
+- 2026-06-30 01:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/2042915.shtml)
+- 2026-06-30 00:56 - [急先锋](http://www.share.minike.top/Article/details/03498223.shtml)
+- 2026-06-30 00:56 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/6570254881.shtml)
+- 2026-06-30 00:56 - [流金岁月](http://www.share.minike.top/Article/details/51218722.shtml)
+- 2026-06-30 01:03 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/153655490.shtml)
+- 2026-06-30 00:43 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/5202999751.shtml)
+- 2026-06-30 00:43 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/337832864114.shtml)
+- 2026-06-30 01:10 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/651744779795.shtml)
+- 2026-06-30 00:46 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/33820122.shtml)
+- 2026-06-30 01:01 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/971185247.shtml)
+- 2026-06-30 01:02 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/68315602783.shtml)
+- 2026-06-30 00:55 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/15229675098.shtml)
+- 2026-06-30 00:55 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/669704.shtml)
+- 2026-06-30 00:52 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/082591050.shtml)

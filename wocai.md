@@ -1,56 +1,58 @@
-# 浙江余姚杨梅24小时内直达香港
+# 央行加息迅速退效 印尼债市重拾跌势
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新社宁波5月20日电 (项菁 夏蔚逸)经预冷、分拣、包装、海关查验等环节，来自浙江宁波余姚市丈亭镇的20箱30公斤大棚杨梅，20日搭乘冷链物流专机直飞香港。预计21日一早香港同胞就能尝到鲜果。 余姚杨梅是中国国家地理标志产品，凭借果大核小、汁多味甜、色泽艳丽的特质，深受海内外食客青睐。 上述杨梅所属的种植户孙来达介绍，杨梅果期短又不易保存。为了保鲜，他们从采摘之初就开始“抢时
+印尼债券周四重拾跌势，本周早些时候的意外加息之举仅短暂缓解了压力，投资者的注意力再次转向引发市场动荡的整体经济问题。 10年期收益率涨12个基点至7.46%，5年期收益率涨6个基点至7.52%。印尼盾跌0.1%，基准股指一度下跌0.9%，随后反弹。 之前该国官员寻求安抚外国投资者，引发了一轮释压反弹行情，促使印尼盾创下一年多来最大涨幅，债市和股市也双双得到提振。 印尼市场的动荡
 
 ## 正文
 
-中新社宁波5月20日电 (项菁 夏蔚逸)经预冷、分拣、包装、海关查验等环节，来自浙江宁波余姚市丈亭镇的20箱30公斤大棚杨梅，20日搭乘冷链物流专机直飞香港。
+印尼债券周四重拾跌势，本周早些时候的意外加息之举仅短暂缓解了压力，投资者的注意力再次转向引发市场动荡的整体经济问题。
 
-预计21日一早香港同胞就能尝到鲜果。
+10年期收益率涨12个基点至7.46%，5年期收益率涨6个基点至7.52%。
 
-余姚杨梅是中国国家地理标志产品，凭借果大核小、汁多味甜、色泽艳丽的特质，深受海内外食客青睐。
+印尼盾跌0.1%，基准股指一度下跌0.9%，随后反弹。
 
-上述杨梅所属的种植户孙来达介绍，杨梅果期短又不易保存。
+之前该国官员寻求安抚外国投资者，引发了一轮释压反弹行情，促使印尼盾创下一年多来最大涨幅，债市和股市也双双得到提振。
 
-为了保鲜，他们从采摘之初就开始“抢时间”。
+印尼市场的动荡仍未结束，投资者正在评估官员能否重建被总统的干预主义议程侵蚀的信心。
 
-“我们果农在清晨四五点完成杨梅采摘，经精细分拣后，对杨梅进行独立颗粒化包装，中午12点之前就将杨梅发货了。
+同时前景也变得更加复杂，因为中东紧张局势加剧推高油价，从而可能推高印尼的贸易逆差和通胀，给印尼盾造成新的压力。
 
-”孙来达说。
-
-余姚海关查检二科副科长王洲彦介绍，为助力优质鲜果抢“鲜”出口，余姚海关组建专项工作组提前介入服务，开启“出口鲜活易腐农食产品绿色通道”，当日即完成审单、查验、放行、出证等手续，实现通关环节“零滞留”。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 00:43 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 00:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 00:41 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 00:53 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 00:42 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 01:03 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 01:03 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 01:00 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 00:49 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 00:49 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 00:49 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 01:06 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 01:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 01:05 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 00:57 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 00:51 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 01:05 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 01:10 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 00:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 00:52 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 00:43 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 00:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 01:02 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 00:43 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/3936240460.shtml)
-- 2026-06-30 00:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/72844.shtml)
-- 2026-06-30 01:00 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/92795468.shtml)
-- 2026-06-30 01:04 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/836441362884.shtml)
-- 2026-06-30 01:02 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/2428839.shtml)
-- 2026-06-30 00:45 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/196144.shtml)
-- 2026-06-30 00:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/72995737.shtml)
-- 2026-06-30 00:49 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/20871367.shtml)
-- 2026-06-30 00:49 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/871512.shtml)
-- 2026-06-30 00:40 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/4226143231.shtml)
-- 2026-06-30 00:41 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/39756.shtml)
-- 2026-06-30 00:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/0196821.shtml)
-- 2026-06-30 00:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/437602491480.shtml)
-- 2026-06-30 00:43 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/34715355.shtml)
-- 2026-06-30 01:02 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/791997042.shtml)
+- 2026-06-30 01:05 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/65664588981.shtml)
+- 2026-06-30 01:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/804716.shtml)
+- 2026-06-30 01:03 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/863497.shtml)
+- 2026-06-30 01:04 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/91424046.shtml)
+- 2026-06-30 01:11 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/334033.shtml)
+- 2026-06-30 00:56 - [女心理师](http://www.share.minike.top/Article/details/739234922876.shtml)
+- 2026-06-30 00:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/287618132.shtml)
+- 2026-06-30 01:01 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/27581318.shtml)
+- 2026-06-30 01:01 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/91963266.shtml)
+- 2026-06-30 01:08 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/7645725.shtml)
+- 2026-06-30 00:51 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/443483.shtml)
+- 2026-06-30 01:03 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/06421475800.shtml)
+- 2026-06-30 00:46 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/9101062.shtml)
+- 2026-06-30 00:58 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/23869005.shtml)
+- 2026-06-30 00:57 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/40023.shtml)

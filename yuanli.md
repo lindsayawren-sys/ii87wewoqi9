@@ -1,57 +1,54 @@
-# 山西举办2026年“世界计量日”主题宣传活动
+# 外交部：日本已经摘下所谓“和平国家”的面具
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网太原5月20日电 (记者 杨杰英)2026年5月20日是第27个“世界计量日”，今年主题为“计量筑牢信任基石”。当天，山西省市场监管局、山西省检验检测中心、太原市市场监管局在太原钟楼街步行街联合举办“5·20世界计量日”主题宣传活动。山西省检验检测中心计量所、度量衡所，省计量协(学)会，省眼镜行业协会，国网山西省电力有限公司营销服务中心，太原供水集团有限公司，太原天然气有
+6月11日，外交部发言人林剑主持例行记者会。有记者提问，据报道，多名消息人士称，针对中国和巴基斯坦5月下旬发表的联合声明中提及反对军国主义卷土重来的图谋，日本政府表示日本坚守“专守防卫”方针作为和平国家的发展道路并未改变。请问中方对此有何评论？ 林剑表示，反对军国主义是国际社会不容撼动的共同意志。日本嘴上喊着“和平”“防卫”，行动上却朝着“再军事化”狂飙突进，持续大幅扩充军费，
 
 ## 正文
 
-中新网太原5月20日电 (记者 杨杰英)2026年5月20日是第27个“世界计量日”，今年主题为“计量筑牢信任基石”。
+6月11日，外交部发言人林剑主持例行记者会。
 
-当天，山西省市场监管局、山西省检验检测中心、太原市市场监管局在太原钟楼街步行街联合举办“5·20世界计量日”主题宣传活动。
+有记者提问，据报道，多名消息人士称，针对中国和巴基斯坦5月下旬发表的联合声明中提及反对军国主义卷土重来的图谋，日本政府表示日本坚守“专守防卫”方针作为和平国家的发展道路并未改变。
 
-山西省检验检测中心计量所、度量衡所，省计量协(学)会，省眼镜行业协会，国网山西省电力有限公司营销服务中心，太原供水集团有限公司，太原天然气有限公司等单位参与现场活动。
+请问中方对此有何评论？
 
-工作人员向民众发放宣传资料，受理咨询，现场检定血压计，介绍电能表、燃气表、水表等计量知识，并就民众关心的电子计价秤准确性问题进行讲解。
+林剑表示，反对军国主义是国际社会不容撼动的共同意志。
 
-同日，山西各市市场监管局结合本地特点开展主题宣传活动，在全省范围内启动加油机专项监督检查。
+日本嘴上喊着“和平”“防卫”，行动上却朝着“再军事化”狂飙突进，持续大幅扩充军费，放宽杀伤性武器出口，推进部署中远程导弹，扩充进攻性军事力量，囤积大量敏感核材料，推动修改“和平宪法”，实际上已经自己摘下了所谓“和平国家”的面具。
 
-山西省检验检测中心还举办实验室开放日活动，组织企事业单位和学校代表参观计量院实验室及“山西计量文化陈列馆科普基地”。
+国际社会应对此高度警惕，绝不允许日本军国主义死灰复燃。
 
-目前，山西全省计量体系持续完善，社会公用计量标准已达2300余项，地方计量技术规范158项。
-
-全省已建成省级产业计量测试中心22个，为提升产业科研技术水平提供了有力支撑。
+责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-30 01:05 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 00:51 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 00:50 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 00:42 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 01:04 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 01:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 00:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 00:55 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 00:47 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 00:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 00:54 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 01:08 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 01:02 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 01:04 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 00:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 01:10 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 00:43 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 00:44 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 01:02 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 00:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 00:46 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/176285731366.shtml)
-- 2026-06-30 00:59 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/55001589498.shtml)
-- 2026-06-30 00:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/87221819.shtml)
-- 2026-06-30 00:53 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/589967864.shtml)
-- 2026-06-30 01:03 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/21448409.shtml)
-- 2026-06-30 00:49 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/49997940324.shtml)
-- 2026-06-30 00:36 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/245843.shtml)
-- 2026-06-30 01:03 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/92198.shtml)
-- 2026-06-30 00:59 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/940278140.shtml)
-- 2026-06-30 00:56 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/33516956759.shtml)
-- 2026-06-30 00:46 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/881336138.shtml)
-- 2026-06-30 00:51 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/99992392388.shtml)
-- 2026-06-30 00:47 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/435542402.shtml)
-- 2026-06-30 01:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/0466220.shtml)
-- 2026-06-30 01:01 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/82520585658.shtml)
+- 2026-06-30 00:58 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/593064546500.shtml)
+- 2026-06-30 01:09 - [一生一世](https://www.blog.kurohicncr.top/Article/details/311785853.shtml)
+- 2026-06-30 00:56 - [女心理师](https://www.share.kurohicncr.top/Article/details/80854.shtml)
+- 2026-06-30 00:52 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/36081.shtml)
+- 2026-06-30 00:45 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/379632587085.shtml)
+- 2026-06-30 00:42 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/77907468295.shtml)
+- 2026-06-30 00:56 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/261073726.shtml)
+- 2026-06-30 00:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/785659708.shtml)
+- 2026-06-30 01:07 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/8178554.shtml)
+- 2026-06-30 00:54 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/4424270.shtml)
+- 2026-06-30 00:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/76192.shtml)
+- 2026-06-30 00:55 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/652312.shtml)
+- 2026-06-30 00:52 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/559149.shtml)
+- 2026-06-30 00:57 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/057360.shtml)
+- 2026-06-30 00:44 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/405540.shtml)

@@ -1,58 +1,55 @@
-# 英国2025年长期净移民数量锐减
+# 亚洲开发银行提供40亿美元融资，帮助受中东冲突冲击的国家
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新社伦敦5月21日电 (记者 欧阳开宇)受一系列严苛管控政策落地实施影响，英国2025年长期净移民人数大幅回落，规模较前一年度近乎“腰斩”，重回“脱欧”后新移民制度推行前水准。 英国国家统计局21日发布统计数据，2025年，英国长期净移民人数降至17.1万人，前一年度统计周期数值为33.1万人。 十余年间，合法与非法移民相关话题长期占据英国政坛讨论核心。历届执政政府陆续收紧签
+总部位于马尼拉的亚洲开发银行（Asian Development Bank）将提供40亿美元融资，帮助整个地区的国家减轻中东冲突带来的负面影响。 这家多边贷款机构周五表示，包括此前已宣布的孟加拉国、斐济、菲律宾和斯里兰卡在内的15国政府已请求支持。 亚洲开发银行（ADB）行长神田真人（Masato Kanda）表示：“亚行正迅速、大规模地采取行动，以支持那些正经历中东冲突带来一
 
 ## 正文
 
-中新社伦敦5月21日电 (记者 欧阳开宇)受一系列严苛管控政策落地实施影响，英国2025年长期净移民人数大幅回落，规模较前一年度近乎“腰斩”，重回“脱欧”后新移民制度推行前水准。
+总部位于马尼拉的亚洲开发银行（Asian Development Bank）将提供40亿美元融资，帮助整个地区的国家减轻中东冲突带来的负面影响。
 
-英国国家统计局21日发布统计数据，2025年，英国长期净移民人数降至17.1万人，前一年度统计周期数值为33.1万人。
+这家多边贷款机构周五表示，包括此前已宣布的孟加拉国、斐济、菲律宾和斯里兰卡在内的15国政府已请求支持。
 
-十余年间，合法与非法移民相关话题长期占据英国政坛讨论核心。
+亚洲开发银行（ADB）行长神田真人（Masato Kanda）表示：“亚行正迅速、大规模地采取行动，以支持那些正经历中东冲突带来一系列影响的国家，这些影响包括财政、汇款、旅游业以及燃料和化肥供应方面的压力。
 
-历届执政政府陆续收紧签证核发规则，不断抬高技术务工签证薪资准入门槛，现任政府也明确表态，将持续加码移民管控力度。
+” 3月下旬，亚洲开发银行宣布了一项金融支持计划，金额从1，500万美元到15亿美元不等，其中包括紧急援助贷款。
 
-此次移民规模显著下降，核心原因在于2024年出台的多项调整措施。
+就在亚洲开发银行采取此举的前一天，世界银行集团（World Bank Group）表示，准备在未来15个月内向受冲突影响的国家提供最高1，000亿美元的资金。
 
-彼时保守党政府出台新规，限制绝大部分国际留学生携家属赴英，同时上调技术工种签证薪资审核标准。
-
-工党上台执政后进一步收紧相关政策，出台多项限制性举措。
-
-英国停止海外招募护工人员，该群体此前是务工移民群体中占比较高的类别，技术签证薪资门槛也再度上调。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 00:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 01:04 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 00:41 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 00:37 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-30 00:53 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 00:37 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 00:50 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 00:58 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 00:58 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 00:56 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 00:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 00:37 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 00:59 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 00:56 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 00:47 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 00:57 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 00:57 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 01:07 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 00:46 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 01:02 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 00:42 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 01:05 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 00:54 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 01:08 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 00:56 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/9033116.shtml)
-- 2026-06-30 01:00 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/1526785325.shtml)
-- 2026-06-30 00:47 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/21948761929.shtml)
-- 2026-06-30 01:01 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/631029.shtml)
-- 2026-06-30 00:38 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/545745.shtml)
-- 2026-06-30 00:53 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/8711763826.shtml)
-- 2026-06-30 01:00 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/02988.shtml)
-- 2026-06-30 00:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/519243.shtml)
-- 2026-06-30 00:53 - [千与千寻](https://www.blog.minike.top/Article/details/9797707.shtml)
-- 2026-06-30 00:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/93413840.shtml)
-- 2026-06-30 00:56 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/420500219.shtml)
-- 2026-06-30 00:44 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/0893317054.shtml)
-- 2026-06-30 00:49 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/802912162.shtml)
-- 2026-06-30 00:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/10925735786.shtml)
-- 2026-06-30 00:57 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/58129902813.shtml)
+- 2026-06-30 00:51 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/78655494.shtml)
+- 2026-06-30 00:58 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/78495224606.shtml)
+- 2026-06-30 01:02 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/358630944.shtml)
+- 2026-06-30 00:54 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/7494502.shtml)
+- 2026-06-30 00:43 - [我和我的家乡](http://www.blog.minike.top/Article/details/237183756063.shtml)
+- 2026-06-30 01:08 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/4631474566.shtml)
+- 2026-06-30 00:44 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/823585362937.shtml)
+- 2026-06-30 01:11 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/135080061847.shtml)
+- 2026-06-30 00:49 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/65251531984.shtml)
+- 2026-06-30 01:11 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/058837207.shtml)
+- 2026-06-30 01:04 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/9681527157.shtml)
+- 2026-06-30 00:51 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/066915.shtml)
+- 2026-06-30 01:10 - [巴西vs日本](https://www.share.minike.top/Article/details/7654055930.shtml)
+- 2026-06-30 01:03 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/0702477.shtml)
+- 2026-06-30 00:54 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/86273221.shtml)

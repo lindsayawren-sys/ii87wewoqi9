@@ -1,46 +1,57 @@
-# 美国总统特朗普：美国将向波兰增派5000名士兵
+# 博安生物盘中涨超7% 度拉糖肽注射液完成在美授权
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-“鉴于现任波兰总统Karol Nawrocki成功当选，而我曾自豪地支持他，以及我们与他的关系，我很高兴地宣布，美国将向波兰增派5，000名士兵，”美国总统特朗普在Truth Social发帖称。责任编辑：何云
+博安生物（06955）盘中涨超7%，截至发稿，股价上涨3.53%，现报4.98港元，成交额1955.88万港元。 博安生物昨晚公告，公司已与合作伙伴就度拉糖肽注射液BA5101的美国市场权益达成授权协议。根据协议，合作伙伴将负责该产品在美国的商业化（包括上市申报、销售等），公司将获得首付款、里程碑付款以及销售提成。 公告指，BA5101基于公司的全球开发策略自主研发，已于202
 
 ## 正文
 
-“鉴于现任波兰总统Karol Nawrocki成功当选，而我曾自豪地支持他，以及我们与他的关系，我很高兴地宣布，美国将向波兰增派5，000名士兵，”美国总统特朗普在Truth Social发帖称。
+博安生物（06955）盘中涨超7%，截至发稿，股价上涨3.53%，现报4.98港元，成交额1955.88万港元。
 
-责任编辑：何云
+博安生物昨晚公告，公司已与合作伙伴就度拉糖肽注射液BA5101的美国市场权益达成授权协议。
+
+根据协议，合作伙伴将负责该产品在美国的商业化（包括上市申报、销售等），公司将获得首付款、里程碑付款以及销售提成。
+
+公告指，BA5101基于公司的全球开发策略自主研发，已于2025年8月在中国获批上市，是全球首个且当前唯一获批上市的度易达®（Trulicity®）的生物类似药。
+
+该产品亦在美国获批开展临床试验并计划未来在多个国家和地区开展商业化。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:37 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 00:40 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 01:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 01:04 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 01:04 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 01:03 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 00:39 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 00:38 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 01:00 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 01:04 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 00:45 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 01:03 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 00:47 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 00:55 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 00:53 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 01:11 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 00:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 01:08 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 00:56 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 01:10 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 01:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 01:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 01:07 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 00:58 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 01:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 01:08 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 00:55 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/05097442.shtml)
-- 2026-06-30 00:58 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/8639691.shtml)
-- 2026-06-30 01:00 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/90743.shtml)
-- 2026-06-30 00:49 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/84827767041.shtml)
-- 2026-06-30 00:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/83917233.shtml)
-- 2026-06-30 00:47 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/05280996469.shtml)
-- 2026-06-30 00:39 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/87139474.shtml)
-- 2026-06-30 00:41 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/0264049.shtml)
-- 2026-06-30 00:38 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/739943507408.shtml)
-- 2026-06-30 01:05 - [扬名立万](https://www.share.minike.top/Article/details/4790803120.shtml)
-- 2026-06-30 01:05 - [斛珠夫人](http://www.share.minike.top/Article/details/4562205.shtml)
-- 2026-06-30 00:52 - [刘宇宁 好听](https://www.share.minike.top/Article/details/67611182.shtml)
-- 2026-06-30 01:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/00975205838.shtml)
-- 2026-06-30 01:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/675525.shtml)
-- 2026-06-30 00:38 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/6591523.shtml)
+- 2026-06-30 00:46 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/34765.shtml)
+- 2026-06-30 01:10 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/1199888.shtml)
+- 2026-06-30 00:45 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/36655295087.shtml)
+- 2026-06-30 01:08 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/076544.shtml)
+- 2026-06-30 01:05 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/939591332.shtml)
+- 2026-06-30 00:43 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/37675331.shtml)
+- 2026-06-30 01:01 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/04838732.shtml)
+- 2026-06-30 01:07 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/33653.shtml)
+- 2026-06-30 00:44 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/106811143756.shtml)
+- 2026-06-30 00:53 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/42178705325.shtml)
+- 2026-06-30 00:59 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/70746156149.shtml)
+- 2026-06-30 00:54 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/6043300.shtml)
+- 2026-06-30 00:56 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/8081041.shtml)
+- 2026-06-30 00:54 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/1475087.shtml)
+- 2026-06-30 01:00 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/993944545225.shtml)

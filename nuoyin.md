@@ -1,58 +1,49 @@
-# 别硬扛！你的脊柱，正在悄悄被“压弯”
+# 2026年IBSA世界盲人门球锦标赛在浙江杭州开赛
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-脖子咔咔响、久坐腰酸、起身僵硬 …… 现代人身上普遍有两样东西 看不见的压力，和一直被透支的脊柱 据世界卫生组织最新数据显示： 全球约有10亿人受到脊柱问题困扰 发病率仅次于感冒 已成为全球十大被忽视的健康问题之一 在中国 这根“顶梁柱”的健康危机 正呈现年轻化、普遍化的趋势 比起感受明显的颈椎腰椎疼痛 脊柱侧弯才是真正的“隐形刺客” 藏得更深、潜伏期更长 大多数成人活了半辈子
+发布时间：2026年06月11日 12:21 来源：中国新闻网 近日，2026年IBSA世界盲人门球锦标赛在浙江杭州开赛，来自亚洲、欧洲、美洲、非洲等多个国家和地区的顶尖选手，组成男女32支国际队伍进行为期6天的对抗。中国队男子组在首日小组赛中以10比4战胜阿尔及利亚男子组。(王刚） 责任编辑：【苏亦瑜】
 
 ## 正文
 
-脖子咔咔响、久坐腰酸、起身僵硬 …… 现代人身上普遍有两样东西 看不见的压力，和一直被透支的脊柱 据世界卫生组织最新数据显示： 全球约有10亿人受到脊柱问题困扰 发病率仅次于感冒 已成为全球十大被忽视的健康问题之一 在中国 这根“顶梁柱”的健康危机 正呈现年轻化、普遍化的趋势 比起感受明显的颈椎腰椎疼痛 脊柱侧弯才是真正的“隐形刺客” 藏得更深、潜伏期更长 大多数成人活了半辈子，压根不知道 自己的脊柱，其实早就悄悄变歪了！
+发布时间：2026年06月11日 12:21 来源：中国新闻网 近日，2026年IBSA世界盲人门球锦标赛在浙江杭州开赛，来自亚洲、欧洲、美洲、非洲等多个国家和地区的顶尖选手，组成男女32支国际队伍进行为期6天的对抗。
 
-5月21日 是第16个世界脊柱健康日 小新联合山东省立医院脊柱外科主任医师蒋振松 把被大家忽视的脊柱问题一次性讲清楚 建议直接收藏，慢慢自查~ 坦白说 没有一根脊柱是轻松的！
+中国队男子组在首日小组赛中以10比4战胜阿尔及利亚男子组。
 
-作为人体的“第二生命线” 脊柱承托头部、串联躯干、保护神经 日常的站、坐、走、卧全靠它支撑 很多人一辈子都误会了自己的脊柱 总觉得骨头又硬又耐造 偶尔酸一下、疼一下不算大事 给大家打个通俗的比方： 人的脊柱，就像一栋房子的“顶梁柱” 正常的脊柱从背面看笔直居中 从侧面看有三处自然生理曲度 用来缓冲身体震动、分担身体压力 而异常的脊柱打破了原本的平衡 曲度变直、反向弯曲、左右偏移、椎体旋转 ...... 肉眼看上去只是稍微歪一点 放在骨骼层面 就是整条受力链直接失衡 脊柱受损从来不是突然爆发 而是循序渐进： 最开始只是肌肉酸胀、肩颈发紧 属于简单疲劳，放松就能恢复 一旦长期放任坏习惯 肌肉慢慢僵硬无力，椎间盘持续受压变薄 脊柱慢慢被透支、压弯 等到颈椎反弓、腰椎偏曲、骨骼变形 再想彻底复原，几乎没有办法！
-
-别怕，脊柱侧弯不是“洪水猛兽” 很多人一搜侧弯案例就心慌 越查越乱、越看越怕 先给所有人吃颗超大定心丸： 医学上 几乎没有单纯因为不良姿态导致重度侧弯 需要做大手术、打多颗钉子的案例 成年人脊柱侧弯，主要分为两种类型 一种是最常见的功能性侧弯 没有器质性病变，纯是长期坏习惯“作”出来的 常年跷二郎腿、单侧挎包、歪坐瘫坐、侧身睡觉 ...... 这些不良姿势导致肌肉受力严重不均 强行把脊柱拉偏 这类侧弯度数大多在20度以内 对生活影响小，且早期可逆 调整习惯、矫正体态、配合运动 就能慢慢恢复 另一种是先天性和特发性侧弯 椎体本身发生旋转、骨骼形态发生改变 大多为青少年时期未及时干预演变而来 这种侧弯无法单纯靠拉伸、按摩恢复 需要专业医学干预控制角度 防止持续加重 如果侧弯度数已经大于40度 则需要考虑手术治疗 谣言： 成年人骨头定型，侧弯就不用治？
-
-大错特错！
-
-骨骼定型不代表侧弯会停止恶化 成年人肌肉僵硬、受力失衡 长年累月下来 侧弯角度依旧会缓慢加重 就算无法完全恢复笔直 科学干预也能稳住角度、减轻神经压迫 缓解常年疼痛 此外 不要觉得脊柱弯了只是不好看 它的隐形伤害远比你想象的更严重 轻度侧弯： 体态不良、高低肩、骨盆歪斜 整个人气质萎靡、显老臃肿 中度侧弯： 肌肉长期拉扯劳损 频繁肩颈酸痛、顽固性腰痛 怎么按摩都缓解不彻底 重度侧弯： 胸廓变形、胸腔空间变小 压迫心肺，容易胸闷气短、心慌乏力 压迫神经根，会出现手麻、背疼、放射性刺痛 一根弯掉的脊柱 正在悄悄透支你的颜值、体态、内脏和精力！
-
-10秒在家自查！
-
-轻松测出脊柱弯不弯 山东省立医院脊柱外科主任医师蒋振松 教大家不用去医院 在家就能用Adams前屈试验法初步判断 双脚并拢站立、双膝伸直、双手自然下垂 慢慢向前弯腰至躯干与地面平行 双臂自然下垂或交叉于胸前 让人从后方观察腰背两侧 只要后背或腰部一侧出现明显隆起 也就是常说的“剃刀背” 就极大可能是脊柱侧弯 建议尽快去正规医院拍片确认 超实用护脊指南： 每天照做，少走十年弯路！
+(王刚） 责任编辑：【苏亦瑜】
 
 ## 相关推荐
 
-- 2026-06-30 00:36 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 00:48 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 00:36 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 00:37 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 00:47 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 01:02 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 00:36 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 00:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 00:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-30 01:01 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 00:39 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 00:59 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 00:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 00:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 00:51 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 01:07 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 01:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 00:44 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 00:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 00:45 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 00:49 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 00:42 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 00:53 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 00:54 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 00:54 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:52 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/59630337791.shtml)
-- 2026-06-30 00:44 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/6402121762.shtml)
-- 2026-06-30 00:53 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/2887318.shtml)
-- 2026-06-30 00:51 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/91500.shtml)
-- 2026-06-30 00:58 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/17414.shtml)
-- 2026-06-30 01:01 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/7343538.shtml)
-- 2026-06-30 01:01 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/544951518.shtml)
-- 2026-06-30 01:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/474749889.shtml)
-- 2026-06-30 00:41 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/015312567072.shtml)
-- 2026-06-30 00:52 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/62115582464.shtml)
-- 2026-06-30 01:05 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/96778049555.shtml)
-- 2026-06-30 00:58 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/9422876.shtml)
-- 2026-06-30 00:57 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/19671063930.shtml)
-- 2026-06-30 00:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/966986743.shtml)
-- 2026-06-30 00:57 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/487982.shtml)
+- 2026-06-30 01:08 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/74677.shtml)
+- 2026-06-30 00:56 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/5783242541.shtml)
+- 2026-06-30 01:00 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/034835482.shtml)
+- 2026-06-30 01:00 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/25671.shtml)
+- 2026-06-30 01:05 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/88458522.shtml)
+- 2026-06-30 00:56 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/50465.shtml)
+- 2026-06-30 00:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/78673.shtml)
+- 2026-06-30 00:48 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/052755139.shtml)
+- 2026-06-30 00:46 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/0347919.shtml)
+- 2026-06-30 01:09 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/55858516.shtml)
+- 2026-06-30 01:07 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/69233.shtml)
+- 2026-06-30 00:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/135851.shtml)
+- 2026-06-30 00:54 - [美股](http://www.blog.minike.top/Article/details/526458.shtml)
+- 2026-06-30 01:09 - [沉睡花园](http://www.blog.minike.top/Article/details/0409695.shtml)
+- 2026-06-30 01:00 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/413757.shtml)

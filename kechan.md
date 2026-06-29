@@ -1,49 +1,58 @@
-# 郑州银行获弘康人寿保险减持375万股 每股作价约1.04港元
+# 鹏鼎控股拟出资2090万元参投合伙企业，投资伏羲半导体
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月14日，弘康人寿保险减持郑州银行（06196）375万股，每股作价1.0437港元，总金额约为391.39万港元。减持后最新持股数目约为3.63亿股，最新持股比例为17.96%。责任编辑：卢昱君
+鹏鼎控股（002938）披露公告称，公司拟与专业机构合作，以增资方式投资伏羲半导体（深圳）有限公司（以下简称“伏羲半导体”）。公告显示，鹏鼎控股全资子公司鹏鼎投资作为有限合伙人，拟以自有资金向深圳市联道泽泰投资合伙企业（有限合伙）（以下简称“联道泽泰”）认缴出资2090万元，占联道泽泰48.6%份额。联道泽泰将主要以直接或间接的方式投资于伏羲半导体。合伙企业对伏羲半导体增资完成
 
 ## 正文
 
-香港联交所最新资料显示，5月14日，弘康人寿保险减持郑州银行（06196）375万股，每股作价1.0437港元，总金额约为391.39万港元。
+鹏鼎控股（002938）披露公告称，公司拟与专业机构合作，以增资方式投资伏羲半导体（深圳）有限公司（以下简称“伏羲半导体”）。
 
-减持后最新持股数目约为3.63亿股，最新持股比例为17.96%。
+公告显示，鹏鼎控股全资子公司鹏鼎投资作为有限合伙人，拟以自有资金向深圳市联道泽泰投资合伙企业（有限合伙）（以下简称“联道泽泰”）认缴出资2090万元，占联道泽泰48.6%份额。
 
-责任编辑：卢昱君
+联道泽泰将主要以直接或间接的方式投资于伏羲半导体。
+
+合伙企业对伏羲半导体增资完成后，对应持股比例为10.26%。
+
+本次投资事项不构成关联交易或同业竞争，也不构成重大资产重组。
+
+据悉，伏羲半导体成立于2023年1月，系国家级高新技术企业，专注于提供企业级存储软硬件研发及方案交付。
+
+鹏鼎控股表示，公司将借助本次投资，依托伏羲半导体在企业级存储及关键芯片的技术优势，充分发挥产业协同效应，进一步强化在AI算力领域的技术竞争力，积极把握AI算力需求持续增长带来的战略机遇。
+
+（文章来源：北京商报）
 
 ## 相关推荐
 
-- 2026-06-30 00:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 00:47 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 00:58 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 00:37 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 00:38 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 00:48 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 00:56 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 01:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 00:45 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 00:59 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 00:53 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 00:52 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 01:04 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 01:11 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 01:11 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 00:50 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 01:10 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 00:49 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 00:46 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 00:51 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 00:50 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 01:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 00:45 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 01:05 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 01:03 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:44 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/795930470298.shtml)
-- 2026-06-30 01:03 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/5446415274.shtml)
-- 2026-06-30 00:59 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/85039552.shtml)
-- 2026-06-30 00:59 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/4594764.shtml)
-- 2026-06-30 00:43 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/95810735.shtml)
-- 2026-06-30 00:38 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/878843823.shtml)
-- 2026-06-30 00:56 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/9603898785.shtml)
-- 2026-06-30 00:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/309664359579.shtml)
-- 2026-06-30 00:55 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/6866920.shtml)
-- 2026-06-30 01:05 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/3956395154.shtml)
-- 2026-06-30 00:36 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/9228018366.shtml)
-- 2026-06-30 01:01 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/32806.shtml)
-- 2026-06-30 00:55 - [东方风云榜直播](http://www.blog.minike.top/Article/details/7979601889.shtml)
-- 2026-06-30 00:42 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/44435496821.shtml)
-- 2026-06-30 00:52 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/96282.shtml)
+- 2026-06-30 00:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/6494655.shtml)
+- 2026-06-30 01:11 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/597911956347.shtml)
+- 2026-06-30 00:42 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/577157.shtml)
+- 2026-06-30 00:52 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/03421596516.shtml)
+- 2026-06-30 00:51 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/99731.shtml)
+- 2026-06-30 01:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/793661208129.shtml)
+- 2026-06-30 01:09 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/46571015.shtml)
+- 2026-06-30 01:02 - [恋与深空 日服](https://www.share.minike.top/Article/details/330156084341.shtml)
+- 2026-06-30 00:51 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/499683943.shtml)
+- 2026-06-30 00:58 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/38864.shtml)
+- 2026-06-30 00:47 - [张凌赫 客串](https://www.share.minike.top/Article/details/668708.shtml)
+- 2026-06-30 01:01 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/935441196186.shtml)
+- 2026-06-30 01:01 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/45481653.shtml)
+- 2026-06-30 00:54 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/945579585446.shtml)
+- 2026-06-30 00:45 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/974236318764.shtml)

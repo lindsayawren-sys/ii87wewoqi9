@@ -1,58 +1,48 @@
-# 拐点要来了！
+# 贵州茅台董事长陈华：价格不能出现大起大落 大家不传谣、不信谣
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-来源：Mask的小酒馆 这一轮市场的钱，真是疯狂涌入科技。 比如科创芯片etf啊，半导体etf啊，还有我们上次说过的港股通信息技术ETF，他们的成交量也都在不断放大。 原因也很简单，就是港股通信息技术这个ETF主要聚焦的是硬科技，他不包含腾讯阿里等传统的互联网大公司，他的就是计算机软件占28.4%，消费电子占44%，半导体占27.5%。 而现在硬科技的业绩又是拿的出手的。 因为
+人民财讯6月11日电，6月11日下午，贵州茅台（600519）2025年度股东会在茅台会议中心召开，来自全国千余名茅台股东、机构投资者与分析师齐聚茅台镇。针对茅台酒价格问题，茅台集团董事长陈华表示，将随行就市，相对平稳，价格不能出现大起大落，供需适配、量价平衡。目前，茅台酒价格调整社会高度关注，公司对此高度保密，网上流传有各种信息，大家不传谣、不信谣。责任编辑：刘万里 SF01
 
 ## 正文
 
-来源：Mask的小酒馆 这一轮市场的钱，真是疯狂涌入科技。
+人民财讯6月11日电，6月11日下午，贵州茅台（600519）2025年度股东会在茅台会议中心召开，来自全国千余名茅台股东、机构投资者与分析师齐聚茅台镇。
 
-比如科创芯片etf啊，半导体etf啊，还有我们上次说过的港股通信息技术ETF，他们的成交量也都在不断放大。
+针对茅台酒价格问题，茅台集团董事长陈华表示，将随行就市，相对平稳，价格不能出现大起大落，供需适配、量价平衡。
 
-原因也很简单，就是港股通信息技术这个ETF主要聚焦的是硬科技，他不包含腾讯阿里等传统的互联网大公司，他的就是计算机软件占28.4%，消费电子占44%，半导体占27.5%。
+目前，茅台酒价格调整社会高度关注，公司对此高度保密，网上流传有各种信息，大家不传谣、不信谣。
 
-而现在硬科技的业绩又是拿的出手的。
-
-因为全球AI的资本开支加大，硬科技公司基本上都赚钱了。
-
-比如中芯和华虹2026年的一季报业绩大涨，晶圆代工赚得盆满钵满。
-
-而且根据SEMI的报告，2025年全球半导体材料市场销售额同比增长6.8%，达到732亿美元。
-
-同时正在冲刺IPO的长江和长鑫，今年的业绩更是爆表。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 00:55 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 00:45 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 00:46 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 01:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 01:05 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 00:42 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 01:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 00:46 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 00:37 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 00:41 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 00:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 00:39 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 00:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 00:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 01:07 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 00:55 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 01:09 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 00:42 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 01:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 00:43 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 00:57 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 01:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:42 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/325163.shtml)
-- 2026-06-30 00:48 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/286932.shtml)
-- 2026-06-30 00:41 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/69924915.shtml)
-- 2026-06-30 01:01 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/2968347243.shtml)
-- 2026-06-30 00:51 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/27122273.shtml)
-- 2026-06-30 01:00 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/267894737.shtml)
-- 2026-06-30 00:42 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/08171063.shtml)
-- 2026-06-30 00:56 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/74241.shtml)
-- 2026-06-30 00:41 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/190526868.shtml)
-- 2026-06-30 00:56 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/77989626502.shtml)
-- 2026-06-30 01:02 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/4851319615.shtml)
-- 2026-06-30 00:46 - [美股](http://www.share.kurohicncr.top/Article/details/74349.shtml)
-- 2026-06-30 00:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/1644304136.shtml)
-- 2026-06-30 01:05 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/8808217276.shtml)
-- 2026-06-30 00:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/573865.shtml)
+- 2026-06-30 00:47 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/6577605840.shtml)
+- 2026-06-30 01:08 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/033140.shtml)
+- 2026-06-30 00:45 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/8279657.shtml)
+- 2026-06-30 01:00 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/0735893527.shtml)
+- 2026-06-30 01:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/36905167.shtml)
+- 2026-06-30 00:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/532263895.shtml)
+- 2026-06-30 01:01 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/546973196.shtml)
+- 2026-06-30 00:52 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/950354351.shtml)
+- 2026-06-30 01:00 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/4100903.shtml)
+- 2026-06-30 00:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/5287177.shtml)
+- 2026-06-30 01:09 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/28555989.shtml)
+- 2026-06-30 00:43 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/916815.shtml)
+- 2026-06-30 00:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/487124.shtml)
+- 2026-06-30 01:04 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/2485937.shtml)
+- 2026-06-30 00:51 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/773783926.shtml)

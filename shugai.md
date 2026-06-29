@@ -1,60 +1,47 @@
-# 2026年攀岩世界杯，17岁小将再次突破
+# 多只汽车股创十余年新低
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-2026年攀岩世界杯，17岁小将再次突破 4秒54！赵一程战胜12天前刷新世界纪录的自己(名场面的背后) 名场面 5月10日，2026年世界攀联攀岩世界杯(吴江站)速度赛男子半决赛，中国小将赵一程以4秒54的成绩打破自己12天前创下的世界纪录。寄语 只要心底藏着最炽热的一束光，就可以为未来照明方向。 ——赵一程 “嘟，嘟，嘀！”三声倒计时结束，赵一程手抓岩点，脚蹬岩壁，快速掠过
+6月11日，A股和港股汽车股普遍持续走低，其中广汽集团股价收跌0.86%至5.75元，创下2015年5月以来的新低；上汽集团股价收跌1.98%至10.87元，创下2016年6月以来的新低；截至当日下午3时，北京汽车下跌2.91%至1港元，创下自2014年12月上市以来的新低。（第一财经记者 肖逸思）责任编辑：孙同怀
 
 ## 正文
 
-2026年攀岩世界杯，17岁小将再次突破 4秒54！
+6月11日，A股和港股汽车股普遍持续走低，其中广汽集团股价收跌0.86%至5.75元，创下2015年5月以来的新低；上汽集团股价收跌1.98%至10.87元，创下2016年6月以来的新低；截至当日下午3时，北京汽车下跌2.91%至1港元，创下自2014年12月上市以来的新低。
 
-赵一程战胜12天前刷新世界纪录的自己(名场面的背后) 名场面 5月10日，2026年世界攀联攀岩世界杯(吴江站)速度赛男子半决赛，中国小将赵一程以4秒54的成绩打破自己12天前创下的世界纪录。
-
-寄语 只要心底藏着最炽热的一束光，就可以为未来照明方向。
-
-——赵一程 “嘟，嘟，嘀！
-
-”三声倒计时结束，赵一程手抓岩点，脚蹬岩壁，快速掠过。
-
-眨眼间，他便攀至终点。
-
-4秒54，新的世界纪录诞生了！
-
-“见识到了什么叫如履平地。
+（第一财经记者 肖逸思）责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-30 00:48 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 00:55 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 00:53 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 00:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 00:37 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 00:47 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 00:55 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 01:03 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 01:05 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 00:55 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 00:47 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 00:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 00:43 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 00:45 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 00:57 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 01:11 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 00:52 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 00:56 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 01:05 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 00:52 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 01:01 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 01:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 00:53 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 01:09 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 00:55 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 01:00 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 01:05 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:48 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/67133.shtml)
-- 2026-06-30 00:58 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/405482.shtml)
-- 2026-06-30 00:44 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/1707379727.shtml)
-- 2026-06-30 00:57 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/11688669.shtml)
-- 2026-06-30 00:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/07944971.shtml)
-- 2026-06-30 01:01 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/300904077978.shtml)
-- 2026-06-30 00:40 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/8918159.shtml)
-- 2026-06-30 00:45 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/912982.shtml)
-- 2026-06-30 00:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/50475.shtml)
-- 2026-06-30 01:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/539882501.shtml)
-- 2026-06-30 00:57 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/598203425.shtml)
-- 2026-06-30 00:57 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/4517326.shtml)
-- 2026-06-30 00:55 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/15251.shtml)
-- 2026-06-30 00:43 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/611053045441.shtml)
-- 2026-06-30 00:37 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/002342601.shtml)
+- 2026-06-30 01:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/977497746.shtml)
+- 2026-06-30 01:01 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/72254430937.shtml)
+- 2026-06-30 00:46 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/2250278340.shtml)
+- 2026-06-30 01:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/4618591191.shtml)
+- 2026-06-30 01:11 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/41759366.shtml)
+- 2026-06-30 00:52 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/0871545110.shtml)
+- 2026-06-30 01:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/2995392331.shtml)
+- 2026-06-30 01:03 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/56204314.shtml)
+- 2026-06-30 01:06 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/9163560.shtml)
+- 2026-06-30 01:00 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/9245299.shtml)
+- 2026-06-30 01:11 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/6806736614.shtml)
+- 2026-06-30 01:08 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/15755380.shtml)
+- 2026-06-30 00:43 - [新官上任三把火](https://www.blog.minike.top/Article/details/86052.shtml)
+- 2026-06-30 00:49 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/31423.shtml)
+- 2026-06-30 01:10 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/841472318770.shtml)

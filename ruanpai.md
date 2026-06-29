@@ -1,59 +1,59 @@
-# 法治赋能绘就湖南城步苗乡乡村振兴新图景
+# 国际油价仍低于100美元的十大原因
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网邵阳5月20日电 (吕伟铭 汪灿)走进湖南邵阳市城步苗族自治县金紫乡三江村，一条全长780米的法治文化宣传大道格外醒目。法治墙绘、宣传展板、普法道旗错落分布在道路两旁，从土地承包到邻里纠纷，宣传内容“以案释法”，让法律知识从晦涩条文转化为民众易懂易用的生活常识。 这条法治大道，正是三江村法治建设深入人心的一扇窗口。近年来，三江村坚持以法治建设为引领，将法治思维融入基层治理
+来源：华尔街见闻 伊朗战争爆发逾百日，史上规模最大的石油供应冲击未能将国际油价推上每桶100美元。 据Javier Blas分析，无论金融市场还是实物市场，油价走势均弱于绝大多数人的预期——远期价差、实物溢价、运费乃至炼厂利润均呈回落。战前，霍尔木兹海峡日均通过原油及成品油约2000万桶，占全球需求约五分之一。4月间，多家对冲基金和华尔街银行曾预测油价将冲上每桶200美元，而实
 
 ## 正文
 
-中新网邵阳5月20日电 (吕伟铭 汪灿)走进湖南邵阳市城步苗族自治县金紫乡三江村，一条全长780米的法治文化宣传大道格外醒目。
+来源：华尔街见闻 伊朗战争爆发逾百日，史上规模最大的石油供应冲击未能将国际油价推上每桶100美元。
 
-法治墙绘、宣传展板、普法道旗错落分布在道路两旁，从土地承包到邻里纠纷，宣传内容“以案释法”，让法律知识从晦涩条文转化为民众易懂易用的生活常识。
+据Javier Blas分析，无论金融市场还是实物市场，油价走势均弱于绝大多数人的预期——远期价差、实物溢价、运费乃至炼厂利润均呈回落。
 
-这条法治大道，正是三江村法治建设深入人心的一扇窗口。
+战前，霍尔木兹海峡日均通过原油及成品油约2000万桶，占全球需求约五分之一。
 
-近年来，三江村坚持以法治建设为引领，将法治思维融入基层治理和产业发展全过程，探索出一条“法治安村、民主治村、产业富村”的乡村振兴之路，昔日乡村焕发出善治新气象。
+4月间，多家对冲基金和华尔街银行曾预测油价将冲上每桶200美元，而实际走势与之相去甚远。
 
-想让大伙儿信法，干部自己得先把法学明白。
+Javier Blas认为，以下十大力量的叠加，是解释这一现象的核心。
 
-三江村“两委”把学法纳入日常工作，2023年至今累计开展法治理论专题学习会议16次，加上“三会一课”里的法律课，前前后后办了30多场。
+其中部分因素具有结构性特征——如炼厂灵活性提升和期权市场扩容——将持续压制油价反弹；而战略储备动用和商业库存消耗则属于阶段性支撑，终将耗尽。
 
-村党支部将党内法规和国家法律学习纳入“三会一课”，通过30余场形式多样的法治学习活动，让法治意识在民众心中生根发芽。
+然而，风险不可低估。
 
-学法不是一阵风，三江村把法律送到了家门口。
+美伊停火协议依然脆弱，双方近日仍在互相攻击。
 
 ## 相关推荐
 
-- 2026-06-30 00:36 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 00:58 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 00:43 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 01:02 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 00:52 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 00:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 00:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 01:03 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 00:58 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 00:41 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 00:41 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 01:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 01:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 01:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 01:08 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 01:01 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 00:42 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 00:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 00:47 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 00:46 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 00:48 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 00:47 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 00:50 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 00:45 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 00:49 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 00:44 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/66866776716.shtml)
-- 2026-06-30 00:54 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/99094.shtml)
-- 2026-06-30 00:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/66218.shtml)
-- 2026-06-30 00:42 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/07629491.shtml)
-- 2026-06-30 00:45 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/54601711430.shtml)
-- 2026-06-30 00:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/3968983.shtml)
-- 2026-06-30 01:04 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/437787264315.shtml)
-- 2026-06-30 00:51 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/587141814349.shtml)
-- 2026-06-30 01:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/758481355.shtml)
-- 2026-06-30 00:50 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/89502592.shtml)
-- 2026-06-30 00:53 - [恋与深空 巧合](https://www.share.minike.top/Article/details/36413776.shtml)
-- 2026-06-30 00:48 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/0621278655.shtml)
-- 2026-06-30 00:36 - [沉睡花园](https://www.blog.minike.top/Article/details/670709977.shtml)
-- 2026-06-30 00:37 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/7526108595.shtml)
-- 2026-06-30 00:40 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/040169519.shtml)
+- 2026-06-30 00:45 - [刘念回应](http://www.share.minike.top/Article/details/71091277033.shtml)
+- 2026-06-30 01:01 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/57012.shtml)
+- 2026-06-30 00:46 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/751829701.shtml)
+- 2026-06-30 00:50 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/30146550166.shtml)
+- 2026-06-30 00:51 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/204246555.shtml)
+- 2026-06-30 00:44 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/298739.shtml)
+- 2026-06-30 00:49 - [毒液2](http://www.share.kurohicncr.top/Article/details/8247314043.shtml)
+- 2026-06-30 01:00 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/849727.shtml)
+- 2026-06-30 00:50 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/463355.shtml)
+- 2026-06-30 00:47 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/43417307005.shtml)
+- 2026-06-30 00:56 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/650774050160.shtml)
+- 2026-06-30 01:02 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/3824086953.shtml)
+- 2026-06-30 00:58 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/3944911.shtml)
+- 2026-06-30 01:02 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/795532.shtml)
+- 2026-06-30 01:05 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/9988175.shtml)

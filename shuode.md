@@ -1,59 +1,54 @@
-# 纪委书记转任、业务干将擢升、人力专家空降，瑞丰银行连补三位副行长
+# 美国可继续征收第122条关税 直至上诉法院作出裁决
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-来源：机构之家 “一正一副”行长架构维持不到一周，瑞丰银行（601528.SH）即迎来了高管队伍“大回血”。 机构之家关注到，5月20日，该行公告的第五届董事会第九次会议决议内容显示，罗妙娟、黄斐、盛丽丹均被聘为该行副行长，三者任职资格尚待监管批准。此外，罗妙娟同时还被聘任为财务负责人。 图片系瑞丰银行董事会会议决议部分内容 值得关注的是，今年4月该行副行长秦晓军因工作调动辞任
+围绕多个州和小企业对2月份开始实施的10%全球关税提出的司法挑战，特朗普政府取得一项关键的程序性胜利，因为一家联邦上诉法院裁定，在诉讼进行期间，政府可以继续征收这些关税。 华盛顿一家联邦上诉法院周四裁定，美国政府已经“作出充分说明”，表明其很可能在围绕总统唐纳德·特朗普动用1974年《贸易法》第122条征收关税的争议中胜诉。 法院表示，允许这些关税目前继续有效，在当前情况下是合
 
 ## 正文
 
-来源：机构之家 “一正一副”行长架构维持不到一周，瑞丰银行（601528.SH）即迎来了高管队伍“大回血”。
+围绕多个州和小企业对2月份开始实施的10%全球关税提出的司法挑战，特朗普政府取得一项关键的程序性胜利，因为一家联邦上诉法院裁定，在诉讼进行期间，政府可以继续征收这些关税。
 
-机构之家关注到，5月20日，该行公告的第五届董事会第九次会议决议内容显示，罗妙娟、黄斐、盛丽丹均被聘为该行副行长，三者任职资格尚待监管批准。
+华盛顿一家联邦上诉法院周四裁定，美国政府已经“作出充分说明”，表明其很可能在围绕总统唐纳德·特朗普动用1974年《贸易法》第122条征收关税的争议中胜诉。
 
-此外，罗妙娟同时还被聘任为财务负责人。
+法院表示，允许这些关税目前继续有效，在当前情况下是合理的。
 
-图片系瑞丰银行董事会会议决议部分内容 值得关注的是，今年4月该行副行长秦晓军因工作调动辞任，1个月后副行长严国利则转任纪委书记，瑞丰银行行长序列一度仅剩2人，成为在A股上市行中系极为精简的配置，引发市场热议。
+此前，美国最高法院推翻特朗普根据《国际紧急经济权力法》（IEEPA）征收的关税后，特朗普于2月份根据第122条征收关税。
 
-如今，该行一口气补位三位副行长，在扭转现状的同时，也体现出“本土派”和“空降派”并用的用人思路——罗妙娟、盛丽丹为本土系干部、黄斐则由萧山农商行引入。
+但5月份，美国国际贸易法院一个意见不一的合议庭裁定，特朗普根据第122条征收的关税同样无效，由此引发新一轮上诉，案件很可能再次诉至最高法院。
 
-纪委书记转任、业务干将擢升与人力资源专家空降 作为瑞丰银行高层动荡下的新亮相“面孔”，三位副行长则具备鲜明的职业发展路径。
-
-作为资历最深的女将罗妙娟，在深耕上虞农信系统后，来到瑞丰银行期间担任纪委书记、监事长等职，如今她转身成为该行副行长；盛丽丹则属于行内深耕派，从原绍兴县农村合作银行（瑞丰银行前身）基层综合柜员起步，逐渐晋升至业务一把手，如今跨进总行高层序列；而作为本次的空降派黄斐，此前任职于萧山农商行，具备鲜明的人力资源发展印记，如今成为瑞丰银行核心高管之一。
-
-图片系瑞丰银行新任副行长 罗妙娟 进一步来看，罗妙娟为1976年生人，本科学历，中共党员，高级会计师。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 00:39 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 00:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 00:45 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 00:45 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 00:55 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 00:40 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 00:49 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 00:45 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 00:54 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 00:42 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 00:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 00:47 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 01:05 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 01:07 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 01:10 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 01:02 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 00:57 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 01:05 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 00:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 00:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 00:51 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 01:03 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 00:48 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 00:50 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:44 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/7396529.shtml)
-- 2026-06-30 00:48 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/291663.shtml)
-- 2026-06-30 00:54 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/64166196.shtml)
-- 2026-06-30 00:36 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/3769570591.shtml)
-- 2026-06-30 00:50 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/37379.shtml)
-- 2026-06-30 01:00 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/896871.shtml)
-- 2026-06-30 00:48 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/0694094.shtml)
-- 2026-06-30 01:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/5045190778.shtml)
-- 2026-06-30 01:05 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/96580.shtml)
-- 2026-06-30 01:05 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/219186.shtml)
-- 2026-06-30 01:00 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/73769.shtml)
-- 2026-06-30 00:46 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/1260399.shtml)
-- 2026-06-30 01:05 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/24107778.shtml)
-- 2026-06-30 00:49 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/50183263412.shtml)
-- 2026-06-30 01:03 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/3973759067.shtml)
+- 2026-06-30 00:49 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/521306.shtml)
+- 2026-06-30 01:01 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/49527713.shtml)
+- 2026-06-30 00:53 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/0376877.shtml)
+- 2026-06-30 00:43 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/7943169.shtml)
+- 2026-06-30 01:09 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/265496313.shtml)
+- 2026-06-30 00:48 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/70100804.shtml)
+- 2026-06-30 00:59 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/91272.shtml)
+- 2026-06-30 00:53 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/65269862348.shtml)
+- 2026-06-30 00:51 - [恋与深空致歉](https://www.share.minike.top/Article/details/64924.shtml)
+- 2026-06-30 00:52 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/367722743650.shtml)
+- 2026-06-30 00:57 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/0372976.shtml)
+- 2026-06-30 01:00 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/33350535.shtml)
+- 2026-06-30 00:44 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/43167185.shtml)
+- 2026-06-30 01:03 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/29282583523.shtml)
+- 2026-06-30 00:51 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/662086042974.shtml)

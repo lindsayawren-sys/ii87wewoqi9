@@ -1,57 +1,59 @@
-# 福建10家国家级台创园与高校签约 深化闽台农业融合发展
+# 【深度报告】印尼资源民族主义浪潮下的商品研究
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网福州5月20日电 (郑江洛)20日，以“科技赋能两岸融合·智汇共促乡村振兴”为主题的“全省国家级台湾农民创业园产业技术服务大会”在福建福州举行。福建省农业农村厅、福建省台办、福建省14家国家级台湾农民创业园及数十家在闽台资企业代表共商两岸农业融合发展新路径。会上，福清台湾农民创业园、惠安台湾农民创业园等10家国家级台湾农民创业园和福建农林大学签署《闽台产业与人才融合发展合
+作者 | 中信建投期货研究发展部研究员：田亚雄 期货交易咨询业务资格：证监许可〔2011〕1461号本报告完成时间 | 2026年6月12日 全球资源民族主义浪潮 全球资源民族主义：一股结构性浪潮，地缘博弈升级与绿色转型需求叠加，驱动中小资源国系统性重构关键矿产控制权。这场浪潮并非偶发，而是具备清晰的内生动因与历史延续性。 在地缘博弈升级、贸易保护抬头的大环境下，中小经济体政策
 
 ## 正文
 
-中新网福州5月20日电 (郑江洛)20日，以“科技赋能两岸融合·智汇共促乡村振兴”为主题的“全省国家级台湾农民创业园产业技术服务大会”在福建福州举行。
+作者 | 中信建投期货研究发展部研究员：田亚雄 期货交易咨询业务资格：证监许可〔2011〕1461号本报告完成时间 | 2026年6月12日 全球资源民族主义浪潮 全球资源民族主义：一股结构性浪潮，地缘博弈升级与绿色转型需求叠加，驱动中小资源国系统性重构关键矿产控制权。
 
-福建省农业农村厅、福建省台办、福建省14家国家级台湾农民创业园及数十家在闽台资企业代表共商两岸农业融合发展新路径。
+这场浪潮并非偶发，而是具备清晰的内生动因与历史延续性。
 
-会上，福清台湾农民创业园、惠安台湾农民创业园等10家国家级台湾农民创业园和福建农林大学签署《闽台产业与人才融合发展合作备忘录》。
+在地缘博弈升级、贸易保护抬头的大环境下，中小经济体政策选择空间受限，普遍依托关键矿产、新能源等核心品类谋求在全球产业链里提升收益分成。
 
-同时，“闽台柑橘新品种选育”“咖啡种质资源收集及筛选”“凤梨绿色栽培与深加工技术”“嘉宝果安全保鲜物流新技术研发与产业应用”等4个校企具体项目合作协议同步签署。
+资源民族主义的兴起具备内生动因，预计未来5—10年该趋势仍将延续。
 
-现场还发布《两岸产业与人才合作共同倡议书》，提出五大行动倡议。
+地缘博弈升级与绿色转型需求叠加，驱动中小资源国系统性重构关键矿产控制权。
 
-福建农林大学党委书记赖海榕通过视频致辞表示，学校已与118家台企开展产学研合作，将以此次大会为契机，推动更多闽台农业新品种、新技术、新装备在田间地头转化应用。
+这场浪潮并非偶发，而是具备清晰的内生动因与历史延续性。
 
-据介绍，学校将持续开放重点实验室、种质资源库等科研平台，推动台湾教师科研成果与台创园企业需求精准匹配，为深化两岸农业融合发展、推进乡村全面振兴贡献科技与人才支撑。
+资源民族主义并非新鲜议题，但本轮浪潮呈现出三个有别于历史的新特征： 第一，锂、钴、镍、铜等战略金属成为新焦点——彼时争夺的是石油，此刻争夺的是能源转型所需的“电池元素”； 第二，政策工具更加系统化，从单一出口禁令演进为涵盖出口管控、强制本地加工、股权稀释与国家特许权使用费的一揽子体系； 第三，各国政策形成示范效应，印尼的矿石禁令被赞比亚、津巴布韦、刚果金相继模仿，拉美锂三角国家（阿根廷、玻利维亚、智利）也在同步推进国有化进程。
 
-此次大会旨在深化闽台农业交流合作，助力海峡两岸融合发展示范区建设，为乡村全面振兴注入科技与人才动能。
+在地缘博弈升级、贸易保护抬头的大环境下，中小经济体政策选择空间受限，普遍依托关键矿产、新能源等核心品类谋求在全球产业链里提升收益分成。
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 00:40 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 00:57 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 00:51 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 01:03 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 00:37 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 01:03 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 00:45 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 01:05 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 00:40 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 00:44 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 00:54 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 00:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 01:00 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 00:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 00:43 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 00:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 01:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 00:47 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 00:42 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 00:51 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 01:11 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 01:04 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 00:54 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:39 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/1929347398.shtml)
-- 2026-06-30 01:02 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/86880159.shtml)
-- 2026-06-30 00:58 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/251922369.shtml)
-- 2026-06-30 00:40 - [新官上任三把火](https://www.blog.minike.top/Article/details/29427524803.shtml)
-- 2026-06-30 00:58 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/491537.shtml)
-- 2026-06-30 00:38 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/39771.shtml)
-- 2026-06-30 01:03 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/8155592.shtml)
-- 2026-06-30 01:00 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/945258585.shtml)
-- 2026-06-30 00:57 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/6049195128.shtml)
-- 2026-06-30 00:46 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/18714377188.shtml)
-- 2026-06-30 00:44 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/75620513396.shtml)
-- 2026-06-30 00:45 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/333882.shtml)
-- 2026-06-30 00:45 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/904303424.shtml)
-- 2026-06-30 00:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/508742.shtml)
-- 2026-06-30 00:52 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/252879064382.shtml)
+- 2026-06-30 01:07 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/436612.shtml)
+- 2026-06-30 00:58 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/25542.shtml)
+- 2026-06-30 01:03 - [小娘惹](https://www.blog.minike.top/Article/details/83677.shtml)
+- 2026-06-30 00:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/44075305.shtml)
+- 2026-06-30 00:59 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/24092749477.shtml)
+- 2026-06-30 00:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/626278.shtml)
+- 2026-06-30 00:52 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/08165.shtml)
+- 2026-06-30 00:50 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/37489635.shtml)
+- 2026-06-30 00:42 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/75553263277.shtml)
+- 2026-06-30 00:45 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/28399.shtml)
+- 2026-06-30 01:11 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/273153517.shtml)
+- 2026-06-30 01:09 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/035674284.shtml)
+- 2026-06-30 00:54 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/1241456416.shtml)
+- 2026-06-30 01:09 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/1385116055.shtml)
+- 2026-06-30 01:02 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/5206992.shtml)

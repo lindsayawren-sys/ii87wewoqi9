@@ -1,54 +1,56 @@
-# 港股中资券商股集体走高，招商证券涨超6%
+# 科创板改革“1+6”政策措施发布以来 科创板IPO新增受理59家
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-港股中资券商股集体走高，招商证券涨超6%，广发证券涨近6%，中州证券涨超5%，中信建投证券、东方证券、中信证券、国泰海通、国联民生、中国银河、中金公司等涨超4%。 个股消息面上，长鑫科技招股书显示，招商证券、华安证券、中信建投、中金公司四家券商间接持股；按长鑫科技3万亿估值测算测算，招商浮盈近200亿元，华安超百亿元，两家券商净利润将获大幅增厚；这笔股权投资带来的业绩增益，有望
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！人民财讯6月12日电，中国证监会上海监管局副局长赵国富在6月12日举行的上海市新闻发布会上表示，一年来，中国证监会会同各方深入落实科创板改革“1+6”政策措施，推动相关创新制度和示范性案例渐次落地，改革效应逐步显现。政策发布一年来，科创板IPO新增受理59家，同比大幅增长，其中未盈利企业24家，数量占比超4
 
 ## 正文
 
-港股中资券商股集体走高，招商证券涨超6%，广发证券涨近6%，中州证券涨超5%，中信建投证券、东方证券、中信证券、国泰海通、国联民生、中国银河、中金公司等涨超4%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-个股消息面上，长鑫科技招股书显示，招商证券、华安证券、中信建投、中金公司四家券商间接持股；按长鑫科技3万亿估值测算测算，招商浮盈近200亿元，华安超百亿元，两家券商净利润将获大幅增厚；这笔股权投资带来的业绩增益，有望推动招商证券跻身券商业绩前三、华安证券冲进行业前十。
+人民财讯6月12日电，中国证监会上海监管局副局长赵国富在6月12日举行的上海市新闻发布会上表示，一年来，中国证监会会同各方深入落实科创板改革“1+6”政策措施，推动相关创新制度和示范性案例渐次落地，改革效应逐步显现。
 
-开源证券认为，头部券商10倍PE历史底部，价值凸显，左侧超额开启。
+政策发布一年来，科创板IPO新增受理59家，同比大幅增长，其中未盈利企业24家，数量占比超4成。
 
-中证金减持、再融资担忧、风格极致和美伊战争是2025Q3以来券商超额承压主因，头部券商P/E再次回到10倍历史大底，超额收益回到924之前水平。
+稳步重启未盈利企业适用第五套标准上市，目前已新增受理9家。
 
-估值见底，左侧布局阶段来临，超额收益开启。
+发布商业火箭企业适用指引，扩大第五套标准覆盖面。
 
-责任编辑：郝欣煜
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 01:05 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 00:50 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 00:43 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 00:56 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 00:54 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 00:54 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 00:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 00:36 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 00:53 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 00:55 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 00:39 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 00:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 00:59 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 01:08 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 00:55 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 01:02 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 01:10 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 01:11 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 00:59 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 00:50 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 01:00 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 00:53 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 00:58 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 01:04 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 01:03 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 01:00 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:42 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/339699852656.shtml)
-- 2026-06-30 01:02 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/9207974.shtml)
-- 2026-06-30 00:52 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/29764038.shtml)
-- 2026-06-30 01:02 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/80408.shtml)
-- 2026-06-30 00:52 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/901933969.shtml)
-- 2026-06-30 00:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/9027186607.shtml)
-- 2026-06-30 01:03 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/957406362.shtml)
-- 2026-06-30 00:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/7291619.shtml)
-- 2026-06-30 00:39 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/31637094814.shtml)
-- 2026-06-30 00:44 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/5396473796.shtml)
-- 2026-06-30 00:55 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/09944800995.shtml)
-- 2026-06-30 00:39 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/52438.shtml)
-- 2026-06-30 01:01 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/459036195278.shtml)
-- 2026-06-30 00:51 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/781087371.shtml)
-- 2026-06-30 00:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/267611784926.shtml)
+- 2026-06-30 01:08 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/882620.shtml)
+- 2026-06-30 00:47 - [恋与深空 巧合](http://www.share.minike.top/Article/details/2405654782.shtml)
+- 2026-06-30 00:48 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/031911268.shtml)
+- 2026-06-30 00:58 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/72794184.shtml)
+- 2026-06-30 00:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/737083129.shtml)
+- 2026-06-30 00:57 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/24751.shtml)
+- 2026-06-30 00:55 - [毒液2](https://www.blog.kurohicncr.top/Article/details/327143527102.shtml)
+- 2026-06-30 01:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/694933.shtml)
+- 2026-06-30 00:51 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/04404917630.shtml)
+- 2026-06-30 01:02 - [一生一世](https://www.share.kurohicncr.top/Article/details/726362.shtml)
+- 2026-06-30 00:55 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/00917278.shtml)
+- 2026-06-30 01:04 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/850661099.shtml)
+- 2026-06-30 01:02 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/064925235999.shtml)
+- 2026-06-30 00:46 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/769349.shtml)
+- 2026-06-30 00:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/8667606.shtml)

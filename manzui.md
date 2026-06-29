@@ -1,58 +1,43 @@
-# 广西都柳江及防城河出现超警洪水
+# 端午将至 江西南昌：多支龙舟队备战龙舟赛 赛场筹备就绪
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月21日电(陈秋霞 周也茹)广西壮族自治区水文中心21日提供的信息显示，5月20日8时至21日8时，据水文部门监测，防城港、钦州、贺州、桂林、贵港、南宁、来宾及柳州等市部分地区降大到暴雨，局部大暴雨到特大暴雨，日雨量较大的有防城港市防城区扶隆镇283.5毫米、钦州市钦北区大直镇190.5毫米。受强降雨影响，柳江干支流、桂江干支流、西江干流及桂南沿海部分江河等出现1米
+发布时间：2026年06月11日 21:02 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网南宁5月21日电(陈秋霞 周也茹)广西壮族自治区水文中心21日提供的信息显示，5月20日8时至21日8时，据水文部门监测，防城港、钦州、贺州、桂林、贵港、南宁、来宾及柳州等市部分地区降大到暴雨，局部大暴雨到特大暴雨，日雨量较大的有防城港市防城区扶隆镇283.5毫米、钦州市钦北区大直镇190.5毫米。
-
-受强降雨影响，柳江干支流、桂江干支流、西江干流及桂南沿海部分江河等出现1米至6米的涨水过程，都柳江及防城河等2条河流2个水文站出现超警0.38米至2.22米的洪水。
-
-21日8时，防城河防城区大菉镇河段水位超警0.38米，仍在上涨中；其余江河水位均在警戒以下。
-
-柳江柳州水文站水位80.56米(警戒水位82.5米)，流量12200立方米每秒，缓慢上涨。
-
-广西水文中心预测，未来24小时，西江干流、柳江下游、浔江、桂江中下游、防城河、茅岭江、左江上游及贺江中上游等江河继续上涨1米至4米，其中防城河防城港市防城区河段(警戒水位5.5米)将出现警戒水位左右的洪水。
-
-桂林、贺州、梧州、防城港及钦州等市部分中小河流可能出现警戒水位左右洪水。
-
-(完)
+发布时间：2026年06月11日 21:02 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 00:36 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 00:50 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 00:42 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 00:56 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 00:37 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 00:47 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 00:41 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 00:55 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 00:48 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 00:45 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 00:52 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 00:50 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 00:45 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 01:00 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 00:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 01:10 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 00:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 00:48 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 00:43 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 01:03 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 01:10 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 00:43 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 01:10 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 00:57 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/1647288.shtml)
-- 2026-06-30 00:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/030553430919.shtml)
-- 2026-06-30 00:41 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/19490.shtml)
-- 2026-06-30 00:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/080627.shtml)
-- 2026-06-30 00:51 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/33595560852.shtml)
-- 2026-06-30 00:40 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/056526.shtml)
-- 2026-06-30 00:58 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/5111924.shtml)
-- 2026-06-30 00:51 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/49304848336.shtml)
-- 2026-06-30 01:03 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/24641813234.shtml)
-- 2026-06-30 00:40 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/919170091.shtml)
-- 2026-06-30 00:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/75927.shtml)
-- 2026-06-30 00:58 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/47317320.shtml)
-- 2026-06-30 00:58 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/43245016011.shtml)
-- 2026-06-30 00:47 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/08427579454.shtml)
-- 2026-06-30 01:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/859332.shtml)
+- 2026-06-30 01:05 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/45672.shtml)
+- 2026-06-30 00:50 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/169385875978.shtml)
+- 2026-06-30 00:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/852929997154.shtml)
+- 2026-06-30 00:46 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/24936773859.shtml)
+- 2026-06-30 00:58 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/3924764776.shtml)
+- 2026-06-30 00:57 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/5511791762.shtml)
+- 2026-06-30 00:55 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/249023588.shtml)
+- 2026-06-30 00:58 - [世界杯](http://www.share.kurohicncr.top/Article/details/13459784392.shtml)
+- 2026-06-30 00:49 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/910511523872.shtml)
+- 2026-06-30 00:47 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/31276565.shtml)
+- 2026-06-30 01:11 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/0755765.shtml)
+- 2026-06-30 00:52 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/026730.shtml)
+- 2026-06-30 00:49 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/725780143.shtml)
+- 2026-06-30 00:59 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/341933.shtml)
+- 2026-06-30 01:08 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/1370749.shtml)

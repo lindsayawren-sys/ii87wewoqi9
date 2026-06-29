@@ -1,54 +1,56 @@
-# 2026年度“暖途”行动启动：预计服务货车和出租汽车司机超630万人次
+# 6月12日外盘头条：特朗普取消原定对伊朗的军事打击 并称很快签署协议 SpaceX创下史上最大规模IPO
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网北京5月21日电 (记者 余湛奕)“暖途·货车司机、出租汽车司机职业发展与保障行动”推进会暨2026年度“暖途”行动启动仪式21日在京举行。本年度行动共确定32个执行项目，预计可直接服务货车司机、出租汽车司机630万人次以上。 启动仪式发布了2025年度“暖途”行动执行情况。2025年，29个公益项目累计投入公益资金5600万元，直接服务司机570万人次，其中“护航”项目
+全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、中东局势峰回路转 特朗普取消原定对伊朗的军事打击 2、特朗普与以色列总理内塔尼亚胡讨论了关于伊朗的初步谅解备忘录 3、SpaceX确定发行价 募资750亿美元创史上最大IPO 4、甲骨文拟大幅追加融资、现金流承压，股价暴跌11% 5、欧洲央行官员认为下一次加息最早可能在7月进行 6、沃什政策首秀在即 Pimco称市场关注其如何
 
 ## 正文
 
-中新网北京5月21日电 (记者 余湛奕)“暖途·货车司机、出租汽车司机职业发展与保障行动”推进会暨2026年度“暖途”行动启动仪式21日在京举行。
+全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、中东局势峰回路转 特朗普取消原定对伊朗的军事打击 2、特朗普与以色列总理内塔尼亚胡讨论了关于伊朗的初步谅解备忘录 3、SpaceX确定发行价 募资750亿美元创史上最大IPO 4、甲骨文拟大幅追加融资、现金流承压，股价暴跌11% 5、欧洲央行官员认为下一次加息最早可能在7月进行 6、沃什政策首秀在即 Pimco称市场关注其如何为美联储打上自身印记 中东局势峰回路转 特朗普取消原定对伊朗的军事打击 特朗普表示取消了原定对伊朗的军事打击计划，这堪称惊人转折——就在数小时前，他还发誓言要“狠狠”打击伊朗，并威胁要夺取其石油基础设施。
 
-本年度行动共确定32个执行项目，预计可直接服务货车司机、出租汽车司机630万人次以上。
+特朗普周四表示，与德黑兰的谈判“已经提交至伊朗最高领导层”。
 
-启动仪式发布了2025年度“暖途”行动执行情况。
+他称“协议签署的时间和地点将很快公布”，但未提供更多细节。
 
-2025年，29个公益项目累计投入公益资金5600万元，直接服务司机570万人次，其中“护航”项目为39名运输途中意外身故货车司机的家属提供慰问金123万元。
+特朗普在社交媒体上发帖表示，“我作为美利坚合众国总统，已取消原定于今晚针对伊朗的打击和轰炸行动。
 
-据悉，“暖途”行动由中国海员建设工会、中国物流与采购联合会、中国道路运输协会、中国交通运输协会、中国出租汽车暨汽车租赁协会、中国职工发展基金会联合发起，于2020年底正式启动，旨在鼓励引导行业组织和爱心企业履行社会责任，整合社会公益资源，为广大司机提供互助帮扶、保险保障、法律援助、安全培训等公益服务，5年来，已累计推出公益项目89个，吸纳公益资金1.73亿元，服务司机近2000万人次。
+” 特朗普与以色列总理内塔尼亚胡讨论了关于伊朗的初步谅解备忘录 以色列总理办公室在X平台发帖称，美国总统特朗普和以色列总理内塔尼亚胡讨论了有望达成的伊朗谅解备忘录，该备忘录旨在启动谈判。
 
-(完)
+以色列不是该谅解备忘录的一方。
+
+内塔尼亚胡感谢特朗普承诺确保最终协议包括“移除浓缩核材料、拆除伊朗浓缩基础设施、限制导弹生产，以及结束伊朗对该地区代理恐怖组织的支持”。
+
+SpaceX确定发行价 募资750亿美元创史上最大IPO SpaceX创下史上最大规模IPO，一举跻身全球市值最高上市公司行列，并使创始人埃隆·马斯克距离成为全球首位万亿美元富豪更近一步。
 
 ## 相关推荐
 
-- 2026-06-30 00:46 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 00:36 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 00:54 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 00:47 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 01:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 00:38 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 01:00 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 01:00 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 00:41 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 01:00 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 00:36 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 00:54 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 01:00 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 00:48 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 01:09 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 01:01 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 00:55 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 00:58 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 00:43 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 01:11 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 00:44 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 01:06 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/493996984766.shtml)
-- 2026-06-30 00:49 - [女心理师](https://www.blog.minike.top/Article/details/4846910510.shtml)
-- 2026-06-30 00:50 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/723961.shtml)
-- 2026-06-30 00:37 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/2032132.shtml)
-- 2026-06-30 00:46 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/1096780.shtml)
-- 2026-06-30 00:39 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/749833.shtml)
-- 2026-06-30 01:04 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/7859999.shtml)
-- 2026-06-30 00:36 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/639268279.shtml)
-- 2026-06-30 00:49 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/1394134.shtml)
-- 2026-06-30 00:42 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/372656.shtml)
-- 2026-06-30 00:54 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/637314179909.shtml)
-- 2026-06-30 00:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/57826349236.shtml)
-- 2026-06-30 00:47 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/915019277609.shtml)
-- 2026-06-30 00:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/012148878.shtml)
-- 2026-06-30 00:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/77039.shtml)
+- 2026-06-30 01:01 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/80387942.shtml)
+- 2026-06-30 01:09 - [毒液2](http://www.blog.minike.top/Article/details/445061795490.shtml)
+- 2026-06-30 00:43 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/23207.shtml)
+- 2026-06-30 01:03 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/12726363.shtml)
+- 2026-06-30 00:48 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/017954983727.shtml)
+- 2026-06-30 00:45 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/30625492.shtml)
+- 2026-06-30 01:04 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/6095403250.shtml)
+- 2026-06-30 00:53 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/5374822.shtml)
+- 2026-06-30 00:53 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/316527156385.shtml)
+- 2026-06-30 01:02 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/42934662.shtml)
+- 2026-06-30 00:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/56359030525.shtml)
+- 2026-06-30 00:48 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/84352.shtml)
+- 2026-06-30 00:58 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/0883469138.shtml)
+- 2026-06-30 00:43 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/9791259210.shtml)
+- 2026-06-30 00:54 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/8763845.shtml)

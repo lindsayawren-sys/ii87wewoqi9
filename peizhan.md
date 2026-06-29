@@ -1,57 +1,56 @@
-# 中国·新疆第十八届环赛里木湖（国际）公路自行车赛在精河县发车
+# 泰凌医药2025年报被出具“不发表意见”后 续聘大华决议遭96.62%高票否决 AI医疗故事尚未贡献一分钱收入
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网新疆精河5月20日电 (张艺严)5月20日，中国·新疆第十八届环赛里木湖(国际)公路自行车赛暨中国自行车运动骑游大会(简称“环湖赛”)在精河县开幕。 当日，随着一声鸣笛，环湖赛第一赛段精河县至阿拉山口市赛段开赛。最终，美利达诺飞客车队车手巫帛宏发挥出色，夺得第一赛段冠军，独揽蓝、绿、黄三衫。 在发车仪式期间，现场文艺展演接续上演，歌曲《博州很燃》、舞蹈《鼓舞东方》等节目为
+2026年6月4日，港股泰凌医药（01011.HK）召开股东周年大会，一项看似常规的“重新委任核数师”的决议案引发轩然大波。最终投票结果显示，关于重新委任大华马施云会计师事务所有限公司为公司核数师的第3项普通决议案，赞成票仅为7，253，850股（占比3.38%），反对票高达207，054，239股（占比96.62%），以大比例被否决。这是泰凌医药近年最激烈的一次“以票否决”式
 
 ## 正文
 
-中新网新疆精河5月20日电 (张艺严)5月20日，中国·新疆第十八届环赛里木湖(国际)公路自行车赛暨中国自行车运动骑游大会(简称“环湖赛”)在精河县开幕。
+2026年6月4日，港股泰凌医药（01011.HK）召开股东周年大会，一项看似常规的“重新委任核数师”的决议案引发轩然大波。
 
-当日，随着一声鸣笛，环湖赛第一赛段精河县至阿拉山口市赛段开赛。
+最终投票结果显示，关于重新委任大华马施云会计师事务所有限公司为公司核数师的第3项普通决议案，赞成票仅为7，253，850股（占比3.38%），反对票高达207，054，239股（占比96.62%），以大比例被否决。
 
-最终，美利达诺飞客车队车手巫帛宏发挥出色，夺得第一赛段冠军，独揽蓝、绿、黄三衫。
+这是泰凌医药近年最激烈的一次“以票否决”式治理事件。
 
-在发车仪式期间，现场文艺展演接续上演，歌曲《博州很燃》、舞蹈《鼓舞东方》等节目为在场观众和车手奉上精彩的视听盛宴。
+大华马施云会计师事务所有限公司已自股东周年大会结束时起退任公司核数师。
 
-此外，全国首部援疆主题短剧《爱在博尔塔拉》的本土参演演员也受邀登台，分享拍摄历程与幕后点滴。
+“股东罢审”：96.62%反对的罕见票决 股东大会当日，投票权涉及已发行股份总数948，997，694股，其他常规议程——包括采纳经审核财务报表、重选董事、发行及购回股份授权等——均以100%赞成票无条件通过。
 
-新疆体育局党组副书记、局长阿尔特在开幕式上称，环湖赛已从地方赛事成长为全国知名、面向国际的品牌赛事，是新疆体育事业发展的标志性工程。
+唯独重新委任核数师议案遭遇了股东集中的“用脚投票”，显示出投资者对当前审计机构已失去基本信任。
 
-多年来，赛事有效促进体育与文旅融合升级、提升区域影响力，更成为促进各民族交往交流交融、向国内外展示新疆开放包容、团结奋进良好形象的重要窗口。
+“不发表意见”：审计意见为何成为压死信任的最后一根稻草？
 
-本次赛事共吸引国内外26支参赛队伍、160余名(含领队)选手同场竞技。
+在股东否决核数师之前，审计报告本身已是悬在公司头顶的“达摩克利斯之剑”。
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 00:52 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 00:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 00:44 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 00:58 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 01:01 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 01:02 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 00:38 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 01:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 00:43 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 00:47 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 01:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 01:02 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 00:58 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 00:48 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 01:07 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 00:44 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 01:10 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 00:59 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 00:47 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-30 00:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [扫黑风暴](https://www.share.minike.top/Article/details/126923.shtml)
-- 2026-06-30 00:45 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/86453348582.shtml)
-- 2026-06-30 00:57 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/80489.shtml)
-- 2026-06-30 00:40 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/617620.shtml)
-- 2026-06-30 00:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/689656.shtml)
-- 2026-06-30 00:38 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/502663512.shtml)
-- 2026-06-30 00:53 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/913566214075.shtml)
-- 2026-06-30 00:48 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/295100.shtml)
-- 2026-06-30 01:05 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/74740.shtml)
-- 2026-06-30 00:51 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/8523371.shtml)
-- 2026-06-30 01:03 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/43061126.shtml)
-- 2026-06-30 00:45 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/549281858.shtml)
-- 2026-06-30 00:46 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/3950387.shtml)
-- 2026-06-30 01:04 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/21924340.shtml)
-- 2026-06-30 00:41 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/904131199.shtml)
+- 2026-06-30 01:03 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/37673141.shtml)
+- 2026-06-30 00:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/70274.shtml)
+- 2026-06-30 00:52 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/8439863.shtml)
+- 2026-06-30 00:51 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/197482956.shtml)
+- 2026-06-30 00:50 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/0592913.shtml)
+- 2026-06-30 01:00 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/023372.shtml)
+- 2026-06-30 00:49 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/0533068154.shtml)
+- 2026-06-30 01:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/08074.shtml)
+- 2026-06-30 00:58 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/657823460320.shtml)
+- 2026-06-30 00:44 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/266783770.shtml)
+- 2026-06-30 00:52 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/583264671.shtml)
+- 2026-06-30 00:45 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/25634.shtml)
+- 2026-06-30 01:07 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/155261619.shtml)
+- 2026-06-30 01:00 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/28206.shtml)
+- 2026-06-30 01:01 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/354253232075.shtml)

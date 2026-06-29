@@ -1,59 +1,59 @@
-# 万物生灵润泽绿美广东 生物多样性“家底”日益丰厚
+# 美国5月CPI大幅降温，通胀压力显著缓释！华宝基金有色ETF（159876）盘中涨超2.5%，海亮股份等3股涨停！
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网广州5月21日电 题：万物生灵润泽绿美广东 生物多样性“家底”日益丰厚 作者 程景伟 林荫 作为全国生物多样性最丰富的省份之一，广东目前记录陆生脊椎野生动物1052种、野生高等植物6658种，是全球生物多样性保护的关键热点区域之一。 近年来，广东以绿美广东生态建设为总牵引，在生态系统保护、珍稀物种拯救、植物迁地保护、自然教育普及等领域创新突破，生物多样性保护水平稳步提升。
+今日（6月11日）有色金属板块领涨全市场，博威合金、海亮股份、金钼股份3股涨停，云南锗业、厦门钨业、湖南黄金等个股大幅跟涨，同标的指数规模最大*的有色ETF华宝（159876）快速冲高，场内价格现涨2.53%，盘中收复5日均线，冲击日线3连阳！ 消息面上，美国5月CPI季调环比上涨0.5%，同比上涨4.2%，涨幅为2023年以来最高水平；核心CPI环比上涨0.2%，同比上涨2.
 
 ## 正文
 
-中新网广州5月21日电 题：万物生灵润泽绿美广东 生物多样性“家底”日益丰厚 作者 程景伟 林荫 作为全国生物多样性最丰富的省份之一，广东目前记录陆生脊椎野生动物1052种、野生高等植物6658种，是全球生物多样性保护的关键热点区域之一。
+今日（6月11日）有色金属板块领涨全市场，博威合金、海亮股份、金钼股份3股涨停，云南锗业、厦门钨业、湖南黄金等个股大幅跟涨，同标的指数规模最大*的有色ETF华宝（159876）快速冲高，场内价格现涨2.53%，盘中收复5日均线，冲击日线3连阳！
 
-近年来，广东以绿美广东生态建设为总牵引，在生态系统保护、珍稀物种拯救、植物迁地保护、自然教育普及等领域创新突破，生物多样性保护水平稳步提升。
+消息面上，美国5月CPI季调环比上涨0.5%，同比上涨4.2%，涨幅为2023年以来最高水平；核心CPI环比上涨0.2%，同比上涨2.9%。
 
-法治筑基 织密全域保护网络 广东持续推动生物多样性保护法治化、制度化发展，先后修订或出台《广东省野生动物保护管理条例》《广东省湿地保护条例》《广东省自然保护地规划(2021—2035年)》《广东省陆生野生动植物保护行动计划(2023—2030年)》《广东省植物迁地保护体系建设规划(2024—2035年)》等法规规章与政策文件，搭建起覆盖全面、衔接紧密、特色鲜明的野生动植物保护制度体系。
+本次通胀上行主要由能源分项推动，汽油、燃油领涨，机票、快递服务等传导效应继续显现，但未广泛扩散。
 
-在生态空间布局方面，广东加快构建以国家公园为主体、自然保护区为基础、各类自然公园为补充的自然保护地体系，推动保护范围基本覆盖全省重要野生动植物生境和典型生态系统。
+核心通胀整体温和，汽车等对油价敏感领域的需求受到挤压，房租涨幅亦明显收窄。
 
-值得关注的是，广东在全国率先提出并落地“国家—区域—乡土”三级植物迁地保护体系，以华南国家植物园为核心引领，区域植物园为骨干支撑，乡土植物园为特色补充，形成层级清晰、功能互补、全域覆盖的植物保护网络。
+中金公司维持美联储年内不降息、不加息的基准判断。
 
-截至目前，全省纳入植物迁地保护体系的机构42家，分布于18个地市，植物迁地保护体系进一步完善。
+中金认为，当前通胀仍以能源冲击等结构性因素为主，周期性通胀尚不明显，但需警惕AI资本开支扩张与就业改善带来的总需求回升风险。
 
-从南岭深山到珠江口海域，从内陆湿地到滨海滩涂，一道道生态安全屏障牢牢筑起，为各类物种营造安稳的繁衍栖息环境，实现重要生态系统的系统性、完整性保护。
+预计联储态度将保持鹰派，沃什上任后首要任务是重建政策公信力，更可能通过强化缩表预期而非暗示加息来展示决心。
 
-物种焕新 珍稀濒危种群稳步复苏 广东将珍稀濒危物种保护列为生物多样性保护重点工作，通过科学监测、迁地保护、野外回归、就地保护等精准保护举措，推动野生动植物种群持续恢复，新种、新记录种不断出现，生态向好态势凸显。
+不排除出现“缩表先行、降息推迟”的格局。
 
 ## 相关推荐
 
-- 2026-06-30 00:59 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 00:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 00:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 00:58 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 01:04 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 00:49 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 00:51 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 00:40 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 00:56 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 00:49 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 01:01 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 00:36 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 00:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 00:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 00:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 00:58 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 00:52 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 01:06 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 01:02 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 01:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 01:06 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 00:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 01:03 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 00:47 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 00:55 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 00:48 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:39 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/26397878.shtml)
-- 2026-06-30 00:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/300324734.shtml)
-- 2026-06-30 00:36 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/098373565.shtml)
-- 2026-06-30 01:02 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/916406221.shtml)
-- 2026-06-30 01:02 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/093027.shtml)
-- 2026-06-30 00:38 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/5604569.shtml)
-- 2026-06-30 00:57 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/3095384602.shtml)
-- 2026-06-30 00:46 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/18853902.shtml)
-- 2026-06-30 00:44 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/1011224.shtml)
-- 2026-06-30 01:01 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/75047.shtml)
-- 2026-06-30 00:51 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/84947795365.shtml)
-- 2026-06-30 00:52 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/834248524.shtml)
-- 2026-06-30 00:55 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/76642.shtml)
-- 2026-06-30 00:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/54984385430.shtml)
-- 2026-06-30 00:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/0907694689.shtml)
+- 2026-06-30 01:03 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/3431063.shtml)
+- 2026-06-30 01:06 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/4504875.shtml)
+- 2026-06-30 01:02 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/90421408609.shtml)
+- 2026-06-30 01:10 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/8417736855.shtml)
+- 2026-06-30 01:08 - [电影后室值得看吗](http://www.share.minike.top/Article/details/7528393.shtml)
+- 2026-06-30 00:42 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/49709485825.shtml)
+- 2026-06-30 00:45 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/144830.shtml)
+- 2026-06-30 01:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/19326336.shtml)
+- 2026-06-30 01:08 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/727679.shtml)
+- 2026-06-30 01:02 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/94281.shtml)
+- 2026-06-30 00:58 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/78761.shtml)
+- 2026-06-30 00:56 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/413913055.shtml)
+- 2026-06-30 01:11 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/659848874.shtml)
+- 2026-06-30 00:42 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/0798044969.shtml)
+- 2026-06-30 00:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/962167405589.shtml)

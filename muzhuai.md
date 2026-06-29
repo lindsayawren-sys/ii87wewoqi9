@@ -1,57 +1,57 @@
-# 英国4月通胀率降至2.8%略超预期 英镑对美元汇率微跌
+# （经济观察）金价回吐今年涨幅 市场投资分歧凸显
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-英国国家统计局20日公布的数据显示，英国4月份消费价格指数（CPI）同比涨幅降至2.8%，降幅超出市场预期。受通胀数据放缓及美元走强双重因素影响，英镑对美元汇率当日震荡微跌。 数据显示，英国4月通胀率由3月的3.3%回落至2.8%，低于经济学家普遍预期的3%。受此影响，外汇市场上英镑对美元汇率当日下跌0.07%，报1英镑兑换1.3384美元，接近上周五触及的近六周低点；欧元对英
+中新社北京6月11日电 (陶思阅)黄金市场正上演回撤行情。11日，现货黄金价格一度跌破4100美元/盎司，今年全部涨幅已被抹去；中国国内多家品牌黄金饰品价格则跌破1300元/克。 西京研究院院长赵建认为，当前黄金的阶段性熊市，是美元政策、资金流向等多重短期因素共振的结果。 首先是美元加息预期重燃，强势美元周期压制黄金估值。芝加哥商品交易所的美联储利率观测工具(FedWatch
 
 ## 正文
 
-英国国家统计局20日公布的数据显示，英国4月份消费价格指数（CPI）同比涨幅降至2.8%，降幅超出市场预期。
+中新社北京6月11日电 (陶思阅)黄金市场正上演回撤行情。
 
-受通胀数据放缓及美元走强双重因素影响，英镑对美元汇率当日震荡微跌。
+11日，现货黄金价格一度跌破4100美元/盎司，今年全部涨幅已被抹去；中国国内多家品牌黄金饰品价格则跌破1300元/克。
 
-数据显示，英国4月通胀率由3月的3.3%回落至2.8%，低于经济学家普遍预期的3%。
+西京研究院院长赵建认为，当前黄金的阶段性熊市，是美元政策、资金流向等多重短期因素共振的结果。
 
-受此影响，外汇市场上英镑对美元汇率当日下跌0.07%，报1英镑兑换1.3384美元，接近上周五触及的近六周低点；欧元对英镑汇率则微跌0.05%，报1欧元兑换86.61便士。
+首先是美元加息预期重燃，强势美元周期压制黄金估值。
 
-分析人士指出，4月通胀数据超预期降温，在一定程度上缓解了英国央行（英格兰银行）立即加息的紧迫压力。
+芝加哥商品交易所的美联储利率观测工具(FedWatch Tool)显示，预计到今年底，美联储至少加息25个基点的概率接近七成。
 
-受此预期影响，货币市场交易员已下调了对英国央行年内加息幅度的预测，目前预计到12月将累计加息约50个基点，低于此前预期的60个基点。
+一旦美联储开启加息，黄金作为无息资产，持有机会成本大幅上升。
 
-责任编辑：龙运翔
+资金流出黄金市场转向美元资产，成为金价下跌的直接导火索。
+
+其二，前期涨幅透支预期。
 
 ## 相关推荐
 
-- 2026-06-30 00:57 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 00:52 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 00:36 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 01:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 00:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 00:48 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 00:55 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 00:58 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 00:48 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 00:55 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 00:41 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 00:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 01:03 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 01:11 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 00:53 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 01:06 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 00:56 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 00:46 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 00:51 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 01:09 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 00:55 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 01:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 01:05 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 00:57 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/68851112.shtml)
-- 2026-06-30 01:01 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/979650312.shtml)
-- 2026-06-30 00:39 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/769379.shtml)
-- 2026-06-30 00:45 - [小娘惹](https://www.blog.minike.top/Article/details/512089.shtml)
-- 2026-06-30 00:51 - [第一炉香](http://www.share.kurohicncr.top/Article/details/3803036258.shtml)
-- 2026-06-30 01:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/88339401128.shtml)
-- 2026-06-30 01:00 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/8171433109.shtml)
-- 2026-06-30 00:47 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/69691253078.shtml)
-- 2026-06-30 00:53 - [时光音乐会](http://www.share.minike.top/Article/details/3003056408.shtml)
-- 2026-06-30 01:05 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/094701.shtml)
-- 2026-06-30 00:59 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/53339276716.shtml)
-- 2026-06-30 01:05 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/197487248481.shtml)
-- 2026-06-30 00:59 - [天道](https://www.blog.kurohicncr.top/Article/details/274778795.shtml)
-- 2026-06-30 00:59 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/53754626.shtml)
-- 2026-06-30 00:40 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/087746604.shtml)
+- 2026-06-30 00:54 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/285195560.shtml)
+- 2026-06-30 00:59 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/28240754922.shtml)
+- 2026-06-30 00:46 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/38615984967.shtml)
+- 2026-06-30 01:08 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/06351092437.shtml)
+- 2026-06-30 01:11 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/6814147215.shtml)
+- 2026-06-30 00:57 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/973858.shtml)
+- 2026-06-30 00:54 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/954536217082.shtml)
+- 2026-06-30 01:10 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/223355611192.shtml)
+- 2026-06-30 01:01 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/8815652558.shtml)
+- 2026-06-30 01:01 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/28642.shtml)
+- 2026-06-30 01:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/7766549.shtml)
+- 2026-06-30 00:57 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/20514517692.shtml)
+- 2026-06-30 00:42 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/825973827.shtml)
+- 2026-06-30 01:09 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/875824.shtml)
+- 2026-06-30 00:58 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/8386783.shtml)

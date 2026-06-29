@@ -1,61 +1,58 @@
-# 富兰克林新兴市场收益基金月度派息升至0.054美元
+# 宽基指数“大换血”，新调入的公司藏着什么投资线索？
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-富兰克林邓普顿于5月21日宣布，旗下Templeton Emerging Markets Income Fund将月度股息上调13.7%，从原先的每股0.0475美元提高至0.054美元，交易代码为TEI。此次上调后的年化派息率约为10.37%，将于7月至9月期间执行。 根据公告，7月份派息的除息日和登记日均为7月24日，支付日为7月31日；8月份除息日和登记日为8月24日，支
+日前，上交所与中证指数有限公司宣布将对沪深300、中证500、中证1000、中证A500、科创50等多只重要宽基指数样本进行定期调整，将于6月12日收市后正式生效；深交所与国证指数公司也同步发布了深证成指、创业板指、深证100、创业板50等指数的调整公告，并将于6月15日实施。 从调入方向看，本次宽基指数调整呈现出较为清晰的结构性特征：信息技术、通信服务、工业等行业样本数量及权
 
 ## 正文
 
-富兰克林邓普顿于5月21日宣布，旗下Templeton Emerging Markets Income Fund将月度股息上调13.7%，从原先的每股0.0475美元提高至0.054美元，交易代码为TEI。
+日前，上交所与中证指数有限公司宣布将对沪深300、中证500、中证1000、中证A500、科创50等多只重要宽基指数样本进行定期调整，将于6月12日收市后正式生效；深交所与国证指数公司也同步发布了深证成指、创业板指、深证100、创业板50等指数的调整公告，并将于6月15日实施。
 
-此次上调后的年化派息率约为10.37%，将于7月至9月期间执行。
+从调入方向看，本次宽基指数调整呈现出较为清晰的结构性特征：信息技术、通信服务、工业等行业样本数量及权重普遍上升，新能源、高端制造、半导体、光通信、先进制造等新质生产力相关领域代表性进一步增强。
 
-根据公告，7月份派息的除息日和登记日均为7月24日，支付日为7月31日；8月份除息日和登记日为8月24日，支付日为8月31日；9月份除息日和登记日为9月23日，支付日为9月30日。
+例如，华工科技、江波龙、源杰科技、德明利、炬光科技、腾景科技、阳光电源、新易盛、佰维存储、摩尔线程等公司出现在相关指数调入名单中，核心宽基指数对科技创新和产业升级方向的覆盖度持续提升。
 
-该基金是一只封闭式管理投资公司，主要投资于新兴市场国家的主权或主权相关实体及私营公司发行的收益性证券。
+举例来看，沪深300指数中信息技术、通信服务行业样本数量分别增加4只、3只，权重分别上升1.28%、0.16%，科创板及创业板样本合计权重为27.30%，科技创新属性进一步增强；科创50指数调入华虹宏力、源杰科技、摩尔线程、沐曦股份，硬科技权重再度上升；创业板指数调入以算力、半导体、光通信、锂电材料为主的10只股票，医药板块整体权重明显下降，指数产业重心更向科技赛道倾斜。
 
-基金的投资目标以获取高额当期收入为主，资本增值为辅。
+A系列指数方面，中证A50、中证A100、中证A500在本次调整后延续“行业均衡、龙头覆盖”的特征。
 
-根据基金的管理分配政策，为保持稳定的分配水平，当可分配收益不足时，基金将通过分配长期资本利得或返还本金来维持既定派息率。
+其中，信息技术、通信服务行业权重增幅居前，中证A500指数中新兴行业样本权重进一步提升至59.28%。
 
-数据显示，基金近五年按资产净值计算的平均年化总回报率为6.22%，当前按资产净值计算的分配率为8.70%。
+调整后，中证A50、中证A100和中证A500分别覆盖50个、44个、89个中证三级行业，对细分行业优质龙头的覆盖更加充分。
 
-富兰克林邓普顿表示，董事会可随时修改、终止或暂停管理分配政策，任何此类变动可能对基金股价产生不利影响。
+此次调样的重要宽基指数，易方达基本都有相应的ETF产品布局，例如沪深300ETF易方达（510310）、A500ETF易方达（159361）、创业板ETF易方达（159915）、科创50ETF易方达（588080）等。
 
 ## 相关推荐
 
-- 2026-06-30 00:50 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 00:52 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 00:46 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 00:55 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 00:58 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 01:01 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 01:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 00:48 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 00:37 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 01:05 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 00:48 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 00:37 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 00:37 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 00:58 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 00:53 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 00:46 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 00:51 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 01:00 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 01:11 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 01:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 00:44 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 00:52 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 00:58 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 00:56 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 01:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 01:11 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 00:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:00 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/73636838861.shtml)
-- 2026-06-30 00:39 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/332605.shtml)
-- 2026-06-30 00:58 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/99052.shtml)
-- 2026-06-30 00:45 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/03153686066.shtml)
-- 2026-06-30 00:50 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.kurohicncr.top/Article/details/8711274932.shtml)
-- 2026-06-30 00:57 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/7978809.shtml)
-- 2026-06-30 00:43 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/086483729933.shtml)
-- 2026-06-30 00:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/155568.shtml)
-- 2026-06-30 00:40 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/114324463030.shtml)
-- 2026-06-30 00:56 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/02169849690.shtml)
-- 2026-06-30 01:03 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/7085246.shtml)
-- 2026-06-30 00:55 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/34529118.shtml)
-- 2026-06-30 00:59 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/96874146.shtml)
-- 2026-06-30 00:43 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/8188015.shtml)
-- 2026-06-30 00:45 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/6819013341.shtml)
+- 2026-06-30 01:04 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/588610.shtml)
+- 2026-06-30 00:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/7141409.shtml)
+- 2026-06-30 01:05 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/80548.shtml)
+- 2026-06-30 00:43 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/799043406195.shtml)
+- 2026-06-30 00:54 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/735673165603.shtml)
+- 2026-06-30 01:09 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/90826590.shtml)
+- 2026-06-30 01:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/286399.shtml)
+- 2026-06-30 00:52 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/86110296769.shtml)
+- 2026-06-30 01:10 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/010580.shtml)
+- 2026-06-30 00:56 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/0846853302.shtml)
+- 2026-06-30 00:43 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/114208040.shtml)
+- 2026-06-30 00:45 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/24467884094.shtml)
+- 2026-06-30 01:08 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/42617.shtml)
+- 2026-06-30 01:00 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/0925361.shtml)
+- 2026-06-30 01:06 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/0090068.shtml)

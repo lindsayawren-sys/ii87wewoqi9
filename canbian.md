@@ -1,60 +1,60 @@
-# 受伊朗和平协议前景不明及原油库存下降影响，油价迎来反弹
+# 上海东昇聚变成立不足一年完成1亿美元A轮融资，工银资本、东方证券等集体押注 | 长三角资本局
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-周四油价小幅上涨，收复此前部分失地。投资者密切关注美伊和平谈判进展，同时供应紧张格局与美国原油库存下降也为油价提供了支撑。 格林尼治标准时间03：41，布伦特原油期货上涨78美分，涨幅0.74%，报每桶105.80美元；美国西德克萨斯轻质原油期货上涨84美分，涨幅0.85%，报每桶99.10美元。 周三，两大基准原油价格均暴跌超5.6%，创下逾一周新低。此前美国总统特朗普表示，
+文|新浪财经上海站 十里 成立不足一年完成1亿美元融资，启明、工银资本、东方证券齐聚，核聚变重新站上一级市场牌桌。 6月8日，上海东昇聚变宣布完成1亿美元A轮融资，投资方名单里同时出现了启明创投、工银资本、达晨创投、东方证券、百度风投等机构。这也是今年以来国内核聚变领域披露金额较大的融资案例之一。 在过去几年一级市场的热门叙事里，AI、机器人和半导体几乎占据了大部分注意力，而核
 
 ## 正文
 
-周四油价小幅上涨，收复此前部分失地。
+文|新浪财经上海站 十里 成立不足一年完成1亿美元融资，启明、工银资本、东方证券齐聚，核聚变重新站上一级市场牌桌。
 
-投资者密切关注美伊和平谈判进展，同时供应紧张格局与美国原油库存下降也为油价提供了支撑。
+6月8日，上海东昇聚变宣布完成1亿美元A轮融资，投资方名单里同时出现了启明创投、工银资本、达晨创投、东方证券、百度风投等机构。
 
-格林尼治标准时间03：41，布伦特原油期货上涨78美分，涨幅0.74%，报每桶105.80美元；美国西德克萨斯轻质原油期货上涨84美分，涨幅0.85%，报每桶99.10美元。
+这也是今年以来国内核聚变领域披露金额较大的融资案例之一。
 
-周三，两大基准原油价格均暴跌超5.6%，创下逾一周新低。
+在过去几年一级市场的热门叙事里，AI、机器人和半导体几乎占据了大部分注意力，而核聚变长期处于“被关注但距离商业化仍然遥远”的位置。
 
-此前美国总统特朗普表示，与伊朗的谈判已进入最后阶段，但同时威胁称，若德黑兰方面不签署和平协议，将发动进一步打击。
+如今，随着一批聚变企业接连获得融资，资本重新回到了这个曾经被认为周期漫长、投入巨大的赛道。
 
-荷兰国际集团分析师周四在报告中指出：“原油市场对伊朗相关消息依旧极度敏感，市场参与者仍对美伊谈判取得进展的报道寄予厚望。
+相比融资金额，东昇聚变的背景更值得关注。
 
-” 他们补充称：“这种情况此前已多次出现，最终都以失望告终。
+这家公司成立时间并不长，其核心团队脱胎于复旦大学聚变研究体系。
 
-”该行预测，本季度布伦特原油均价将达到每桶104美元。
+成立之初，公司便获得上海未来产业基金、上海科创集团等上海国资力量支持。
 
 ## 相关推荐
 
-- 2026-06-30 00:47 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 00:59 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 00:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 01:02 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 00:47 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 00:44 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 01:00 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 00:47 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 00:55 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 00:56 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 00:50 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 00:56 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 00:57 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 00:53 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 00:45 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 01:02 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 00:44 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 00:44 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 00:44 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 01:01 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 01:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 00:57 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 00:49 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 01:06 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 00:52 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 00:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 01:08 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 01:10 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:56 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/80917.shtml)
-- 2026-06-30 00:43 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/28030.shtml)
-- 2026-06-30 00:41 - [啊啊啊](http://www.share.minike.top/Article/details/547998510889.shtml)
-- 2026-06-30 00:56 - [小娘惹](https://www.share.minike.top/Article/details/1170322841.shtml)
-- 2026-06-30 00:53 - [绘画区你赢了](https://www.blog.minike.top/Article/details/3196755.shtml)
-- 2026-06-30 00:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/88408682133.shtml)
-- 2026-06-30 00:57 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/82993.shtml)
-- 2026-06-30 00:49 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/107937477.shtml)
-- 2026-06-30 00:36 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/1502746.shtml)
-- 2026-06-30 01:01 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/2358460988.shtml)
-- 2026-06-30 00:38 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/93503472317.shtml)
-- 2026-06-30 00:51 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/509460.shtml)
-- 2026-06-30 00:48 - [一生一世](http://www.blog.kurohicncr.top/Article/details/66572859981.shtml)
-- 2026-06-30 00:50 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/788329215711.shtml)
-- 2026-06-30 00:54 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/770649.shtml)
+- 2026-06-30 00:59 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/958823248548.shtml)
+- 2026-06-30 00:58 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/958451.shtml)
+- 2026-06-30 00:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/88995.shtml)
+- 2026-06-30 00:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/1984281554.shtml)
+- 2026-06-30 00:45 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/3291128.shtml)
+- 2026-06-30 01:00 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/97709579935.shtml)
+- 2026-06-30 01:08 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/147858692139.shtml)
+- 2026-06-30 01:05 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/03752928967.shtml)
+- 2026-06-30 00:43 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/2562087542.shtml)
+- 2026-06-30 00:52 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/9483423.shtml)
+- 2026-06-30 00:46 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/392141.shtml)
+- 2026-06-30 00:47 - [巴西vs日本](http://www.blog.minike.top/Article/details/9434778.shtml)
+- 2026-06-30 00:59 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/15294448.shtml)
+- 2026-06-30 00:51 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/025556.shtml)
+- 2026-06-30 00:45 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/52341797955.shtml)

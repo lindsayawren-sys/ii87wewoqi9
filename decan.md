@@ -1,49 +1,54 @@
-# 记者直击湖南石门洪水现场：部分房屋被冲毁 村民自发清淤救灾
+# 文化中国行·文博日历丨中国人口日，一起看看“我”在3000多年前的样子
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 00:14 来源：中国新闻网 5月20日，湖南常德，中新社记者在遭受特大洪水袭击的石门县壶瓶山镇看到，尽管流经的渫水水位已明显回落，但暴雨洪灾带来的满目疮痍依旧明显——沿岸部分居民房屋被冲毁，大量树木和杂物被冲进岸边居民屋内，大桥的护栏也被冲垮。目前，村民们正在自行清理淤泥。(杨华峰 李盈 张雪盈 制作 徐志雄) 责任编辑：【张令旗】
+今天是中国人口日 超14亿个鲜活的“我” 构成了中华民族大家庭 你可曾想过 这个每天都在说的“我”从何而来？ 又有何意义？ 今天，就一起揭开“我”的身世之谜 “我”在古代竟然是种兵器 你以为“我”只是个代词？ 在山西博物院却有件“会说话”的文物 它证实了“我”的来历 “我”的形状像一把斧 刃口呈三波曲齿状，非常尖锐 装上木柄后 “我”便可以展现惊人的威力 士兵既可以用“我”横击
 
 ## 正文
 
-发布时间：2026年05月21日 00:14 来源：中国新闻网 5月20日，湖南常德，中新社记者在遭受特大洪水袭击的石门县壶瓶山镇看到，尽管流经的渫水水位已明显回落，但暴雨洪灾带来的满目疮痍依旧明显——沿岸部分居民房屋被冲毁，大量树木和杂物被冲进岸边居民屋内，大桥的护栏也被冲垮。
+今天是中国人口日 超14亿个鲜活的“我” 构成了中华民族大家庭 你可曾想过 这个每天都在说的“我”从何而来？
 
-目前，村民们正在自行清理淤泥。
+又有何意义？
 
-(杨华峰 李盈 张雪盈 制作 徐志雄) 责任编辑：【张令旗】
+今天，就一起揭开“我”的身世之谜 “我”在古代竟然是种兵器 你以为“我”只是个代词？
+
+在山西博物院却有件“会说话”的文物 它证实了“我”的来历 “我”的形状像一把斧 刃口呈三波曲齿状，非常尖锐 装上木柄后 “我”便可以展现惊人的威力 士兵既可以用“我”横击 又可以勾、挂、扫、劈 而且木柄可长可短，灵活多变 使用起来非常“顺手” 这就是令敌人闻风丧胆的“我” 从兵器回归到“我”自己 “我”最初为什么是兵器呢？
+
+答案藏在甲骨文中 从甲骨文字形来看 “我”字从手从戈 是“割”的本字 与“伐”“战”等字长得很像 后来“我”逐渐变化成 “禾”与“戈”的合字 意思是“手持战戈的勇士” 在古代，手持戈矛的武士都是“自己人” 于是“我”逐渐引申出 “我方”“自己”的意思 在商代至战国时期 “我”是较为盛行的兵器 但随着兵器冶炼技术的发展 尤其是弩、剑、矛等 锐利兵器的大量投入使用 作为兵器的“我”在秦朝以后逐渐消失 而作为第一人称的“我”则逐渐成为主流 字音不变，沿用至今 除了“我” 古人还有哪些花式自称 现代汉语中 我们多用简洁的“我”指代自己 但在博大精深的中华传统文化中 古人用以自称的词语丰富多彩 为了表示谦虚，人们 用“薄”谦称自己的事物(薄技、薄礼) 用“鄙”称自己或自己的事物(鄙人、鄙见) 用“愚”表示对自己的谦称(愚兄、愚见) 用“家”对别人称自己家辈分高
 
 ## 相关推荐
 
-- 2026-06-30 00:40 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 00:56 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 00:49 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 00:53 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 01:03 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 00:59 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 00:58 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 00:37 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 00:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 00:55 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 00:36 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 00:48 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 00:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 00:48 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 00:50 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 01:09 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 01:01 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 00:45 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 00:46 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 00:58 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 00:59 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 00:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 01:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 01:07 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 00:58 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 00:50 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 01:11 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/77499311879.shtml)
-- 2026-06-30 01:03 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/3713968.shtml)
-- 2026-06-30 00:53 - [时光音乐会](http://www.blog.minike.top/Article/details/562796.shtml)
-- 2026-06-30 00:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/6935558.shtml)
-- 2026-06-30 00:44 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/7254006450.shtml)
-- 2026-06-30 00:51 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/85192869.shtml)
-- 2026-06-30 01:00 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/56977461961.shtml)
-- 2026-06-30 01:04 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/72897.shtml)
-- 2026-06-30 00:38 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/129443049.shtml)
-- 2026-06-30 00:49 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/18688650.shtml)
-- 2026-06-30 00:45 - [电影后室值得看吗](http://www.share.minike.top/Article/details/11550470128.shtml)
-- 2026-06-30 00:55 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/6036439121.shtml)
-- 2026-06-30 00:49 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/21619.shtml)
-- 2026-06-30 00:47 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/596103.shtml)
-- 2026-06-30 00:55 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/479200685472.shtml)
+- 2026-06-30 01:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/32943883683.shtml)
+- 2026-06-30 00:48 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/5729807.shtml)
+- 2026-06-30 01:07 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/46165409.shtml)
+- 2026-06-30 00:58 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/70993.shtml)
+- 2026-06-30 00:59 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/6751313056.shtml)
+- 2026-06-30 00:49 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/06437895.shtml)
+- 2026-06-30 00:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/09013.shtml)
+- 2026-06-30 00:45 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/8598966.shtml)
+- 2026-06-30 01:09 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/41879.shtml)
+- 2026-06-30 00:55 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/1477438.shtml)
+- 2026-06-30 00:50 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/774380887.shtml)
+- 2026-06-30 00:52 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/844054031.shtml)
+- 2026-06-30 01:05 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/472475457.shtml)
+- 2026-06-30 00:42 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/20765488.shtml)
+- 2026-06-30 00:45 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/0995314.shtml)

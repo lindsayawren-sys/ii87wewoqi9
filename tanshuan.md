@@ -1,57 +1,56 @@
-# 港股互联网下探新低，阿里巴巴发股东信：将AI+云打造成新增长动力，千问全新旗舰模型登顶
+# 通用汽车电池战略转向：富锂锰基将成未来主力，磷酸铁锂退守储能
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-5月21日，港股高开低走，三大指数集体翻绿，互联网龙头多数回调，截至发稿，阿里巴巴-W跌超3%，腾讯控股跌近2%，小米集团-W跟跌0.4%，美团-W逆市涨逾1%。港股AI核心工具——港股互联网ETF华宝（513770）场内价格现跌1.99%，再探本轮回调以来新低。 截至目前，中证港股通互联网指数当前市盈率PE（TTM）仅20.06倍，位于近10年4.3%分位点的历史底部区间，互
+通用汽车正在对其电动汽车电池技术路线进行重大调整。据通用汽车电池业务负责人透露，公司未来或将放弃在电动汽车上采用磷酸铁锂电池的计划，转而押注研发已超过十年的富锂锰基电池技术。这一路线分化，使通用汽车在降低电动车成本的道路上，选择了与特斯拉、福特等主流竞争对手不同的方向。 电池业务负责人在接受采访时明确表示，磷酸铁锂有可能无法进入公司的产品组合。他将富锂锰基电池形容为通用汽车未来
 
 ## 正文
 
-5月21日，港股高开低走，三大指数集体翻绿，互联网龙头多数回调，截至发稿，阿里巴巴-W跌超3%，腾讯控股跌近2%，小米集团-W跟跌0.4%，美团-W逆市涨逾1%。
+通用汽车正在对其电动汽车电池技术路线进行重大调整。
 
-港股AI核心工具——港股互联网ETF华宝（513770）场内价格现跌1.99%，再探本轮回调以来新低。
+据通用汽车电池业务负责人透露，公司未来或将放弃在电动汽车上采用磷酸铁锂电池的计划，转而押注研发已超过十年的富锂锰基电池技术。
 
-截至目前，中证港股通互联网指数当前市盈率PE（TTM）仅20.06倍，位于近10年4.3%分位点的历史底部区间，互联网龙头作为AI浪潮的重要参与方，估值远低于同期美股、A股云厂商估值水平。
+这一路线分化，使通用汽车在降低电动车成本的道路上，选择了与特斯拉、福特等主流竞争对手不同的方向。
 
-消息面上，阿里巴巴集团主席蔡崇信和首席执行官吴泳铭联合发布致股东信。
+电池业务负责人在接受采访时明确表示，磷酸铁锂有可能无法进入公司的产品组合。
 
-信中称，阿里AI业务已跨越初期投入阶段，正式迈入商业化回报周期。
+他将富锂锰基电池形容为通用汽车未来的主力军，并强调这才是公司将大规模采用的电池技术。
 
-阿里巴巴正在加大对全栈AI能力的投资力度：持续加大AI基础设施建设和自研芯片的投入；在模型和应用层面，将投资打造更强大的基础模型能力，吸引更多应用接入，同时打造更强大的MaaS产品，来更高效地实现模型与应用的连接。
+根据规划，通用汽车位于田纳西州的合资工厂将于本月内启动磷酸铁锂电芯的生产，但其最终用途并非电动汽车，而是转向了储能系统。
 
-在近日的阿里云峰会上，阿里发布全新一代千问旗舰模型Qwen3.7-Max，该模型在三方机构Arena全球大模型盲测总榜中，登上国产模型第一，性能接近GPT、Claude、Gemini的最强模型；同时发布基于平头哥新一代AI芯片真武M890的128卡超节点服务器，搭载自研互联芯片ICN Switch1.0，支持海量Agent并发推理，满足Agentic时代的推理与训练需求。
+通用汽车表示，富锂锰基电池在美国本土的制造成本与磷酸铁锂基本持平，但能量密度高出约33%，意味着在同等体积或重量下可储存更多电量，能为大型车辆提供更长的续航里程，公司计划将其应用于电动皮卡和全尺寸运动型多用途车。
 
-Token热潮下，以阿里巴巴为代表的互联网龙头正加速向“AI+云”科技平台转型。
+通用汽车多年来在锰基电池技术上投入巨大，目标是到2028年在美国工厂实现富锂锰基电芯的商业化量产。
 
 ## 相关推荐
 
-- 2026-06-30 00:42 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 00:59 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 00:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 00:47 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 00:47 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 01:01 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 00:48 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 00:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 00:53 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 00:56 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 00:57 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 00:51 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 00:56 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 00:46 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 00:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 00:44 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 01:01 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 00:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 00:49 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 01:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 00:42 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/7959665594.shtml)
-- 2026-06-30 00:55 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/6558458.shtml)
-- 2026-06-30 00:42 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/807367589361.shtml)
-- 2026-06-30 00:52 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/710968.shtml)
-- 2026-06-30 00:50 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/56172841.shtml)
-- 2026-06-30 00:56 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/3331084137.shtml)
-- 2026-06-30 00:46 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/02149365.shtml)
-- 2026-06-30 00:41 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/62989737.shtml)
-- 2026-06-30 00:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/86739368875.shtml)
-- 2026-06-30 00:56 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/895446527.shtml)
-- 2026-06-30 00:39 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/98258851.shtml)
-- 2026-06-30 00:46 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/86438.shtml)
-- 2026-06-30 00:52 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/29140.shtml)
-- 2026-06-30 00:40 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/08188054276.shtml)
-- 2026-06-30 01:03 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/484764.shtml)
+- 2026-06-30 01:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/60337340.shtml)
+- 2026-06-30 01:11 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/18192794755.shtml)
+- 2026-06-30 00:53 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/668456.shtml)
+- 2026-06-30 00:56 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/50706585.shtml)
+- 2026-06-30 00:51 - [毒液2](http://www.share.kurohicncr.top/Article/details/626512997.shtml)
+- 2026-06-30 01:02 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/70972.shtml)
+- 2026-06-30 01:10 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/5176659289.shtml)
+- 2026-06-30 00:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/21134217413.shtml)
+- 2026-06-30 00:44 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/144552381490.shtml)
+- 2026-06-30 00:52 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/4700957613.shtml)
+- 2026-06-30 00:49 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/956285020104.shtml)
+- 2026-06-30 00:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/97516508.shtml)
+- 2026-06-30 01:00 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/5539763910.shtml)
+- 2026-06-30 01:08 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/045420.shtml)
+- 2026-06-30 00:45 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/1262940218.shtml)

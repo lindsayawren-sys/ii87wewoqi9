@@ -1,56 +1,59 @@
-# 重庆发布“数字敬老卡” 开启智慧养老服务新阶段
+# 习近平总书记重要论述引领中国特色的向海图强之路
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:03 UTC+8
 
 ## 摘要
 
-中新网重庆5月20日电 (记者 钟旖)20日在重庆召开的2026西部地区银发经济高质量发展大会上，重庆市民政局一级巡视员徐松强对外发布“数字敬老卡”。该卡打破传统实体卡的使用局限，实现市民“一码在手，养老无忧”，标志着重庆市智慧养老服务迈入全新阶段。 据介绍，数字敬老卡是重庆老年人在“渝悦养老”应用平台唯一的电子身份凭证，以数字化、便捷化、普惠化为核心，融合身份识别、权益认证、
+6月8日是世界海洋日，今年我国主题是“守护蔚蓝 向海图强”。 党的十八大以来，习近平总书记始终把海洋事业摆在党和国家事业发展全局的重要位置，强调发展海洋经济、建设海洋强国，提高海洋开发能力，让海洋经济成为新的增长点。 从绵延万里的海岸线，到逐浪深蓝的远洋航船；从昼夜不息的现代化港口，到冰封极地的中国科学考察站——一幅具有中国特色的向海图强壮阔画卷，正在徐徐铺展。 向科技要动力
 
 ## 正文
 
-中新网重庆5月20日电 (记者 钟旖)20日在重庆召开的2026西部地区银发经济高质量发展大会上，重庆市民政局一级巡视员徐松强对外发布“数字敬老卡”。
+6月8日是世界海洋日，今年我国主题是“守护蔚蓝 向海图强”。
 
-该卡打破传统实体卡的使用局限，实现市民“一码在手，养老无忧”，标志着重庆市智慧养老服务迈入全新阶段。
+党的十八大以来，习近平总书记始终把海洋事业摆在党和国家事业发展全局的重要位置，强调发展海洋经济、建设海洋强国，提高海洋开发能力，让海洋经济成为新的增长点。
 
-据介绍，数字敬老卡是重庆老年人在“渝悦养老”应用平台唯一的电子身份凭证，以数字化、便捷化、普惠化为核心，融合身份识别、权益认证、便捷支付、补贴发放等多元功能，让老年群体告别繁琐操作、畅享智能服务。
+从绵延万里的海岸线，到逐浪深蓝的远洋航船；从昼夜不息的现代化港口，到冰封极地的中国科学考察站——一幅具有中国特色的向海图强壮阔画卷，正在徐徐铺展。
 
-具体来看，数字敬老卡具备三大核心能力： 一是福利补贴“一卡直达”。
+向科技要动力 向产业要效益 汽笛长鸣，浪花翻涌。
 
-高龄津贴、养老服务补贴、护理补贴、消费补贴等惠老资金，直接发放至数字敬老卡，确保涉老资金发放精准、高效、及时。
+5月27日，“爱达·花城号”大型邮轮历经12天11夜海上试航，缓缓驶入上海外高桥造船码头。
 
-二是身份权益“一码通享”。
+国产大型邮轮试航“一次性通关”，我国邮轮产业驶入批量建造新阶段。
 
-数字敬老卡将逐步应用于机构养老、社区养老、居家养老、就医服务、养老消费、旅居养老、长者学堂等11个场景，持续优化老年人使用体验。
+“发展海洋经济、海洋科研是推动我们强国战略很重要的一个方面”——习近平总书记的嘱托，正化作科技兴海、向海图强的现实。
 
-三是便捷支付“一码快付”。
+全球最大的大洋钻探船“梦想”号建成入列，全球首座10万吨级海上石油平台“深海一号”投入使用，“蛟龙”号与“奋斗者”号协同完成我国首次北极载人深潜，中国海洋科技的脚步，正踏浪而前、逐梦深蓝。
 
 ## 相关推荐
 
-- 2026-06-30 00:50 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 00:56 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 01:04 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 01:01 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 01:01 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 00:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 00:52 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 00:51 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 01:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 00:43 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 00:59 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 00:51 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 00:59 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 01:05 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 00:46 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 00:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 00:55 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 01:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 01:07 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 01:04 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 00:44 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 01:00 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 01:06 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:42 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/628620.shtml)
-- 2026-06-30 00:39 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/847023797.shtml)
-- 2026-06-30 00:46 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/2324052071.shtml)
-- 2026-06-30 01:02 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/30947465232.shtml)
-- 2026-06-30 00:50 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/424793551527.shtml)
-- 2026-06-30 00:48 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/086319018756.shtml)
-- 2026-06-30 01:05 - [千与千寻](https://www.share.minike.top/Article/details/85555234.shtml)
-- 2026-06-30 00:44 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/44291919643.shtml)
-- 2026-06-30 00:49 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/0607141805.shtml)
-- 2026-06-30 00:55 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/6852229.shtml)
-- 2026-06-30 01:05 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/115844.shtml)
-- 2026-06-30 00:53 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/09794.shtml)
-- 2026-06-30 00:56 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/45165900833.shtml)
-- 2026-06-30 00:36 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/13947.shtml)
-- 2026-06-30 00:40 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/94062884490.shtml)
+- 2026-06-30 01:11 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/25831235.shtml)
+- 2026-06-30 01:01 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/74320101.shtml)
+- 2026-06-30 00:44 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/350157.shtml)
+- 2026-06-30 00:58 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/11074500023.shtml)
+- 2026-06-30 01:09 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/3949368.shtml)
+- 2026-06-30 01:03 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/171212.shtml)
+- 2026-06-30 01:08 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/4799780.shtml)
+- 2026-06-30 00:55 - [曼城官宣马雷斯卡出任主教练](https://www.share.minike.top/Article/details/7241919.shtml)
+- 2026-06-30 00:54 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/646869.shtml)
+- 2026-06-30 01:09 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/07050966.shtml)
+- 2026-06-30 00:42 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/380268517195.shtml)
+- 2026-06-30 00:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/3944463.shtml)
+- 2026-06-30 00:46 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/616533262993.shtml)
+- 2026-06-30 00:55 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/2771764579.shtml)
+- 2026-06-30 01:07 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/7309932919.shtml)

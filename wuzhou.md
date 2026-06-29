@@ -1,61 +1,56 @@
-# OpenAI拟秘密提交IPO文件，目标最早9月上市
+# 小阔科技IPO：三年烧30亿营销、单一品类及OEM依赖、对赌压顶5.8亿IPO前清仓分红1.3亿
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-当地时间5月20日，据知情人士消息，ChatGPT开发商OpenAI正在筹备秘密提交首次公开募股（IPO）申请，目标是最早在9月登陆公开市场。 据悉，OpenAI已与高盛和摩根士丹利等投行合作起草招股说明书，计划最早于本周五向监管机构秘密提交文件。此次IPO若能成行，将成为人工智能领域规模最大的上市案之一。该公司在最近一轮私人融资中的估值已达约8500亿美元。 OpenAI本周
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：新消费主张/cici 近日，网红口腔护理品牌“参半”母公司——深圳小阔科技股份有限公司正式向港交所递交招股说明书，拟主板挂牌上市，招银国际担任独家保荐人。 小阔科技凭借精准的流量打法，在短短数年内实现了从初创公司到行业第三的跨越，其营收增速与毛利率表现确实令人瞩目。招股书
 
 ## 正文
 
-当地时间5月20日，据知情人士消息，ChatGPT开发商OpenAI正在筹备秘密提交首次公开募股（IPO）申请，目标是最早在9月登陆公开市场。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据悉，OpenAI已与高盛和摩根士丹利等投行合作起草招股说明书，计划最早于本周五向监管机构秘密提交文件。
+出品：新浪财经上市公司研究院 作者：新消费主张/cici 近日，网红口腔护理品牌“参半”母公司——深圳小阔科技股份有限公司正式向港交所递交招股说明书，拟主板挂牌上市，招银国际担任独家保荐人。
 
-此次IPO若能成行，将成为人工智能领域规模最大的上市案之一。
+小阔科技凭借精准的流量打法，在短短数年内实现了从初创公司到行业第三的跨越，其营收增速与毛利率表现确实令人瞩目。
 
-该公司在最近一轮私人融资中的估值已达约8500亿美元。
+招股书显示，公司2023年至2025年营收从10.96亿元飙升至24.99亿元，2025年同比增幅高达82.5%，经调整净利润达1.55亿元。
 
-OpenAI本周稍早刚跨过IPO的重要障碍之一，公司在与联合创始人埃隆·马斯克的法律诉讼中获胜，法院裁定对OpenAI有利。
+然而，在这份光鲜的招股书背后， 单一产品的高度依赖、“高营销、低研发”的财务底色、5.8亿元对赌压顶的偿债压力、IPO前高比例分红以及公司治理层面暴露的多重隐患，正构成IPO之路上难以回避的多重拷问。
 
-不过马斯克已表示将提出上诉。
+三年砸30亿营销、销售费用率高达 61.4% 创收高度依赖单一品类、生产依赖OEM 2023年-2025年，小阔科技的营收分别为10.96亿元、13.69亿元及24.99亿元，2024年及2025年分别同比增长24.9%、82.5%。
 
-值得注意的是，OpenAI此次筹备上市恰逢竞争对手SpaceX也在推进其IPO计划。
+虽然营收稳步提升，但小阔科技的净利润却从2023年的4162万元下滑至2024年的3423万元，并在2025年录得1825万元的净亏损。
 
-SpaceX已于上月秘密提交S-1文件，目标估值约1.75万亿美元。
+利润被严重侵蚀的根本原因在于巨额营销开支。
 
 ## 相关推荐
 
-- 2026-06-30 00:50 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 00:59 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-30 00:44 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 00:55 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 01:02 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 00:39 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 00:46 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 00:43 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 00:42 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 00:48 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 00:50 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 00:36 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 01:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 01:05 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 00:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 01:11 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 01:04 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 00:47 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 00:57 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 00:58 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 00:59 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-30 01:00 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 01:03 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 00:53 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 00:50 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:05 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/87116170770.shtml)
-- 2026-06-30 00:55 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/30143194.shtml)
-- 2026-06-30 00:36 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/869328379903.shtml)
-- 2026-06-30 00:41 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/437695.shtml)
-- 2026-06-30 00:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/112717.shtml)
-- 2026-06-30 00:44 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/8858984081.shtml)
-- 2026-06-30 00:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/44264.shtml)
-- 2026-06-30 00:37 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/8125538677.shtml)
-- 2026-06-30 00:45 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/680224275.shtml)
-- 2026-06-30 00:38 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/21698.shtml)
-- 2026-06-30 00:36 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/49298882301.shtml)
-- 2026-06-30 00:45 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/50951899075.shtml)
-- 2026-06-30 00:53 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/221143.shtml)
-- 2026-06-30 00:44 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/6401515.shtml)
-- 2026-06-30 00:55 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/491802.shtml)
+- 2026-06-30 01:01 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/679452.shtml)
+- 2026-06-30 01:07 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/1869133.shtml)
+- 2026-06-30 00:44 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/7663025079.shtml)
+- 2026-06-30 00:47 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/17996.shtml)
+- 2026-06-30 00:57 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/912055979.shtml)
+- 2026-06-30 00:58 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/06756418202.shtml)
+- 2026-06-30 01:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/977911550555.shtml)
+- 2026-06-30 01:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/95111.shtml)
+- 2026-06-30 01:09 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/81466786053.shtml)
+- 2026-06-30 00:51 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/96790018587.shtml)
+- 2026-06-30 00:59 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/86559.shtml)
+- 2026-06-30 01:10 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/0799202.shtml)
+- 2026-06-30 00:55 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/952329.shtml)
+- 2026-06-30 01:00 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/7435315.shtml)
+- 2026-06-30 00:56 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/93457.shtml)

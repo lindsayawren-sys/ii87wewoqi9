@@ -1,60 +1,57 @@
-# StepStone：UFEC达400亿美元 董事会加派0.55美元特别股息
+# 商务部：以更加务实举措稳出口扩进口
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-全球私募市场投资公司StepStone Group于5月21日发布2026财年第四季度财报，宣布董事会批准派发每股0.28美元的季度现金股息及每股0.55美元的特别现金股息，均将于6月30日支付。合计股息达0.83美元，全年总股息达1.67美元，同比增长23%。 财报显示，公司未部署计费资本增至约400亿美元，同比增长63%。这意味着公司拥有庞大的已承诺资本储备，随着这些资本逐
+● 本报记者 王舒嫄 6月11日，商务部新闻发言人何亚东在商务部例行新闻发布会上表示，我国将坚定不移推进高水平对外开放，以更加务实的举措，稳住出口、扩大进口，为世界经济注入更多的稳定性和正能量。此外，商务部将继续抓好相关政策落实落地，加快培育服务贸易新动能。 前5月外贸亮点纷呈 “1-5月，我国外贸亮点纷呈。”何亚东说，一是进口潜力持续释放。1-5月，我国进口规模创历史同期新高
 
 ## 正文
 
-全球私募市场投资公司StepStone Group于5月21日发布2026财年第四季度财报，宣布董事会批准派发每股0.28美元的季度现金股息及每股0.55美元的特别现金股息，均将于6月30日支付。
+● 本报记者 王舒嫄 6月11日，商务部新闻发言人何亚东在商务部例行新闻发布会上表示，我国将坚定不移推进高水平对外开放，以更加务实的举措，稳住出口、扩大进口，为世界经济注入更多的稳定性和正能量。
 
-合计股息达0.83美元，全年总股息达1.67美元，同比增长23%。
+此外，商务部将继续抓好相关政策落实落地，加快培育服务贸易新动能。
 
-财报显示，公司未部署计费资本增至约400亿美元，同比增长63%。
+前5月外贸亮点纷呈 “1-5月，我国外贸亮点纷呈。
 
-这意味着公司拥有庞大的已承诺资本储备，随着这些资本逐步配置到投资项目中，将转化为计费管理资产，为未来费用收益增长提供充足储备。
+”何亚东说，一是进口潜力持续释放。
 
-公司全年新增资本约380亿美元，创历史新高，其中包括第四季度创纪录的约140亿美元。
+1-5月，我国进口规模创历史同期新高。
 
-费用相关收益方面，StepStone第四季度实现FRE 1.05亿美元，同比增长12%，FRE利润率维持在40%。
+其中，高新技术产品进口增长31.2%，大宗商品、消费品也保持较快增速。
 
-费用收入达2.6亿美元，同比增长21%。
+我国超大规模市场优势持续迸发，为贸易伙伴提供了广阔的发展空间。
 
-CEO Scott Hart表示，这是公司有史以来最好的FRE季度。
+二是出口结构持续优化。
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 00:39 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 00:50 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 00:57 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 01:00 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 00:42 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 01:05 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 00:44 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 00:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 00:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 00:43 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 00:46 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 00:41 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 00:54 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 01:05 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 00:50 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 00:59 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 01:01 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 00:52 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 00:53 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 01:07 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 00:42 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 00:49 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 01:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 00:44 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/0288746348.shtml)
-- 2026-06-30 00:48 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/64563137830.shtml)
-- 2026-06-30 00:57 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/679070791.shtml)
-- 2026-06-30 00:56 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/223673911.shtml)
-- 2026-06-30 00:50 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/21307560183.shtml)
-- 2026-06-30 01:04 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/70419283.shtml)
-- 2026-06-30 01:05 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/40101.shtml)
-- 2026-06-30 00:39 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/48469683.shtml)
-- 2026-06-30 00:46 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/738947.shtml)
-- 2026-06-30 00:41 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/7698822357.shtml)
-- 2026-06-30 00:57 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/177166.shtml)
-- 2026-06-30 00:58 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/54054.shtml)
-- 2026-06-30 01:00 - [周生如故](http://www.share.minike.top/Article/details/56344810.shtml)
-- 2026-06-30 01:00 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/9757889.shtml)
-- 2026-06-30 00:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/8745582.shtml)
+- 2026-06-30 00:47 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/510301640841.shtml)
+- 2026-06-30 00:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/63985694556.shtml)
+- 2026-06-30 01:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/6966060.shtml)
+- 2026-06-30 00:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/2371852.shtml)
+- 2026-06-30 00:50 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/6180734695.shtml)
+- 2026-06-30 00:59 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/679616526.shtml)
+- 2026-06-30 00:45 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/185771535.shtml)
+- 2026-06-30 00:51 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/92585.shtml)
+- 2026-06-30 00:45 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/70450.shtml)
+- 2026-06-30 00:51 - [流金岁月](https://www.share.kurohicncr.top/Article/details/720681542049.shtml)
+- 2026-06-30 00:49 - [货车司机恶意闯卡逃费被行拘](https://www.share.minike.top/Article/details/5971280022.shtml)
+- 2026-06-30 00:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/05579535445.shtml)
+- 2026-06-30 01:05 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/76082656.shtml)
+- 2026-06-30 00:55 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/800564372420.shtml)
+- 2026-06-30 00:44 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/39323.shtml)

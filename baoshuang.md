@@ -1,58 +1,59 @@
-# 山西新绛盛唐墓葬考古成果公布 盛唐彩绘陶俑再现千年工艺
+# 6月12日起，内地居民携带符合条件的犬猫赴澳门免于隔离检疫
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新社太原5月20日电 (记者 杨静 胡健)山西省考古研究院20日对外公布新绛县窑头村唐墓M67考古发掘资料，该墓葬出土的彩绘陶俑具有鲜明盛唐风格，为研究晋南地区唐代葬制提供了重要实物资料。 2019年5月至10月，运城市考古队对新绛县委党校新校区建设用地进行考古勘探，发现汉代至明清时期古墓葬72座。2020年3月至8月，山西省考古研究院联合运城市文物保护中心等单位，对上述墓葬
+中新网6月12日电 据“海关发布”微信公众号消息，为深入落实树立和践行正确政绩观学习教育要求，回应内地居民携带宠物赴澳门便利化期盼，海关总署持续深化内地与澳门宠物检疫监管合作，就内地携带宠物犬猫赴澳门检疫要求同澳方达成一致。自6月12日起，内地居民携带符合条件的犬、猫进入澳门，免除30天隔离检疫要求，携带宠物赴澳旅行更加便利。一、政策核心利好 1.免隔离：符合条件犬猫抵达澳门后
 
 ## 正文
 
-中新社太原5月20日电 (记者 杨静 胡健)山西省考古研究院20日对外公布新绛县窑头村唐墓M67考古发掘资料，该墓葬出土的彩绘陶俑具有鲜明盛唐风格，为研究晋南地区唐代葬制提供了重要实物资料。
+中新网6月12日电 据“海关发布”微信公众号消息，为深入落实树立和践行正确政绩观学习教育要求，回应内地居民携带宠物赴澳门便利化期盼，海关总署持续深化内地与澳门宠物检疫监管合作，就内地携带宠物犬猫赴澳门检疫要求同澳方达成一致。
 
-2019年5月至10月，运城市考古队对新绛县委党校新校区建设用地进行考古勘探，发现汉代至明清时期古墓葬72座。
+自6月12日起，内地居民携带符合条件的犬、猫进入澳门，免除30天隔离检疫要求，携带宠物赴澳旅行更加便利。
 
-2020年3月至8月，山西省考古研究院联合运城市文物保护中心等单位，对上述墓葬群进行抢救性发掘。
+一、政策核心利好 1.免隔离：符合条件犬猫抵达澳门后，经澳门市政署兽医现场检疫合格，无需30天隔离检疫。
 
-此次公布的唐墓M67为阶梯墓道土洞墓，由墓道、墓门、甬道和墓室组成。
+2.更便捷：前置检疫+现场查验模式，替代集中隔离，通关流程更高效。
 
-该墓共出土随葬品94件，主要包括陶器、铜器等。
+二、内地宠物赴澳门免隔离的基本条件 经与澳门市政署确认，目前，内地宠物赴澳门免隔离检疫的基本条件为： 1.仅限犬、猫，宠物身体健康，无疫病临床症状； 2.植入符合ISO11784/11785标准的电子芯片； 3.在赴澳前不少于30天及不多于1年内接种狂犬病疫苗，持有有效免疫证明； 4.在首次接种狂犬病疫苗30天后，赴澳前3个月至1年内采血并在澳方采信实验室(请拨打澳门市民服务热线853-28337676咨询)开展抗体滴度检测，检测结果不低于0.5IU/ml，并取得检测报告； 5.随附内地海关签发的有效动物卫生证书。
 
-从墓葬形制看，该墓与洛阳涧西区发现的盛唐时期墓葬M723形制相似。
+三、申请办理内地海关动物卫生证书的流程 1.在线申请。
 
-出土彩绘陶罐与长治北石槽唐墓同类器相似。
+通过“互联网+海关”(https://online.customs.gov.cn)公共服务—携带出境宠物模块申请办理；或通过中国国际贸易“单一窗口”(https://www.singlewindow.cn)业务应用—口岸执法申报—检验检疫—携带出境宠物模块申请办理，填写携带人信息、宠物信息、狂犬病免疫信息、抗体检测信息等。
 
-考古人员根据墓葬形制与随葬器物特征初步判断，M67年代属于盛唐时期。
+2.预约海关现场检查。
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 00:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 00:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 01:02 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 00:42 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 01:02 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 00:43 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 00:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 00:41 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 00:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 00:39 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 00:52 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 01:02 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 00:50 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 01:02 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 00:51 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 00:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 00:42 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 01:10 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 00:51 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 00:50 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 00:45 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 01:08 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 01:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 01:08 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/85796.shtml)
-- 2026-06-30 00:37 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/777711.shtml)
-- 2026-06-30 01:01 - [美股](https://www.share.kurohicncr.top/Article/details/82225529663.shtml)
-- 2026-06-30 00:49 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/321955751.shtml)
-- 2026-06-30 00:46 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/3194704189.shtml)
-- 2026-06-30 00:40 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/19848796165.shtml)
-- 2026-06-30 00:37 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/52606330.shtml)
-- 2026-06-30 00:38 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/070459.shtml)
-- 2026-06-30 00:47 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/39942124.shtml)
-- 2026-06-30 00:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/78590908182.shtml)
-- 2026-06-30 00:58 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/83709.shtml)
-- 2026-06-30 00:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/19810065966.shtml)
-- 2026-06-30 00:57 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/386305.shtml)
-- 2026-06-30 00:56 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/131709.shtml)
-- 2026-06-30 00:44 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/0023653.shtml)
+- 2026-06-30 00:43 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/113621495984.shtml)
+- 2026-06-30 01:04 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/611765124128.shtml)
+- 2026-06-30 00:52 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/83686951754.shtml)
+- 2026-06-30 00:56 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/28826.shtml)
+- 2026-06-30 01:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/8588899.shtml)
+- 2026-06-30 00:55 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/4259836.shtml)
+- 2026-06-30 00:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/0850066.shtml)
+- 2026-06-30 00:55 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/020234803.shtml)
+- 2026-06-30 01:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/9984575770.shtml)
+- 2026-06-30 01:09 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/4287591100.shtml)
+- 2026-06-30 00:42 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/37061840870.shtml)
+- 2026-06-30 00:55 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/83659.shtml)
+- 2026-06-30 01:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/910482895.shtml)
+- 2026-06-30 01:04 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/02628.shtml)
+- 2026-06-30 00:51 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/28977777.shtml)

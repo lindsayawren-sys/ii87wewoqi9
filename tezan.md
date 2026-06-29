@@ -1,60 +1,47 @@
-# Accelerate多元信贷收益加元对冲ETF宣布每月派息0.13加元
+# 国家邮政局依法对极兔速递有限公司立案调查
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-Accelerate多元信贷收益加元对冲ETF于5月21日宣布进行每月股息分配，每股派息金额为0.13加元，交易代码为INCM.B。本次股息将于6月8日支付，除息日及股权登记日均为5月29日。 该ETF是Accelerate旗下旗舰私募信贷产品多元信贷收益基金的加元对冲系列，于2025年5月6日在多伦多证券交易所上市。其设计初衷是为加拿大投资者提供以美元计价为主的私募信贷市场的
+今年以来，使用“极兔速递”商标、字号、快递运单经营快递业务的企业多发生产安全事故，场所内多次被检查发现生产安全事故隐患。极兔速递有限公司对极兔速递相关企业安全生产管理缺位，未按规定实行安全保障统一管理，国家邮政局依法对极兔速递有限公司进行立案调查。
 
 ## 正文
 
-Accelerate多元信贷收益加元对冲ETF于5月21日宣布进行每月股息分配，每股派息金额为0.13加元，交易代码为INCM.B。
+今年以来，使用“极兔速递”商标、字号、快递运单经营快递业务的企业多发生产安全事故，场所内多次被检查发现生产安全事故隐患。
 
-本次股息将于6月8日支付，除息日及股权登记日均为5月29日。
-
-该ETF是Accelerate旗下旗舰私募信贷产品多元信贷收益基金的加元对冲系列，于2025年5月6日在多伦多证券交易所上市。
-
-其设计初衷是为加拿大投资者提供以美元计价为主的私募信贷市场的多元化敞口，同时通过加元对冲机制降低汇率波动风险。
-
-基金的投资策略聚焦于私募信贷、直接贷款、资产支持证券及抵押贷款支持证券市场，主要投资于上市的商业发展公司、封闭式基金等持有浮动利率贷款的工具，目标是为投资者提供超越传统固定收益基金的替代性收入来源。
-
-根据Accelerate官方公告，该基金的非对冲系列同样宣布了每股0.13加元的月度派息。
-
-目前INCM系列的30天SEC收益率约为3.56%。
-
-管理团队由首席执行官Julian Klymochko领衔，基金总费用率约为0.75%至1.40%区间。
+极兔速递有限公司对极兔速递相关企业安全生产管理缺位，未按规定实行安全保障统一管理，国家邮政局依法对极兔速递有限公司进行立案调查。
 
 ## 相关推荐
 
-- 2026-06-30 00:52 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 01:01 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 00:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 01:00 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 01:05 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 00:58 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 00:43 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 00:55 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 00:49 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 00:59 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 00:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 00:37 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 00:43 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 00:39 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 00:49 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 01:08 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 00:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 00:47 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 01:07 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 01:09 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 00:54 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 01:00 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 00:45 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 01:03 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 00:42 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 01:01 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 01:01 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/749715263.shtml)
-- 2026-06-30 00:38 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/5909082001.shtml)
-- 2026-06-30 00:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/968268.shtml)
-- 2026-06-30 00:53 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/26468399.shtml)
-- 2026-06-30 00:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/68891.shtml)
-- 2026-06-30 00:38 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/54437582.shtml)
-- 2026-06-30 00:51 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/9659163539.shtml)
-- 2026-06-30 00:44 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/7571364597.shtml)
-- 2026-06-30 00:50 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/6265603004.shtml)
-- 2026-06-30 00:39 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/201927.shtml)
-- 2026-06-30 00:38 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/666649.shtml)
-- 2026-06-30 00:46 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/77004.shtml)
-- 2026-06-30 00:41 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/705423196.shtml)
-- 2026-06-30 01:04 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/393809353881.shtml)
-- 2026-06-30 00:53 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/674538482249.shtml)
+- 2026-06-30 00:49 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/8521069.shtml)
+- 2026-06-30 00:48 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/4862467.shtml)
+- 2026-06-30 01:10 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/2337258.shtml)
+- 2026-06-30 00:53 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/335382148739.shtml)
+- 2026-06-30 01:00 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/5555981185.shtml)
+- 2026-06-30 01:09 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/40120869.shtml)
+- 2026-06-30 00:51 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/654774.shtml)
+- 2026-06-30 00:59 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/84335784.shtml)
+- 2026-06-30 01:03 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/94537957370.shtml)
+- 2026-06-30 01:08 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/688567.shtml)
+- 2026-06-30 00:59 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/80724.shtml)
+- 2026-06-30 00:48 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/809714660234.shtml)
+- 2026-06-30 01:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/83762.shtml)
+- 2026-06-30 01:03 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/4501429.shtml)
+- 2026-06-30 00:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/017538586.shtml)

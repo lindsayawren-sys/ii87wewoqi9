@@ -1,58 +1,57 @@
-# 美伊继续强硬对峙，霍尔木兹风险外溢全球粮食与能源市场
+# 三协会联合发文 规范电视剧（网络剧）演员署名
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网5月20日电 综合路透社、英国《卫报》等多家外媒报道，美国与伊朗之间的军事与外交博弈，正在进入“新的危险阶段”。 据报道，当地时间5月19日，美国总统特朗普表示，与伊朗谈判的相关事宜仍在进行，美国“可能不得不再次打击伊朗”；与此同时美国中央司令部则表示，美军正继续全面执行针对伊朗的海上封锁行动。 伊朗方面则警告，如果敌对势力再次侵略伊朗，伊朗将采取新手段并“开辟新战线”予
+中新网6月12日电 据中国电视剧制作产业协会官方微信消息，针对近年来电视剧(网络剧)行业愈演愈烈的演员署名排序之争，中国电视剧制作产业协会、中国网络视听节目服务协会、中国广播电视社会组织联合会演员委员会于今日向会员单位联合发布《关于规范电视剧(网络剧)演员署名的通知》(以下简称《通知》)。此举旨在从源头破除“撕番”乱象，引导行业回归艺术创作本位，构建风清气正的文艺生态。 据行业
 
 ## 正文
 
-中新网5月20日电 综合路透社、英国《卫报》等多家外媒报道，美国与伊朗之间的军事与外交博弈，正在进入“新的危险阶段”。
+中新网6月12日电 据中国电视剧制作产业协会官方微信消息，针对近年来电视剧(网络剧)行业愈演愈烈的演员署名排序之争，中国电视剧制作产业协会、中国网络视听节目服务协会、中国广播电视社会组织联合会演员委员会于今日向会员单位联合发布《关于规范电视剧(网络剧)演员署名的通知》(以下简称《通知》)。
 
-据报道，当地时间5月19日，美国总统特朗普表示，与伊朗谈判的相关事宜仍在进行，美国“可能不得不再次打击伊朗”；与此同时美国中央司令部则表示，美军正继续全面执行针对伊朗的海上封锁行动。
+此举旨在从源头破除“撕番”乱象，引导行业回归艺术创作本位，构建风清气正的文艺生态。
 
-伊朗方面则警告，如果敌对势力再次侵略伊朗，伊朗将采取新手段并“开辟新战线”予以反击。
+据行业内部反映，近年来，部分电视剧(网络剧)在选角、签约、拍摄、宣传、播出等环节，因演员署名、排位等问题引发多起争议，甚至出现停工、项目延误、舆论对立等情况，严重干扰正常创作，恶化行业生态，行业各方对此反映强烈。
 
-随着美伊双方强硬表态升级，国际社会对于中东冲突外溢风险的担忧迅速升温。
+“当排名压倒了演技，当位置取代了质量，文艺作品就失去了灵魂。
 
-美国：以“双线推进”方式施压 据路透社报道，特朗普19日在白宫向记者表示，美国原本已经接近批准对伊朗的新一轮军事打击，但在最后阶段暂时推迟。
+”业内人士指出，此类风气不仅助长了“流量至上”的错误价值观，助长了青少年群体不良的“饭圈”文化，更让整个行业背负了“浮躁功利”的负面形象，规范署名已刻不容缓。
 
-特朗普称，如果谈判无法取得成果，美方未来数日内仍可能发动新的攻击。
+今日发布的《通知》指出，演员应自觉恪守职业道德，将主要精力投入艺术创作，不以署名排序干扰正常创作秩序；演员及其经纪机构应切实履行社会责任，积极主动引导粉丝理性追星，不以署名排序为由制造舆论对立，坚决抵制因署名排序问题引发的网络攻击与非理性行为。
 
-特朗普表示，“我们不能让他们拥有新的核武器。
+在演员署名规则方面，《通知》明确，演员署名实行分类管理，应根据角色性质、戏份体量及实际参与情况，规范使用“领衔主演”“特别出演”“出演”三类头衔，不得随意修改、增加其他名目。
 
-” 英国《卫报》报道称，当前美国仍在通过军事压力与外交谈判“双线推进”的方式向伊朗施压。
+需说明的是，上述类别仅适用于有明确角色对应关系的演员。
 
 ## 相关推荐
 
-- 2026-06-30 00:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 00:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 00:43 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 00:44 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 00:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 00:55 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 01:04 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 00:46 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 00:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 01:03 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 00:48 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 01:03 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 01:01 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 01:02 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 01:05 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 00:55 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 00:59 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 01:01 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 01:10 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 00:54 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 00:44 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 00:42 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 00:51 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:58 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/599411090.shtml)
-- 2026-06-30 00:46 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/5742123288.shtml)
-- 2026-06-30 00:59 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/05763.shtml)
-- 2026-06-30 00:49 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/442510651.shtml)
-- 2026-06-30 00:45 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/7669765.shtml)
-- 2026-06-30 01:00 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/93325.shtml)
-- 2026-06-30 00:41 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/6300222627.shtml)
-- 2026-06-30 01:01 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/80131583.shtml)
-- 2026-06-30 00:55 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/32022614.shtml)
-- 2026-06-30 00:59 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/88535743.shtml)
-- 2026-06-30 00:44 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/423379263622.shtml)
-- 2026-06-30 00:47 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/4337122.shtml)
-- 2026-06-30 00:55 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/4163560580.shtml)
-- 2026-06-30 00:59 - [千与千寻](http://www.share.kurohicncr.top/Article/details/28477.shtml)
-- 2026-06-30 01:03 - [千香](https://www.blog.minike.top/Article/details/38587.shtml)
+- 2026-06-30 01:11 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/62785.shtml)
+- 2026-06-30 01:06 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/414921579.shtml)
+- 2026-06-30 00:58 - [周生如故](http://www.blog.minike.top/Article/details/959500.shtml)
+- 2026-06-30 00:55 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/911240333902.shtml)
+- 2026-06-30 01:10 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/0037816.shtml)
+- 2026-06-30 00:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/98144.shtml)
+- 2026-06-30 00:42 - [一见倾心](http://www.share.kurohicncr.top/Article/details/15055341473.shtml)
+- 2026-06-30 01:01 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/69615.shtml)
+- 2026-06-30 01:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/6558651.shtml)
+- 2026-06-30 01:06 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/407663275930.shtml)
+- 2026-06-30 01:00 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/43382060.shtml)
+- 2026-06-30 01:01 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/349876208172.shtml)
+- 2026-06-30 00:50 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/235039.shtml)
+- 2026-06-30 00:48 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/29507.shtml)
+- 2026-06-30 01:08 - [女心理师](https://www.blog.kurohicncr.top/Article/details/931475.shtml)

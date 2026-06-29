@@ -1,60 +1,58 @@
-# 美国债市：国债涨跌不一 收益率曲线走平
+# 台湾中华青年交流协会理事长黄荣护：海峡风浪再大，也切不断两岸青年血脉相连的根脉
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:03 UTC+8
 
 ## 摘要
 
-美国国债周四涨跌互现，收益率曲线走平，曲线中段收益率相比前一天变化不大。当天市场走势震荡，早盘下跌后，随着投资者权衡美国与伊朗接近达成协议、从而可能重启霍尔木兹海峡石油运输的迹象，各期限国债要么收窄跌幅，要求扭转跌势。短端国债表现落后，隔夜指数掉期合约体现了更大的美联储政策紧缩风险。 纽约时间下午3点过后不久，2年期收益率上涨约2个基点，曲线远端收益率约下跌3个基点。 2年期与
+发布时间：2026年06月12日 14:16 来源：中国新闻网 作为第十八届海峡论坛系列活动之一，第二十四届海峡青年论坛6月12日在福建厦门开幕。台湾中华青年交流协会理事长黄荣护在致辞中表示，回首24年前，在两岸关系发展的关键时刻，台湾中华青年交流协会与大陆的伙伴们共同发起并举办第一届海峡青年论坛。24年春华秋实，这座由两岸青年共同搭建的桥梁，经历风雨，不仅从未中断，反而越发坚
 
 ## 正文
 
-美国国债周四涨跌互现，收益率曲线走平，曲线中段收益率相比前一天变化不大。
+发布时间：2026年06月12日 14:16 来源：中国新闻网 作为第十八届海峡论坛系列活动之一，第二十四届海峡青年论坛6月12日在福建厦门开幕。
 
-当天市场走势震荡，早盘下跌后，随着投资者权衡美国与伊朗接近达成协议、从而可能重启霍尔木兹海峡石油运输的迹象，各期限国债要么收窄跌幅，要求扭转跌势。
+台湾中华青年交流协会理事长黄荣护在致辞中表示，回首24年前，在两岸关系发展的关键时刻，台湾中华青年交流协会与大陆的伙伴们共同发起并举办第一届海峡青年论坛。
 
-短端国债表现落后，隔夜指数掉期合约体现了更大的美联储政策紧缩风险。
+24年春华秋实，这座由两岸青年共同搭建的桥梁，经历风雨，不仅从未中断，反而越发坚实，成为两岸青年交流规模最大，也最具影响力的品牌盛会。
 
-纽约时间下午3点过后不久，2年期收益率上涨约2个基点，曲线远端收益率约下跌3个基点。
+我们用24年的坚持，证明海峡的风浪再大，也切不断两岸青年血脉相连的根脉，更挡不住大家走近走亲，携手前行的步伐。
 
-2年期与10年期收益率之差收窄近4个基点，接近盘中低点，10年期收益率在4.57%左右，当日下跌不到2个基点。
+黄荣护指出，世界在巨变，特别是在人工智慧与社会化的AI时代，两岸青年更需要发挥台湾创新创意的优势，结合大陆广阔市场与资源的优势，同舟共济，携手拼世界。
 
-国债收益率当日跟随了油价走势，而后者受到战争相关消息影响剧烈波动；有报道称伊朗不会交出其武器级铀之后，WTI期货一度上涨4.5%，最终收跌1.9%。
+正如那一首我们都很熟悉的歌曲《我的未来不是梦》，两岸青年的未来就是中华民族伟大复兴的未来。
 
-在国债供应方面，190亿美元10年期通胀保值国债中标收益率比发行前交易高出接近2个基点，显示需求疲软；一级交易商获配比例为11.1%，高于之前一次，间接投标人获配比例降至61.4%，直接投标人获配比例升至27.5%。
-
-期货资金流包括一笔涉及2年期国债期货和超长期国债合约的大规模曲线陡化交易，而短期利率合约在美国早盘出现对SOFR与联邦基金利率利差收窄交易的需求。
+(记者 郎佳慧 制作 徐妙巧） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 00:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 00:53 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 00:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 00:48 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 00:46 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 00:58 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 00:38 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 01:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 00:44 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 00:42 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 00:38 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 00:55 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 00:51 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 00:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 01:09 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 00:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 00:58 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 01:11 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 00:56 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 01:03 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 00:54 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 01:03 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 01:11 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 00:46 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 01:04 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 00:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 00:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 00:46 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:38 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/977533.shtml)
-- 2026-06-30 01:02 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/27386072.shtml)
-- 2026-06-30 00:42 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/612500.shtml)
-- 2026-06-30 00:50 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/175450.shtml)
-- 2026-06-30 00:56 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/387080696.shtml)
-- 2026-06-30 00:40 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/0425788519.shtml)
-- 2026-06-30 00:46 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/0847964.shtml)
-- 2026-06-30 00:44 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/493049958.shtml)
-- 2026-06-30 00:58 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/6537919.shtml)
-- 2026-06-30 00:47 - [田曦薇没招了](http://www.share.minike.top/Article/details/517773.shtml)
-- 2026-06-30 00:40 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/550254654.shtml)
-- 2026-06-30 00:37 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/00473532.shtml)
-- 2026-06-30 01:04 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/840702.shtml)
-- 2026-06-30 00:50 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/95887056493.shtml)
-- 2026-06-30 00:52 - [刘念回应](https://www.share.minike.top/Article/details/58197460.shtml)
+- 2026-06-30 01:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/119688161.shtml)
+- 2026-06-30 00:53 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/20332.shtml)
+- 2026-06-30 01:10 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/20314792.shtml)
+- 2026-06-30 01:05 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/21889.shtml)
+- 2026-06-30 00:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/046085908.shtml)
+- 2026-06-30 00:52 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/671118212926.shtml)
+- 2026-06-30 01:03 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/35259.shtml)
+- 2026-06-30 00:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/9420602.shtml)
+- 2026-06-30 00:45 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/0823609649.shtml)
+- 2026-06-30 01:04 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/411963818506.shtml)
+- 2026-06-30 00:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/68804.shtml)
+- 2026-06-30 01:01 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/3028150.shtml)
+- 2026-06-30 00:50 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/153262087298.shtml)
+- 2026-06-30 00:52 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/613755.shtml)
+- 2026-06-30 00:43 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/03807.shtml)

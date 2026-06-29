@@ -1,57 +1,60 @@
-# 中国发现三叠纪最大肺鱼化石 距今约2.42亿年全长约1.62米
+# 2分钟，直线涨停，6天3板
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网北京5月21日电 (记者 孙自法)记者5月21日从中国科学院古脊椎动物与古人类研究所徐光辉研究员团队获悉，其联合山西自然博物馆最近在山西省晋中市太谷区三叠纪地层中，研究发现一件约2.42亿年前的大型角齿鱼目肺鱼化石。 经研究复原，该肺鱼全长约1.62米，代表了东亚地区已知最古老的、保持自然连接状态的角齿鱼目化石，填补了中三叠世亚洲肺鱼化石的空白，也是目前发现的三叠纪体型最
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月12日，日韩股市集体收涨。日经225指数涨2.81%，报66020.04点，日本存储巨头铠侠涨超7%，总市值为44.36万亿日元，超过丰田汽车成为日本第一大市值股票。韩国KOSPI指数收涨4.63%，报8123.62点，三星电子涨近8%、SK海力士涨超2%。 A股三大指数反弹。今日收盘，上证指数涨1.1
 
 ## 正文
 
-中新网北京5月21日电 (记者 孙自法)记者5月21日从中国科学院古脊椎动物与古人类研究所徐光辉研究员团队获悉，其联合山西自然博物馆最近在山西省晋中市太谷区三叠纪地层中，研究发现一件约2.42亿年前的大型角齿鱼目肺鱼化石。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-经研究复原，该肺鱼全长约1.62米，代表了东亚地区已知最古老的、保持自然连接状态的角齿鱼目化石，填补了中三叠世亚洲肺鱼化石的空白，也是目前发现的三叠纪体型最大的肺鱼化石。
+6月12日，日韩股市集体收涨。
 
-相关研究成果论文，近日在专业学术期刊《古脊椎动物学报》发表。
+日经225指数涨2.81%，报66020.04点，日本存储巨头铠侠涨超7%，总市值为44.36万亿日元，超过丰田汽车成为日本第一大市值股票。
 
-研究团队介绍说，肺鱼是一种古老的肉鳍鱼类，因具有类似肺的鳔、能直接呼吸空气而得名。
+韩国KOSPI指数收涨4.63%，报8123.62点，三星电子涨近8%、SK海力士涨超2%。
 
-现生肺鱼仅分布于非洲、南美洲和大洋洲的淡水中，每个大陆只有一个属，均归属于角齿鱼目。
+A股三大指数反弹。
 
-此次中国新发现的角齿鱼目化石保存有20块尾椎骨及关联的“上神经骨”、间椎骨、背腹辐鳍骨和一系列背鳍条。
+今日收盘，上证指数涨1.12%，深证成指涨0.75%，创业板指涨0.5%，科创综指跌0.24%。
 
-因岩石节理断裂，该肺鱼的头、胸部缺失，但尾部脊椎骨保存较好。
+全市场超3923只个股上涨，全天成交额32361亿元，较上一交易日增加6612亿元。
 
-与完整角齿鱼目肺鱼对比，推断其全长约1.62米。
+盘面上，大消费板块回暖，中百集团（维权）午后2分钟内直线拉升涨停；券商股午后持续走强，财达证券、中银证券涨停；有色金属板块掀起涨停潮，铜陵有色、洛阳钼业等多股涨停；商业航天板块大涨，福光股份“20CM”涨停。
 
 ## 相关推荐
 
-- 2026-06-30 00:37 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 00:53 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 00:57 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 00:53 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 00:52 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 00:36 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 00:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 01:04 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 00:58 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 00:39 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 01:02 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 00:50 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 01:04 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 01:08 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 00:58 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 00:48 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 00:44 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 00:47 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 00:47 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 01:04 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 00:48 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 01:01 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 00:55 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 01:01 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 01:10 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:46 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/5008023.shtml)
-- 2026-06-30 00:44 - [金牌调解](http://www.blog.minike.top/Article/details/53262752527.shtml)
-- 2026-06-30 00:50 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/1839292678.shtml)
-- 2026-06-30 01:02 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/9758762.shtml)
-- 2026-06-30 00:49 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/005225663.shtml)
-- 2026-06-30 01:02 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/303156706.shtml)
-- 2026-06-30 00:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/191869.shtml)
-- 2026-06-30 00:49 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/7656530.shtml)
-- 2026-06-30 00:51 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/6447378976.shtml)
-- 2026-06-30 00:40 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/75346775.shtml)
-- 2026-06-30 00:59 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/5845693912.shtml)
-- 2026-06-30 00:42 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/853390040702.shtml)
-- 2026-06-30 00:55 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/31503403500.shtml)
-- 2026-06-30 00:41 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/18761.shtml)
-- 2026-06-30 00:41 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/693063910.shtml)
+- 2026-06-30 00:50 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/547352.shtml)
+- 2026-06-30 00:59 - [我和我的家乡](http://www.blog.minike.top/Article/details/56626189325.shtml)
+- 2026-06-30 01:08 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/50283.shtml)
+- 2026-06-30 00:56 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/6857418360.shtml)
+- 2026-06-30 00:55 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/58835.shtml)
+- 2026-06-30 01:09 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/1682164.shtml)
+- 2026-06-30 00:56 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/1731608574.shtml)
+- 2026-06-30 00:54 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/502254032468.shtml)
+- 2026-06-30 00:50 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/89159890.shtml)
+- 2026-06-30 00:45 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/7733710060.shtml)
+- 2026-06-30 00:52 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/195494705.shtml)
+- 2026-06-30 00:59 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/770062235.shtml)
+- 2026-06-30 01:10 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/30885716317.shtml)
+- 2026-06-30 01:09 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/6264142.shtml)
+- 2026-06-30 00:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/824133029.shtml)

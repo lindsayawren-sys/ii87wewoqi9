@@ -1,58 +1,54 @@
-# 新华时评｜赖清德巧言包装难改“台独”本质，逆势而行必遭败亡
+# 新华保险午前涨超6% 中央汇金为公司第一大股东
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:03 UTC+8
 
 ## 摘要
 
-新华社北京5月20日电 题：赖清德巧言包装难改“台独”本质，逆势而行必遭败亡 新华社记者 民怨四起中，台湾地区领导人赖清德20日就其任职满两年发表讲话并答记者问，他的讲话顽固坚持“台独”错误立场，充斥着诡辩与骗术、敌意与恶意，煽动两岸对立对抗，妄图欺骗台湾民众、误导国际舆论，堪称误判形势、自欺欺人的“台独”呓语。但是，无论赖清德说什么、做什么，都改变不了“台独”必然败亡的下场，
+新华保险（01336）午前涨超6%，截至发稿，股价上涨6.25%，现报52港元，成交额5.80亿港元。 近日，新华保险发布公告，根据《新华人寿保险股份有限公司章程》的规定，单独或者合并持有本公司百分之三以上有表决权股份的股东可以提名非独立董事候选人，截至本公告日期，中央汇金投资有限责任公司持有本公司31.34%的股份，提名黄耿为本公司第九届董事会非执行董事候选人。 本公司于20
 
 ## 正文
 
-新华社北京5月20日电 题：赖清德巧言包装难改“台独”本质，逆势而行必遭败亡 新华社记者 民怨四起中，台湾地区领导人赖清德20日就其任职满两年发表讲话并答记者问，他的讲话顽固坚持“台独”错误立场，充斥着诡辩与骗术、敌意与恶意，煽动两岸对立对抗，妄图欺骗台湾民众、误导国际舆论，堪称误判形势、自欺欺人的“台独”呓语。
+新华保险（01336）午前涨超6%，截至发稿，股价上涨6.25%，现报52港元，成交额5.80亿港元。
 
-但是，无论赖清德说什么、做什么，都改变不了“台独”必然败亡的下场，阻挡不了祖国必然统一的历史大势。
+近日，新华保险发布公告，根据《新华人寿保险股份有限公司章程》的规定，单独或者合并持有本公司百分之三以上有表决权股份的股东可以提名非独立董事候选人，截至本公告日期，中央汇金投资有限责任公司持有本公司31.34%的股份，提名黄耿为本公司第九届董事会非执行董事候选人。
 
-精心包装分裂话术，“台独”立场冥顽不化。
+本公司于2026年6月10日召开的第九届董事会第八次会议，审议通过了《关于提名黄耿先生为第九届董事会非执行董事候选人的议案》，同意提名黄耿先生为第九届董事会非执行董事候选人。
 
-近期，赖清德当局的“台独”立场及其辩解之词，受到岛内各界更加强烈的质疑和批判。
+上述议案须经本公司股东会审议。
 
-然而，赖清德20日的讲话不脱“台独”分裂底色。
+待股东会审议通过后，黄耿先生的董事任职资格尚需监管机构核准。
 
-他在正式讲话中降低对抗调门，却在答记者问环节再度毫不掩饰叫嚣两岸“互不隶属”的“新两国论”，还自以为高明地扭曲历史、虚构法理，将台湾地区领导人直选包装成台湾成为“崭新国家”的起点。
-
-这无不暴露这个“台独金孙”骨子里的诡诈与恶劣本性。
-
-台湾是中国的台湾，无论台湾地区以什么方式选举、选了什么人，都改变不了台湾是中国一部分的铁的事实，割裂不了两岸同属一个中国的历史和法理联结。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:01 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 00:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 01:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 00:44 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 00:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 00:49 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 00:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 00:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 00:49 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 00:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 01:03 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 01:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 01:03 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 00:47 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 01:07 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 00:56 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 00:48 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 01:05 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 00:53 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 00:55 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 00:51 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 00:48 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 00:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 00:53 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/126522052999.shtml)
-- 2026-06-30 00:56 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/870373651.shtml)
-- 2026-06-30 00:57 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/563128600097.shtml)
-- 2026-06-30 00:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/92625491.shtml)
-- 2026-06-30 00:42 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/6046122.shtml)
-- 2026-06-30 00:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/693790.shtml)
-- 2026-06-30 00:49 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/925768744243.shtml)
-- 2026-06-30 00:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/1347947.shtml)
-- 2026-06-30 00:55 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/2835524432.shtml)
-- 2026-06-30 00:46 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/234607027.shtml)
-- 2026-06-30 00:41 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/60963645277.shtml)
-- 2026-06-30 00:58 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/359651569033.shtml)
-- 2026-06-30 00:54 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/04529.shtml)
-- 2026-06-30 00:56 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/73048.shtml)
-- 2026-06-30 00:41 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/70608.shtml)
+- 2026-06-30 01:05 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/23224366.shtml)
+- 2026-06-30 00:55 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/331433496815.shtml)
+- 2026-06-30 00:44 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/420188231.shtml)
+- 2026-06-30 00:59 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/773288.shtml)
+- 2026-06-30 00:43 - [蔚来车主罚站](https://www.share.minike.top/Article/details/799564658975.shtml)
+- 2026-06-30 00:44 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/159974.shtml)
+- 2026-06-30 00:44 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/51783405.shtml)
+- 2026-06-30 01:05 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/244453504.shtml)
+- 2026-06-30 00:45 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/12979.shtml)
+- 2026-06-30 01:05 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/58923156.shtml)
+- 2026-06-30 00:42 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/702636.shtml)
+- 2026-06-30 00:49 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/402997.shtml)
+- 2026-06-30 01:02 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/11416567.shtml)
+- 2026-06-30 00:56 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/38765.shtml)
+- 2026-06-30 00:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/918542967206.shtml)

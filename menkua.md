@@ -1,59 +1,48 @@
-# 第一观察｜中俄迈向更高质量的全面战略协作
+# “数爱无疆”数字公益故事展播 | 引领科技的力量
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-5月20日，国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。 回顾过往，习近平主席这样揭示两国关系实现跨越式发展的深层逻辑—— “是因为双方以‘千磨万击还坚劲’的毅力不断深化政治互信和战略协作，以‘更上一层楼’的精神拓展各领域合作，以‘乱云飞渡仍从容’的勇气捍卫国际公道正义、推动构建人类命运共同体”。 展望未来，习近平主席指出：“坚定不移推动中俄关系长
+发布时间：2026年06月12日 15:51 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由小米公益基金会推送的“引领
 
 ## 正文
 
-5月20日，国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。
+发布时间：2026年06月12日 15:51 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。
 
-回顾过往，习近平主席这样揭示两国关系实现跨越式发展的深层逻辑—— “是因为双方以‘千磨万击还坚劲’的毅力不断深化政治互信和战略协作，以‘更上一层楼’的精神拓展各领域合作，以‘乱云飞渡仍从容’的勇气捍卫国际公道正义、推动构建人类命运共同体”。
+2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由小米公益基金会推送的“引领科技的力量”作品入选。
 
-展望未来，习近平主席指出：“坚定不移推动中俄关系长期、健康、稳定、高质量发展，是双方着眼两国根本利益和世界发展大势作出的战略选择。
-
-” 如何推动两国关系长期、健康、稳定、高质量发展？
-
-元首引领是最大优势和根本保障。
-
-2013年以来，习近平主席同普京总统会面超过40次，引领双边关系行稳致远。
-
-这一次，两国元首先后举行小范围、大范围会谈，面对面深入交流三小时，就一系列重大问题进行了战略沟通，充分彰显双方着眼长远持续发展两国关系的坚定意愿。
-
-此次，中俄元首共同宣布《中俄睦邻友好合作条约》继续延期，签署并发表两国关于进一步加强全面战略协作、深化睦邻友好合作的联合声明。
+责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 00:55 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 01:04 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 01:01 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 00:54 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 01:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 00:39 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 00:52 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 00:46 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 00:56 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 00:56 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 00:36 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 00:42 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 00:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 00:49 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 01:11 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 01:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 00:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 00:50 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 01:09 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-30 00:50 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 00:57 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 01:03 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 00:53 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 00:52 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/552599.shtml)
-- 2026-06-30 00:41 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/5845974.shtml)
-- 2026-06-30 00:44 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/457409986.shtml)
-- 2026-06-30 00:38 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/0798595965.shtml)
-- 2026-06-30 01:01 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/279532.shtml)
-- 2026-06-30 00:38 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/69354.shtml)
-- 2026-06-30 00:59 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/74781105.shtml)
-- 2026-06-30 00:42 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/810451562700.shtml)
-- 2026-06-30 00:56 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/919483.shtml)
-- 2026-06-30 00:56 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/56046383.shtml)
-- 2026-06-30 00:49 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/0746508650.shtml)
-- 2026-06-30 00:46 - [千与千寻](https://www.blog.minike.top/Article/details/307248.shtml)
-- 2026-06-30 00:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/90493431937.shtml)
-- 2026-06-30 00:45 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/377088.shtml)
-- 2026-06-30 00:50 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/5641509.shtml)
+- 2026-06-30 00:59 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/46748.shtml)
+- 2026-06-30 00:49 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/000956.shtml)
+- 2026-06-30 00:58 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/282732899137.shtml)
+- 2026-06-30 00:54 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/45199547744.shtml)
+- 2026-06-30 00:57 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/5497838198.shtml)
+- 2026-06-30 00:46 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/22879359.shtml)
+- 2026-06-30 00:47 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/0405040.shtml)
+- 2026-06-30 01:09 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/75281.shtml)
+- 2026-06-30 00:44 - [斛珠夫人](https://www.blog.minike.top/Article/details/381292.shtml)
+- 2026-06-30 00:53 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/8576510131.shtml)
+- 2026-06-30 01:11 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/870081083054.shtml)
+- 2026-06-30 00:47 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/436608718.shtml)
+- 2026-06-30 00:51 - [极限挑战第一季](https://www.share.minike.top/Article/details/6474537360.shtml)
+- 2026-06-30 00:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/2027509854.shtml)
+- 2026-06-30 01:06 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/12502190.shtml)

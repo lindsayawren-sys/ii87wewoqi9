@@ -1,48 +1,60 @@
-# 柳州因地震被困11小时后获救91岁老人身体良好：能吃一大碗饭
+# 美国连续三个月成为全球最大原油出口国
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 08:44 来源：中国新闻网 5月21日，柳州市工人医院内，因地震被困11小时后获救的91岁老人覃美超，目前经过治疗后，身体状况良好，他说：“我还能吃一大碗饭。”老人女婿韦美求回忆搜救过程时表示，他在里面用石头敲门求救，父亲被救出来的时候，大家心里一块石头的落下去了，感谢大家的救援和关心。(陈梅 林洁琪 制作 王佳琪) 责任编辑：【李岩】
+美国已成为全球最大的石油出口国，颠覆了沙特阿拉伯和俄罗斯长期主导的格局。随着美伊冲突重塑全球能源贸易，这一转变进一步巩固了美国公司对能源市场的控制。 美国跃居榜首，对于一个曾依赖中东石油数十年，并于1973年遭受部分欧佩克成员国为报复其支持以色列而实施的石油禁运的国家而言，无疑是一次惊人的逆转。 2010年后，美国的命运开始转变。当时，美国页岩油气产量飙升，使其先是成为世界最大
 
 ## 正文
 
-发布时间：2026年05月22日 08:44 来源：中国新闻网 5月21日，柳州市工人医院内，因地震被困11小时后获救的91岁老人覃美超，目前经过治疗后，身体状况良好，他说：“我还能吃一大碗饭。
+美国已成为全球最大的石油出口国，颠覆了沙特阿拉伯和俄罗斯长期主导的格局。
 
-”老人女婿韦美求回忆搜救过程时表示，他在里面用石头敲门求救，父亲被救出来的时候，大家心里一块石头的落下去了，感谢大家的救援和关心。
+随着美伊冲突重塑全球能源贸易，这一转变进一步巩固了美国公司对能源市场的控制。
 
-(陈梅 林洁琪 制作 王佳琪) 责任编辑：【李岩】
+美国跃居榜首，对于一个曾依赖中东石油数十年，并于1973年遭受部分欧佩克成员国为报复其支持以色列而实施的石油禁运的国家而言，无疑是一次惊人的逆转。
+
+2010年后，美国的命运开始转变。
+
+当时，美国页岩油气产量飙升，使其先是成为世界最大的天然气生产国，随后又成为最大的石油生产国。
+
+自2026年2月以来，美伊冲突扰乱了沙特的石油出口，而俄罗斯的石油出口也因乌克兰无人机袭击和美国的制裁而受到影响。
+
+在此背景下，美国已成为世界最大的石油出口国。
+
+船舶追踪服务公司Vortexa的数据显示，受高产量和战略储备释放的推动，美国5月份原油和燃料出口量攀升至约1050万桶/日，连续第三个月成为全球最大的出口国。
 
 ## 相关推荐
 
-- 2026-06-30 01:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 00:51 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 00:54 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 00:57 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 00:43 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 00:59 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 01:01 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 00:37 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 00:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 00:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 00:55 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 00:39 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 00:55 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 00:52 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 01:00 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 00:44 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 00:46 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 00:53 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 00:43 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 01:01 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 00:43 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 01:06 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 00:59 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 00:56 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 01:07 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 00:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:04 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/3876148.shtml)
-- 2026-06-30 00:38 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/492526228779.shtml)
-- 2026-06-30 00:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/4448282284.shtml)
-- 2026-06-30 00:48 - [流金岁月](https://www.blog.minike.top/Article/details/627080198045.shtml)
-- 2026-06-30 00:52 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/819613.shtml)
-- 2026-06-30 00:57 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/5730585154.shtml)
-- 2026-06-30 00:54 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/86415.shtml)
-- 2026-06-30 01:00 - [扬名立万](http://www.share.minike.top/Article/details/93537.shtml)
-- 2026-06-30 00:41 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/636066900812.shtml)
-- 2026-06-30 00:46 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/927756.shtml)
-- 2026-06-30 01:04 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/871994672.shtml)
-- 2026-06-30 01:00 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/5180333.shtml)
-- 2026-06-30 00:54 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/978946259496.shtml)
-- 2026-06-30 01:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/24363297.shtml)
-- 2026-06-30 00:57 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/122115729100.shtml)
+- 2026-06-30 01:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/59064043364.shtml)
+- 2026-06-30 00:45 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/45015738982.shtml)
+- 2026-06-30 00:52 - [巴西vs日本](http://www.blog.minike.top/Article/details/627713.shtml)
+- 2026-06-30 00:47 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/11894.shtml)
+- 2026-06-30 00:48 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/86702414.shtml)
+- 2026-06-30 00:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/226103607.shtml)
+- 2026-06-30 00:54 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/542115.shtml)
+- 2026-06-30 01:10 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/7095534.shtml)
+- 2026-06-30 01:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/20010252.shtml)
+- 2026-06-30 00:58 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/9803840956.shtml)
+- 2026-06-30 01:07 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/088811.shtml)
+- 2026-06-30 01:04 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/4989859986.shtml)
+- 2026-06-30 00:43 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/97700124993.shtml)
+- 2026-06-30 01:08 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/969423.shtml)
+- 2026-06-30 00:44 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/147811.shtml)

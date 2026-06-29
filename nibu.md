@@ -1,53 +1,60 @@
-# 澜起科技盘中涨近12% 公司将继续保持领先优势未来成长动能强劲
+# KKR称AI驱动的生产力繁荣仍将延续，但警示出现19世纪以来罕见的极端分化格局
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-澜起科技（06809）今早一度涨近12%，截至发稿，股价上涨4.12%，现报465.20港元，成交额19.46亿港元。 东海证券指出，随着AI服务器渗透率提升与出货量增长，市场对高性能互连类芯片需求持续上升，澜起科技作为互连类芯片全球头部厂商，有望率先受益于产品子代迭代与需求增长。 财信证券也表示，公司有望充分受益于AI算力爆发驱动的数据中心基础设施升级与高速互连需求的结构性增
+核心要点 美国大型投资巨头 KKR 表示，由人工智能带动的生产力增长浪潮才刚刚拉开序幕，但同时警示，经济增长或将高度集中于少数行业。 以上观点出自该机构周四发布的年中展望报告。 KKR 全球宏观与资产配置主管、资产负债表首席投资官亨利・H・麦克维在报告中写道：未来数年人工智能将持续释放生产力红利，但与之相伴的是，全球战略竞争加剧，经济增长会愈发集中在少数行业，分化程度或将达到
 
 ## 正文
 
-澜起科技（06809）今早一度涨近12%，截至发稿，股价上涨4.12%，现报465.20港元，成交额19.46亿港元。
+核心要点 美国大型投资巨头 KKR 表示，由人工智能带动的生产力增长浪潮才刚刚拉开序幕，但同时警示，经济增长或将高度集中于少数行业。
 
-东海证券指出，随着AI服务器渗透率提升与出货量增长，市场对高性能互连类芯片需求持续上升，澜起科技作为互连类芯片全球头部厂商，有望率先受益于产品子代迭代与需求增长。
+以上观点出自该机构周四发布的年中展望报告。
 
-财信证券也表示，公司有望充分受益于AI算力爆发驱动的数据中心基础设施升级与高速互连需求的结构性增长。
+KKR 全球宏观与资产配置主管、资产负债表首席投资官亨利・H・麦克维在报告中写道：未来数年人工智能将持续释放生产力红利，但与之相伴的是，全球战略竞争加剧，经济增长会愈发集中在少数行业，分化程度或将达到 19 世纪 70 年代第二次工业革命开端以来前所未有的极端水平。
 
-看好公司在“运力”芯片赛道的绝对技术卡位、与产业巨头的深度绑定以及持续拓展的产品边界，预计随着AI服务器需求放量、DDR5渗透深化及PCIe/CXL新品上量，公司将继续保持领先优势，未来成长动能强劲。
+麦克维描述了当下的投资格局：部分经济板块与市场资金极度匮乏，另一部分赛道则资金泛滥。
 
-责任编辑：卢昱君
+他指出，科技、高端服务业、政府支出相关领域将出现高度集中的增长行情。
+
+放眼长期大趋势，KKR 认为国防与能源电力行业是最具发展红利的板块。
+
+报告提到：尽管原材料成本走高，但各国、各行业都愈发重视供应链安全与抗风险能力，相关投入持续扩容。
+
+以下为麦克维给投资者梳理的另外三大核心观点： 一、亚洲股市与私募市场持续领跑 麦克维表示：“我们认为日本、韩国市场当前估值仍处低位，2026 至 2027 两年两国企业盈利大概率持续超预期。
 
 ## 相关推荐
 
-- 2026-06-30 00:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 00:36 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 01:00 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 00:42 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 00:49 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 00:57 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 00:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 00:44 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 01:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 01:05 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 01:02 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 00:45 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 01:01 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 01:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 01:06 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 01:04 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 00:46 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 00:51 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 00:50 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 00:46 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 01:10 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 01:05 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 00:44 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 01:02 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 01:06 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 01:09 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 00:51 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/610967557.shtml)
-- 2026-06-30 00:48 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/67508677096.shtml)
-- 2026-06-30 00:52 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/29035332.shtml)
-- 2026-06-30 00:45 - [东方风云榜直播](https://www.blog.minike.top/Article/details/16565.shtml)
-- 2026-06-30 00:37 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/33395.shtml)
-- 2026-06-30 00:59 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/42349.shtml)
-- 2026-06-30 00:40 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/725193.shtml)
-- 2026-06-30 00:51 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/852814534.shtml)
-- 2026-06-30 01:02 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/35827.shtml)
-- 2026-06-30 00:58 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/89926.shtml)
-- 2026-06-30 01:03 - [刘念回应](http://www.blog.minike.top/Article/details/659950321.shtml)
-- 2026-06-30 00:43 - [金牌调解](https://www.share.kurohicncr.top/Article/details/391368444.shtml)
-- 2026-06-30 00:38 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/89229750640.shtml)
-- 2026-06-30 00:55 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/70982.shtml)
-- 2026-06-30 00:39 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/8920838058.shtml)
+- 2026-06-30 01:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/112993.shtml)
+- 2026-06-30 00:48 - [青春环游记第三季](http://www.blog.minike.top/Article/details/02696241997.shtml)
+- 2026-06-30 00:58 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/19462595.shtml)
+- 2026-06-30 00:53 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/187643.shtml)
+- 2026-06-30 01:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/6086081.shtml)
+- 2026-06-30 00:45 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/91315.shtml)
+- 2026-06-30 00:52 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/102649.shtml)
+- 2026-06-30 00:44 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/064014.shtml)
+- 2026-06-30 00:56 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/82179342750.shtml)
+- 2026-06-30 01:11 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/878313.shtml)
+- 2026-06-30 01:09 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/5260612912.shtml)
+- 2026-06-30 00:52 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/868352807045.shtml)
+- 2026-06-30 00:53 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/1450020.shtml)
+- 2026-06-30 00:57 - [扬名立万](http://www.blog.minike.top/Article/details/41353062.shtml)
+- 2026-06-30 00:52 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/80750.shtml)

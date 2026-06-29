@@ -1,56 +1,61 @@
-# 十年与爱同行，一位蒙古国红十字工作者的赴华“光明行”
+# 欧佩克下调本年度全球石油需求增长预期
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网二连浩特5月21日电 题：十年与爱同行，一位蒙古国红十字工作者的赴华“光明行” 中新网记者奥蓝 21日，中蒙边境城市二连浩特，2026“一带一路·光明行”蒙古国行动进入第二个手术日。手术车上，一台又一台手术正紧锣密鼓进行着；病房中，术后复查也在开展，不时传出患者重见光明后的笑谈声。当天计划完成白内障手术52台，复查前一日手术的白内障患者68人。 巴雅尔其木格一边关注着患者
+此前预测全球原油日需求增量 117 万桶，现下调至 97 万桶 / 日 内容速览 受美国封锁伊朗影响，石油输出国组织（欧佩克）将 2026 年全球原油日需求增长预期下调至 97 万桶。 石油输出国组织下调了本年度全球石油需求预测。原因是美国对伊朗实施封锁，霍尔木兹海峡近乎断航，海湾主要产油国原油供应持续受限。 该产油国联盟最新预测，今年全球原油日需求增量为 97 万桶，此前预期
 
 ## 正文
 
-中新网二连浩特5月21日电 题：十年与爱同行，一位蒙古国红十字工作者的赴华“光明行” 中新网记者奥蓝 21日，中蒙边境城市二连浩特，2026“一带一路·光明行”蒙古国行动进入第二个手术日。
+此前预测全球原油日需求增量 117 万桶，现下调至 97 万桶 / 日 内容速览 受美国封锁伊朗影响，石油输出国组织（欧佩克）将 2026 年全球原油日需求增长预期下调至 97 万桶。
 
-手术车上，一台又一台手术正紧锣密鼓进行着；病房中，术后复查也在开展，不时传出患者重见光明后的笑谈声。
+石油输出国组织下调了本年度全球石油需求预测。
 
-当天计划完成白内障手术52台，复查前一日手术的白内障患者68人。
+原因是美国对伊朗实施封锁，霍尔木兹海峡近乎断航，海湾主要产油国原油供应持续受限。
 
-巴雅尔其木格一边关注着患者们的状态，一边思索着怎么为网友解惑。
+该产油国联盟最新预测，今年全球原油日需求增量为 97 万桶，此前预期为 117 万桶；上调明年需求增长预期至 173 万桶 / 日，此前预测为 154 万桶 / 日。
 
-这几天的互联网上，相关新闻报道下有不少蒙古国民众留言咨询如何报名。
+欧佩克的需求预判与其他机构存在明显分歧。
 
-“这个项目在蒙古国口口相传，有很好的口碑，每年报名的人很多。
+其余分析机构认为，伊朗冲突将对原油消费造成更严重冲击：美国能源信息署预计今年全球原油日需求将减少 110 万桶，国际能源署则预测需求每日收缩 42 万桶。
 
-人们都很感谢、也很珍惜这样的手术机会。
+5 月，欧佩克成员国原油日产量下降 17.7 万桶，至 1883 万桶；涵盖更多产油国的欧佩克 + 联盟整体日产量减少 18.5 万桶，报 3313 万桶。
 
-”巴雅尔其木格说。
+伊朗减产幅度最为剧烈，受美国封锁港口航运影响，原油日产量锐减 54.6 万桶。
 
 ## 相关推荐
 
-- 2026-06-30 01:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 00:54 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 00:50 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 01:02 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 00:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 00:36 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 00:36 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 00:36 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 01:05 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 00:44 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 01:10 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 01:12 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 01:06 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 00:58 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 00:45 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 00:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 00:57 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 01:03 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 00:59 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 00:55 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 01:03 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 01:02 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 01:06 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 00:56 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 00:57 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:57 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/791367.shtml)
-- 2026-06-30 01:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/866636685.shtml)
-- 2026-06-30 00:53 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/7717106056.shtml)
-- 2026-06-30 00:43 - [千香](https://www.share.minike.top/Article/details/645258008.shtml)
-- 2026-06-30 00:47 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/38952.shtml)
-- 2026-06-30 01:04 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/836214.shtml)
-- 2026-06-30 00:43 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/5385696494.shtml)
-- 2026-06-30 00:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/209007502.shtml)
-- 2026-06-30 01:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/47804812964.shtml)
-- 2026-06-30 00:43 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/05898668.shtml)
-- 2026-06-30 00:37 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/071969951.shtml)
-- 2026-06-30 01:04 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/867822690808.shtml)
-- 2026-06-30 00:47 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/058635627.shtml)
-- 2026-06-30 00:45 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/21085.shtml)
-- 2026-06-30 00:44 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/112805.shtml)
+- 2026-06-30 00:57 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/6570757.shtml)
+- 2026-06-30 01:04 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/742609.shtml)
+- 2026-06-30 00:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/102382508.shtml)
+- 2026-06-30 01:09 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/01287608.shtml)
+- 2026-06-30 00:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/9197376900.shtml)
+- 2026-06-30 01:00 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/043077.shtml)
+- 2026-06-30 00:55 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/7546652.shtml)
+- 2026-06-30 00:51 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/06850.shtml)
+- 2026-06-30 01:06 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/58638271241.shtml)
+- 2026-06-30 00:55 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/91084019941.shtml)
+- 2026-06-30 00:43 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/327596885.shtml)
+- 2026-06-30 01:04 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/506580832980.shtml)
+- 2026-06-30 00:58 - [曼城官宣马雷斯卡出任主教练](https://www.share.minike.top/Article/details/10590637.shtml)
+- 2026-06-30 00:51 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/085227274.shtml)
+- 2026-06-30 01:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/939636597315.shtml)

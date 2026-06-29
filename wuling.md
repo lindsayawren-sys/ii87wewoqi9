@@ -1,58 +1,56 @@
-# 2026越山向海人车接力中国赛张家口站将于6月12日开赛
+# 美伊局势最新动向引发市场博弈，油价冲高后回落
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-中新网北京5月21日电 5月21日，2026正大食品越山向海人车接力中国赛张家口站启动仪式在北京举行。 越山向海人车接力中国赛，自2017年首次落地张家口，至今已走过十年。作为全球唯一的长距离路跑公开接力赛品牌，越山向海以“5人1车”团队接力赛制，将草原天路的壮美与团队协作的精神融为一体。在中国已举办16站，十年间累计直接影响跑步人群超过50万，成为中国跑圈“一生必跑”的经典赛
+核心要点 受中东地缘紧张局势升温影响，国际原油价格周四早盘冲高后小幅下跌。美国发起对伊朗的军事打击，伊朗则还击海湾地区美国盟友的军事设施，交易商持续研判本轮冲突后续影响。 美国 7 月交割西德克萨斯轻质原油（WTI）期货下跌 0.5%，报每桶 89.57 美元；国际基准布伦特原油 8 月交割期货下跌 0.67%，报每桶 92.48 美元。 科威特周四宣布关闭本国领空，并成功拦截
 
 ## 正文
 
-中新网北京5月21日电 5月21日，2026正大食品越山向海人车接力中国赛张家口站启动仪式在北京举行。
+核心要点 受中东地缘紧张局势升温影响，国际原油价格周四早盘冲高后小幅下跌。
 
-越山向海人车接力中国赛，自2017年首次落地张家口，至今已走过十年。
+美国发起对伊朗的军事打击，伊朗则还击海湾地区美国盟友的军事设施，交易商持续研判本轮冲突后续影响。
 
-作为全球唯一的长距离路跑公开接力赛品牌，越山向海以“5人1车”团队接力赛制，将草原天路的壮美与团队协作的精神融为一体。
+美国 7 月交割西德克萨斯轻质原油（WTI）期货下跌 0.5%，报每桶 89.57 美元；国际基准布伦特原油 8 月交割期货下跌 0.67%，报每桶 92.48 美元。
 
-在中国已举办16站，十年间累计直接影响跑步人群超过50万，成为中国跑圈“一生必跑”的经典赛事。
+科威特周四宣布关闭本国领空，并成功拦截来袭飞行物；以色列同步发布预警，称黎巴嫩武装可能向以色列北部居民区发动袭击。
 
-2026越山向海张家口站将于6月12日晚间正式起跑，今年赛事规模再创历史新高——1200支队伍、6000名跑者、1200台参赛车辆将从张家口出发。
+伊朗国营塔斯尼姆通讯社消息，伊朗军方已打击科威特、巴林境内多处美军基地，包括科威特阿里・萨勒姆空军基地、艾哈迈德・贾比尔空军基地，以及巴林谢赫・伊萨空军基地。
 
-本届赛事赛道将延续经典路线，选手分批次从张北塞那都跑马场出发，途经16个接力点，穿越迷人的草原天路，终点抵达崇礼雪如意国家跳台滑雪中心，全程142.6公里。
+巴林官方表示，本国防空系统已全部拦截并摧毁伊朗来袭空中目标。
 
-赛事首批发枪时间为6月12日晚20时，比赛时间预计从6月12日持续至6月14日凌晨。
+本轮局势升级源于美国总统特朗普下令美军打击伊朗军事基础设施。
 
-张家口市体育局党组书记、局长郭丽娜在致辞中表示，过去九年时间，越山向海万千团队在张家口上演了“无团队、不山海”的精彩故事，近4万跑友在百余公里的赛道上成就了彼此的人生山海。
+美国中央司令部称，本次打击目标是对驻中东美军、区域商业航运构成威胁的侦察、通信及防空装备。
 
 ## 相关推荐
 
-- 2026-06-30 00:46 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 00:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 00:38 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 00:46 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 00:55 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 00:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 01:05 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 00:55 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 00:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 00:58 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 00:39 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 00:45 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 00:57 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 01:06 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 01:09 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 01:00 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 01:11 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 00:56 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 01:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 01:01 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 01:04 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 00:52 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/307763.shtml)
-- 2026-06-30 01:00 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/766270621588.shtml)
-- 2026-06-30 00:46 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/8408735.shtml)
-- 2026-06-30 00:50 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/046496.shtml)
-- 2026-06-30 00:39 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/10177.shtml)
-- 2026-06-30 00:37 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/32086436585.shtml)
-- 2026-06-30 00:39 - [月亮](https://www.share.kurohicncr.top/Article/details/620012.shtml)
-- 2026-06-30 00:59 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/275944729064.shtml)
-- 2026-06-30 00:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/35879874818.shtml)
-- 2026-06-30 01:00 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/37919811.shtml)
-- 2026-06-30 00:41 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/26831935.shtml)
-- 2026-06-30 01:01 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/667335831835.shtml)
-- 2026-06-30 00:39 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/46442.shtml)
-- 2026-06-30 00:51 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/96304293.shtml)
-- 2026-06-30 01:00 - [一见倾心](http://www.share.minike.top/Article/details/89135449928.shtml)
+- 2026-06-30 00:51 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/543312508360.shtml)
+- 2026-06-30 01:06 - [速度与激情9](http://www.blog.minike.top/Article/details/43774267.shtml)
+- 2026-06-30 01:09 - [美人鱼](http://www.share.kurohicncr.top/Article/details/789661998.shtml)
+- 2026-06-30 01:00 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/2054089.shtml)
+- 2026-06-30 00:59 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/029930.shtml)
+- 2026-06-30 00:47 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/353301.shtml)
+- 2026-06-30 00:46 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/720912330774.shtml)
+- 2026-06-30 00:42 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/0942793.shtml)
+- 2026-06-30 00:42 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/5580070.shtml)
+- 2026-06-30 01:08 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/09015204408.shtml)
+- 2026-06-30 00:51 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/4962769.shtml)
+- 2026-06-30 01:01 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/95259459.shtml)
+- 2026-06-30 00:45 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/60938720128.shtml)
+- 2026-06-30 01:01 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/43657340.shtml)
+- 2026-06-30 00:58 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/48256249949.shtml)

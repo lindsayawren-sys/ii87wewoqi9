@@ -1,59 +1,60 @@
-# 白银的多空“拉锯战”：印度需求收缩 vs 全球供给短缺
+# 商务部：今年以来，中国外贸延续稳中有进良好态势
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 周四（5月21日），银价一度攀升至76.90美元上方，随后出现回落，目前交投于75.50美元/盎司附近，跌幅近0.3%。在银价冲高回落的背后，几股关键力量正在角力。 印度大幅收紧白银进口 为抑制贵金属进口、缓解外汇储备压力并支撑印度卢比汇率，印度政府近期出台了一系列针对白银进口的限制措施。 在关税层面，5月13日，印度政府宣布将白银的进口关税从6%大幅上调至
+中新网6月11日电 商务部11日举行新闻发布会。会上有记者提问，前5月外贸数据已经发布，请问商务部如何看待我国外贸的总体表现和结构亮点？ 商务部新闻发言人何亚东表示，今年以来，面对复杂严峻的国际政治经济形势，中国外贸顶住压力，延续稳中有进的良好态势。1-5月，货物贸易进出口总值20.68万亿元人民币，同比增长15.3%。其中，进口增长20.5%，出口增长11.8%。总的来看，中
 
 ## 正文
 
-文章来源：汇通财经 周四（5月21日），银价一度攀升至76.90美元上方，随后出现回落，目前交投于75.50美元/盎司附近，跌幅近0.3%。
+中新网6月11日电 商务部11日举行新闻发布会。
 
-在银价冲高回落的背后，几股关键力量正在角力。
+会上有记者提问，前5月外贸数据已经发布，请问商务部如何看待我国外贸的总体表现和结构亮点？
 
-印度大幅收紧白银进口 为抑制贵金属进口、缓解外汇储备压力并支撑印度卢比汇率，印度政府近期出台了一系列针对白银进口的限制措施。
+商务部新闻发言人何亚东表示，今年以来，面对复杂严峻的国际政治经济形势，中国外贸顶住压力，延续稳中有进的良好态势。
 
-在关税层面，5月13日，印度政府宣布将白银的进口关税从6%大幅上调至15%（含10%基本关税及5%农业基础设施与发展税），即日生效。
+1-5月，货物贸易进出口总值20.68万亿元人民币，同比增长15.3%。
 
-印度是全球第二大贵金属消费国，进口黄金和白银需要动用大量美元外汇。
+其中，进口增长20.5%，出口增长11.8%。
 
-在美伊冲突推高油价、印度外汇储备承压（自战事爆发以来已减少近380亿美元）、卢比兑美元汇率跌至96.18历史新低的背景下，此举旨在迅速压缩经常账户赤字、遏制外汇外流。
+总的来看，中国外贸亮点纷呈。
 
-在非关税壁垒层面，印度政府进一步将银条进口由“自由进口”调整为“受限进口”，规定仅有获得印度外贸总局核发许可的货物方可入境。
+一是进口潜力持续释放。
 
-此次受限类别涵盖了纯度99.9%以上的银条及半成品银，占印度白银进口总量的90%以上。
+1-5月，进口规模创历史同期新高。
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 00:43 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 00:37 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 00:45 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 01:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 00:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 00:52 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 00:50 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 00:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 00:40 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 01:02 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 00:45 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 00:50 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 01:04 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 00:56 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 00:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 00:59 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 00:51 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 01:09 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 00:52 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 00:46 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 00:56 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 00:52 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 01:02 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 00:51 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 00:45 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 01:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:46 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/391916400.shtml)
-- 2026-06-30 00:39 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/7401070.shtml)
-- 2026-06-30 01:05 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/86775.shtml)
-- 2026-06-30 00:50 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/765620807235.shtml)
-- 2026-06-30 01:03 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/953949898876.shtml)
-- 2026-06-30 00:49 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/907457368.shtml)
-- 2026-06-30 00:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/17928791.shtml)
-- 2026-06-30 00:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/86803243.shtml)
-- 2026-06-30 00:59 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/39622783.shtml)
-- 2026-06-30 00:53 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/455254.shtml)
-- 2026-06-30 00:48 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/00411180.shtml)
-- 2026-06-30 00:38 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/6601773298.shtml)
-- 2026-06-30 00:38 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/2374209.shtml)
-- 2026-06-30 00:39 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/4239161631.shtml)
-- 2026-06-30 00:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/6177422.shtml)
+- 2026-06-30 01:03 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/6804589287.shtml)
+- 2026-06-30 01:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/65772813028.shtml)
+- 2026-06-30 01:08 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/0504065.shtml)
+- 2026-06-30 00:52 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/456250.shtml)
+- 2026-06-30 00:55 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/654111.shtml)
+- 2026-06-30 00:55 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/185210.shtml)
+- 2026-06-30 00:46 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/1640920873.shtml)
+- 2026-06-30 00:55 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/1984673.shtml)
+- 2026-06-30 01:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/15061459.shtml)
+- 2026-06-30 00:43 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/25359847.shtml)
+- 2026-06-30 00:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/79473.shtml)
+- 2026-06-30 00:49 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/609785.shtml)
+- 2026-06-30 00:53 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/61680107968.shtml)
+- 2026-06-30 00:43 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/24217703407.shtml)
+- 2026-06-30 00:59 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/6515294.shtml)

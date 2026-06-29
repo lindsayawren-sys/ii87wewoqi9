@@ -1,58 +1,60 @@
-# 华泰期货：当前集运欧线基本面偏强，远月合约计价更多涨价
+# 专家：依托长江推动内河船舶绿色智能转型升级
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 高聪 市场分析 线上报价方面。 Gemini Cooperation：马士基上海-鹿特丹WEEK23周报价2645/3820（上海至安特卫普2360/3500、伦敦口岸港价格2360/3500，汉堡港价格2760/3900）；HPL 5月下半月船期报价介于2800-3500美元/FEU，6月上半月船期报价3800-3900美元/FEU，6月下半月船期报价
+中新网宜昌6月11日电 (董晓斌 朱灿义 黎文来)第三届绿色智能内河船舶产业研讨会11日在湖北省宜都市举行。全国船舶领域企业、科研院所近300位行业专家、企业家代表相聚长江之滨，共商绿色智能船舶产业发展。 近年来，中国造船产业全球市场占有率持续攀升，但内河船舶市场仍存发展短板，潜力也有待挖掘和释放。 活动现场，与会专家学者围绕新能源内河船发展趋势、电动船舶规模化发展等进行了主题
 
 ## 正文
 
-来源：华泰期货 作者： 高聪 市场分析 线上报价方面。
+中新网宜昌6月11日电 (董晓斌 朱灿义 黎文来)第三届绿色智能内河船舶产业研讨会11日在湖北省宜都市举行。
 
-Gemini Cooperation：马士基上海-鹿特丹WEEK23周报价2645/3820（上海至安特卫普2360/3500、伦敦口岸港价格2360/3500，汉堡港价格2760/3900）；HPL 5月下半月船期报价介于2800-3500美元/FEU，6月上半月船期报价3800-3900美元/FEU，6月下半月船期报价4200-4500美元/FEU。
+全国船舶领域企业、科研院所近300位行业专家、企业家代表相聚长江之滨，共商绿色智能船舶产业发展。
 
-马士基6月份涨价函价格2470/3800． MSC+Premier Alliance：MSC 5月下半月船期报价1760/2940；ONE 5月下半月船期报价2841美元/FEU，6月上半月船期报价3541美元/FEU，6月下半月船期报价3541美元/FEU；HMM5月下半月船期报价1694/2958，6月上半月船期报价2194/3958；YML 5/23-5/31日船期报价3000美元/FEU，其中5/23日船期报价1550/2600。
+近年来，中国造船产业全球市场占有率持续攀升，但内河船舶市场仍存发展短板，潜力也有待挖掘和释放。
 
-MSC 6月份涨价函价格2820/4700． Ocean Alliance：CMA 上海-鹿特丹5月下半月船期报价3575美元/FEU，6月上半月船期报价4746-5008美元/FEU；EMC 5月下半月船期报价介于3160-3260美元/FEU，6月上半月船期报价4560美元/FEU；OOCL 6月上半月船期报价4400-4700美元/FEU。
+活动现场，与会专家学者围绕新能源内河船发展趋势、电动船舶规模化发展等进行了主题演讲。
 
-地缘端：据半岛电视台报道，也门胡塞武装领导人重申全力支持伊朗，称近期事态表明，尽管以色列拥有军事力量并与美国结盟，但其仍可能被击败。
+大会还设置了分论坛，针对市民休闲船与夜游船供给侧创新、智能船舶与智慧港航协同发展、绿色智能装备变革与人才发展等议题进行研讨，引导全行业聚焦内需市场新需求，开辟产业发展新增长点。
 
-胡塞武装最高政治委员会主席马赫迪·马沙特表示，“美国-犹太复国主义对伊朗的侵略，源于其想要清除美以实施计划和阴谋的主要障碍”。
+中国船舶工业行业协会副会长林鸥说，想要推动船舶行业夯实国内大循环主体地位，必须依托长江黄金水道，持续推动内河船舶绿色化、智能化、高端化转型升级，构建水运产业赋能区域经济、区域经济反哺水运产业的良性发展生态。
 
-他敦促地区各国政府团结起来，而不是与美以政策结盟，并警告说，保持中立就等同于同谋。
+宜都是长江、清江交汇处的重要工业城市，也是连接成渝与长江中游城市群的重要节点。
 
-马沙特还补充说：“如今，保持中立就是叛国行为，因为协助敌人被视为最严重的叛国行为。
+近年来，宜都市深耕绿色智能船舶产业领域，高标准建成绿色智能船舶产业园，落地投产国内首创的创新型船舶绿色智能下水系统。
 
 ## 相关推荐
 
-- 2026-06-30 00:51 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 00:55 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 01:05 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 00:57 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 00:57 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 00:55 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 01:05 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 00:53 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 00:44 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 00:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 00:38 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 01:02 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 00:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 01:00 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 01:02 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 01:00 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 00:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 00:53 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 01:08 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 01:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 01:04 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 00:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 00:54 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 00:45 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 01:05 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 01:10 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:42 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/557586407524.shtml)
-- 2026-06-30 00:37 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/65544257.shtml)
-- 2026-06-30 01:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/00308.shtml)
-- 2026-06-30 00:36 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/8389238602.shtml)
-- 2026-06-30 00:38 - [小娘惹](http://www.blog.minike.top/Article/details/57241632.shtml)
-- 2026-06-30 00:42 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/465422.shtml)
-- 2026-06-30 00:39 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/0761738.shtml)
-- 2026-06-30 00:45 - [田曦薇没招了](http://www.blog.minike.top/Article/details/879426.shtml)
-- 2026-06-30 00:57 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/70329456.shtml)
-- 2026-06-30 00:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/528886394450.shtml)
-- 2026-06-30 00:40 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/097697276.shtml)
-- 2026-06-30 01:05 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/125628658.shtml)
-- 2026-06-30 00:36 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/34982370.shtml)
-- 2026-06-30 00:46 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/5039229.shtml)
-- 2026-06-30 00:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/5654735972.shtml)
+- 2026-06-30 01:05 - [《贺子珍》](http://www.share.minike.top/Article/details/5344420.shtml)
+- 2026-06-30 01:07 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/37904826.shtml)
+- 2026-06-30 00:55 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/668559529.shtml)
+- 2026-06-30 00:44 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/684956723167.shtml)
+- 2026-06-30 00:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/05452648.shtml)
+- 2026-06-30 01:09 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/009584.shtml)
+- 2026-06-30 01:02 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/247294670025.shtml)
+- 2026-06-30 01:02 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/8633178.shtml)
+- 2026-06-30 00:49 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/93303.shtml)
+- 2026-06-30 01:08 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/2851492541.shtml)
+- 2026-06-30 00:47 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/252020181802.shtml)
+- 2026-06-30 01:02 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/1312476904.shtml)
+- 2026-06-30 00:52 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/505529137.shtml)
+- 2026-06-30 00:55 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/6152111001.shtml)
+- 2026-06-30 01:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/13227831.shtml)

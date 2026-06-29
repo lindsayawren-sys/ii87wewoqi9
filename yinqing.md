@@ -1,61 +1,54 @@
-# 谈AI战略！中国平安马明哲最新发声
+# 第三届长春国际光电博览会开幕
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:02 UTC+8
 
 ## 摘要
 
-在AI快速发展的时代下，拥抱AI已经成为每一家企业的必答题。作为国内金融巨头，中国平安布局AI勇立潮头。5月20日，中国平安2025年年度股东会在深圳举行，来自全国各地的股东们齐聚一堂，围绕投资、AI战略、海外布局、股价表现等话题向公司管理层提问。一位中国平安中小股东告诉上证报记者：“今年市场科技股表现很好，中国平安的科技建设也搞了很久，我很关心公司的科技实力和投资科技股情况。
+特朗普提名的下任国家情报总监是谁？新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，
 
 ## 正文
 
-在AI快速发展的时代下，拥抱AI已经成为每一家企业的必答题。
+特朗普提名的下任国家情报总监是谁？
 
-作为国内金融巨头，中国平安布局AI勇立潮头。
+新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！
 
-5月20日，中国平安2025年年度股东会在深圳举行，来自全国各地的股东们齐聚一堂，围绕投资、AI战略、海外布局、股价表现等话题向公司管理层提问。
+世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？
 
-一位中国平安中小股东告诉上证报记者：“今年市场科技股表现很好，中国平安的科技建设也搞了很久，我很关心公司的科技实力和投资科技股情况。
+鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打落多名官员，此前烟花爆炸事故致37人死亡“孤女遭亲舅舅阻止高考”系“剧本式”造谣“秦腔一枝梅”：秦腔不全是“吼”，还有委婉缠绵人工智能成为推动中国外贸增长新引擎销量前十再无燃油车 “油退电进”按下加速键中国元素将亮相美加墨世界杯秘鲁前总理：AI时代，何以守护人类基本人权？
 
-”谈及AI战略，中国平安董事长马明哲直言：“在科技创新和人工智能的时代下，我们的科技创新在金融业和保险业都是领先的。
+岳云鹏：如果人生能多一个镜头，我想留给父亲西藏拉萨：运动会上的力量之美“AI医生”上高原 智能诊断系统守护基层官兵健康吉林村民遇东北虎捕食黄牛 危急时刻爬树避险成都一高校免费捞鱼900斤 祝愿毕业生“年年有余”蔡正元入狱2个月最新发声94%得票率！
 
-未来公司将继续抓住科技创新大潮，建立特殊的竞争优势和竞争能力。
-
-”马明哲表示，公司的战略很清楚，就是“综合金融+医疗养老”，然后以科技赋能“综合金融+医疗养老”。
-
-“经过这几年的改革，我们的战略更清晰、财务更稳健、‘护城河’更高、未来更可期。
+樊振东当选德甲赛季最佳三峡水库腾出防洪库容 长江万州段水位降至150米全国规模最大海上光氢储一体化项目建成南博会上挑战“见手青拿铁” 喝完会不会看见“小人人”河北农业大学毕业典礼上 学生轮番整活把校长“忙坏了”津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了北京：圆明园旁扇面湖荷花盛开 世界杯16座城市16种画风 世界最长高原冻土铁路特大桥稳定运行20年 多图直击2026美加墨世界杯开幕式 “洋景漂”父女的三宝村“陶”源生活 杭州：这里的花期已排满，四时各有专属“花 “中国洮砚之乡”采石人：身贴悬崖绝壁深入 广东揭阳：一纸情书 藏在这座低调古城的烟 分享 评论 顶部
 
 ## 相关推荐
 
-- 2026-06-30 00:55 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 00:42 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 00:45 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 01:04 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 01:04 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 01:03 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 01:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 00:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-30 00:57 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 00:46 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 00:42 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 00:44 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 00:50 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 00:51 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 00:41 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 00:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 00:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 00:59 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 00:56 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 00:55 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 01:10 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 00:51 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 01:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 01:00 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 00:49 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 00:50 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 00:45 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/6551330882.shtml)
-- 2026-06-30 00:47 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/260270640.shtml)
-- 2026-06-30 00:55 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/587163.shtml)
-- 2026-06-30 00:44 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/9789461621.shtml)
-- 2026-06-30 00:38 - [扬名立万](https://www.blog.minike.top/Article/details/998941.shtml)
-- 2026-06-30 00:43 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/898462.shtml)
-- 2026-06-30 00:38 - [一生一世](http://www.blog.minike.top/Article/details/722537941.shtml)
-- 2026-06-30 00:42 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/10685069535.shtml)
-- 2026-06-30 00:43 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/46105.shtml)
-- 2026-06-30 00:49 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/437887988.shtml)
-- 2026-06-30 00:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/32876005.shtml)
-- 2026-06-30 00:48 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/426913435220.shtml)
-- 2026-06-30 01:01 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/68088.shtml)
-- 2026-06-30 00:38 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/345143269.shtml)
-- 2026-06-30 00:57 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/576000.shtml)
+- 2026-06-30 01:07 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/65273441.shtml)
+- 2026-06-30 00:44 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/013774.shtml)
+- 2026-06-30 01:00 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/9252651799.shtml)
+- 2026-06-30 01:02 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/6293070.shtml)
+- 2026-06-30 01:06 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/25317430776.shtml)
+- 2026-06-30 00:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/9288652314.shtml)
+- 2026-06-30 00:56 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/957394929.shtml)
+- 2026-06-30 01:04 - [绘画区你赢了](https://www.blog.minike.top/Article/details/45229632115.shtml)
+- 2026-06-30 00:51 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/71295357134.shtml)
+- 2026-06-30 00:53 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/6251691206.shtml)
+- 2026-06-30 01:06 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/99818557901.shtml)
+- 2026-06-30 00:55 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/71370635.shtml)
+- 2026-06-30 00:59 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/81068045.shtml)
+- 2026-06-30 01:01 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/7931662.shtml)
+- 2026-06-30 00:49 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/75955.shtml)

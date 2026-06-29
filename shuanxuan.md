@@ -1,58 +1,58 @@
-# 青海高原冷凉蔬菜每年供港澳1万吨
+# 滴滴充电联合肯德基推出“送餐到站”服务 探索充电新体验
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:03 UTC+8
 
 ## 摘要
 
-中新社西宁5月20日电 (记者 孙睿)记者20日从开局起步“十五五”青海专场新闻发布会上获悉，青海高原冷凉蔬菜每年供(香)港澳(门)达1万吨。 青海地处青藏高原，气候冷凉，昼夜温差大，加之高原地区日照时间长、紫外线强、病虫害少，蔬菜积累了更多糖分和维生素，营养更丰富。 2023年8月7日，“青字号”紫叶生菜、甘蓝等8种蔬菜装箱发往香港，实现青海冷凉蔬菜出口“零”突破。截至当年1
+6月9日至22日，滴滴充电联合肯德基推出“送餐到站”服务，首批覆盖北京、上海、广州、杭州等14座城市的近50个充电场站，为用户提供“充电+用餐”的一站式服务体验。 活动期间，用户在指定场站通过滴滴出行App、滴滴充电App及其小程序等渠道扫码启动充电，即可一键下单“满电能量餐”，享受餐品直送充电场站的服务。同时，结合不同用户的需求，滴滴充电与肯德基联合推出多款优惠套餐券，并赠送
 
 ## 正文
 
-中新社西宁5月20日电 (记者 孙睿)记者20日从开局起步“十五五”青海专场新闻发布会上获悉，青海高原冷凉蔬菜每年供(香)港澳(门)达1万吨。
+6月9日至22日，滴滴充电联合肯德基推出“送餐到站”服务，首批覆盖北京、上海、广州、杭州等14座城市的近50个充电场站，为用户提供“充电+用餐”的一站式服务体验。
 
-青海地处青藏高原，气候冷凉，昼夜温差大，加之高原地区日照时间长、紫外线强、病虫害少，蔬菜积累了更多糖分和维生素，营养更丰富。
+活动期间，用户在指定场站通过滴滴出行App、滴滴充电App及其小程序等渠道扫码启动充电，即可一键下单“满电能量餐”，享受餐品直送充电场站的服务。
 
-2023年8月7日，“青字号”紫叶生菜、甘蓝等8种蔬菜装箱发往香港，实现青海冷凉蔬菜出口“零”突破。
+同时，结合不同用户的需求，滴滴充电与肯德基联合推出多款优惠套餐券，并赠送15天免费充电会员。
 
-截至当年11月，出口合计401吨。
+用户在全国滴滴充电场站均可参与活动，所购套餐券可到任意肯德基线下门店使用核销。
 
-青海省委常委、副省长才让太介绍，青海高原冷凉蔬菜种植面积稳定在60万亩左右，年产量179万吨，每年供港澳达1万吨。
+数据显示，公共充电高峰集中在中午和晚上正餐时段，用户就餐需求随之增加。
 
-冷链物流可以保证“朝发夕至”，早上采摘的蔬菜，第二天就可以摆上香港人的超市和餐桌。
+而受场地条件影响，多数充电站缺少餐饮类等生活配套设施。
 
-据西宁海关统计，青海高原“冷凉蔬菜”2025年出口达1.1万吨，出口增速位列中国第一，出口品种增至36种，远销14个国家(地区)。
+滴滴充电表示，此次联合肯德基推出的“送餐到站”服务，从用户充电等候场景切入，是充电场景与餐饮业态及本地生活融合的全新探索，致力于为更多用户提供更加便捷、高效的充电与用餐一体化体验，持续创造用户价值。
 
-目前经海关备案的蔬菜种植基地达8.1万亩，占青海省蔬菜种植基地的12%，高原“冷凉蔬菜”万吨级出口产业集群建设取得突破性进展。
+滴滴充电始终将用户体验作为服务升级的核心。
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 00:55 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 00:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 01:00 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 00:49 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 01:00 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 00:40 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 00:45 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 00:48 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 00:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 00:46 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 01:01 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 00:42 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 01:02 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 01:00 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 01:01 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 00:51 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 00:52 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 01:10 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 00:59 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 00:54 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 00:57 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 00:55 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 00:54 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/795373.shtml)
-- 2026-06-30 00:36 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/35505851933.shtml)
-- 2026-06-30 01:00 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/05823749.shtml)
-- 2026-06-30 00:42 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/3954947707.shtml)
-- 2026-06-30 00:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/576138687.shtml)
-- 2026-06-30 00:42 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/0021342.shtml)
-- 2026-06-30 00:58 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/8099563673.shtml)
-- 2026-06-30 01:00 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/9675923.shtml)
-- 2026-06-30 00:53 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/9893920164.shtml)
-- 2026-06-30 00:46 - [《贺子珍》](http://www.blog.minike.top/Article/details/14110735.shtml)
-- 2026-06-30 00:46 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/4571115.shtml)
-- 2026-06-30 00:50 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/428312760.shtml)
-- 2026-06-30 00:48 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/3358375621.shtml)
-- 2026-06-30 00:45 - [逃狱兄弟](https://www.blog.minike.top/Article/details/57726847761.shtml)
-- 2026-06-30 00:47 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/575676335874.shtml)
+- 2026-06-30 00:47 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/39374255.shtml)
+- 2026-06-30 00:44 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/92708.shtml)
+- 2026-06-30 01:06 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/628766299570.shtml)
+- 2026-06-30 00:53 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/55964.shtml)
+- 2026-06-30 00:45 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/396011755.shtml)
+- 2026-06-30 01:08 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/24918398.shtml)
+- 2026-06-30 00:44 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/95877243.shtml)
+- 2026-06-30 00:51 - [金刚川](https://www.share.minike.top/Article/details/92713754971.shtml)
+- 2026-06-30 00:49 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/3693356.shtml)
+- 2026-06-30 01:03 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/899128725607.shtml)
+- 2026-06-30 00:56 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/728628081.shtml)
+- 2026-06-30 00:56 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/19654607836.shtml)
+- 2026-06-30 00:52 - [速度与激情9](https://www.share.minike.top/Article/details/72076959.shtml)
+- 2026-06-30 00:45 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/30186009757.shtml)
+- 2026-06-30 01:01 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/38972890632.shtml)

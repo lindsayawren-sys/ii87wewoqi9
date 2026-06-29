@@ -1,59 +1,58 @@
-# 快递“小包裹”澎湃经济大活力 前4个月我国快递业务量累计完成645.7亿件
+# 活力中国调研行丨产业规模再创新高，AI“第一城”群星闪耀
 
-> 更新时间：2026-06-30 01:06:02 UTC+8
+> 更新时间：2026-06-30 01:12:03 UTC+8
 
 ## 摘要
 
-央视网消息：国家邮政局5月20日公布了今年前4个月我国邮政行业运行情况。数据显示，行业寄递业务量同比增长4.1%，继续保持稳步增长态势。 国家邮政局最新数据显示，1—4月，我国邮政行业寄递业务量累计完成701.6亿件，同比增长4.1%。其中，快递业务量累计完成645.7亿件，同比增长5.1%。 前4个月，我国快递行业市场规模稳步扩大。多个节假日带动线上消费，快递企业持续提升面向
+6月11日，记者在2026年“活力中国调研行”北京主题采访期间获悉，北京正全力推进“人工智能第一城”建设，人工智能产业规模再创新高。2025年全年产业规模超过4500亿元，核心企业超2500家，已备案大模型241款，持续保持全国第一。上市企业近60家、独角兽约40家。听说过代购护肤品、电器，但你听说过代购大模型服务吗？两个月前，海外社交平台上出现了《如何抢购国产AI服务》《海外
 
 ## 正文
 
-央视网消息：国家邮政局5月20日公布了今年前4个月我国邮政行业运行情况。
+6月11日，记者在2026年“活力中国调研行”北京主题采访期间获悉，北京正全力推进“人工智能第一城”建设，人工智能产业规模再创新高。
 
-数据显示，行业寄递业务量同比增长4.1%，继续保持稳步增长态势。
+2025年全年产业规模超过4500亿元，核心企业超2500家，已备案大模型241款，持续保持全国第一。
 
-国家邮政局最新数据显示，1—4月，我国邮政行业寄递业务量累计完成701.6亿件，同比增长4.1%。
+上市企业近60家、独角兽约40家。
 
-其中，快递业务量累计完成645.7亿件，同比增长5.1%。
+听说过代购护肤品、电器，但你听说过代购大模型服务吗？
 
-前4个月，我国快递行业市场规模稳步扩大。
+两个月前，海外社交平台上出现了《如何抢购国产AI服务》《海外用户注册指南》等有些“另类”的教程。
 
-多个节假日带动线上消费，快递企业持续提升面向多领域、多场景的服务能力。
+这些教程的带货对象，不是中国制造的小家电、服装，而是国产人工智能模型服务。
 
-在云南，快递网点直接开进了大理古城景区。
+“反向代购”的兴起，源于国产大模型不断跃升的核心竞争力。
 
-游客不仅可以把刚买到的特产或行李寄回家，还能按需寄存行李，实现“空手逛古城”。
+今年4月，北京大模型明星企业智谱发布GLM-5.1模型，模型能力迎来一次显著跃升。
 
 ## 相关推荐
 
-- 2026-06-30 01:01 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 01:04 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 00:45 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 00:59 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 01:04 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 01:00 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 00:54 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 00:42 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 00:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 00:50 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 00:51 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 00:51 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 00:52 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 00:47 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 01:04 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 01:00 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 01:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 00:47 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 00:43 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 00:48 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 00:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 00:56 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 00:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 00:44 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 00:54 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:37 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/48776806356.shtml)
-- 2026-06-30 00:47 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/821024497.shtml)
-- 2026-06-30 00:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/3113967907.shtml)
-- 2026-06-30 00:53 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/167620459612.shtml)
-- 2026-06-30 01:01 - [金刚川](http://www.share.minike.top/Article/details/4752837227.shtml)
-- 2026-06-30 00:41 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/260497.shtml)
-- 2026-06-30 00:37 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/63917422718.shtml)
-- 2026-06-30 00:45 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/750478719.shtml)
-- 2026-06-30 00:59 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/497903.shtml)
-- 2026-06-30 00:38 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/230701.shtml)
-- 2026-06-30 01:04 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/54776771.shtml)
-- 2026-06-30 01:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/1058069390.shtml)
-- 2026-06-30 00:48 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/475678643803.shtml)
-- 2026-06-30 00:50 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/1042607.shtml)
-- 2026-06-30 00:44 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/7363050197.shtml)
+- 2026-06-30 01:00 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/619693673348.shtml)
+- 2026-06-30 01:11 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/47533.shtml)
+- 2026-06-30 00:56 - [急先锋](http://www.share.kurohicncr.top/Article/details/7684094.shtml)
+- 2026-06-30 01:11 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/95064.shtml)
+- 2026-06-30 00:55 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/27049702.shtml)
+- 2026-06-30 01:08 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/49075.shtml)
+- 2026-06-30 00:42 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/9868971153.shtml)
+- 2026-06-30 00:49 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/50451771.shtml)
+- 2026-06-30 00:49 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/387856817151.shtml)
+- 2026-06-30 00:59 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/960661.shtml)
+- 2026-06-30 00:54 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/554338277671.shtml)
+- 2026-06-30 01:01 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/958933528.shtml)
+- 2026-06-30 01:04 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/9785022978.shtml)
+- 2026-06-30 00:53 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/9972400.shtml)
+- 2026-06-30 00:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/497652876461.shtml)
