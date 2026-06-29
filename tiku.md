@@ -1,54 +1,61 @@
-# 工行杨赫：AI正改写经济金融理论范式 智能体将带来触达与信用“双重解耦”
+# 【国投期货|化工视点】尿素三季度指导价上调点评
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-专题：首届金融街·金城坊论坛 5月19日金融一线消息，首届金融街·金城坊论坛今日在京举办，本次论坛主题为“‘十五五’——金融赋能新周期 科创驱动新未来”。中国工商银行现代金融研究院院长、北京金融街合作发展理事会轮值主席单位代表杨赫出席论坛并发言。 杨赫表示，在人工智能时代，从长周期观察的视角来看，经济金融领域的理论和实践正在被逐渐改写，甚至可能面临范式突破。例如，AI对价格信号
+来源：国投期货研究院 2026年三季度普通尿素行业自律指导价正式落地。因国内原材料价格大幅上涨，本次指导价全线调升，山东、河南、河北主产销区小颗粒指导价锚定在1990-2000元/吨，较二季度显著抬升。超预期的上涨幅度有效扭转了此前持续低迷的市场情绪，工厂端迅速响应，多数企业昨日起已顺势上调报价。日内尿素期货主力合约大幅上涨68元/吨，涨幅3.85%，市场整体成交活跃度明显上升
 
 ## 正文
 
-专题：首届金融街·金城坊论坛 5月19日金融一线消息，首届金融街·金城坊论坛今日在京举办，本次论坛主题为“‘十五五’——金融赋能新周期 科创驱动新未来”。
+来源：国投期货研究院 2026年三季度普通尿素行业自律指导价正式落地。
 
-中国工商银行现代金融研究院院长、北京金融街合作发展理事会轮值主席单位代表杨赫出席论坛并发言。
+因国内原材料价格大幅上涨，本次指导价全线调升，山东、河南、河北主产销区小颗粒指导价锚定在1990-2000元/吨，较二季度显著抬升。
 
-杨赫表示，在人工智能时代，从长周期观察的视角来看，经济金融领域的理论和实践正在被逐渐改写，甚至可能面临范式突破。
+超预期的上涨幅度有效扭转了此前持续低迷的市场情绪，工厂端迅速响应，多数企业昨日起已顺势上调报价。
 
-例如，AI对价格信号机制的影响——在经典理论中，价格体系发挥着信息交流媒介的关键作用，在知识分散、信息不对称的条件下，价格以相对最有效的方式传递供需信息，推动市场运行。
+日内尿素期货主力合约大幅上涨68元/吨，涨幅3.85%，市场整体成交活跃度明显上升。
 
-当谈到了AI对金融机构的影响时，他指出，AI智能体的出现可能带来两种“解耦”：一是触达关系的解耦，智能体可以代替人完成金融活动；二是信用方式的解耦，智能体可能绕过现有的信用关系直接执行金融活动，这是更深层次的变化。
+市场普遍将此举解读为协会层面的显性托底信号，但值得注意的是，短线情绪的修复明显要快于供需的实质变化。
 
-责任编辑：王进和
+1． 成本抬升 国内尿素产能中煤制工艺占比近八成，进入6月，成本端煤炭的扰动显著加剧。
+
+一方面，全国安全生产月叠加山西煤矿事故后的安监趋严，产地供应释放有限。
+
+同时，迎峰度夏耗煤旺季来临，动力煤需求支撑强劲。
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 01:02 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 01:12 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 01:01 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 00:58 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 01:05 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 00:58 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 01:17 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 00:50 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 01:06 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 01:04 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 00:59 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 01:19 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 01:05 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 01:07 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 00:55 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 01:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 01:13 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 01:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 01:07 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 01:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 01:05 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 01:08 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 01:18 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 01:14 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 01:22 - [点菜也要教吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 01:02 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/47370562.shtml)
-- 2026-06-30 01:12 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/78633973624.shtml)
-- 2026-06-30 00:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/5546586279.shtml)
-- 2026-06-30 00:59 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/4762045.shtml)
-- 2026-06-30 00:50 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/434186098144.shtml)
-- 2026-06-30 01:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/9571807468.shtml)
-- 2026-06-30 01:10 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/37775142290.shtml)
-- 2026-06-30 01:06 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/395370365720.shtml)
-- 2026-06-30 00:58 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/53450692.shtml)
-- 2026-06-30 00:59 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/432177129.shtml)
-- 2026-06-30 00:56 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/552007353.shtml)
-- 2026-06-30 00:59 - [沉睡花园](http://www.blog.minike.top/Article/details/526202.shtml)
-- 2026-06-30 01:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/4743817467.shtml)
-- 2026-06-30 00:54 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/742832260.shtml)
-- 2026-06-30 01:08 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/25852546851.shtml)
+- 2026-06-30 01:15 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/25388338038.shtml)
+- 2026-06-30 01:09 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/1177996160.shtml)
+- 2026-06-30 01:10 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/7544383.shtml)
+- 2026-06-30 01:17 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/659478280.shtml)
+- 2026-06-30 01:01 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/51070.shtml)
+- 2026-06-30 01:05 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/91645666.shtml)
+- 2026-06-30 00:54 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/921966354265.shtml)
+- 2026-06-30 00:58 - [扬名立万](https://www.share.minike.top/Article/details/445818243.shtml)
+- 2026-06-30 01:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/84231109.shtml)
+- 2026-06-30 01:14 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/48365743.shtml)
+- 2026-06-30 01:20 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/28573561700.shtml)
+- 2026-06-30 01:16 - [刘念回应](https://www.share.kurohicncr.top/Article/details/82352234665.shtml)
+- 2026-06-30 01:16 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/463178108.shtml)
+- 2026-06-30 00:58 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/41713.shtml)
+- 2026-06-30 01:23 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/2417191103.shtml)

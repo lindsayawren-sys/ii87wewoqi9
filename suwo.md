@@ -1,54 +1,52 @@
-# 特朗普称美方可能不得不对伊朗“再予以一击”
+# 安徽省亳州市人民政府原党组成员、副市长薛冰被“双开”
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-当地时间5月19日，美国总统特朗普表示，美方可能不得不对伊朗“再予以一击”，目前尚不确定。特朗普还说，伊朗正求与美方达成协议。 18日，特朗普在社交平台“真实社交”发文表示，在卡塔尔、沙特阿拉伯、阿联酋领导人请求下，他已下令“明天(19日)”不按原计划对伊朗发动军事打击。他称，鉴于目前正进行着“严肃的谈判”，且在这些领导人及盟友看来，双方终将达成一项协议。(央视记者 曹健)
+中新网合肥6月18日电 日前，经中共安徽省委批准，安徽省纪委监委对亳州市人民政府原党组成员、副市长薛冰严重违纪违法问题进行了立案审查调查。 经查，薛冰丧失理想信念，背弃初心使命，对党不忠诚、不老实，对抗组织审查；无视中央八项规定精神，违规收受礼品、消费卡；违背组织原则，在组织函询时不如实说明问题；利用职务便利为他人在项目承揽、工程款拨付等方面谋利，并非法收受巨额财物。 薛冰严重
 
 ## 正文
 
-当地时间5月19日，美国总统特朗普表示，美方可能不得不对伊朗“再予以一击”，目前尚不确定。
+中新网合肥6月18日电 日前，经中共安徽省委批准，安徽省纪委监委对亳州市人民政府原党组成员、副市长薛冰严重违纪违法问题进行了立案审查调查。
 
-特朗普还说，伊朗正求与美方达成协议。
+经查，薛冰丧失理想信念，背弃初心使命，对党不忠诚、不老实，对抗组织审查；无视中央八项规定精神，违规收受礼品、消费卡；违背组织原则，在组织函询时不如实说明问题；利用职务便利为他人在项目承揽、工程款拨付等方面谋利，并非法收受巨额财物。
 
-18日，特朗普在社交平台“真实社交”发文表示，在卡塔尔、沙特阿拉伯、阿联酋领导人请求下，他已下令“明天(19日)”不按原计划对伊朗发动军事打击。
+薛冰严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-他称，鉴于目前正进行着“严肃的谈判”，且在这些领导人及盟友看来，双方终将达成一项协议。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经安徽省纪委常委会会议研究并报省委批准，决定给予薛冰开除党籍处分；由安徽省监委给予其开除公职处分；终止其亳州市第五次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
-(央视记者 曹健)
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 00:48 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 01:04 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 01:09 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 00:56 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 01:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 01:11 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 00:50 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 00:48 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 01:14 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 01:03 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 00:52 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 01:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 01:11 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 01:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 00:57 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 01:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 01:11 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 01:00 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 00:54 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 01:18 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 01:06 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 01:04 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 00:58 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 00:59 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 01:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/5785107.shtml)
-- 2026-06-30 00:54 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/20189.shtml)
-- 2026-06-30 01:13 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/2328938742.shtml)
-- 2026-06-30 01:10 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/2288705067.shtml)
-- 2026-06-30 00:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/655686475.shtml)
-- 2026-06-30 00:55 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/737337775683.shtml)
-- 2026-06-30 01:13 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/2343916762.shtml)
-- 2026-06-30 00:58 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/3485825.shtml)
-- 2026-06-30 01:04 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/39925.shtml)
-- 2026-06-30 01:08 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/10745.shtml)
-- 2026-06-30 00:55 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/72017041.shtml)
-- 2026-06-30 01:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/43782.shtml)
-- 2026-06-30 01:01 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/864885424716.shtml)
-- 2026-06-30 01:04 - [毒液2](http://www.blog.minike.top/Article/details/7069928645.shtml)
-- 2026-06-30 01:16 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/1073932.shtml)
+- 2026-06-30 01:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/07196274.shtml)
+- 2026-06-30 01:12 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/016507433332.shtml)
+- 2026-06-30 01:08 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/122744751.shtml)
+- 2026-06-30 01:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/522711577576.shtml)
+- 2026-06-30 00:56 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/373650911.shtml)
+- 2026-06-30 01:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/70303545.shtml)
+- 2026-06-30 00:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/91948464.shtml)
+- 2026-06-30 01:15 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/1454265227.shtml)
+- 2026-06-30 00:54 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/70261453375.shtml)
+- 2026-06-30 01:01 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/1863631.shtml)
+- 2026-06-30 01:07 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/294641827.shtml)
+- 2026-06-30 00:59 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/476308472512.shtml)
+- 2026-06-30 01:19 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/14721176047.shtml)
+- 2026-06-30 01:06 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/3646661.shtml)
+- 2026-06-30 01:06 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/00965844682.shtml)

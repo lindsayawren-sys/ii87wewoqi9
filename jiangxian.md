@@ -1,58 +1,57 @@
-# 中国4月银行结售汇顺差401亿美元 跨境资金恢复净流入
+# 欧洲央行行长拉加德发出警告 称AI对金融稳定构成巨大风险
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 中国国家外汇管理局18日公布的统计数据显示，2026年4月，按美元计值，银行结汇2573亿美元，售汇2172亿美元，结售汇顺差401亿美元。 中国国家外汇管理局副局长李斌表示，近期，地缘政治局势引发国际金融市场波动，中国外汇市场运行总体稳健。受外部扰动影响，3月跨境资金出现一定净流出，4月恢复净流入。 综合3月和4月情况看，跨境资金月均净流入149亿美元
+欧洲央行行长克里斯蒂娜·拉加德表示，人工智能可能引发危险的金融危机，该行决心确保这种情况不会发生。 “即使有我们稳健的监管，我们也无法阻止人工智能，”她周三在威尼斯发表演讲时说。“不过，我们能做的是做好准备，让我们的居民能够从中受益，并免受其所带来危险的伤害，而这正是我们正在做的事情。” 她警告称，真正的风险并不是人工智能本身，而是在这样一个具有颠覆性的新变量出现之后可能引发的
 
 ## 正文
 
-中新社北京5月18日电 中国国家外汇管理局18日公布的统计数据显示，2026年4月，按美元计值，银行结汇2573亿美元，售汇2172亿美元，结售汇顺差401亿美元。
+欧洲央行行长克里斯蒂娜·拉加德表示，人工智能可能引发危险的金融危机，该行决心确保这种情况不会发生。
 
-中国国家外汇管理局副局长李斌表示，近期，地缘政治局势引发国际金融市场波动，中国外汇市场运行总体稳健。
+“即使有我们稳健的监管，我们也无法阻止人工智能，”她周三在威尼斯发表演讲时说。
 
-受外部扰动影响，3月跨境资金出现一定净流出，4月恢复净流入。
+“不过，我们能做的是做好准备，让我们的居民能够从中受益，并免受其所带来危险的伤害，而这正是我们正在做的事情。
 
-综合3月和4月情况看，跨境资金月均净流入149亿美元，银行月均净结汇280亿美元，低于去年末和今年初的月度顺差规模。
+” 她警告称，真正的风险并不是人工智能本身，而是在这样一个具有颠覆性的新变量出现之后可能引发的动荡。
 
-同时，涉外交易保持活跃。
+拉加德表示：“在近代史上，有一种力量摧毁的就业岗位、吞噬的储蓄比科技还要多，这种力量就是金融危机。
 
-4月，企业、个人等非银行部门跨境收支合计1.6万亿美元，同比增长15%。
+”“随着这些系统变得更加强大，它们正在越来越深入地扩展到经济之中。
 
-中国外汇市场交易量为3.7万亿美元，继续处于较高水平。
+” 拉加德表示，我们这个时代的重大问题，是理解这项新技术可能对金融稳定意味着什么，以及如何保护居民和企业。
 
-李斌指出，企业汇率风险管理能力逐步增强，外汇交易更趋理性。
+欧洲央行已经让109家银行接受了一项重大网络攻击情景测试，所发现的大多数弱点已经得到解决。
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 01:03 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 01:06 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 01:05 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 00:53 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 01:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 01:15 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 01:05 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 00:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 00:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 01:09 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 00:49 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 01:04 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 01:21 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 00:58 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 00:58 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 01:15 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 01:23 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 01:06 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 01:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 01:16 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 00:55 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 01:10 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/279578423.shtml)
-- 2026-06-30 00:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/59121.shtml)
-- 2026-06-30 00:52 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/3471808.shtml)
-- 2026-06-30 01:13 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/52802114509.shtml)
-- 2026-06-30 00:55 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/20707.shtml)
-- 2026-06-30 01:18 - [沉睡花园](http://www.blog.minike.top/Article/details/07331714.shtml)
-- 2026-06-30 01:07 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/458092.shtml)
-- 2026-06-30 01:10 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/62973451.shtml)
-- 2026-06-30 01:12 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/46868.shtml)
-- 2026-06-30 00:50 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/822328.shtml)
-- 2026-06-30 00:56 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/9290583.shtml)
-- 2026-06-30 01:16 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/99048.shtml)
-- 2026-06-30 01:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/432648.shtml)
-- 2026-06-30 01:09 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/5497607801.shtml)
-- 2026-06-30 01:03 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/1199145.shtml)
+- 2026-06-30 01:17 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/757206.shtml)
+- 2026-06-30 01:00 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/740464.shtml)
+- 2026-06-30 01:16 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/87954.shtml)
+- 2026-06-30 00:55 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/04618760856.shtml)
+- 2026-06-30 01:23 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/7226339273.shtml)
+- 2026-06-30 01:08 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/1705721482.shtml)
+- 2026-06-30 01:17 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/09618974043.shtml)
+- 2026-06-30 01:15 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/74121491.shtml)
+- 2026-06-30 00:54 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/6641600475.shtml)
+- 2026-06-30 01:11 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/82544805213.shtml)
+- 2026-06-30 01:08 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/859070026.shtml)
+- 2026-06-30 01:10 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/96129765.shtml)
+- 2026-06-30 01:13 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/0435833.shtml)
+- 2026-06-30 00:59 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/5138232636.shtml)
+- 2026-06-30 01:05 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/572608461.shtml)

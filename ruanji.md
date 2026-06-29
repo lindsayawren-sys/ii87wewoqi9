@@ -1,47 +1,57 @@
-# 广西柳州市柳南区发生5.2级地震 中新社记者现场直击：到现在脚都还在发软
+# 如何打造一个以中国为核心的高效互联互通亚洲资本市场生态圈？港交所陈翊庭给出答案
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 23:16 来源：中国新闻网 广西柳州市柳南区发生5.2级地震 中新社记者现场直击：到现在脚都还在发软 责任编辑：【翟璐】
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛召开 ，香港交易所集团行政总裁陈翊庭出席“全体大会三：建立健全功能完善的资本市场”并发言。 她表示，在地缘政治不确定性持续上升的背景下，全球投资者必须思考如何分散投资、如何不把所有鸡蛋放在一个篮子里。她认为，最值得讨论的是如何抓住这个机会，打造一个以中国为核心的高效互联互通亚洲资本市场生
 
 ## 正文
 
-发布时间：2026年05月18日 23:16 来源：中国新闻网 广西柳州市柳南区发生5.2级地震 中新社记者现场直击：到现在脚都还在发软 责任编辑：【翟璐】
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛召开 ，香港交易所集团行政总裁陈翊庭出席“全体大会三：建立健全功能完善的资本市场”并发言。
+
+她表示，在地缘政治不确定性持续上升的背景下，全球投资者必须思考如何分散投资、如何不把所有鸡蛋放在一个篮子里。
+
+她认为，最值得讨论的是如何抓住这个机会，打造一个以中国为核心的高效互联互通亚洲资本市场生态圈。
+
+陈翊庭指出，资本市场最基本的功能是服务两个群体——投资者和发行人。
+
+可以说包括融资、投资、资源配置、价格发现、风险分散都是为了这两个群体服务。
+
+她从香港交易所的角度来分享，我们怎么服务好这两个资本市场针对的服务群体，如何让这两个群体更有效地把握亚洲特别是中国的机遇。
+
+服务发行人：提升上市制度包容性与定价效率 陈翊庭表示，资本市场服务的第一个群体是发行人（上市公司），他们最关心融资和价格发现。
+
+港交所一直在做的，是在保障市场质量的前提下，提升上市制度的包容性和适应性。
 
 ## 相关推荐
 
-- 2026-06-30 00:51 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 01:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 01:16 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 01:16 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 00:48 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 01:13 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 00:58 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 00:51 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 01:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 01:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 00:49 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 01:01 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 01:06 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 00:59 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 01:14 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 01:15 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 00:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 01:08 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 01:00 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 01:05 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 01:14 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 01:03 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 00:59 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 00:56 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 01:14 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 01:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:56 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/31348997627.shtml)
-- 2026-06-30 00:53 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/172319950715.shtml)
-- 2026-06-30 00:52 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/83475.shtml)
-- 2026-06-30 00:58 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/36164894299.shtml)
-- 2026-06-30 00:48 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/473765.shtml)
-- 2026-06-30 00:51 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/729179548.shtml)
-- 2026-06-30 01:09 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/269641554.shtml)
-- 2026-06-30 00:54 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/82088.shtml)
-- 2026-06-30 01:13 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/015280194.shtml)
-- 2026-06-30 01:10 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/76771557010.shtml)
-- 2026-06-30 01:17 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/832583007.shtml)
-- 2026-06-30 01:05 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/07144663582.shtml)
-- 2026-06-30 01:00 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/4117783.shtml)
-- 2026-06-30 00:53 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/171030087.shtml)
-- 2026-06-30 01:05 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/0497897531.shtml)
+- 2026-06-30 01:12 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/5956404.shtml)
+- 2026-06-30 01:09 - [周生如故](https://www.share.minike.top/Article/details/033909936006.shtml)
+- 2026-06-30 00:55 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/4755010.shtml)
+- 2026-06-30 01:16 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/4678178.shtml)
+- 2026-06-30 01:20 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/51963177.shtml)
+- 2026-06-30 00:56 - [急先锋](http://www.blog.minike.top/Article/details/2465174.shtml)
+- 2026-06-30 01:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/86623363149.shtml)
+- 2026-06-30 01:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/94385331.shtml)
+- 2026-06-30 01:15 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/8252483.shtml)
+- 2026-06-30 01:00 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/820241.shtml)
+- 2026-06-30 01:02 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/935673.shtml)
+- 2026-06-30 01:19 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/383966245803.shtml)
+- 2026-06-30 01:06 - [周生如故](http://www.blog.kurohicncr.top/Article/details/520175691070.shtml)
+- 2026-06-30 00:56 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/3789932722.shtml)
+- 2026-06-30 01:22 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/758730777310.shtml)

@@ -1,57 +1,61 @@
-# 四家券商现身长鑫股东名单，数百亿浮盈带动座次洗牌，再造一个半“招商证券”
+# （文化中国行）古漆新胎：高校课堂里的非遗“换骨记”
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-专题：业绩炸裂！长鑫存储概念引爆，多股“一字板” 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！财联社5月20日讯（记者 王晨）一份业绩惊人的科创板招股说明书，同时揭开了一场潜伏数年的资本盛宴。 长鑫科技最新的招股说明书中，四家券商的身影浮出水面，招商证券、华安证券、中信建投以及中金公司，通过旗下子公司或参股基金，早已在数年前便悄然布局。 根据最新估值
+中新网哈尔滨6月17日电 题：古漆新胎：高校课堂里的非遗“换骨记” 中新网记者 姜辉 刘锡菊 “这几个葫芦干得差不多了，可以取出来镶蛋壳了。”端午临近，黑龙江财经学院的漆艺荫室内，工艺美术教研室主任、中国美术家协会会员曲健一边检查着刚刷完漆的葫芦，一边盘算着接下来的制作工序。他要在节前赶制出一批作品，参加校内即将举行的端午节漆艺展示活动。 中华文化源远流长，大漆工艺是其中璀璨的
 
 ## 正文
 
-专题：业绩炸裂！
+中新网哈尔滨6月17日电 题：古漆新胎：高校课堂里的非遗“换骨记” 中新网记者 姜辉 刘锡菊 “这几个葫芦干得差不多了，可以取出来镶蛋壳了。
 
-长鑫存储概念引爆，多股“一字板” 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+”端午临近，黑龙江财经学院的漆艺荫室内，工艺美术教研室主任、中国美术家协会会员曲健一边检查着刚刷完漆的葫芦，一边盘算着接下来的制作工序。
 
-财联社5月20日讯（记者 王晨）一份业绩惊人的科创板招股说明书，同时揭开了一场潜伏数年的资本盛宴。
+他要在节前赶制出一批作品，参加校内即将举行的端午节漆艺展示活动。
 
-长鑫科技最新的招股说明书中，四家券商的身影浮出水面，招商证券、华安证券、中信建投以及中金公司，通过旗下子公司或参股基金，早已在数年前便悄然布局。
+中华文化源远流长，大漆工艺是其中璀璨的明珠，其历史可追溯至新石器时代，经过数千年演进，已成为世界文化艺术宝库中的珍贵遗产。
 
-根据最新估值测算，若长鑫科技在今年内完成IPO，这四家券商合计持有的股权账面价值（扣除流动性折扣后）将高达327亿元，这一数字相当于多家中小券商全年的净利润。
+“传统不该只是机械传承。
 
-其中，招商证券天使轮即入局，合计持股约5.05亿股，浮盈或逼近200亿元，有望直接将其2026年净利润推升至行业前三；而华安证券则穿透后间接持股约2.64亿股，对应账面价值超百亿元，是公司2025年净利润的近五倍，2026年净利润排名或将从二十名开外一跃冲进前十。
+”在黑龙江财经学院，曲健带着一群“00后”学生，将古老技艺与黑陶、冰雪、鱼皮、桦树皮等北方特色元素深度交融，让非遗在“新胎骨”上重获新生。
 
-据记者了解，招商证券前几年加大在生物医药和芯片产业链的布局投资，长鑫科技就是大举收获的一个项目。
+在漆陶融合特色课程上，曲健拿起一件刚完成髹涂的黑陶瓶，一边对着光端详一边讲解：“瓶身上的纹路，融入了‘白山黑水’的地域风情。
 
-这场一级市场股权投资驱动的券商业绩“核爆”，或将重新书写券商行业的利润座次表。
+”几名学生正围在工作台前，手中托着一个个乌黑的陶坯进行打磨。
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 01:10 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 00:48 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 01:12 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 01:17 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 01:13 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 00:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 00:49 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:03 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 01:06 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 00:56 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 01:20 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 01:13 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 01:17 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 01:06 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 01:16 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 01:20 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 01:20 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 00:55 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 01:14 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 00:54 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 01:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 01:12 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 00:55 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 00:58 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 00:57 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/057551709.shtml)
-- 2026-06-30 00:57 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/81376.shtml)
-- 2026-06-30 01:12 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/88839.shtml)
-- 2026-06-30 01:10 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/481297.shtml)
-- 2026-06-30 01:15 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/74375235.shtml)
-- 2026-06-30 01:08 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/330479.shtml)
-- 2026-06-30 00:48 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/244299215157.shtml)
-- 2026-06-30 01:05 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/2393849157.shtml)
-- 2026-06-30 00:51 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/73159.shtml)
-- 2026-06-30 01:13 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/9839961.shtml)
-- 2026-06-30 01:16 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/42000.shtml)
-- 2026-06-30 01:11 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/0992149.shtml)
-- 2026-06-30 00:59 - [金刚川](http://www.share.minike.top/Article/details/29083523496.shtml)
-- 2026-06-30 01:03 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/4054720081.shtml)
-- 2026-06-30 01:06 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/421865999468.shtml)
+- 2026-06-30 00:58 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/13537.shtml)
+- 2026-06-30 01:17 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/0988026.shtml)
+- 2026-06-30 00:54 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/48052699.shtml)
+- 2026-06-30 01:17 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/60561837.shtml)
+- 2026-06-30 00:54 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/72707.shtml)
+- 2026-06-30 01:10 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/775028.shtml)
+- 2026-06-30 00:54 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/948936891891.shtml)
+- 2026-06-30 01:24 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/04903.shtml)
+- 2026-06-30 01:15 - [天道](https://www.share.kurohicncr.top/Article/details/9844494647.shtml)
+- 2026-06-30 01:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/063340456.shtml)
+- 2026-06-30 01:03 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/9437926042.shtml)
+- 2026-06-30 00:58 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/240440431449.shtml)
+- 2026-06-30 01:07 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/817008794.shtml)
+- 2026-06-30 00:54 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/983733588451.shtml)
+- 2026-06-30 01:21 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/8450963406.shtml)

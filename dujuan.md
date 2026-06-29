@@ -1,56 +1,49 @@
-# （滇藏公路50年）怒江，赛图（加油）！
+# 人首鸟身，“妙音”千年：西夏陵红陶迦陵频伽的丝路“混血”密码
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-中新网云南怒江5月19日电 题：怒江，赛图(加油)！ 作者 骆忠华 陈静 今年5月中旬，笔者从昆明长水国际机场乘机飞往保山，半个多小时便抵达这座滇西重镇。 甫抵保山云瑞机场，41岁的傈僳族司机胡正华迎了上来。坐上他的大通7座商务车，驶上高速，一路向北，直奔怒江傈僳族自治州州府泸水市。 这一路，真是“难见天日”——隧道连着隧道。“这条路通车6年，我就跑了6年网约车。”胡正华对自己
+发布时间：2026年06月18日 08:34 来源：中国新闻网 近日，山西博物院“贺兰怀古——西夏陵出土文物展”中，一件红陶迦陵频伽吸引众多观众驻足。她人首鸟身，神态安详，头戴华丽花冠，宝缯下垂，双手合十，身后双翅展开，尾部优雅上扬。这件来自“神秘古国”西夏的建筑构件，以独特的“混血”面貌，讲述着丝绸之路上文明交融的故事。(记者 王惠琳） 责任编辑：【黄钰涵】
 
 ## 正文
 
-中新网云南怒江5月19日电 题：怒江，赛图(加油)！
+发布时间：2026年06月18日 08:34 来源：中国新闻网 近日，山西博物院“贺兰怀古——西夏陵出土文物展”中，一件红陶迦陵频伽吸引众多观众驻足。
 
-作者 骆忠华 陈静 今年5月中旬，笔者从昆明长水国际机场乘机飞往保山，半个多小时便抵达这座滇西重镇。
+她人首鸟身，神态安详，头戴华丽花冠，宝缯下垂，双手合十，身后双翅展开，尾部优雅上扬。
 
-甫抵保山云瑞机场，41岁的傈僳族司机胡正华迎了上来。
+这件来自“神秘古国”西夏的建筑构件，以独特的“混血”面貌，讲述着丝绸之路上文明交融的故事。
 
-坐上他的大通7座商务车，驶上高速，一路向北，直奔怒江傈僳族自治州州府泸水市。
-
-这一路，真是“难见天日”——隧道连着隧道。
-
-“这条路通车6年，我就跑了6年网约车。
-
-”胡正华对自己的新职业很满意。
-
-得知笔者打算溯怒江而上，从滇藏新通道——219国道进入西藏时，他笑称：“如果西藏的路叫天路，我们这条进怒江的路，该叫‘不见天路’。
+(记者 王惠琳） 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-30 00:48 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 01:00 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 01:01 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 00:54 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 01:05 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 00:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 00:57 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 00:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 00:58 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 00:55 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 01:15 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 01:06 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 01:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 00:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 01:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 01:19 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 01:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 01:22 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 01:09 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 00:55 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 01:07 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/5159384998.shtml)
-- 2026-06-30 01:09 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/28211077202.shtml)
-- 2026-06-30 00:50 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/66938330038.shtml)
-- 2026-06-30 00:50 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/80872.shtml)
-- 2026-06-30 01:07 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/360621583139.shtml)
-- 2026-06-30 01:10 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/20734.shtml)
-- 2026-06-30 01:05 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/38885.shtml)
-- 2026-06-30 00:52 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/6099148.shtml)
-- 2026-06-30 01:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/1786277.shtml)
-- 2026-06-30 01:16 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/09949533.shtml)
-- 2026-06-30 01:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/342804.shtml)
-- 2026-06-30 00:48 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/39413717.shtml)
-- 2026-06-30 00:59 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/291615250.shtml)
-- 2026-06-30 01:12 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/04157.shtml)
-- 2026-06-30 00:49 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/37121.shtml)
+- 2026-06-30 00:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/53866.shtml)
+- 2026-06-30 01:14 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/309978.shtml)
+- 2026-06-30 01:22 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/6564159.shtml)
+- 2026-06-30 01:20 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/2545006850.shtml)
+- 2026-06-30 01:12 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/01201.shtml)
+- 2026-06-30 00:58 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/152735.shtml)
+- 2026-06-30 01:11 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/25234453.shtml)
+- 2026-06-30 01:01 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/78237504207.shtml)
+- 2026-06-30 01:17 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/6620820.shtml)
+- 2026-06-30 01:02 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/242592752.shtml)
+- 2026-06-30 00:55 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/927816.shtml)
+- 2026-06-30 00:56 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/74952784.shtml)
+- 2026-06-30 01:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/060122998965.shtml)
+- 2026-06-30 01:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/11042500.shtml)
+- 2026-06-30 00:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/703498159714.shtml)

@@ -1,60 +1,58 @@
-# A股“股王”又易主！新“股王”上市14个交易日涨超15倍
+# 西安奕材-U龙虎榜数据（6月17日）
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电（记者 谢艺观）本轮科技行情下，A股“股王”频频变更。5月18日，A股又迎来新“股王”。 早盘，联讯仪器小幅高开后持续上涨，盘中超越贵州茅台，成为A股第一高价股。截至收盘，联讯仪器大涨14.96%报1344.99元，上市仅14个交易日，较发行价暴涨约15.43倍。 公开资料显示，联讯仪器创建于2017年，专注于高速通信、电性能、光芯片及半导体晶圆芯片等领域
+6月17日西安奕材-U（688783）收盘价54.50元，收盘上涨15.96%，全天换手率30.20%，振幅20.98%，成交额27.98亿元。科创板交易公开信息显示，当日该股因日换手率达30%等上榜。证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交6.19亿元， 其中，买入成交额为3.28亿元，卖出成交额为2.91亿元，合计净买入3735.65万元。具体来看，今日上榜
 
 ## 正文
 
-中新网北京5月18日电（记者 谢艺观）本轮科技行情下，A股“股王”频频变更。
+6月17日西安奕材-U（688783）收盘价54.50元，收盘上涨15.96%，全天换手率30.20%，振幅20.98%，成交额27.98亿元。
 
-5月18日，A股又迎来新“股王”。
+科创板交易公开信息显示，当日该股因日换手率达30%等上榜。
 
-早盘，联讯仪器小幅高开后持续上涨，盘中超越贵州茅台，成为A股第一高价股。
+证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交6.19亿元， 其中，买入成交额为3.28亿元，卖出成交额为2.91亿元，合计净买入3735.65万元。
 
-截至收盘，联讯仪器大涨14.96%报1344.99元，上市仅14个交易日，较发行价暴涨约15.43倍。
+具体来看，今日上榜的前五大买入营业部中，有1家机构专用席位现身，即买五，买入金额分别为5567.36万元，营业部合计买入2.73亿元。
 
-公开资料显示，联讯仪器创建于2017年，专注于高速通信、电性能、光芯片及半导体晶圆芯片等领域的测试仪表与设备研发、制造，是国内高端电子测量与半导体测试设备领域的重要企业。
+卖出营业部中，卖出金额居首的是中信证券股份有限公司上海分公司，卖出金额为9277.05万元。
 
-今年4月，联讯仪器正式登陆科创板，上市首日开盘价736.92元/股，发行价为81.88元/股，成为名副其实的“大肉签”。
+买卖金额相抵，机构专用席位今日净买入该股5567.36万元。
 
-由于科创板新股前5日不设涨跌幅限制，上市后，联讯仪器仅5个交易日股价就突破千元，创造A股新股股价最快破千纪录，成为A股第9只千元股。
+资金流向方面，该股今日全天主力资金净流入1.63亿元。
 
-联讯仪器一季报显示，公司实现营业收入4.88亿元，同比增长142.52%；归属于上市公司股东的净利润1.19亿元，同比增长515.17%。
+（数据宝）西安奕材-U6月17日龙虎榜注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 00:57 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 00:49 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 01:13 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 00:58 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 01:13 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 01:17 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 00:48 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 00:55 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 01:14 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 01:07 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 00:55 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 01:07 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 01:00 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 01:07 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 01:10 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 01:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 01:10 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 01:00 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 01:10 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 01:06 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 01:18 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 01:15 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 01:18 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 00:55 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 01:06 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/761176214.shtml)
-- 2026-06-30 00:55 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/691842177206.shtml)
-- 2026-06-30 00:49 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/55204186.shtml)
-- 2026-06-30 00:50 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/85006576.shtml)
-- 2026-06-30 01:10 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/898755.shtml)
-- 2026-06-30 00:54 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/60948277.shtml)
-- 2026-06-30 01:01 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/149617.shtml)
-- 2026-06-30 00:55 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/51621193.shtml)
-- 2026-06-30 01:11 - [绘画区你赢了](http://www.blog.minike.top/Article/details/7513487300.shtml)
-- 2026-06-30 01:03 - [爱很美味](https://www.blog.minike.top/Article/details/7198152563.shtml)
-- 2026-06-30 01:09 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/4969647839.shtml)
-- 2026-06-30 01:13 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/167389040253.shtml)
-- 2026-06-30 00:55 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/346830092769.shtml)
-- 2026-06-30 01:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/2186000.shtml)
-- 2026-06-30 01:06 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/0153911.shtml)
+- 2026-06-30 01:12 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/9651743406.shtml)
+- 2026-06-30 01:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/18184789.shtml)
+- 2026-06-30 01:03 - [周生如故](https://www.blog.kurohicncr.top/Article/details/431384778.shtml)
+- 2026-06-30 01:08 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/90464621882.shtml)
+- 2026-06-30 01:12 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/1493289.shtml)
+- 2026-06-30 00:57 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/57086.shtml)
+- 2026-06-30 01:19 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/34913.shtml)
+- 2026-06-30 01:09 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/163105757825.shtml)
+- 2026-06-30 01:23 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/33190888811.shtml)
+- 2026-06-30 01:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/41374.shtml)
+- 2026-06-30 01:14 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/91833564.shtml)
+- 2026-06-30 01:11 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/26786597073.shtml)
+- 2026-06-30 01:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/255762276.shtml)
+- 2026-06-30 01:23 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/909702203653.shtml)
+- 2026-06-30 01:05 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/179003.shtml)

@@ -1,55 +1,44 @@
-# 渣打银行缩减支持岗位
+# 华润燃气于6月18日斥资1214.92万港元回购76.64万股
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-渣打银行计划到2030年削减超过15%的企业职能部门岗位，目标在2028年实现15%的有形股本回报率，到2030年提升至约18%，并到2028年将人均收入提高约20%。这是该行在CEO温拓思领导下推动业务精简和效率提升的最新举措。此前渣打已退出部分非核心业务并投资于数字化能力，以应对全球经济不确定性并释放更多资本用于高增长领域。此次调整主要涉及后台支持角色，而非面向客户的前线员
+华润燃气（01193）发布公告，于2026年6月18日斥资1214.92万港元回购76.64万股。责任编辑：卢昱君
 
 ## 正文
 
-渣打银行计划到2030年削减超过15%的企业职能部门岗位，目标在2028年实现15%的有形股本回报率，到2030年提升至约18%，并到2028年将人均收入提高约20%。
+华润燃气（01193）发布公告，于2026年6月18日斥资1214.92万港元回购76.64万股。
 
-这是该行在CEO温拓思领导下推动业务精简和效率提升的最新举措。
-
-此前渣打已退出部分非核心业务并投资于数字化能力，以应对全球经济不确定性并释放更多资本用于高增长领域。
-
-此次调整主要涉及后台支持角色，而非面向客户的前线员工。
-
-责任编辑：张俊 SF065
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 00:49 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 01:04 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 01:00 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 01:16 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 00:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 01:03 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 01:15 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 00:56 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 01:12 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 00:53 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 00:48 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 00:48 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 00:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 01:16 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 00:56 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 00:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 01:14 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 01:19 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 01:02 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 01:10 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 01:20 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 01:08 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 01:09 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 01:15 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/129105.shtml)
-- 2026-06-30 01:17 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/9630710.shtml)
-- 2026-06-30 01:02 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/018577.shtml)
-- 2026-06-30 01:02 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/543102456.shtml)
-- 2026-06-30 00:53 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/003007999.shtml)
-- 2026-06-30 00:52 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/63152676964.shtml)
-- 2026-06-30 00:56 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/698300.shtml)
-- 2026-06-30 00:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/047303.shtml)
-- 2026-06-30 01:02 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/0196957.shtml)
-- 2026-06-30 01:09 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/93897606.shtml)
-- 2026-06-30 01:16 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/371860680946.shtml)
-- 2026-06-30 01:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/37644.shtml)
-- 2026-06-30 01:00 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/19957.shtml)
-- 2026-06-30 01:16 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/6093863.shtml)
-- 2026-06-30 01:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/73391156.shtml)
+- 2026-06-30 00:57 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/9320176.shtml)
+- 2026-06-30 00:59 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/22526578.shtml)
+- 2026-06-30 01:05 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/51691837.shtml)
+- 2026-06-30 00:55 - [金刚川](https://www.blog.kurohicncr.top/Article/details/260302098.shtml)
+- 2026-06-30 01:22 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/68196574635.shtml)
+- 2026-06-30 00:54 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/699205.shtml)
+- 2026-06-30 00:59 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/96632556312.shtml)
+- 2026-06-30 01:00 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/052598285.shtml)
+- 2026-06-30 01:13 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/1912105.shtml)
+- 2026-06-30 01:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/8955714554.shtml)
+- 2026-06-30 01:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/03574970358.shtml)
+- 2026-06-30 01:21 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/52943816200.shtml)
+- 2026-06-30 00:55 - [逃狱兄弟](https://www.blog.minike.top/Article/details/205826626.shtml)
+- 2026-06-30 01:23 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/831820588.shtml)
+- 2026-06-30 01:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/618616364.shtml)

@@ -1,46 +1,56 @@
-# 广西车辆坠河致10人遇难
+# 龙虎榜机构新动向：净买入24股 净卖出21股
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-据广西环江县有关部门消息，环江“5·16”过桥车辆坠河事件全部失联人员均已找到，本次事件5人生还，10人遇难。(新华社 记者曹祎铭、王楚然)
+6月17日沪指上涨0.40%，盘后龙虎榜数据显示，机构现身45只个股龙虎榜，净买入24只，净卖出21只。深沪股通席位出现在31只个股龙虎榜。证券时报·数据宝统计显示，6月17日机构专用席位现身45只个股龙虎榜，合计净买入16.72亿元。个股来看，净买入24只，净卖出21只。机构龙虎榜净买卖个股机构专用席位净买入金额最多的是鹏鼎控股，该股今日收盘涨停，全天换手率为2.79%，成交
 
 ## 正文
 
-据广西环江县有关部门消息，环江“5·16”过桥车辆坠河事件全部失联人员均已找到，本次事件5人生还，10人遇难。
+6月17日沪指上涨0.40%，盘后龙虎榜数据显示，机构现身45只个股龙虎榜，净买入24只，净卖出21只。
 
-(新华社 记者曹祎铭、王楚然)
+深沪股通席位出现在31只个股龙虎榜。
+
+证券时报·数据宝统计显示，6月17日机构专用席位现身45只个股龙虎榜，合计净买入16.72亿元。
+
+个股来看，净买入24只，净卖出21只。
+
+机构龙虎榜净买卖个股机构专用席位净买入金额最多的是鹏鼎控股，该股今日收盘涨停，全天换手率为2.79%，成交额为74.49亿元。
+
+因日涨幅偏离值达9.27%上榜龙虎榜，前五大买卖营业部中有6家机构专用席位，为买二、买四、买五、卖三、卖四、卖五，合计净买入61315.45万元。
+
+同时上榜的还有深股通专用席位，净卖出1.36亿元，营业部席位合计净买入8346.53万元。
+
+资金流向方面，该股全天资金净流入10.85亿元。
 
 ## 相关推荐
 
-- 2026-06-30 01:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 00:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 00:56 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 01:16 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 01:04 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 01:16 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 01:05 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 00:59 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 00:49 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 01:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 00:53 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 01:04 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 01:13 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 00:59 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 01:14 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 01:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 01:00 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 00:54 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 00:55 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 01:17 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 01:18 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 01:08 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:49 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/5886727446.shtml)
-- 2026-06-30 00:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/72648350917.shtml)
-- 2026-06-30 01:05 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/6136744389.shtml)
-- 2026-06-30 00:49 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/95101497.shtml)
-- 2026-06-30 01:01 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/9399589.shtml)
-- 2026-06-30 01:12 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/6010700111.shtml)
-- 2026-06-30 01:00 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/086297086947.shtml)
-- 2026-06-30 00:54 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/51437920017.shtml)
-- 2026-06-30 01:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/400568231.shtml)
-- 2026-06-30 00:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/193480.shtml)
-- 2026-06-30 01:04 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/63942166440.shtml)
-- 2026-06-30 00:55 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/805821.shtml)
-- 2026-06-30 00:48 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/550915.shtml)
-- 2026-06-30 00:55 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/526427732.shtml)
-- 2026-06-30 01:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/5384520754.shtml)
+- 2026-06-30 01:23 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/5842604.shtml)
+- 2026-06-30 00:54 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/5349693.shtml)
+- 2026-06-30 01:22 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/8425500.shtml)
+- 2026-06-30 01:12 - [巴西vs日本](http://www.share.minike.top/Article/details/0414258.shtml)
+- 2026-06-30 01:02 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/5740453.shtml)
+- 2026-06-30 01:03 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/09683.shtml)
+- 2026-06-30 01:02 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/564890998094.shtml)
+- 2026-06-30 01:00 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/49606315782.shtml)
+- 2026-06-30 00:56 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/9390918.shtml)
+- 2026-06-30 01:16 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/381060828.shtml)
+- 2026-06-30 01:04 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/7979377662.shtml)
+- 2026-06-30 01:04 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/2533734.shtml)
+- 2026-06-30 01:02 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/650737.shtml)
+- 2026-06-30 01:04 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/836812502902.shtml)
+- 2026-06-30 01:11 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/651029.shtml)

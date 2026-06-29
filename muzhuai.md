@@ -1,61 +1,57 @@
-# 2026保险业资本分野：国资进击、价值重估与市场出清三重变奏
+# 历史性一刻！中际旭创总市值突破1.5万亿，超越茅台！高“光”创业板人工智能ETF华宝（159363）涨4%持续新高
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-来源：观潮财经 三条路径，一幅行业转型图。 2026年尚未过半，我国保险业的资本版图已迎来不小的变化。表面之下，一场决定未来十年格局的暗涌正在激烈冲刷——资本、股权与牌照的价值，在被赋予全新的定义。 一边是汹涌的“补血”潮。2026年以来不足五个月，已有超58亿元新增资本密集注入华贵人寿、平安人寿等机构，其中国有资本独揽主导，借增资之机将控股权推至49%乃至更高的绝对控制线。另
+6月18日午后，创业板人工智能全线飘红，算力+AI应用携手上扬。其中，万亿光模块巨头中际旭创涨超6%创新高，且盘中市值突破1.5万亿元，超过贵州茅台！算力租赁概念股东方国信20CM涨停，AI应用概念股昆仑万维上涨12%，存储芯片概念股北京君正涨超9%。 热门ETF方面，“易中天”含量近40%的创业板人工智能ETF华宝（159363）场内大涨近4%，持续新高，实时成交超12亿元，
 
 ## 正文
 
-来源：观潮财经 三条路径，一幅行业转型图。
+6月18日午后，创业板人工智能全线飘红，算力+AI应用携手上扬。
 
-2026年尚未过半，我国保险业的资本版图已迎来不小的变化。
+其中，万亿光模块巨头中际旭创涨超6%创新高，且盘中市值突破1.5万亿元，超过贵州茅台！
 
-表面之下，一场决定未来十年格局的暗涌正在激烈冲刷——资本、股权与牌照的价值，在被赋予全新的定义。
+算力租赁概念股东方国信20CM涨停，AI应用概念股昆仑万维上涨12%，存储芯片概念股北京君正涨超9%。
 
-一边是汹涌的“补血”潮。
+热门ETF方面，“易中天”含量近40%的创业板人工智能ETF华宝（159363）场内大涨近4%，持续新高，实时成交超12亿元，环比放量明显。
 
-2026年以来不足五个月，已有超58亿元新增资本密集注入华贵人寿、平安人寿等机构，其中国有资本独揽主导，借增资之机将控股权推至49%乃至更高的绝对控制线。
+随着中报披露窗口临近，市场资金关注点或将逐步从主题交易转向业绩验证。
 
-另一边则是静水深流的“整合”图景，从国家电网到广西金控，多家巨头正将分散的保险股权向集团内金控平台归集，实现产权的内部集约与战略聚焦。
+兴业证券表示，以北美算力链（如光通信中的光模块、光纤光缆）为代表的AI高确定性方向，在外部波动中这类景气品种反而将成为市场聚焦的、更具韧性的方向，并有望在7月业绩期成为市场最强共识。
 
-然而，在资本的暖流之外，是公开市场的刺骨寒意。
+AI的叙事逻辑仍在强化市场的结构。
 
-三峡人寿6.59%的股权在拍卖台上价格缩水超八成仍无人问津；中银三星人寿24%的股权挂牌价一降再降。
+摩根大通近期报告中，将2030年人工智能基础设施总投资额的预测值上调至5.5万亿美元，较去年11月的预测值增加了4000亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 00:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 00:52 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 01:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 00:52 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 00:50 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 00:55 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 01:13 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 00:50 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 01:16 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 00:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 00:59 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 01:14 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 00:50 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 00:49 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 00:55 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 01:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 01:01 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 01:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 01:05 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 00:58 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 01:20 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 01:02 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 01:00 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 01:00 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 01:08 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 00:59 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:15 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/2402380.shtml)
-- 2026-06-30 01:01 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/8436821.shtml)
-- 2026-06-30 01:04 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/80483895.shtml)
-- 2026-06-30 00:57 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/32829.shtml)
-- 2026-06-30 00:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/75744735067.shtml)
-- 2026-06-30 01:01 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/6347759553.shtml)
-- 2026-06-30 00:49 - [刘念回应](https://www.share.minike.top/Article/details/63524.shtml)
-- 2026-06-30 00:58 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/024363.shtml)
-- 2026-06-30 00:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/772207.shtml)
-- 2026-06-30 00:59 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/8553147.shtml)
-- 2026-06-30 01:09 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/4420705669.shtml)
-- 2026-06-30 01:10 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/40333365705.shtml)
-- 2026-06-30 01:14 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/82095486671.shtml)
-- 2026-06-30 01:17 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/45441.shtml)
-- 2026-06-30 01:05 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/784043679.shtml)
+- 2026-06-30 01:06 - [斗破苍穹](https://www.blog.minike.top/Article/details/437552540.shtml)
+- 2026-06-30 01:16 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/7517892137.shtml)
+- 2026-06-30 01:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/07664.shtml)
+- 2026-06-30 01:21 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/69506579.shtml)
+- 2026-06-30 01:18 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/21138571.shtml)
+- 2026-06-30 00:54 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/06402.shtml)
+- 2026-06-30 01:10 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/3881854.shtml)
+- 2026-06-30 01:01 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/95061.shtml)
+- 2026-06-30 01:04 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/056418494.shtml)
+- 2026-06-30 01:08 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/9714519.shtml)
+- 2026-06-30 01:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/158752195.shtml)
+- 2026-06-30 00:58 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/361353855.shtml)
+- 2026-06-30 00:59 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/9337853408.shtml)
+- 2026-06-30 01:05 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/030512844.shtml)
+- 2026-06-30 01:23 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/121409121.shtml)

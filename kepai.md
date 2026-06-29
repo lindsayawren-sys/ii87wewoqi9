@@ -1,60 +1,45 @@
-# 专家提醒：夏季户外活动当心蚊、蜱叮咬
+# 淋雨涉水后 及时科学处置可降低感染风险
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 国家卫生健康委19日举行新闻发布会介绍时令节气与健康有关情况。 中国疾病预防控制中心研究员张岚介绍，进入到5月，气温升高，降水增多，大家外出旅游、户外活动也会增多。对此，做以下几点健康提示： 第一，要注意户外饮水安全。野外水源可能含有细菌或者寄生虫，直接饮用可能引发肠胃不适甚至造成腹泻，所以建议提前带足够的饮用水。如果必须使用到野外的水源，可以先将水彻底煮开
+发布时间：2026年06月18日 09:38 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网5月19日电 国家卫生健康委19日举行新闻发布会介绍时令节气与健康有关情况。
-
-中国疾病预防控制中心研究员张岚介绍，进入到5月，气温升高，降水增多，大家外出旅游、户外活动也会增多。
-
-对此，做以下几点健康提示： 第一，要注意户外饮水安全。
-
-野外水源可能含有细菌或者寄生虫，直接饮用可能引发肠胃不适甚至造成腹泻，所以建议提前带足够的饮用水。
-
-如果必须使用到野外的水源，可以先将水彻底煮开以后再饮用，或者使用有效的便携式的滤水器进行处理以后再饮用。
-
-第二，要注意预防蚊、蜱的叮咬。
-
-户外活动时，建议穿浅色、光滑的面料、带松紧扣的长裤和外套。
-
-衣物和裸露的皮肤表面可以涂抹含有避蚊桉的驱虫剂，防止蚊虫和蜱的叮咬。
+发布时间：2026年06月18日 09:38 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 00:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 00:52 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 01:12 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 01:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 01:14 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 01:08 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 00:50 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 00:57 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 00:57 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 01:08 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 00:51 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 01:12 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 01:05 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 00:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 01:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 01:12 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 01:07 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 01:00 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 01:12 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 00:54 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 01:03 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 01:14 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 00:56 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 00:54 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 01:07 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 01:03 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 01:04 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:16 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/88315.shtml)
-- 2026-06-30 01:15 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/968810999794.shtml)
-- 2026-06-30 01:10 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/95801306.shtml)
-- 2026-06-30 00:56 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/82919060.shtml)
-- 2026-06-30 00:56 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/69578660.shtml)
-- 2026-06-30 01:13 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/043325572009.shtml)
-- 2026-06-30 00:53 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/763404.shtml)
-- 2026-06-30 00:48 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/753166831379.shtml)
-- 2026-06-30 01:15 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/96208610.shtml)
-- 2026-06-30 01:05 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/03656735156.shtml)
-- 2026-06-30 01:02 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/28700735.shtml)
-- 2026-06-30 01:03 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/443598108633.shtml)
-- 2026-06-30 00:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/2291755770.shtml)
-- 2026-06-30 01:17 - [一见倾心](http://www.share.kurohicncr.top/Article/details/53590637.shtml)
-- 2026-06-30 00:59 - [千与千寻](http://www.blog.minike.top/Article/details/59818803468.shtml)
+- 2026-06-30 01:04 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/9479541.shtml)
+- 2026-06-30 01:22 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/60949.shtml)
+- 2026-06-30 01:20 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/49104862584.shtml)
+- 2026-06-30 01:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/18687515670.shtml)
+- 2026-06-30 01:23 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/49122152689.shtml)
+- 2026-06-30 00:55 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/391212.shtml)
+- 2026-06-30 01:08 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/553478053.shtml)
+- 2026-06-30 01:15 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/0167120357.shtml)
+- 2026-06-30 01:10 - [这一刀 会很帅](http://www.share.minike.top/Article/details/34768334088.shtml)
+- 2026-06-30 01:01 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/62649.shtml)
+- 2026-06-30 01:18 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/2269692117.shtml)
+- 2026-06-30 01:04 - [起风了](http://www.blog.kurohicncr.top/Article/details/96589963503.shtml)
+- 2026-06-30 00:56 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/2325795.shtml)
+- 2026-06-30 01:00 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/89900429.shtml)
+- 2026-06-30 01:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/404814037.shtml)

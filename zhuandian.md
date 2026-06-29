@@ -1,50 +1,59 @@
-# 任斌：科技企业从初创、成长到上市发展全生命周期都需要金融支持
+# 6月端午节难以支撑猪价 价格拐点或在月底出现
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。 “科技金融赋能新质生产力”主题论坛上，成都纵横自动化技术股份有限公司创始人、董事长兼CEO任斌表示，科技企业从初创、成长到上市发展的全生命周期都需要金融支持，
+卓创资讯生猪市场分析师闫法成 【导语】2026年6月国内生猪市场猪价持续下滑，截止到6月15日，月均价为9.50元/公斤，虽有端午节假期支撑猪价上行，但需求端目前处于传统消费淡季，天气与冻品库存因素明显突出，生猪价格上涨难度较高，对猪价起利空作用，市场供需关系较为复杂。结合生猪繁育周期来看，10个月之前能繁母猪的数量减少，对应2026年6月底市场或出现生猪供应减少的情况，供小于
 
 ## 正文
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。
+卓创资讯生猪市场分析师闫法成 【导语】2026年6月国内生猪市场猪价持续下滑，截止到6月15日，月均价为9.50元/公斤，虽有端午节假期支撑猪价上行，但需求端目前处于传统消费淡季，天气与冻品库存因素明显突出，生猪价格上涨难度较高，对猪价起利空作用，市场供需关系较为复杂。
 
-本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。
+结合生猪繁育周期来看，10个月之前能繁母猪的数量减少，对应2026年6月底市场或出现生猪供应减少的情况，供小于求，猪价或呈上涨趋势，价格拐点或在月底出现。
 
-“科技金融赋能新质生产力”主题论坛上，成都纵横自动化技术股份有限公司创始人、董事长兼CEO任斌表示，科技企业从初创、成长到上市发展的全生命周期都需要金融支持，同时，从技术发展演变脉络看，从科技转化为实体，再到企业持续发展，金融更是非常重要的支撑，特别是以低空经济等新兴支柱产业为例，其研发投人、场景应用和市场开拓都离不开资金支持，金融助力尤为重要和关键。
+供应端：生猪出栏环比小降，供应呈收缩态势 卓创资讯样本企业监测数据显示，6月国内主流规模养殖企业生猪出栏量环比减少1.36%，出栏规模有所下滑。
 
-责任编辑：张文
+本次减量是行业产能调整的阶段性表现，前期市场淘汰低效持续，能繁母猪存栏逐渐去化，导致仔猪存栏增加受限，进一步压制了商品猪的出栏放量空间。
+
+这也是导致6月生猪出栏量回落的核心因素。
+
+图1 卓创资讯监测样本企业生猪出栏计划与完成率 数据来源：卓创资讯 需求端：消费淡季叠加冻品库存逐步升高，猪价上行难度加大 需求乏力是6月生猪价格持续偏弱运行的核心因素。
+
+6月开始，全国气温持续升高，南方进入梅雨季节，温度与湿度的提升大大降低了居民鲜肉消费的意愿，国内猪肉终端消费处于消费淡季。
+
+从消费场景来看，居民鲜肉消费仅仅维持日常刚需，并无明显增量现象，团建、餐饮等消费力度提振不足，导致屠宰企业鲜肉销售压力持续升高。
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 01:10 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 01:04 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 01:13 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 01:13 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 00:59 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 00:48 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 01:07 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 01:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 01:01 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 00:52 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 00:52 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 01:06 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 01:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 01:05 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 01:16 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 01:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 01:19 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 01:20 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 01:16 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 01:09 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 00:56 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 01:03 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 01:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 01:15 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [美股](https://www.share.kurohicncr.top/Article/details/1045153.shtml)
-- 2026-06-30 01:11 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/38849511875.shtml)
-- 2026-06-30 00:57 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/9365451236.shtml)
-- 2026-06-30 00:50 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/2773467.shtml)
-- 2026-06-30 01:10 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/80052827.shtml)
-- 2026-06-30 01:08 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/77834850268.shtml)
-- 2026-06-30 01:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/4927063551.shtml)
-- 2026-06-30 00:50 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/4579028.shtml)
-- 2026-06-30 01:09 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/99637956659.shtml)
-- 2026-06-30 01:07 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/621013440.shtml)
-- 2026-06-30 01:16 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/292795918117.shtml)
-- 2026-06-30 01:12 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/7305188.shtml)
-- 2026-06-30 00:54 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/19144732.shtml)
-- 2026-06-30 01:16 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/28805.shtml)
-- 2026-06-30 00:55 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/68194651746.shtml)
+- 2026-06-30 00:56 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/084159.shtml)
+- 2026-06-30 01:09 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/64941372352.shtml)
+- 2026-06-30 00:56 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/41435183.shtml)
+- 2026-06-30 01:22 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/725384191413.shtml)
+- 2026-06-30 01:18 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/252560353393.shtml)
+- 2026-06-30 01:07 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/94171564.shtml)
+- 2026-06-30 00:59 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/39645890.shtml)
+- 2026-06-30 00:59 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/4653491503.shtml)
+- 2026-06-30 01:09 - [月亮](https://www.share.minike.top/Article/details/95973770007.shtml)
+- 2026-06-30 01:08 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/754633996742.shtml)
+- 2026-06-30 01:08 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/576149224.shtml)
+- 2026-06-30 01:21 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/847809523221.shtml)
+- 2026-06-30 00:58 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/41685255.shtml)
+- 2026-06-30 01:10 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/725168345236.shtml)
+- 2026-06-30 01:21 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/70373888575.shtml)

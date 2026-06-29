@@ -1,58 +1,56 @@
-# 警惕5大误区，别让胆固醇“堵”住健康
+# 张国华与拼多多集团执行总裁兼新拼姆总裁朱政一行举行工作座谈
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-警惕5大误区，别让胆固醇“堵”住健康 专家解读：维护血管健康，必须重视“总胆固醇”这一指标 5月18日是全国“血管健康日”，选择这个日期，正是源于正常人血液总胆固醇异常的临界值——5.18mmol/L。与血管健康的相关因素很多，为什么一定要特别重视“总胆固醇”这个指标？总胆固醇与血管健康之间的常见误区又有哪些？南京市中西医结合医院心血管病科主任邢俊武主任医师为大家做出了详细解答
+6月16日，拼多多集团执行总裁兼新拼姆总裁朱政一行到雄安新区考察调研。省委常委，雄安新区党工委书记、管委会主任张国华与朱政一行举行工作座谈，并出席签约仪式。 张国华代表雄安新区党工委、管委会对朱政一行的到来表示热烈欢迎，对拼多多集团积极参与雄安建设发展表示衷心感谢。他表示，经过9年多建设发展，雄安新区现代化城市综合功能、公共服务功能、商业服务功能持续完善，综合承载能力、要素集聚
 
 ## 正文
 
-警惕5大误区，别让胆固醇“堵”住健康 专家解读：维护血管健康，必须重视“总胆固醇”这一指标 5月18日是全国“血管健康日”，选择这个日期，正是源于正常人血液总胆固醇异常的临界值——5.18mmol/L。
+6月16日，拼多多集团执行总裁兼新拼姆总裁朱政一行到雄安新区考察调研。
 
-与血管健康的相关因素很多，为什么一定要特别重视“总胆固醇”这个指标？
+省委常委，雄安新区党工委书记、管委会主任张国华与朱政一行举行工作座谈，并出席签约仪式。
 
-总胆固醇与血管健康之间的常见误区又有哪些？
+张国华代表雄安新区党工委、管委会对朱政一行的到来表示热烈欢迎，对拼多多集团积极参与雄安建设发展表示衷心感谢。
 
-南京市中西医结合医院心血管病科主任邢俊武主任医师为大家做出了详细解答，帮助大家更好地维护血管健康。
+他表示，经过9年多建设发展，雄安新区现代化城市综合功能、公共服务功能、商业服务功能持续完善，综合承载能力、要素集聚能力、自我发展能力显著增强，各方力量积极参与建设发展，形成了人心向往、要素汇聚、合力共建、共同发展的生动局面。
 
-通讯员 杨璞 扬子晚报/紫牛新闻记者 许倩倩一定要重视“总胆固醇”的四大原因 原因一：总胆固醇是动脉粥样硬化的核心“原料”。
+当前，雄安正深入学习贯彻习近平总书记视察重要讲话精神，努力建设新时代创新高地和推动高质量发展样板。
 
-大部分的心梗、脑梗都是动脉粥样硬化斑块堵塞血管导致的，而斑块最主要的成分就是胆固醇。
+拼多多集团作为国内头部互联网企业，近期成立拼多多信息技术服务(雄安)有限公司，与雄安深度开展数字服务战略合作，体现了重大国家战略与企业长期发展的双向奔赴。
 
-血液中的总胆固醇，包含了会伤害血管的低密度脂蛋白胆固醇(也就是常说的“坏胆固醇”)，总胆固醇水平升高，往往意味着坏胆固醇也同步超标，这些多余的胆固醇会不断沉积到血管壁，慢慢形成斑块，让血管变硬变窄，甚至直接堵塞血管。
+希望双方以此次签约为契机，持续拓宽合作领域、丰富合作载体，合力构筑数字服务产业集聚新高地。
 
-“没有胆固醇就没有动脉粥样硬化”，可以说，没有胆固醇(特别是低密度脂蛋白胆固醇)的异常升高，就很少会形成危险的动脉粥样硬化斑块。
+雄安将依托自身的平台资源、政策体系和数字经济发展优势，全周期做好服务保障，不断完善产业生态，助力企业高质量发展，共创合作共赢美好未来。
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 01:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 01:01 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 01:09 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 00:56 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 00:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 01:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 00:59 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 00:58 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 00:49 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 01:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 00:56 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 01:20 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 01:21 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 01:04 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 01:07 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 01:02 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 01:04 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 01:20 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 00:55 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 01:04 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 01:06 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/596979.shtml)
-- 2026-06-30 00:56 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/536206.shtml)
-- 2026-06-30 01:13 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/2230764994.shtml)
-- 2026-06-30 01:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/810878.shtml)
-- 2026-06-30 00:55 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/832067499.shtml)
-- 2026-06-30 00:51 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/2512073018.shtml)
-- 2026-06-30 00:53 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/75327.shtml)
-- 2026-06-30 01:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/986560.shtml)
-- 2026-06-30 00:55 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/0537162.shtml)
-- 2026-06-30 00:52 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/00699021345.shtml)
-- 2026-06-30 01:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/1139526.shtml)
-- 2026-06-30 00:53 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/74778529.shtml)
-- 2026-06-30 01:14 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/9006377.shtml)
-- 2026-06-30 01:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/20365246618.shtml)
-- 2026-06-30 01:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/7618686569.shtml)
+- 2026-06-30 01:09 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/1903243.shtml)
+- 2026-06-30 01:05 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/73513531.shtml)
+- 2026-06-30 01:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/7742161250.shtml)
+- 2026-06-30 01:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/04938718707.shtml)
+- 2026-06-30 00:57 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/209430712181.shtml)
+- 2026-06-30 01:12 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/0588903.shtml)
+- 2026-06-30 01:16 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/2056237540.shtml)
+- 2026-06-30 01:22 - [起风了](http://www.blog.minike.top/Article/details/81330.shtml)
+- 2026-06-30 01:19 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/7377376.shtml)
+- 2026-06-30 00:59 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/8056099417.shtml)
+- 2026-06-30 00:57 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/373625.shtml)
+- 2026-06-30 01:18 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/05583711717.shtml)
+- 2026-06-30 01:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/87945891.shtml)
+- 2026-06-30 01:03 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/34597244.shtml)
+- 2026-06-30 01:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/72473.shtml)

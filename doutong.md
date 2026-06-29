@@ -1,51 +1,59 @@
-# AI学伴进课堂：防“幻觉”与学生变懒 北京十中这样见招拆招
+# （机遇澳门）月球与行星科学全国重点实验室：澳门科研力量助力国家航天事业
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 22:02 来源：中国新闻网 AI如何融入中学生学习？如何避免大模型“幻觉”和学生变懒？教育模式正迎来哪些改变？近日，记者走进北京市第十中学，实地探访这里的AI课堂。(记者卢晓娜 北京报道） 责任编辑：【李季】
+中新网澳门6月18日电 (记者 郑嘉伟)澳门科技大学月球与行星科学全国重点实验室副主任张小平17日接受媒体采访时表示，澳门高校和科研机构凭借“背靠祖国、联通世界”的优势，在国家航天工程中发挥着越来越重要的作用。作为国家天文与行星科学领域首个全国重点实验室，该实验室近5年在月球科学领域发表的论文数量位居全球第七，深度参与了从嫦娥一号到天问四号等深空探测任务。 张小平介绍，实验室目
 
 ## 正文
 
-发布时间：2026年05月19日 22:02 来源：中国新闻网 AI如何融入中学生学习？
+中新网澳门6月18日电 (记者 郑嘉伟)澳门科技大学月球与行星科学全国重点实验室副主任张小平17日接受媒体采访时表示，澳门高校和科研机构凭借“背靠祖国、联通世界”的优势，在国家航天工程中发挥着越来越重要的作用。
 
-如何避免大模型“幻觉”和学生变懒？
+作为国家天文与行星科学领域首个全国重点实验室，该实验室近5年在月球科学领域发表的论文数量位居全球第七，深度参与了从嫦娥一号到天问四号等深空探测任务。
 
-教育模式正迎来哪些改变？
+张小平介绍，实验室目前正参与嫦娥五号、六号月壤样品分析，承担嫦娥七号月壤水分子分析仪、天问二号挥发分分析仪与尘埃分析仪等关键载荷研制任务，并牵头天问三号火星分子离子分析仪的研制工作。
 
-近日，记者走进北京市第十中学，实地探访这里的AI课堂。
+张小平指出，澳门可利用现有的卫星数据分析、高精度传感器研发及样品分析平台三大积累，探索航天科技成果转化。
 
-(记者卢晓娜 北京报道） 责任编辑：【李季】
+此外，实验室已在横琴设立分部，形成了“澳门基础研究—横琴中试转化—市场对接”的成熟协同模式。
+
+在推动国际航天合作方面，澳门高校已与欧洲航天局和葡萄牙、巴西等开展行星科学合作，未来计划成立国际学术组织，使澳门成为亚太区航天基础科学交流节点。
+
+张小平说，澳门正积极对接粤港澳大湾区商业航天产业链，成为中国航天“走出去”与国际先进技术“引进来”的精准联系人。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 00:52 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 00:56 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 01:16 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 01:08 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 00:59 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 00:59 - [东方风云榜直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 01:00 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 00:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 01:00 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 01:09 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 01:17 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 01:13 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 01:16 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 00:59 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 01:13 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 01:02 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 01:15 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 01:21 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 01:06 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 01:13 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 01:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 01:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 01:03 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:17 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/50344.shtml)
-- 2026-06-30 00:50 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/874761.shtml)
-- 2026-06-30 01:03 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/36142190910.shtml)
-- 2026-06-30 01:11 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/64275.shtml)
-- 2026-06-30 01:06 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/3801146.shtml)
-- 2026-06-30 01:14 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/99990513.shtml)
-- 2026-06-30 00:55 - [我们的少年时代2](https://www.blog.minike.top/Article/details/592666819603.shtml)
-- 2026-06-30 01:11 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/810629160.shtml)
-- 2026-06-30 00:50 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/1141576897.shtml)
-- 2026-06-30 00:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/6569205711.shtml)
-- 2026-06-30 01:09 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/08193268.shtml)
-- 2026-06-30 01:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/120132102699.shtml)
-- 2026-06-30 01:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/7853691.shtml)
-- 2026-06-30 01:02 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/6688998.shtml)
-- 2026-06-30 01:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/099423477132.shtml)
+- 2026-06-30 01:05 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/2641099.shtml)
+- 2026-06-30 01:06 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/37697242458.shtml)
+- 2026-06-30 01:15 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/71051.shtml)
+- 2026-06-30 01:07 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/8468182499.shtml)
+- 2026-06-30 01:22 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/7106270487.shtml)
+- 2026-06-30 01:08 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/64797344.shtml)
+- 2026-06-30 01:01 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/18135635985.shtml)
+- 2026-06-30 01:23 - [勇敢的心第二部](http://www.share.minike.top/Article/details/163854414.shtml)
+- 2026-06-30 01:20 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/17472415566.shtml)
+- 2026-06-30 01:20 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/31321095.shtml)
+- 2026-06-30 00:55 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/375944860711.shtml)
+- 2026-06-30 01:11 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/733083.shtml)
+- 2026-06-30 01:03 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/86424.shtml)
+- 2026-06-30 01:16 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/32933224144.shtml)
+- 2026-06-30 01:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/88178289.shtml)

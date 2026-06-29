@@ -1,51 +1,60 @@
-# 李稻葵：应进一步增加国债等人民币固定资产供给
+# PCB涨停潮、电子ETF新高！AI硬件谁在“屏实力”追光？
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-来源：北京商报 北京商报讯（记者 孟凡霞 周义力）5月19日，在以“启航‘十五五’——金融赋能新周期，科创驱动新未来”为主题的首届金融街·金城坊论坛上，清华大学中国经济思想与实践研究院院长李稻葵就近期香港地区人民币国债资产被国际机构踊跃买入的现象进行解读。 李稻葵表示，在这一轮中东局势之后，他通过自身投资观察发现，国际黄金价格不涨反跌，美元汇率未出现明显上涨，而人民币、人民币国
+来源：ETF万亿指数 周三（6月17日）的行情，一句话，“芯”光灿烂、咱要“屏”实力！半导体、PCB涨停潮。 发现了，不仅要站在光里，还要去“追”光。比如东山精密就公告了12亿美元扩建光芯片和光模块产能。 还有一件振奋人心的消息，DeepSeek首轮外部融资传闻落地，总额超500亿元人民币（约75亿美元），投后估值3500-4000亿元；除国家AI产业基金外，腾讯、宁德时代等外
 
 ## 正文
 
-来源：北京商报 北京商报讯（记者 孟凡霞 周义力）5月19日，在以“启航‘十五五’——金融赋能新周期，科创驱动新未来”为主题的首届金融街·金城坊论坛上，清华大学中国经济思想与实践研究院院长李稻葵就近期香港地区人民币国债资产被国际机构踊跃买入的现象进行解读。
+来源：ETF万亿指数 周三（6月17日）的行情，一句话，“芯”光灿烂、咱要“屏”实力！
 
-李稻葵表示，在这一轮中东局势之后，他通过自身投资观察发现，国际黄金价格不涨反跌，美元汇率未出现明显上涨，而人民币、人民币国债以及人民币长期贷款利率反而有所上升。
+半导体、PCB涨停潮。
 
-他认为，这一现象体现出当前人民币固定资产类产品供给不足，这种需求不仅来自国内民众，更是全球市场的共同呼唤，因此应进一步增加国债的供给。
+发现了，不仅要站在光里，还要去“追”光。
 
-责任编辑：秦艺
+比如东山精密就公告了12亿美元扩建光芯片和光模块产能。
+
+还有一件振奋人心的消息，DeepSeek首轮外部融资传闻落地，总额超500亿元人民币（约75亿美元），投后估值3500-4000亿元；除国家AI产业基金外，腾讯、宁德时代等外部资金注入有限合伙企业，享有经济权益但无投票权且锁定五年。
+
+另， PCB的爆发源于台积电的一则消息，公司6月16日首次向供应链发布“CoWoS玻璃基板开发计划”，确认携手ABF载板龙头Ibiden与面板厂群创光电，共同验证玻璃基板导入CoWoS先进封装的可行性。
+
+这是台积电首次公开披露玻璃基板技术的产业化验证进程，意味着该技术正式从实验室研发跨入工程化落地阶段。
+
+其实，这次增量信息并不在于“在研究玻璃基板”，而是首次公开确认合作方、披露具体测试数据，并给出对比定性，实质上是在向供应链和客户释放明确的导入信号。
 
 ## 相关推荐
 
-- 2026-06-30 00:48 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 01:05 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 01:14 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 00:59 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 00:56 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 01:01 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 01:00 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 00:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 01:06 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 00:59 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 01:17 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 01:14 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 00:51 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 00:54 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 01:20 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 01:00 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 01:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 01:08 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 01:04 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 01:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 01:04 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 00:59 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 01:19 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 01:10 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 01:10 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 00:54 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 01:06 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/19079.shtml)
-- 2026-06-30 01:15 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/2601055019.shtml)
-- 2026-06-30 01:02 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/886119.shtml)
-- 2026-06-30 00:57 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/02859866230.shtml)
-- 2026-06-30 01:08 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/68894305859.shtml)
-- 2026-06-30 01:11 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/7581751.shtml)
-- 2026-06-30 00:54 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/2817877.shtml)
-- 2026-06-30 01:15 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/26157363998.shtml)
-- 2026-06-30 00:50 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/419804.shtml)
-- 2026-06-30 00:56 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/43326321.shtml)
-- 2026-06-30 01:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/934016696871.shtml)
-- 2026-06-30 01:00 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/0275334.shtml)
-- 2026-06-30 00:50 - [美股](https://www.share.kurohicncr.top/Article/details/61163.shtml)
-- 2026-06-30 01:08 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/15241761296.shtml)
-- 2026-06-30 01:07 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/203995307359.shtml)
+- 2026-06-30 01:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/706562856.shtml)
+- 2026-06-30 01:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/706098.shtml)
+- 2026-06-30 01:01 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/2886562.shtml)
+- 2026-06-30 01:12 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/009667.shtml)
+- 2026-06-30 01:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/93372106065.shtml)
+- 2026-06-30 00:59 - [啊啊啊](https://www.blog.minike.top/Article/details/2413417238.shtml)
+- 2026-06-30 01:07 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/79238680.shtml)
+- 2026-06-30 00:56 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/98895589.shtml)
+- 2026-06-30 01:14 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/77624014.shtml)
+- 2026-06-30 01:03 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/59412.shtml)
+- 2026-06-30 01:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/625668256.shtml)
+- 2026-06-30 01:07 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/83862735.shtml)
+- 2026-06-30 01:17 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/09156169.shtml)
+- 2026-06-30 01:20 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/100931905121.shtml)
+- 2026-06-30 00:58 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/13662.shtml)

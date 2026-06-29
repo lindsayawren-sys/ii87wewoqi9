@@ -1,52 +1,56 @@
-# SpaceX首次公开募股或考验市场承受力
+# 吴伟：截至今年5月沪港通累计成交额近157.7万亿元，成为跨境资本高效配置的重要通道
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-据报道SpaceX正加快上市计划，纳斯达克可能承办美国史上规模最大的首次公开募股之一。然而，一些市场观察人士警告称，SpaceX的超高估值可能为市场引入泡沫风险。该公司在私人市场的估值已超过2000亿美元，若公开上市，可能吸引大量追逐明星科技股的散户资金。投资银行竞相争夺承销资格，监管机构则关注其星链卫星业务的合规性问题。SpaceX创始人马斯克表示上市将有助于筹集火星探索计划
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，202陆家嘴论坛于今日召开，上海市常务副市长吴伟出席“全体大会四：沪港金融协同发展赋能高水平金融开放”并发言。 吴伟表示，建设上海香港两大国际金融中心是重大国家战略。中央金融工作会议明确提出，增强上海国际金融中心的竞争力和影响力，巩固提升香港国际金融中心地位。近年来，沪港两地深入推进金融协同发
 
 ## 正文
 
-据报道SpaceX正加快上市计划，纳斯达克可能承办美国史上规模最大的首次公开募股之一。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，202陆家嘴论坛于今日召开，上海市常务副市长吴伟出席“全体大会四：沪港金融协同发展赋能高水平金融开放”并发言。
 
-然而，一些市场观察人士警告称，SpaceX的超高估值可能为市场引入泡沫风险。
+吴伟表示，建设上海香港两大国际金融中心是重大国家战略。
 
-该公司在私人市场的估值已超过2000亿美元，若公开上市，可能吸引大量追逐明星科技股的散户资金。
+中央金融工作会议明确提出，增强上海国际金融中心的竞争力和影响力，巩固提升香港国际金融中心地位。
 
-投资银行竞相争夺承销资格，监管机构则关注其星链卫星业务的合规性问题。
+近年来，沪港两地深入推进金融协同发展。
 
-SpaceX创始人马斯克表示上市将有助于筹集火星探索计划的资金，但不会在近期作出最终决定。
+特别是去年陆家嘴论坛期间，沪港国际金融中心协同发展行动方案签署。
 
-责任编辑：张俊 SF065
+一年来，两地金融市场互联互通机制持续优化，跨境和离岸金融协同不断深化，科技金融、绿色金融和金融科技等新兴领域合作亮点纷呈。
+
+吴伟指出，截至今年5月，沪港通累计成交额近157.7万亿元，成为跨境资本高效配置的重要通道。
+
+上海黄金交易所落地香港国际板指定交割仓库，并同步推出离岸黄金交割合约，进一步夯实沪港金融市场互联互通的基础设施底座。
 
 ## 相关推荐
 
-- 2026-06-30 01:03 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 01:01 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 01:02 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 00:59 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 01:06 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 00:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 01:07 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 01:00 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 01:16 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 00:52 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 01:15 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 01:23 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 01:21 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 01:16 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 01:16 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 01:20 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 00:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 01:19 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 01:22 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 00:57 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:04 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/7107961123.shtml)
-- 2026-06-30 00:53 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/27228.shtml)
-- 2026-06-30 01:06 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/517568181.shtml)
-- 2026-06-30 01:05 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/825605832.shtml)
-- 2026-06-30 00:52 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/771424.shtml)
-- 2026-06-30 00:57 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/73100254.shtml)
-- 2026-06-30 01:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/490819.shtml)
-- 2026-06-30 01:06 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/805693.shtml)
-- 2026-06-30 00:57 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/79257319.shtml)
-- 2026-06-30 01:12 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/06639472025.shtml)
-- 2026-06-30 01:02 - [逃狱兄弟](https://www.share.minike.top/Article/details/685909284.shtml)
-- 2026-06-30 00:51 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/44056.shtml)
-- 2026-06-30 00:50 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/80673086774.shtml)
-- 2026-06-30 00:58 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/432666047358.shtml)
-- 2026-06-30 01:02 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/17088.shtml)
+- 2026-06-30 01:17 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/395784.shtml)
+- 2026-06-30 01:16 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/6978692768.shtml)
+- 2026-06-30 01:01 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/87474564.shtml)
+- 2026-06-30 00:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/08073992.shtml)
+- 2026-06-30 01:12 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/255014.shtml)
+- 2026-06-30 01:07 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/710573517.shtml)
+- 2026-06-30 00:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/97297495945.shtml)
+- 2026-06-30 01:07 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/94848.shtml)
+- 2026-06-30 00:58 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/4161680945.shtml)
+- 2026-06-30 01:09 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/156628084732.shtml)
+- 2026-06-30 00:59 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/787764.shtml)
+- 2026-06-30 01:00 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/10596174.shtml)
+- 2026-06-30 01:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/540011147.shtml)
+- 2026-06-30 01:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/78394.shtml)
+- 2026-06-30 01:13 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/800574.shtml)

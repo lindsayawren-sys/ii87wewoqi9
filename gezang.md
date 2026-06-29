@@ -1,60 +1,44 @@
-# 华安基金：通信电子高景气，创业板50指数上周涨3.92%
+# 三峡水利：公司深知广大中小股东的信任是企业长久发展的根基
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-行情回顾及主要观点： 上周A股市场整体呈现分化趋势，主要指数表现不一：沪深300跌0.25%，中证500跌1.82%，中证1000跌0.67%，创业板50涨3.92%，科创50涨3.40%。交易面，A股市场日均成交额提升至3.3万亿左右，市场投资热情高涨。市场热点聚焦商业航天、光纤、液冷服务器、玻璃基板、储能、算力租赁、CPO、先进封装等，科技和制造领域活跃。建议关注融资活跃和
+登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月18日，三峡水利在互动平台回答投资者提问时表示，公司深知，广大中小股东的信任是企业长久发展的根基，并始终紧密围绕发展战略，全力以赴做好生产经营和发展工作，力争以良好业绩为股东创造投资价值；同时，公司持续优化治理体系，做好投资者关系管理，增强信息披露质量和透明度，坚持稳定的现金分红。（文章来源：证券日报）
 
 ## 正文
 
-行情回顾及主要观点： 上周A股市场整体呈现分化趋势，主要指数表现不一：沪深300跌0.25%，中证500跌1.82%，中证1000跌0.67%，创业板50涨3.92%，科创50涨3.40%。
+登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月18日，三峡水利在互动平台回答投资者提问时表示，公司深知，广大中小股东的信任是企业长久发展的根基，并始终紧密围绕发展战略，全力以赴做好生产经营和发展工作，力争以良好业绩为股东创造投资价值；同时，公司持续优化治理体系，做好投资者关系管理，增强信息披露质量和透明度，坚持稳定的现金分红。
 
-交易面，A股市场日均成交额提升至3.3万亿左右，市场投资热情高涨。
-
-市场热点聚焦商业航天、光纤、液冷服务器、玻璃基板、储能、算力租赁、CPO、先进封装等，科技和制造领域活跃。
-
-建议关注融资活跃和政策支持的成长板块，如人工智能和先进制造，大盘成长风格突出的创业板50指数值得重点关注。
-
-创业板为主要“三创（创新、创造、创意）四新（新技术、新产业、新业态、新模式）”的成长型创新创业企业提供直接融资平台。
-
-权重行业方面，创业板50指数聚焦信息技术+新能源+金融科技+医药四大新质生产力赛道，科技成长属性纯粹。
-
-图：创业板50指数四大赛道 创业板50指数：追“光”识“新”更掘“金”。
-
-横向对比来看，创业板50指数的光模块含量、新能源光伏含量以及金融科技含量优于创业板指以及主流宽基指数。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 00:59 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 01:03 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 00:59 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 01:02 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 00:48 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 00:52 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 00:58 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 01:02 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 01:12 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 01:15 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 00:54 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 00:48 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 01:10 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 01:17 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 01:00 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 01:11 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 01:05 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 01:15 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 01:04 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 01:02 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 01:22 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 00:58 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 01:19 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 01:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:00 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/89135406135.shtml)
-- 2026-06-30 01:11 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/095595558389.shtml)
-- 2026-06-30 01:10 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/39654.shtml)
-- 2026-06-30 01:13 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/494273355642.shtml)
-- 2026-06-30 00:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/72120.shtml)
-- 2026-06-30 00:58 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/97576.shtml)
-- 2026-06-30 01:12 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/64613.shtml)
-- 2026-06-30 01:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/2074143728.shtml)
-- 2026-06-30 01:11 - [这一刀 会很帅](https://www.share.minike.top/Article/details/507876401.shtml)
-- 2026-06-30 00:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/61249057418.shtml)
-- 2026-06-30 01:16 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/023932.shtml)
-- 2026-06-30 00:51 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/904299.shtml)
-- 2026-06-30 01:14 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/16890675325.shtml)
-- 2026-06-30 00:58 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/174841245.shtml)
-- 2026-06-30 00:50 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/96793448770.shtml)
+- 2026-06-30 01:06 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/794600081.shtml)
+- 2026-06-30 01:21 - [起风了](https://www.share.minike.top/Article/details/82605380741.shtml)
+- 2026-06-30 01:13 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/293276.shtml)
+- 2026-06-30 01:11 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/795670810.shtml)
+- 2026-06-30 01:06 - [斛珠夫人](http://www.blog.minike.top/Article/details/623351696381.shtml)
+- 2026-06-30 01:04 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/68430.shtml)
+- 2026-06-30 01:13 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/05127887.shtml)
+- 2026-06-30 01:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/4154185618.shtml)
+- 2026-06-30 01:16 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/5157876612.shtml)
+- 2026-06-30 01:00 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/7109109.shtml)
+- 2026-06-30 01:11 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/72497.shtml)
+- 2026-06-30 01:07 - [刘念回应](https://www.share.kurohicncr.top/Article/details/8756125.shtml)
+- 2026-06-30 01:12 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/74664.shtml)
+- 2026-06-30 01:00 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/286764488053.shtml)
+- 2026-06-30 01:23 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/55207.shtml)

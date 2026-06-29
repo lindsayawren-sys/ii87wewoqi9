@@ -1,59 +1,61 @@
-# 第五届中俄广场舞健身操大赛哈尔滨启幕 500余名选手“舞动”友谊
+# 长江有色: 国内淡季消费乏力+高库存压力 18日铝价或下跌
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月18日电(记者 王妮娜)5月18日，第五届中俄广场舞健身操大赛在松花江畔的哈尔滨主题音乐广场拉开帷幕。来自中国和俄罗斯的25支代表队、500余名参赛选手以舞会友，用精湛的舞艺传递两国人民之间的深厚情谊与健康理念。 本次大赛自2026年5月持续至7月，在哈尔滨市与俄罗斯布拉戈维申斯克市同步开展，旨在通过全民参与的艺术形式，促进中俄文化互鉴，推动全民健身理念的国际传
+长江有色金属网 长江铝价alu.ccmn.cn短评：周五美伊会谈推迟地缘偏强支撑铝价，隔夜伦铝收涨0.99%；海外电解铝供应紧张叠加库存续降带动沪铝，国内淡季消费乏力，预今现铝下跌。 【铝期货市场】：周五美伊会谈推迟地缘偏强支撑铝价，隔夜伦铝片震荡，最新收盘报价3425美元/吨，收涨34美元，涨幅0.99%，成交量20993手减少20813手，持仓量616997手减少17153
 
 ## 正文
 
-中新网哈尔滨5月18日电(记者 王妮娜)5月18日，第五届中俄广场舞健身操大赛在松花江畔的哈尔滨主题音乐广场拉开帷幕。
+长江有色金属网 长江铝价alu.ccmn.cn短评：周五美伊会谈推迟地缘偏强支撑铝价，隔夜伦铝收涨0.99%；海外电解铝供应紧张叠加库存续降带动沪铝，国内淡季消费乏力，预今现铝下跌。
 
-来自中国和俄罗斯的25支代表队、500余名参赛选手以舞会友，用精湛的舞艺传递两国人民之间的深厚情谊与健康理念。
+【铝期货市场】：周五美伊会谈推迟地缘偏强支撑铝价，隔夜伦铝片震荡，最新收盘报价3425美元/吨，收涨34美元，涨幅0.99%，成交量20993手减少20813手，持仓量616997手减少17153手。
 
-本次大赛自2026年5月持续至7月，在哈尔滨市与俄罗斯布拉戈维申斯克市同步开展，旨在通过全民参与的艺术形式，促进中俄文化互鉴，推动全民健身理念的国际传播。
+晚间沪铝窄幅震荡；主力月2606合约最新收盘价报23940元/吨，涨50元，涨幅0.21%。
 
-黑龙江省对俄新产业促进会会长、大赛执行主席张敏在开幕式上表示：“文化搭台，经贸唱戏，是我们始终秉持的理念。
+伦敦金属交易所（LME）6月17日伦铝最新库存量报316525吨，较上个交易日下降1475吨，跌幅0.46%。
 
-广场舞健身操源于生活、扎根群众，早已成为中俄两国人民喜闻乐见的共同语言。
+长江铝业网讯：6月17日现货铝价，长江现货A00铝锭价报23870元/吨，涨70元；广东现货A00铝锭价报23840元/吨，涨60元。
 
-当俄罗斯的《喀秋莎》与中国的《感到幸福你就拍拍手》在同一片广场上响起，当两国舞者踏着同一节拍翩翩起舞，我们看到的不仅是优美的舞姿，更是两国人民心与心的交汇。
+宏观层面，美伊谅解备忘录签署存变数——特朗普称“若不满意将恢复打击”、伊朗外交部宣布原定6月19日瑞士会谈“不再确定”，和平进程反复使地缘风险溢价难完全消散。
 
-” 2017年，中俄广场舞健身操大赛缘起哈尔滨，如今已辐射至中俄多个城市。
+部分空头回补及“逢低买盘”使伦铝微反弹（Tom Price指出属区间交易特征），但美元受美联储沃什鹰派点阵图支撑反弹至100.38→压制沪铝上行空间。
 
-从最初寥寥数支队伍参赛，到如今数百支舞队同台竞技，这项赛事如同一粒种子，在两国人民的共同浇灌下生根发芽、枝繁叶茂，见证着中俄传统友谊在新时代焕发的勃勃生机。
+国内方面，5月规上工业增加值+4.5%（高技术制造业+15.1%），社零同比-0.6%（1-5月商品+服务零售总额+2.8%），固投-4.1%（地产开发-16.2%）；乘联会6月1-14日新能源乘用车零售34.1万辆（同比-8%、环比+5%，累计403.9万辆-15%）。
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 01:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 00:57 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 01:14 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 00:51 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 01:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 00:58 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 01:13 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 00:52 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 00:51 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 00:56 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 01:02 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 00:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 01:19 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 01:20 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 01:22 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 01:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 01:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 01:01 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 01:00 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 01:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 01:15 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 00:59 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 00:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 00:55 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 01:00 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 01:04 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 01:01 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/37650.shtml)
-- 2026-06-30 00:56 - [急先锋](http://www.blog.kurohicncr.top/Article/details/63807656.shtml)
-- 2026-06-30 01:05 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/120497408396.shtml)
-- 2026-06-30 01:05 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/301473917854.shtml)
-- 2026-06-30 01:11 - [急先锋](https://www.share.minike.top/Article/details/66306755.shtml)
-- 2026-06-30 01:00 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/93446614.shtml)
-- 2026-06-30 00:57 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/29126.shtml)
-- 2026-06-30 01:16 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/231280646132.shtml)
-- 2026-06-30 01:01 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/9920835673.shtml)
-- 2026-06-30 01:10 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/094079814.shtml)
-- 2026-06-30 00:48 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/721761815.shtml)
-- 2026-06-30 01:10 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/052062750.shtml)
-- 2026-06-30 01:15 - [斛珠夫人](http://www.blog.minike.top/Article/details/66557.shtml)
-- 2026-06-30 01:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/939135618517.shtml)
-- 2026-06-30 01:10 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/59348.shtml)
+- 2026-06-30 01:22 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/8399691.shtml)
+- 2026-06-30 01:11 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/981275784.shtml)
+- 2026-06-30 00:54 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/8174827455.shtml)
+- 2026-06-30 01:04 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/9623545.shtml)
+- 2026-06-30 01:06 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/78113.shtml)
+- 2026-06-30 01:23 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/0967945744.shtml)
+- 2026-06-30 01:19 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/71696118648.shtml)
+- 2026-06-30 00:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/5120504.shtml)
+- 2026-06-30 01:01 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/30169399.shtml)
+- 2026-06-30 01:01 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/19796680142.shtml)
+- 2026-06-30 01:11 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/558825.shtml)
+- 2026-06-30 00:54 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/705852339535.shtml)
+- 2026-06-30 01:24 - [世界杯](http://www.share.minike.top/Article/details/836232.shtml)
+- 2026-06-30 01:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/058906041157.shtml)
+- 2026-06-30 00:58 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/0341079.shtml)

@@ -1,56 +1,61 @@
-# 三大运营商入局Token经济
+# “我一定会再来新疆”——“海外智库看新疆”代表团参访新疆侧记
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-5月16日、5月17日，中国移动、中国联通、中国电信三大电信运营商相继面向C端用户推出Token（词元）套餐产品。 5月16日，上海电信宣布，即日起面向上海电信用户正式推出Token算力服务，一是按量订购，1元对应25万额度点；二是按需选择，多买可享折扣，支持话费账单支付。同日，上海联通发布多档Token产品及融合套餐。5月17日，上海移动推出Token通用服务，并联合腾讯推出
+石榴云/新疆日报记者 张冬梅 6月10日至17日，来自希腊、埃及、法国、美国、俄罗斯、马来西亚等12个国家16位专家学者，组成“海外智库看新疆”活动代表团到新疆参访。代表团先后走访乌鲁木齐、吐鲁番、塔城三地，见证新疆社会稳定、经济发展、文化繁荣、人民安居乐业的真实状况。 6月11日，代表团首站走进新疆国际会展中心，参观新疆的反恐和去极端化斗争主题展。随后走进乌鲁木齐文化中心展览
 
 ## 正文
 
-5月16日、5月17日，中国移动、中国联通、中国电信三大电信运营商相继面向C端用户推出Token（词元）套餐产品。
+石榴云/新疆日报记者 张冬梅 6月10日至17日，来自希腊、埃及、法国、美国、俄罗斯、马来西亚等12个国家16位专家学者，组成“海外智库看新疆”活动代表团到新疆参访。
 
-5月16日，上海电信宣布，即日起面向上海电信用户正式推出Token算力服务，一是按量订购，1元对应25万额度点；二是按需选择，多买可享折扣，支持话费账单支付。
+代表团先后走访乌鲁木齐、吐鲁番、塔城三地，见证新疆社会稳定、经济发展、文化繁荣、人民安居乐业的真实状况。
 
-同日，上海联通发布多档Token产品及融合套餐。
+6月11日，代表团首站走进新疆国际会展中心，参观新疆的反恐和去极端化斗争主题展。
 
-5月17日，上海移动推出Token通用服务，并联合腾讯推出AI原生工作台，1元可购40万Tokens，可实现“一个额度、一个价格、任选模型”，并支持话费账单支付。
+随后走进乌鲁木齐文化中心展览馆，参观了新疆维吾尔自治区成立70周年主题成就展。
 
-在2025年年报披露后，三大运营商相继提出“Token经营”战略构想。
+来自比利时的艺术家、陶艺家、策展人戴金浦在一组记录新疆旧貌的老照片前驻足良久。
 
-近两个月来，多地电信运营商省市级分公司已逐步启动市场化落地实践。
+他说，这片土地一直在稳步发展，外界应当客观知晓这里真实的情况。
 
-这也是继发力算力基础设施建设之后，三大运营商在强化算力服务平台方面迈出的关键一步。
+在乌鲁木齐市天山区二道桥街道固原巷社区，代表团了解了当地民众生活。
 
-Token套餐9.9元起 据记者了解，具体来看，中国电信的Token套餐分为三类： 面向开发者及中小微企业客户，提供“Token+连接+安全”一体化服务，推出基础版、专业版、旗舰版三档Token Plan，月资费分别为39.9元、159.9元、299.9元，分别对应每月1500万Tokens、7000万Tokens、1.5亿Tokens。
+“这是一个多民族共同生活的社区，他们在一起生活得非常和谐。
 
 ## 相关推荐
 
-- 2026-06-30 00:57 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 01:14 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 01:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 00:57 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 01:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 01:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 01:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 00:59 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 00:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 01:16 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 01:16 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 01:23 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 01:00 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 01:15 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 01:07 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 01:02 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 01:08 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 01:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 01:00 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 01:00 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 01:16 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 01:15 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 00:57 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 01:15 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 01:22 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:16 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/63342.shtml)
-- 2026-06-30 01:01 - [恋与深空致歉](https://www.share.minike.top/Article/details/82517.shtml)
-- 2026-06-30 00:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/32097.shtml)
-- 2026-06-30 01:00 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/976174394.shtml)
-- 2026-06-30 00:53 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/7422234326.shtml)
-- 2026-06-30 01:07 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/14872153.shtml)
-- 2026-06-30 01:17 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/96884853.shtml)
-- 2026-06-30 01:05 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/21234465.shtml)
-- 2026-06-30 01:16 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/51674974.shtml)
-- 2026-06-30 01:07 - [美股](http://www.blog.kurohicncr.top/Article/details/5679808.shtml)
-- 2026-06-30 00:57 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/308049.shtml)
-- 2026-06-30 01:10 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/2647760.shtml)
-- 2026-06-30 00:57 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/0699781976.shtml)
-- 2026-06-30 01:14 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/170426280406.shtml)
-- 2026-06-30 01:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/5137243466.shtml)
+- 2026-06-30 01:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/434483355.shtml)
+- 2026-06-30 00:55 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/188238.shtml)
+- 2026-06-30 01:17 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/81282530.shtml)
+- 2026-06-30 00:57 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/44842589853.shtml)
+- 2026-06-30 00:55 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/41219639265.shtml)
+- 2026-06-30 01:05 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/635834028.shtml)
+- 2026-06-30 01:14 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/990084370.shtml)
+- 2026-06-30 00:56 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/65620.shtml)
+- 2026-06-30 01:16 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/762549312620.shtml)
+- 2026-06-30 01:13 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/17958415265.shtml)
+- 2026-06-30 00:55 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/173049.shtml)
+- 2026-06-30 00:57 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/42094.shtml)
+- 2026-06-30 01:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/74148.shtml)
+- 2026-06-30 00:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/284531415.shtml)
+- 2026-06-30 00:55 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/6182786.shtml)

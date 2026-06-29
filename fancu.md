@@ -1,56 +1,42 @@
-# 壳牌股东否决气候决议，CEO与董事长高票连任
+# 高考如何评卷？探访北京高考评卷现场
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-壳牌股东在周二举行的年度股东大会上以压倒性多数否决了一项气候决议，同时高票通过了首席执行官瓦埃勒·萨万和董事长安德鲁·麦肯齐的连任。 气候决议遭否决 由荷兰气候组织“Follow This”及21家机构投资者提交的决议，要求壳牌披露在石油和天然气需求下降的情景下其战略将如何保持韧性。根据初步投票结果，该决议仅获得约13%的支持票，远未达到通过所需的75%门槛。这与往年相比有所下
+发布时间：2026年06月18日 15:13 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-壳牌股东在周二举行的年度股东大会上以压倒性多数否决了一项气候决议，同时高票通过了首席执行官瓦埃勒·萨万和董事长安德鲁·麦肯齐的连任。
-
-气候决议遭否决 由荷兰气候组织“Follow This”及21家机构投资者提交的决议，要求壳牌披露在石油和天然气需求下降的情景下其战略将如何保持韧性。
-
-根据初步投票结果，该决议仅获得约13%的支持票，远未达到通过所需的75%门槛。
-
-这与往年相比有所下降——2025年此类决议获得了20.6%的支持，而2021年曾达到30.5%的峰值。
-
-管理层获强力支持 与此形成鲜明对比的是，萨万和麦肯齐均以高票连任。
-
-萨万以98.9%的支持率再次当选董事，麦肯齐则获得94.4%的支持。
-
-壳牌董事会此前已明确建议股东反对该气候决议，主要代理顾问机构ISS和Glass Lewis也持相同立场。
-
-立场各异的分歧 萨万在会上表示，Follow This提出的问题已在壳牌现有披露文件中得到全面解答，股东可根据自行选择的价格情景来模拟公司财务韧性。
+发布时间：2026年06月18日 15:13 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 00:52 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 01:01 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 01:05 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 00:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 00:52 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 01:03 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 01:05 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 00:57 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 01:00 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 00:51 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 01:20 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 01:21 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 00:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 01:05 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 01:21 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 01:18 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 01:14 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 01:17 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 00:57 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 01:22 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/99371384660.shtml)
-- 2026-06-30 00:48 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/50314608.shtml)
-- 2026-06-30 01:04 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/081614879.shtml)
-- 2026-06-30 00:58 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/904634.shtml)
-- 2026-06-30 01:01 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/30933727.shtml)
-- 2026-06-30 01:13 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/13732.shtml)
-- 2026-06-30 00:52 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/386375685.shtml)
-- 2026-06-30 00:55 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/36085.shtml)
-- 2026-06-30 01:01 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/2223004406.shtml)
-- 2026-06-30 01:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/84160.shtml)
-- 2026-06-30 01:01 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/8574498.shtml)
-- 2026-06-30 00:54 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/27506477.shtml)
-- 2026-06-30 01:09 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/82263778518.shtml)
-- 2026-06-30 00:56 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/38079694835.shtml)
-- 2026-06-30 01:10 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/19702.shtml)
+- 2026-06-30 01:10 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/6710317.shtml)
+- 2026-06-30 01:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/710998689319.shtml)
+- 2026-06-30 01:14 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/53928.shtml)
+- 2026-06-30 01:09 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/4130098526.shtml)
+- 2026-06-30 01:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/31686003.shtml)
+- 2026-06-30 00:54 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/4675909.shtml)
+- 2026-06-30 00:58 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/2096226129.shtml)
+- 2026-06-30 01:01 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/12768596183.shtml)
+- 2026-06-30 01:01 - [新官上任三把火](http://www.share.minike.top/Article/details/29320516.shtml)
+- 2026-06-30 00:55 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/5019134394.shtml)
+- 2026-06-30 01:16 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/194681387.shtml)
+- 2026-06-30 01:13 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/4961550801.shtml)
+- 2026-06-30 00:56 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/102895502.shtml)
+- 2026-06-30 01:02 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/063022614959.shtml)
+- 2026-06-30 00:57 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/877367362.shtml)

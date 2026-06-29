@@ -1,57 +1,59 @@
-# 武汉新芯终止IPO：以前是长江存储子公司无实际控制人独立性被问询！本来拟募资 48 亿！分红了 5 亿！
+# PCB领涨科技，哪只ETF更能抓住这条主线？
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际投行研究报告 武汉新芯终止IPO：以前是长江存储子公司无实际控制人独立性被问询！本来拟募资 48 亿！利润率很低 虽然分红了 5 亿！ 1 、武汉新芯 2024 年 9 月 30 日申报科创板IPO，10 月 30 日就获得了上交所问询，不过到 2025 年 4 月 25 日才回复了问询，半年才搞
+用一句话总结近期的市场，那就是：科技领涨A股，PCB领涨科技。4月1日至6月17日，中证印制电路板指数累计涨幅高达112%。 PCB就是“印制电路板”的英文缩写，简单来说就是电子设备的“骨架”，AI服务器里面的芯片和各种电子元件，都需要通过PCB连接起来。在AI推理需求爆发催化下，PCB正迎来“量价齐升”的超级周期。 然而，很多投资者面临“幸福的烦恼”：PCB概念股众多，不知道
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+用一句话总结近期的市场，那就是：科技领涨A股，PCB领涨科技。
 
-来源：国际投行研究报告 武汉新芯终止IPO：以前是长江存储子公司无实际控制人独立性被问询！
+4月1日至6月17日，中证印制电路板指数累计涨幅高达112%。
 
-本来拟募资 48 亿！
+PCB就是“印制电路板”的英文缩写，简单来说就是电子设备的“骨架”，AI服务器里面的芯片和各种电子元件，都需要通过PCB连接起来。
 
-利润率很低 虽然分红了 5 亿！
+在AI推理需求爆发催化下，PCB正迎来“量价齐升”的超级周期。
 
-1 、武汉新芯 2024 年 9 月 30 日申报科创板IPO，10 月 30 日就获得了上交所问询，不过到 2025 年 4 月 25 日才回复了问询，半年才搞定一个回复，可能是保荐人国泰海通自己也在整合吧。
+然而，很多投资者面临“幸福的烦恼”：PCB概念股众多，不知道怎么选，而多数科技类ETF的PCB权重不过个位数，那要怎么捕捉这波行情呢？
 
-不过刚刚上交所网站显示，终止了！
+事实上，市场上还真有一个指数具备较高的PCB含量。
 
-2 、公司本来是长江存储的子公司，对武汉新芯（NOR Flash 厂商）IPO 审核中，关于‘独立性和关联交易’的问询回复与质疑，核心聚焦在它与控股股东长江存储之间的同业竞争风险，是科创板 IPO 中典型的 “分拆上市独立性拷问”。
+按照成份股是否属于中证印制电路板指数（932666）的口径来划分，成长ETF易方达（159259）跟踪的国证成长100指数中PCB含量高达20.2%，在全市场有ETF跟踪的指数中排名第一。
 
-事实上，2016-2023 年，武汉新芯是长江存储的全资子公司；2023 年 4 月至今，二者同为长存集团控股子公司。
+此外，成长100指数还覆盖了光模块、AI数据中心电源、存储等方向，海外AI算力链占比超过55%。
 
 ## 相关推荐
 
-- 2026-06-30 00:53 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 00:56 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 00:59 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 01:10 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 01:11 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 01:17 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 00:49 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 01:14 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 01:02 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 01:12 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 01:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 01:21 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 01:08 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 01:02 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 01:10 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 01:18 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 01:04 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 01:11 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 01:04 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 01:21 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 01:04 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 01:01 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 00:58 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 01:21 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:15 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/058169108.shtml)
-- 2026-06-30 00:56 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/87006.shtml)
-- 2026-06-30 01:16 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/41405431357.shtml)
-- 2026-06-30 01:08 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/2693573948.shtml)
-- 2026-06-30 01:01 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/77612830632.shtml)
-- 2026-06-30 01:02 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/745926682.shtml)
-- 2026-06-30 01:03 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/3717173986.shtml)
-- 2026-06-30 01:06 - [我们的少年时代2](https://www.blog.minike.top/Article/details/7244472.shtml)
-- 2026-06-30 01:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/40410962.shtml)
-- 2026-06-30 00:48 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/326953.shtml)
-- 2026-06-30 00:52 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/60483338476.shtml)
-- 2026-06-30 01:12 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/7706677488.shtml)
-- 2026-06-30 00:59 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/66087503.shtml)
-- 2026-06-30 00:59 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/520745659.shtml)
-- 2026-06-30 00:58 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/2846055.shtml)
+- 2026-06-30 01:12 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/89129438777.shtml)
+- 2026-06-30 01:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/505022375761.shtml)
+- 2026-06-30 01:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/0789779.shtml)
+- 2026-06-30 01:13 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/655632150.shtml)
+- 2026-06-30 01:04 - [周生如故](https://www.share.minike.top/Article/details/3390842161.shtml)
+- 2026-06-30 01:22 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/054661272685.shtml)
+- 2026-06-30 01:03 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/34376594.shtml)
+- 2026-06-30 00:54 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/03593390192.shtml)
+- 2026-06-30 01:10 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/4015356149.shtml)
+- 2026-06-30 01:03 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/7604697075.shtml)
+- 2026-06-30 01:09 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/045863615984.shtml)
+- 2026-06-30 01:14 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/831230.shtml)
+- 2026-06-30 01:03 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/88857427623.shtml)
+- 2026-06-30 00:54 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/383808179.shtml)
+- 2026-06-30 01:20 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/3238088193.shtml)

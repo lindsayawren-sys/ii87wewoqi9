@@ -1,58 +1,61 @@
-# 盈利大幅改善支撑，Alerus Financial 29年股息增长纪录有望延续
+# 没有“深蹲”，就没有“起跳”（人民时评）
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-一季度业绩超预期，为股息上调奠定基础 Alerus Financial即将于本月底公布其2026年第二季度的股息政策。这家总部位于明尼苏达州的金融服务公司已连续29年上调年度股息，市场普遍预期其有望在本季度再次宣布小幅上调，延续这一纪录。 此次乐观预期主要源于公司强劲的业绩复苏。公司2026年4月29日公布的一季报显示，净利润达2300万美元，合每股收益0.89美元，远超市场预
+人民日报 喻思南 依托高价值应用场景，使更多科技成果从“书架”走向“货架”，推动技术在落地应用中迭代升级 穿梭城市路网，车道级导航精准指引出行；翱翔低空空域，无人机依托坐标有序巡检……近年来，北斗卫星导航系统成为千行百业的“时空底座”。《2026中国北斗时空产业发展白皮书》显示，2025年，我国卫星导航产业产值达6290亿元，同比增长9.24%；融合其他新兴领域发展形成的北斗时
 
 ## 正文
 
-一季度业绩超预期，为股息上调奠定基础 Alerus Financial即将于本月底公布其2026年第二季度的股息政策。
+人民日报 喻思南 依托高价值应用场景，使更多科技成果从“书架”走向“货架”，推动技术在落地应用中迭代升级 穿梭城市路网，车道级导航精准指引出行；翱翔低空空域，无人机依托坐标有序巡检……近年来，北斗卫星导航系统成为千行百业的“时空底座”。
 
-这家总部位于明尼苏达州的金融服务公司已连续29年上调年度股息，市场普遍预期其有望在本季度再次宣布小幅上调，延续这一纪录。
+《2026中国北斗时空产业发展白皮书》显示，2025年，我国卫星导航产业产值达6290亿元，同比增长9.24%；融合其他新兴领域发展形成的北斗时空产业总体产值突破1.3万亿元。
 
-此次乐观预期主要源于公司强劲的业绩复苏。
+从“天边”到“身边”，北斗产业跨越式发展，映照科技创新与产业创新深度融合。
 
-公司2026年4月29日公布的一季报显示，净利润达2300万美元，合每股收益0.89美元，远超市场预期的0.58美元，较去年同期的每股亏损1.27美元实现业绩反转。
+没有科技创新“深蹲”，就没有产业创新“起跳”。
 
-剔除去年同期的非经常性商誉减值因素，盈利能力的根本性改善为其持续慷慨派息提供了坚实的基础。
+面对技术封锁，北斗人攻克星间链路、高精度原子钟等关键核心技术，实现从核心器部件到系统集成的全面国产化。
 
-拨开迷雾，真实的派息率远低于表象 从表面看，其过去12个月的派息率一度高达123.53%，引发了投资者对于股息可持续性的担忧。
+掌握核心技术，才能筑牢产业根基。
 
-然而，最新的财报数据揭示，这一高位派息率主要是受此前几个季度非经常性亏损的拖累。
+如今，我国约98%的智能手机支持北斗定位功能，超过1亿台乘用车部署具有北斗定位导航功能的车载设备。
 
-以第一季度0.89美元的每股收益计算，其每股0.21美元的季度股息对应的实际派息率仅为约24%。
+以硬核技术为支撑，各类应用稳步向深度和广度延伸。
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 01:14 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 01:10 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 01:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 00:48 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 00:54 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 00:53 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 00:49 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 00:59 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 00:50 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 00:53 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 00:55 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 01:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 01:17 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 01:08 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 01:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 01:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 01:11 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 01:22 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 01:08 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 01:18 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 01:19 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 01:14 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 01:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 01:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 01:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 00:55 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/053035876621.shtml)
-- 2026-06-30 01:07 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/40499811559.shtml)
-- 2026-06-30 00:48 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/21649.shtml)
-- 2026-06-30 00:53 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/34074080045.shtml)
-- 2026-06-30 01:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/619435129986.shtml)
-- 2026-06-30 01:06 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/97900898.shtml)
-- 2026-06-30 01:10 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/975059031.shtml)
-- 2026-06-30 01:00 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/357053.shtml)
-- 2026-06-30 00:51 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/059250281314.shtml)
-- 2026-06-30 00:57 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/564147958659.shtml)
-- 2026-06-30 01:16 - [《贺子珍》](https://www.blog.minike.top/Article/details/6316959.shtml)
-- 2026-06-30 00:53 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/556394099029.shtml)
-- 2026-06-30 00:59 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/286822175.shtml)
-- 2026-06-30 00:52 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/606966.shtml)
-- 2026-06-30 01:03 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/24780346532.shtml)
+- 2026-06-30 01:21 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/0784899.shtml)
+- 2026-06-30 01:20 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/83766658.shtml)
+- 2026-06-30 01:07 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/5791743028.shtml)
+- 2026-06-30 01:16 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/510151312.shtml)
+- 2026-06-30 01:19 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/05338817.shtml)
+- 2026-06-30 01:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/1559384430.shtml)
+- 2026-06-30 01:23 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/438945827.shtml)
+- 2026-06-30 01:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/19789.shtml)
+- 2026-06-30 00:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/20084286157.shtml)
+- 2026-06-30 01:16 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/9804134908.shtml)
+- 2026-06-30 01:08 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/59815645.shtml)
+- 2026-06-30 01:22 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/35810232.shtml)
+- 2026-06-30 01:14 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/061575468954.shtml)
+- 2026-06-30 01:08 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/8214277.shtml)
+- 2026-06-30 01:12 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/269667.shtml)

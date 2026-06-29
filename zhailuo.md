@@ -1,44 +1,48 @@
-# 加力优化离境退税 打造国际化消费环境
+# 苹果股价盘后微升 库克宣布计划提高产品价格
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 09:09 来源：央视综合 责任编辑：【王祎】
+苹果股价盘后上涨0.5%，此前这家iPhone制造商在接受采访时宣布计划提高产品售价，以抵消内存和存储芯片的成本。 苹果首席执行官库克在采访中表示，苹果准备好动用现金储备来增加内存供应。责任编辑：丁文武
 
 ## 正文
 
-发布时间：2026年05月19日 09:09 来源：央视综合 责任编辑：【王祎】
+苹果股价盘后上涨0.5%，此前这家iPhone制造商在接受采访时宣布计划提高产品售价，以抵消内存和存储芯片的成本。
+
+苹果首席执行官库克在采访中表示，苹果准备好动用现金储备来增加内存供应。
+
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 00:57 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 00:54 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 01:01 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 00:50 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 00:48 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 01:10 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 00:53 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 00:58 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 00:55 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 00:48 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 01:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 01:08 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 01:09 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 01:05 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 01:08 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 01:11 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 01:03 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 01:02 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 01:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 01:03 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 01:05 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 01:18 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 00:55 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/9165550281.shtml)
-- 2026-06-30 00:49 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/56082193326.shtml)
-- 2026-06-30 00:53 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/70847822702.shtml)
-- 2026-06-30 00:57 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/398498512.shtml)
-- 2026-06-30 00:59 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/287052034.shtml)
-- 2026-06-30 00:56 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/01658.shtml)
-- 2026-06-30 01:11 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/80387841.shtml)
-- 2026-06-30 00:48 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/056453.shtml)
-- 2026-06-30 00:50 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/85453.shtml)
-- 2026-06-30 01:14 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/36911436542.shtml)
-- 2026-06-30 01:16 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/6012980466.shtml)
-- 2026-06-30 01:05 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/91688178461.shtml)
-- 2026-06-30 00:53 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/0742936640.shtml)
-- 2026-06-30 01:15 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/4802306271.shtml)
-- 2026-06-30 01:09 - [新官上任三把火](http://www.share.minike.top/Article/details/339604782.shtml)
+- 2026-06-30 01:20 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/1709015800.shtml)
+- 2026-06-30 00:58 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/0665736596.shtml)
+- 2026-06-30 00:56 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/05101674.shtml)
+- 2026-06-30 01:01 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/5351969675.shtml)
+- 2026-06-30 01:21 - [女心理师](http://www.share.minike.top/Article/details/51616195740.shtml)
+- 2026-06-30 00:54 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/342583284131.shtml)
+- 2026-06-30 01:02 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/551178437.shtml)
+- 2026-06-30 01:16 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/45584339.shtml)
+- 2026-06-30 01:18 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/788141092.shtml)
+- 2026-06-30 01:21 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/52853.shtml)
+- 2026-06-30 01:03 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/44150929451.shtml)
+- 2026-06-30 00:59 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/90310821070.shtml)
+- 2026-06-30 01:06 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/485166.shtml)
+- 2026-06-30 01:22 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/993094.shtml)
+- 2026-06-30 00:55 - [TOP Prada](https://www.share.minike.top/Article/details/4751202.shtml)

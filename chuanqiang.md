@@ -1,45 +1,56 @@
-# 哔哩哔哩公共政策研究院院长卢雅君：跨年在B站刷弹幕成海内外青年仪式感
+# 智慧物流全链路提速 廊坊经洽会展示物流业新图景
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 19日，在2026年中国网络文明大会网络文明国际交流互鉴分论坛上，哔哩哔哩公共政策研究院院长卢雅君表示：今年，B站跨年晚会吸引了全球200多个国家和地区、超过25万海外用户观看，实时弹幕互动超过千万。流行文化与中式美学在舞台上实现了同频共振，不同语言的祝福在同一时刻刷过，人们在跨年的节点上，共同完成了一次属于当代青年的“仪式感”。
+中新网廊坊6月17日电 题：智慧物流全链路提速 廊坊经洽会展示物流业新图景 作者 赵丹媚 李玉素 王巍 网购订单刚下，仓库里的机器人便自动将商品取出；配送途中，摄像头通过AI视觉模型自动识别包裹，防止破损丢失；小区门口，无人配送车将商品送达……这不是未来场景，而是2026年中国·廊坊国际经济贸易洽谈会(以下简称“廊坊经洽会”)现场展示的物流现实。 时值各大电商平台“618”年中
 
 ## 正文
 
-中新网5月19日电 19日，在2026年中国网络文明大会网络文明国际交流互鉴分论坛上，哔哩哔哩公共政策研究院院长卢雅君表示：今年，B站跨年晚会吸引了全球200多个国家和地区、超过25万海外用户观看，实时弹幕互动超过千万。
+中新网廊坊6月17日电 题：智慧物流全链路提速 廊坊经洽会展示物流业新图景 作者 赵丹媚 李玉素 王巍 网购订单刚下，仓库里的机器人便自动将商品取出；配送途中，摄像头通过AI视觉模型自动识别包裹，防止破损丢失；小区门口，无人配送车将商品送达……这不是未来场景，而是2026年中国·廊坊国际经济贸易洽谈会(以下简称“廊坊经洽会”)现场展示的物流现实。
 
-流行文化与中式美学在舞台上实现了同频共振，不同语言的祝福在同一时刻刷过，人们在跨年的节点上，共同完成了一次属于当代青年的“仪式感”。
+时值各大电商平台“618”年中促销如火如荼之际，海量订单涌入，物流系统正处于运转高峰期。
+
+当消费者已习惯“当日达”“次日达”的快捷体验，如何在高负荷状态下仍能实现降本增效，成为本届廊坊经洽会上备受关注的议题。
+
+从仓储源头到末端配送，覆盖物流全链条的智慧装备在此集中亮相，给出了令人瞩目的答案。
+
+在廊坊经洽会现场，一套高速运转的料箱分拣系统吸引了大批观众：电商收到订单后，“闪攀”机器人将把订单货品取出送至分拣工位，人工扫码后即刻完成出库，其余货品再由机器人自动归位。
+
+“这套系统运行速度可达4米每秒，1000平方米库容内，每小时能完成4000件货品出入库，全程无需人工核对。
+
+”参展商宗紫薇说。
+
+而仓储效率提升只是开端。
 
 ## 相关推荐
 
-- 2026-06-30 00:59 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 00:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 01:10 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 00:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 01:02 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 00:53 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 01:05 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 01:10 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 01:14 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 00:51 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 01:12 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 01:06 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 01:11 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 01:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 00:55 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 01:08 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 00:54 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 01:15 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 01:08 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 01:02 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 01:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/8614608825.shtml)
-- 2026-06-30 00:54 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/30610.shtml)
-- 2026-06-30 01:15 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/162394665033.shtml)
-- 2026-06-30 01:11 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/870616.shtml)
-- 2026-06-30 01:17 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/990232683.shtml)
-- 2026-06-30 01:13 - [速度与激情9](http://www.share.minike.top/Article/details/45897616.shtml)
-- 2026-06-30 00:57 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/97780643709.shtml)
-- 2026-06-30 00:53 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/31758631442.shtml)
-- 2026-06-30 00:54 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/429194767517.shtml)
-- 2026-06-30 00:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/52292446761.shtml)
-- 2026-06-30 01:01 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/49311529.shtml)
-- 2026-06-30 01:08 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/362491805010.shtml)
-- 2026-06-30 01:02 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/1786278.shtml)
-- 2026-06-30 01:14 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/472400842886.shtml)
-- 2026-06-30 00:48 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/9153749863.shtml)
+- 2026-06-30 00:59 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/8171329717.shtml)
+- 2026-06-30 01:12 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/32982.shtml)
+- 2026-06-30 00:56 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/7511797.shtml)
+- 2026-06-30 00:59 - [恋与深空 日服](https://www.share.minike.top/Article/details/5081908.shtml)
+- 2026-06-30 01:09 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/2975462508.shtml)
+- 2026-06-30 01:01 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/09867029.shtml)
+- 2026-06-30 01:11 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/9770645529.shtml)
+- 2026-06-30 00:56 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/078005545380.shtml)
+- 2026-06-30 01:10 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/763132367.shtml)
+- 2026-06-30 01:20 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/609248.shtml)
+- 2026-06-30 01:15 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/9655064.shtml)
+- 2026-06-30 01:18 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/00741269090.shtml)
+- 2026-06-30 01:23 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/105363868.shtml)
+- 2026-06-30 01:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/17448711.shtml)
+- 2026-06-30 01:01 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/231999648.shtml)

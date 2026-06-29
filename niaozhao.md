@@ -1,60 +1,57 @@
-# 谷歌DeepMind创始人曾投资Anthropic
+# 从内容创新到行业共创，华帝携手艾菲开启AIGC营销新实践
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-谷歌DeepMind创始人德米斯・哈萨比斯早年曾向人工智能企业Anthropic进行投资。 知情人士透露，哈萨比斯曾以天使投资人身份入股Anthropic。如今这家企业已成长为人工智能领域的核心竞品，也是全球发展速度最快的科创企业之一。 此外，谷歌也已向Anthropic投入数十亿美元资金，双方达成云计算与人工智能领域深度合作。接近Anthropic的人士表示，该企业首席执行官
+近日，大中华区艾菲联合华帝及其他行业头部品牌，正式揭幕2026艾菲AIGC创作大赛。作为全球营销实效领域具有广泛影响力的专业平台，艾菲此次聚焦AIGC，不仅是广告营销行业拥抱新技术、探索新范式的重要动作，更引发了全行业代理公司与创作者的积极响应。 值得关注的是，在本届跨行业命题合作阵容中，华帝是唯一的厨电品牌。这一身份本身就具有鲜明的行业代表性：一方面，它说明AIGC正在从互联
 
 ## 正文
 
-谷歌DeepMind创始人德米斯・哈萨比斯早年曾向人工智能企业Anthropic进行投资。
+近日，大中华区艾菲联合华帝及其他行业头部品牌，正式揭幕2026艾菲AIGC创作大赛。
 
-知情人士透露，哈萨比斯曾以天使投资人身份入股Anthropic。
+作为全球营销实效领域具有广泛影响力的专业平台，艾菲此次聚焦AIGC，不仅是广告营销行业拥抱新技术、探索新范式的重要动作，更引发了全行业代理公司与创作者的积极响应。
 
-如今这家企业已成长为人工智能领域的核心竞品，也是全球发展速度最快的科创企业之一。
+值得关注的是，在本届跨行业命题合作阵容中，华帝是唯一的厨电品牌。
 
-此外，谷歌也已向Anthropic投入数十亿美元资金，双方达成云计算与人工智能领域深度合作。
+这一身份本身就具有鲜明的行业代表性：一方面，它说明AIGC正在从互联网、内容和泛消费领域，进一步深入到家电尤其是厨电产业；另一方面，也体现出华帝在品牌创新、内容探索和营销实战层面的积累。
 
-接近Anthropic的人士表示，该企业首席执行官达里奥・阿莫代伊一直将哈萨比斯视作行业榜样，目前Anthropic市场估值已达9000亿美元。
+从内容实践走向行业共创，华帝AI探索再进一阶 2026大中华区艾菲AIGC创作大赛是艾菲首个深度聚焦AIGC创作领域的实效奖项，旨在表彰以AIGC助力营销创新与品牌生意增长的创意作品，以及推动AIGC技术应用与内容创新的AI工具平台与创作者。
 
-据创投数据机构统计，自2021年以来，已有十余位DeepMind前科研人员自立门户创办企业，累计融资规模至少达140亿美元。
+迈入2026，我们可以看到，AIGC正在重塑内容生产链路，也在重新定义品牌与消费者之间的沟通方式。
 
-其中既包含哈萨比斯本人创立的英国企业Isomorphic Labs，也有新近成立的Ineffable Intelligence，两家企业仅在上个月就合计斩获超30亿美元投资。
+但真正能够把AI从“工具”变成“能力”，从一次性尝试变成持续性机制的品牌并不多。
 
-2014年，哈萨比斯将自己在伦敦创办的人工智能实验室以4亿英镑价格出售给谷歌。
+近年来，华帝持续推动AI在营销和内容领域的落地应用，已成为厨电行业较早系统化开展AIGC内容实践的品牌代表之一——2025年，华帝已勾勒出AI发展“三步走”目标；8月，华帝股份董事长兼总裁潘叶江走进阿里巴巴集团，就AI大模型的学习和阿里AI团队进行了深入交流，并明确表示将持续开展内部AI能力建设；同年，华帝于行业首发AI短剧《灶火纪：2079的文明回声》，它的推出，说明了华帝已经逐步搭建起一套较为成熟的AI内容创新路径。
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 01:16 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 01:03 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 00:51 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 01:12 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 01:04 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 01:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 00:48 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 00:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 01:16 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 00:53 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 00:58 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 00:49 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 00:55 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 01:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 00:54 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 01:21 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 01:01 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 01:04 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 01:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 01:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 01:10 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 01:04 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 01:06 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 01:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/359336.shtml)
-- 2026-06-30 01:16 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/66372.shtml)
-- 2026-06-30 00:50 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/54133167.shtml)
-- 2026-06-30 00:52 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/49183638026.shtml)
-- 2026-06-30 01:17 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/5336665.shtml)
-- 2026-06-30 00:48 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/576694286.shtml)
-- 2026-06-30 00:52 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/2716665679.shtml)
-- 2026-06-30 00:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/3065224.shtml)
-- 2026-06-30 01:01 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/363989695151.shtml)
-- 2026-06-30 01:12 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/56147778.shtml)
-- 2026-06-30 01:00 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/72411058.shtml)
-- 2026-06-30 00:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/3255517039.shtml)
-- 2026-06-30 01:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/03054.shtml)
-- 2026-06-30 01:07 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/18340514793.shtml)
-- 2026-06-30 00:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/9918667886.shtml)
+- 2026-06-30 01:00 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/183998782605.shtml)
+- 2026-06-30 01:10 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/823907185.shtml)
+- 2026-06-30 01:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/00681505174.shtml)
+- 2026-06-30 01:07 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/64678.shtml)
+- 2026-06-30 00:55 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/78861947.shtml)
+- 2026-06-30 01:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/3022893056.shtml)
+- 2026-06-30 00:55 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/97502854.shtml)
+- 2026-06-30 00:58 - [美股](https://www.blog.kurohicncr.top/Article/details/80054419461.shtml)
+- 2026-06-30 00:56 - [《贺子珍》](http://www.blog.minike.top/Article/details/58444.shtml)
+- 2026-06-30 01:21 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/3334296.shtml)
+- 2026-06-30 01:04 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/85386709.shtml)
+- 2026-06-30 01:23 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/903299087996.shtml)
+- 2026-06-30 00:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/514649463.shtml)
+- 2026-06-30 01:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/41454057.shtml)
+- 2026-06-30 01:09 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/1253769.shtml)

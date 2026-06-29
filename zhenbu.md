@@ -1,56 +1,57 @@
-# 数读定制家居年报 | 欧派家居营收、净利“断层式”领跑 索菲亚首次经营现金流转负
+# 美联储按兵不动但鹰声嘹亮 新主席沃什淡化前瞻指引重要性
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。这意味着，存
+专题：美联储维持利率不变，精简声明以移除降息偏向 美联储主席沃什在上任以来的首次政策会议结束后承诺将恢复物价稳定。此前，美联储官员维持利率不变，并释放出支持今年加息的信号。 沃什在记者会上表示：“持续高企的物价是美国民众的负担，但过去并不一定决定未来，官员们态度明确且一致，联邦公开市场委员会（FOMC）将致力于实现物价稳定。” 与此同时，沃什淡化了同僚们最新利率预测的重要性。点
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。
+专题：美联储维持利率不变，精简声明以移除降息偏向 美联储主席沃什在上任以来的首次政策会议结束后承诺将恢复物价稳定。
 
-国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。
+此前，美联储官员维持利率不变，并释放出支持今年加息的信号。
 
-与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。
+沃什在记者会上表示：“持续高企的物价是美国民众的负担，但过去并不一定决定未来，官员们态度明确且一致，联邦公开市场委员会（FOMC）将致力于实现物价稳定。
 
-这意味着，存量房翻新已正式取代新房装修，成为家居消费的主要需求来源。
+” 与此同时，沃什淡化了同僚们最新利率预测的重要性。
 
-另一方面，“以旧换新”政策持续释放红利。
+点阵图显示，19名官员中有9人预计今年至少进行一次幅度25基点的加息，其中6人预计至少加息两次。
 
-2025年，社会消费品零售总额达50.12万亿元，同比增长3.7%。
+另有9人预计利率将维持不变或降息。
 
-其中，家具类消费品全年零售额实现同比增长14.6%，较2024年显著提速，智能家居和适老化改造成为新增长极；建筑及装潢材料类受房地产市场转型期影响，零售额同比下降约2.7%，但降幅已明显收窄。
+沃什说：“其他官员对于预测值也没有很大把握，许多人都承认经济前景存在高度不确定性。
 
-截至4月30日，A股15家定制家居（按申万三级行业分类）上市公司均已披露2025年报。
+”当被问及本次会议上的利率争论时，沃什表示，委员会经历了一场“良性的内部争论”。
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 01:10 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 01:12 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 01:11 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 00:53 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 01:14 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 00:59 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 01:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 01:08 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 00:58 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 01:11 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 01:03 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 01:06 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 01:02 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 01:09 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 01:08 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 01:16 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 01:03 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 01:23 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 01:08 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 01:00 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/58040878.shtml)
-- 2026-06-30 00:56 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/716987939607.shtml)
-- 2026-06-30 00:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/490138471.shtml)
-- 2026-06-30 01:02 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/403220942.shtml)
-- 2026-06-30 01:13 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/81823.shtml)
-- 2026-06-30 00:49 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/16355215404.shtml)
-- 2026-06-30 00:49 - [天道](https://www.blog.minike.top/Article/details/89281912.shtml)
-- 2026-06-30 00:51 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/488629439.shtml)
-- 2026-06-30 01:13 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/31163037.shtml)
-- 2026-06-30 00:52 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/86096291105.shtml)
-- 2026-06-30 01:07 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/43387.shtml)
-- 2026-06-30 01:10 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/7979545.shtml)
-- 2026-06-30 01:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/25419720.shtml)
-- 2026-06-30 01:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/246075.shtml)
-- 2026-06-30 00:57 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/728557537.shtml)
+- 2026-06-30 00:54 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/9637787.shtml)
+- 2026-06-30 01:17 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/36029442485.shtml)
+- 2026-06-30 01:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/8891561975.shtml)
+- 2026-06-30 01:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/3851269.shtml)
+- 2026-06-30 01:09 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/4244264189.shtml)
+- 2026-06-30 01:06 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/1579623191.shtml)
+- 2026-06-30 01:20 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/7239856214.shtml)
+- 2026-06-30 01:15 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/2998307115.shtml)
+- 2026-06-30 01:21 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/637857.shtml)
+- 2026-06-30 01:08 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/57919843.shtml)
+- 2026-06-30 01:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/189368569.shtml)
+- 2026-06-30 01:06 - [千香](https://www.share.minike.top/Article/details/33857442601.shtml)
+- 2026-06-30 01:08 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/73860382.shtml)
+- 2026-06-30 01:04 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/421694795.shtml)
+- 2026-06-30 00:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/670100779.shtml)

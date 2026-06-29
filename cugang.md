@@ -1,57 +1,59 @@
-# 以法释“礼”：法治为爱“减负”
+# 推出隔夜逆回购操作工具，构建现代中央银行制度
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-一段婚礼现场岳父退还18.8万元彩礼的视频曾在网上刷屏，戳中了网友的心。视频里，新娘父亲将厚厚一沓现金悉数交还给新郎，只抽出一张100元钞票，笑着说：“留个心意，图个吉利就好。”此举引发热议，不少网友点赞“这才是真正的嫁女儿”，也有人感慨“希望更多父母都能这般开明”。彩礼本是礼，莫让“礼”变“利”。今年2月，2026年中央一号文件发布，“持续整治农村高额彩礼”再次写入其中。3月
+来源：华夏时报 作者：冉学东 6月17日，央行行长潘功胜在陆家嘴金融论坛上表态，央行下一步将在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，并将操作利率调整为7天期逆回购操作利率加、减25个基点，区间由70个基点收窄为50个基点。另一方面，进一步丰富公开市场操作工具箱，适时增加隔夜逆回购操作品种，更好地匹配银行体系短期的流动性需求。 按照潘功胜的表述，这是
 
 ## 正文
 
-一段婚礼现场岳父退还18.8万元彩礼的视频曾在网上刷屏，戳中了网友的心。
+来源：华夏时报 作者：冉学东 6月17日，央行行长潘功胜在陆家嘴金融论坛上表态，央行下一步将在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，并将操作利率调整为7天期逆回购操作利率加、减25个基点，区间由70个基点收窄为50个基点。
 
-视频里，新娘父亲将厚厚一沓现金悉数交还给新郎，只抽出一张100元钞票，笑着说：“留个心意，图个吉利就好。
+另一方面，进一步丰富公开市场操作工具箱，适时增加隔夜逆回购操作品种，更好地匹配银行体系短期的流动性需求。
 
-”此举引发热议，不少网友点赞“这才是真正的嫁女儿”，也有人感慨“希望更多父母都能这般开明”。
+按照潘功胜的表述，这是为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化。
 
-彩礼本是礼，莫让“礼”变“利”。
+以上两个举措看似是分离的，但其实是相辅相成的一套组合拳。
 
-今年2月，2026年中央一号文件发布，“持续整治农村高额彩礼”再次写入其中。
+为什么这么说呢，因为我国央行已经明确在“十五五”期间落实“建设现代中央银行制度作出”的具体部署，即优化基础货币投放与中间变量‌，逐步构建短中长期搭配的基础货币投放机制，淡化对数量目标的关注，将金融总量作为观测性、参考性指标，更多发挥‌利率调控‌的作用。
 
-3月，最高人民法院院长张军在十四届全国人大四次会议上作最高人民法院工作报告时提出，持续推动治理高额彩礼，规制借婚姻索取财物和婚介机构不当牟利，严惩以婚嫁为名实施诈骗。
+‌健全市场化利率机制‌，增强央行政策利率作用，收窄短期利率走廊宽度，畅通由政策利率向市场基准利率及各类金融市场利率的传导，完善贷款市场报价利率（LPR）形成机制。
 
-随着中央文件持续发力、司法裁判规则日益明确，直指高额彩礼陋习、重塑文明婚俗的法治力量，正在深入推进。
+目前我们的核心政策利率‌是‌7天期逆回购操作利率‌，当前水平为‌1.4%‌。
 
-2025年最高人民法院工作报告显示，《最高人民法院关于审理涉彩礼纠纷案件适用法律若干问题的规定》发布以来，涉婚约财产纠纷增幅回落14个百分点。
+‌‌利率走廊围绕核心政策利率构建，上下各25个基点，即运行区间为‌1.15%-1.65%‌。
 
 ## 相关推荐
 
-- 2026-06-30 00:55 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 00:49 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 00:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 00:49 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 01:13 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 01:14 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 01:05 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 01:15 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 01:14 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 01:01 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 01:00 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 01:02 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 01:08 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 01:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 00:54 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 01:02 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 00:55 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 01:03 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 01:22 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 00:56 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 01:02 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 01:09 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 01:06 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 01:15 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [扫黑风暴](https://www.share.minike.top/Article/details/419202932.shtml)
-- 2026-06-30 01:11 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/77330317.shtml)
-- 2026-06-30 00:56 - [沉睡花园](http://www.blog.minike.top/Article/details/61916563.shtml)
-- 2026-06-30 00:58 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/6501519562.shtml)
-- 2026-06-30 00:50 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/763548758522.shtml)
-- 2026-06-30 00:57 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/7944426.shtml)
-- 2026-06-30 01:06 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/29878937.shtml)
-- 2026-06-30 01:02 - [流金岁月](http://www.blog.minike.top/Article/details/008385648039.shtml)
-- 2026-06-30 01:08 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/99738695.shtml)
-- 2026-06-30 00:56 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/92570740780.shtml)
-- 2026-06-30 00:48 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/5438368.shtml)
-- 2026-06-30 01:05 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/0273253292.shtml)
-- 2026-06-30 00:50 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/0055434178.shtml)
-- 2026-06-30 01:16 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/5132948831.shtml)
-- 2026-06-30 00:55 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/792302.shtml)
+- 2026-06-30 00:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/368933.shtml)
+- 2026-06-30 01:11 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/4544664.shtml)
+- 2026-06-30 01:14 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/509117.shtml)
+- 2026-06-30 01:18 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/9937214.shtml)
+- 2026-06-30 01:03 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/535226200.shtml)
+- 2026-06-30 01:20 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/010226006.shtml)
+- 2026-06-30 01:22 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/017734233.shtml)
+- 2026-06-30 01:08 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/5775307.shtml)
+- 2026-06-30 01:19 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/6833270465.shtml)
+- 2026-06-30 00:59 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/18418611049.shtml)
+- 2026-06-30 01:22 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/101229.shtml)
+- 2026-06-30 01:11 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/05177135467.shtml)
+- 2026-06-30 01:04 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/9840260.shtml)
+- 2026-06-30 01:03 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/388188145695.shtml)
+- 2026-06-30 01:07 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/4109004.shtml)

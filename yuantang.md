@@ -1,55 +1,60 @@
-# 收益率上升致黄金下跌
+# 资深策略师Yardeni：美联储若真想实现通胀目标就很可能加息
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-随着美债收益率和美元攀升，SPDR黄金ETF价格下跌。石油驱动的通胀担忧本应提振黄金的避险需求，但债券收益率的上涨却削弱了无息资产黄金的吸引力。市场正在消化美联储可能更长时间维持高利率的预期，这降低了持有黄金的机会成本优势。尽管中东地缘政治风险持续，部分投资者仍选择从黄金转向收益率更具吸引力的短期国债。若油价继续上行带动通胀预期进一步升温，黄金可能面临来自加息预期的更大压力。责
+资深市场策略师Ed Yardeni表示，如果美联储真打算将通胀率降至2%的目标水平，那很有可能会上调利率。 周三美联储维持利率不变，新任主席凯文·沃什在随后的新闻发布会上展现的鹰派姿态令市场感到意外。 “让我印象最深的是沃什说的一句话：‘看，我们已经五年多没有达到2%的通胀目标了’，”Yardeni Research总裁兼首席投资策略师Yardeni在电视上表示，“如果不加息，
 
 ## 正文
 
-随着美债收益率和美元攀升，SPDR黄金ETF价格下跌。
+资深市场策略师Ed Yardeni表示，如果美联储真打算将通胀率降至2%的目标水平，那很有可能会上调利率。
 
-石油驱动的通胀担忧本应提振黄金的避险需求，但债券收益率的上涨却削弱了无息资产黄金的吸引力。
+周三美联储维持利率不变，新任主席凯文·沃什在随后的新闻发布会上展现的鹰派姿态令市场感到意外。
 
-市场正在消化美联储可能更长时间维持高利率的预期，这降低了持有黄金的机会成本优势。
+“让我印象最深的是沃什说的一句话：‘看，我们已经五年多没有达到2%的通胀目标了’，”Yardeni Research总裁兼首席投资策略师Yardeni在电视上表示，“如果不加息，怎么能实现这一目标呢？
 
-尽管中东地缘政治风险持续，部分投资者仍选择从黄金转向收益率更具吸引力的短期国债。
+所以我认为市场现在的判断是正确的。
 
-若油价继续上行带动通胀预期进一步升温，黄金可能面临来自加息预期的更大压力。
+” 随着沃什在周三的新闻发布会上强调绝不容忍通胀，美股下跌，短期国债收益率飙升。
 
-责任编辑：张俊 SF065
+沃什长期以来一直批评美联储的预测和沟通方式，此次他选择不参与“点阵图”预测，这使得投资者无法获得明确的政策信号，不得不将更大的不确定性计入市场定价。
+
+Yardeni指出，沃什提及“通胀”和“物价稳定”的次数远多于“劳动力市场”，看起来正毫不含糊地致力于实现2%的通胀目标。
+
+尽管本周中东达成的临时和平协议可能导致油价进一步下跌并缓解消费者价格上涨压力，但沃什仍表明了这一立场。
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 01:06 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 01:14 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 00:55 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 00:51 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 01:16 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 01:03 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 01:17 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 00:52 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 01:04 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 01:11 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 00:55 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 00:48 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 01:09 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 01:08 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 01:10 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 01:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 01:21 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 01:11 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 01:02 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 01:23 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 01:15 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 01:04 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 01:06 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 01:23 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 01:00 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 01:08 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:17 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/00622484597.shtml)
-- 2026-06-30 00:59 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/5554870.shtml)
-- 2026-06-30 00:51 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/90432.shtml)
-- 2026-06-30 00:49 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/69006676.shtml)
-- 2026-06-30 01:15 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/81101985586.shtml)
-- 2026-06-30 00:51 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/167329322653.shtml)
-- 2026-06-30 00:53 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/37614668151.shtml)
-- 2026-06-30 01:17 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/178532.shtml)
-- 2026-06-30 00:52 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/031646.shtml)
-- 2026-06-30 01:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/759405.shtml)
-- 2026-06-30 01:12 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/49391980.shtml)
-- 2026-06-30 00:51 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/87288188061.shtml)
-- 2026-06-30 01:03 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/44587.shtml)
-- 2026-06-30 01:08 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/9326133.shtml)
-- 2026-06-30 00:48 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/48357.shtml)
+- 2026-06-30 01:22 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/4509893.shtml)
+- 2026-06-30 01:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/1643825454.shtml)
+- 2026-06-30 00:56 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/981684772.shtml)
+- 2026-06-30 01:02 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/9031758174.shtml)
+- 2026-06-30 01:17 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/59600531183.shtml)
+- 2026-06-30 01:17 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/54781348.shtml)
+- 2026-06-30 01:20 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/2200993.shtml)
+- 2026-06-30 00:58 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/06903695.shtml)
+- 2026-06-30 01:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/30756545232.shtml)
+- 2026-06-30 01:13 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/607418962.shtml)
+- 2026-06-30 01:02 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/7371159.shtml)
+- 2026-06-30 01:07 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/17929380994.shtml)
+- 2026-06-30 00:59 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/216183343578.shtml)
+- 2026-06-30 01:14 - [巴西vs日本](http://www.share.minike.top/Article/details/486725.shtml)
+- 2026-06-30 00:55 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/7076331675.shtml)

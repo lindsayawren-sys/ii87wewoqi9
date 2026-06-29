@@ -1,61 +1,60 @@
-# 美国设立17亿美元“法律战”基金，换取特朗普放弃100亿美元国税局诉讼
+# 联泰环保索赔递交立案，财务造假被监管处罚
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-美国迈阿密联邦法院的一份文件显示，特朗普和他的两个长子以及特朗普集团于周一撤销了对美国国税局（IRS）的100亿美元诉讼，以此换取司法部设立一个17.76亿美元的基金，用于和解那些自称是所谓“法律战”受害者的人提出的索赔。 特朗普律师提交的这份撤诉文件暗示，此举实际上阻止了法官审查总统的民事诉讼是否具有法律效力，也阻止了法官在认定其无效时将其驳回。 此前有报道称，司法部正与特朗
+登录新浪财经APP 搜索【信披】查看更多考评等级 回溯本案，2024年9月，联泰环保（维权）收到中国证监会广东监管局下发的《行政处罚决定书》，经监管部门查明，联泰环保的违法事实主要围绕实际控制人及其关联方非经营性资金占用展开。 2022年至2023年1月期间，时任副董事长、实际控制人之一黄婉茹组织、指使公司总经理、财务总监等人，通过第三方将公司资金转至关联方得成投资、达濠市政，
 
 ## 正文
 
-美国迈阿密联邦法院的一份文件显示，特朗普和他的两个长子以及特朗普集团于周一撤销了对美国国税局（IRS）的100亿美元诉讼，以此换取司法部设立一个17.76亿美元的基金，用于和解那些自称是所谓“法律战”受害者的人提出的索赔。
+登录新浪财经APP 搜索【信披】查看更多考评等级 回溯本案，2024年9月，联泰环保（维权）收到中国证监会广东监管局下发的《行政处罚决定书》，经监管部门查明，联泰环保的违法事实主要围绕实际控制人及其关联方非经营性资金占用展开。
 
-特朗普律师提交的这份撤诉文件暗示，此举实际上阻止了法官审查总统的民事诉讼是否具有法律效力，也阻止了法官在认定其无效时将其驳回。
+2022年至2023年1月期间，时任副董事长、实际控制人之一黄婉茹组织、指使公司总经理、财务总监等人，通过第三方将公司资金转至关联方得成投资、达濠市政，用于关联公司生产经营及偿还贷款等。
 
-此前有报道称，司法部正与特朗普协商和解，条件是设立一个基金来补偿那些声称遭到拜登政府不当对待的特朗普盟友。
+公司不仅未及时披露上述关联交易，还在2022年半年度报告遗漏披露4.68亿元，年度报告遗漏披露2.88亿元。
 
-这一撤诉紧随相关争议而来。
+此外，公司在回复上交所2022年年报信息披露监管工作函时，声称不存在其他关联方非经营性资金占用情形，构成虚假记载。
 
-5月14日有报道称，特朗普预计将撤销其对国税局的诉讼，以换取设立该基金。
+公司及相关责任人合计罚款金额达1260万元，体现了监管层对财务造假和资金占用行为的“零容忍”态度。
 
-美国国会的民主党成员称该基金为“贿赂基金”。
+上海沪紫律师事务所刘鹏律师表示根据《证券法》及《最高人民法院关于审理证券市场虚假陈述侵权民事赔偿案件的若干规定》，因联泰环保虚假陈述行为受损的投资者，有权提起民事诉讼要求赔偿损失。
 
-美国司法部在一份声明中表示，除了撤销与特朗普纳税申报表泄露相关的国税局诉讼外，原告还同意，作为设立该基金的交换条件，特朗普将撤回两项行政索赔，“包括因非法搜查海湖庄园和‘通俄门骗局’而造成的损害赔偿”。
+（刘鹏律师专栏） 符合以下任意区间的即可报名索赔：（联泰环保维权入口） （1）2022年8月27日-2024年4月30日期间买入，并在2024年5月1日之后卖出或仍持有而亏损 （2）2022年1月1日-2024年4月30日期间买入，并在2024年5月1日之后卖出或仍持有而亏损 （本文由上海沪紫律师事务所刘鹏律师供稿，不代表新浪财经的观点。
 
-代理司法部长托德·布兰奇在一份声明中表示：“政府的机器绝不应该被武器化用来对付任何美国人，本部门的意图是纠正先前犯下的错误，并确保此类事件不再发生。
+刘鹏律师，专注证券维权19年，自2006年执业以来，成功为中青宝（维权）、国华网安、劲嘉股份（维权）等 300 余家上市公司的中小投资者成功维权，案件在办数量超过 14000 起，胜诉率达 99.2%。
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 01:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 01:06 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 01:04 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 01:05 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 00:58 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 00:58 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 00:57 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 01:07 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 01:17 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 01:13 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 00:58 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 01:02 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 00:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 00:54 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 00:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 01:15 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 00:54 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 01:20 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 01:18 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 01:14 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 01:15 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 01:16 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 01:02 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 01:06 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 01:09 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 01:17 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 01:06 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 01:08 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:15 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/07080451.shtml)
-- 2026-06-30 01:17 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/251212.shtml)
-- 2026-06-30 01:07 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/1009269244.shtml)
-- 2026-06-30 00:57 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/668024254173.shtml)
-- 2026-06-30 01:08 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/0512563.shtml)
-- 2026-06-30 01:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/70935266945.shtml)
-- 2026-06-30 01:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/09668.shtml)
-- 2026-06-30 01:00 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/5802715597.shtml)
-- 2026-06-30 00:56 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/799932.shtml)
-- 2026-06-30 00:52 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/940035933462.shtml)
-- 2026-06-30 00:50 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/696406.shtml)
-- 2026-06-30 00:54 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/61995682.shtml)
-- 2026-06-30 00:52 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/49463.shtml)
-- 2026-06-30 00:56 - [扫黑风暴](http://www.blog.minike.top/Article/details/114414.shtml)
-- 2026-06-30 01:12 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/897640152964.shtml)
+- 2026-06-30 01:22 - [千与千寻](https://www.blog.minike.top/Article/details/464285.shtml)
+- 2026-06-30 01:20 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/7280638.shtml)
+- 2026-06-30 01:22 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/5059852784.shtml)
+- 2026-06-30 01:23 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/2342438.shtml)
+- 2026-06-30 01:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/23939827274.shtml)
+- 2026-06-30 01:10 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/795027961.shtml)
+- 2026-06-30 01:14 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/134675.shtml)
+- 2026-06-30 01:23 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/0492657615.shtml)
+- 2026-06-30 01:00 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/2843101733.shtml)
+- 2026-06-30 00:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/209486.shtml)
+- 2026-06-30 01:18 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/8765285298.shtml)
+- 2026-06-30 01:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/310085840767.shtml)
+- 2026-06-30 01:02 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/758177.shtml)
+- 2026-06-30 01:15 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/73897.shtml)
+- 2026-06-30 01:05 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/685570356759.shtml)

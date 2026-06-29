@@ -1,58 +1,59 @@
-# 瑞典斥资40亿美元采购法国护卫舰，强化波罗的海防务
+# 它是餐桌上的“天然抗生素” 夏天这样吃正合适
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-为应对波罗的海日益严峻的安全局势，瑞典政府5月19日宣布选定法国海军集团为其建造四艘新一代护卫舰，合同总价值约40亿美元。这是瑞典自上世纪80年代引进“鹰狮”战机以来最大的一笔国防投资。 应对安全威胁，强化北约协同 瑞典首相克里斯特松在斯德哥尔摩举行的发布会上表示，该订单将令瑞典的海上防空能力提升三倍。他强调：“现代史上，波罗的海从未像现在这样面临如此多的曝光、质疑和挑战。”这
+鱼腥草 又名折耳根 被民间誉为“天然抗生素” 有助于消炎、抗菌、解毒 消暑、治疗肺部疾病 推荐用法：两杯代茶饮+一道凉菜 一起来看看吧～ 01 “天然抗生素”鱼腥草 鱼腥草又名折耳根。新鲜鱼腥草叶子的总黄酮含量比较高，有助于抗氧化、清热；鱼腥草的根茎则含有挥发油，抗菌消炎作用更突出，所以它也被民间誉为“天然抗生素”，具有养生保健、防病治病的双重作用。 丨清热解毒、抑菌： 鱼腥草
 
 ## 正文
 
-为应对波罗的海日益严峻的安全局势，瑞典政府5月19日宣布选定法国海军集团为其建造四艘新一代护卫舰，合同总价值约40亿美元。
+鱼腥草 又名折耳根 被民间誉为“天然抗生素” 有助于消炎、抗菌、解毒 消暑、治疗肺部疾病 推荐用法：两杯代茶饮+一道凉菜 一起来看看吧～ 01 “天然抗生素”鱼腥草 鱼腥草又名折耳根。
 
-这是瑞典自上世纪80年代引进“鹰狮”战机以来最大的一笔国防投资。
+新鲜鱼腥草叶子的总黄酮含量比较高，有助于抗氧化、清热；鱼腥草的根茎则含有挥发油，抗菌消炎作用更突出，所以它也被民间誉为“天然抗生素”，具有养生保健、防病治病的双重作用。
 
-应对安全威胁，强化北约协同 瑞典首相克里斯特松在斯德哥尔摩举行的发布会上表示，该订单将令瑞典的海上防空能力提升三倍。
+丨清热解毒、抑菌： 鱼腥草具有清热解毒的功效，是历代治疗肺痈或者肺脓肿的主要药物，可以散热毒痈肿。
 
-他强调：“现代史上，波罗的海从未像现在这样面临如此多的曝光、质疑和挑战。
+现代药理学研究发现，鱼腥草的主要成分鱼腥草素，对金黄色葡萄球菌、肺炎球菌等多种细菌，均有不同程度的抑制作用。
 
-”这笔投资正值瑞典在俄乌冲突后加入北约，并加速国防建设之际。
+能增强白细胞吞噬能力，提高机体免疫力。
 
-瑞典国防大臣帕尔·琼森指出，快速交付能力是选择法国方案的关键考量，法国成熟的船体设计能确保在2030年交付首舰，此后以每年一艘的速度交付。
+目前临床使用鱼腥草制剂治疗扁桃体炎、大叶性肺炎、急性支气管炎以及肠炎、腹泻、尿路感染等疾病。
 
-吕勒奥级护卫舰：战力倍增 新舰将被命名为“吕勒奥级”，基于法国海军集团成熟的FDI防御干预护卫舰设计。
+丨夏季食用帮助消暑： 鱼腥草性微寒，除了有良好的清热解毒作用，还具有清暑消疮的作用。
 
-该型舰长约122米，排水量约4500吨，配备了欧洲导弹制造商的“阿斯特30”远程防空导弹，具备拦截弹道导弹的能力，并兼容“CAMM-ER”中程防空系统。
+夏季天气炎热时食用新鲜的鱼腥草，能清火消暑、解毒防病，尤其适合体质偏热、夏季容易上火、喉咙痛的人群。
 
 ## 相关推荐
 
-- 2026-06-30 01:12 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 00:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 00:51 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 01:05 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 01:02 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 00:54 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 01:13 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 01:00 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 00:59 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 01:06 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 00:48 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 01:09 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 01:21 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 01:18 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 01:15 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 01:23 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 01:23 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 01:18 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 01:00 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-30 01:10 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 01:09 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 01:09 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 01:01 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 01:13 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 00:57 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:58 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/1350396703.shtml)
-- 2026-06-30 01:09 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/399200562.shtml)
-- 2026-06-30 00:50 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/726786.shtml)
-- 2026-06-30 01:12 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/627143874.shtml)
-- 2026-06-30 00:57 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/13859.shtml)
-- 2026-06-30 00:50 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/6977846919.shtml)
-- 2026-06-30 01:01 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/414431.shtml)
-- 2026-06-30 00:49 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/94270112.shtml)
-- 2026-06-30 01:17 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/01632888.shtml)
-- 2026-06-30 01:14 - [爱很美味](http://www.blog.minike.top/Article/details/83836223648.shtml)
-- 2026-06-30 01:05 - [乔家的儿女](https://www.blog.minike.top/Article/details/39646211486.shtml)
-- 2026-06-30 01:00 - [我和我的家乡](http://www.share.minike.top/Article/details/303917.shtml)
-- 2026-06-30 00:52 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/55146.shtml)
-- 2026-06-30 01:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/854817236.shtml)
-- 2026-06-30 01:02 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/891342490.shtml)
+- 2026-06-30 01:08 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/825906.shtml)
+- 2026-06-30 01:06 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/06071034640.shtml)
+- 2026-06-30 00:57 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/14004.shtml)
+- 2026-06-30 01:21 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/55627.shtml)
+- 2026-06-30 00:57 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/78871.shtml)
+- 2026-06-30 01:02 - [刘宇宁 好听](https://www.share.minike.top/Article/details/135195941.shtml)
+- 2026-06-30 01:18 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/88443209.shtml)
+- 2026-06-30 01:10 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/5512900830.shtml)
+- 2026-06-30 01:11 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/851470.shtml)
+- 2026-06-30 01:11 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/36896849269.shtml)
+- 2026-06-30 01:05 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/485312688.shtml)
+- 2026-06-30 00:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/95133531970.shtml)
+- 2026-06-30 01:02 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/4711354.shtml)
+- 2026-06-30 01:02 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/26039.shtml)
+- 2026-06-30 00:58 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/043023848.shtml)

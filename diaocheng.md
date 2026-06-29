@@ -1,61 +1,60 @@
-# “在博物馆中看京剧”第四届中国—东盟文化交流活动在曼谷举办
+# 端午假期陕西将推出690项端午主题文旅活动
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-中新网曼谷5月19日电 (记者 李映民)“在博物馆中看京剧”——2026年第四届中国—东盟文化交流活动18日在曼谷华彬东西方文化交流中心举办。 活动由华彬文化基金会、中新社国际传播集团联合主办，依托5·18国际博物馆日重要节点，以国家级非物质文化遗产京剧为核心内容，创新打造“讲、展、演”融合一体的文化交流范式，推动中华优秀传统文化在东盟地区落地生根、广泛传播。联合国教科文组织亚
+中新网西安6月18日电 (记者 梅镱泷 阿琳娜)记者18日从陕西省文化和旅游厅获悉，端午假期陕西将推出690项端午主题文旅活动，配套169项惠民利民举措，同步发布48条端午假期精品旅游线路，覆盖民俗体验、非遗手作、实景演艺等多元业态，旨在打造有底蕴、有温度、有新意、有保障的端午假期文旅体验。据介绍，本次陕西端午文旅活动立足全省地域文旅特色，依托关中汉唐文脉、陕北红色文化与黄土民
 
 ## 正文
 
-中新网曼谷5月19日电 (记者 李映民)“在博物馆中看京剧”——2026年第四届中国—东盟文化交流活动18日在曼谷华彬东西方文化交流中心举办。
+中新网西安6月18日电 (记者 梅镱泷 阿琳娜)记者18日从陕西省文化和旅游厅获悉，端午假期陕西将推出690项端午主题文旅活动，配套169项惠民利民举措，同步发布48条端午假期精品旅游线路，覆盖民俗体验、非遗手作、实景演艺等多元业态，旨在打造有底蕴、有温度、有新意、有保障的端午假期文旅体验。
 
-活动由华彬文化基金会、中新社国际传播集团联合主办，依托5·18国际博物馆日重要节点，以国家级非物质文化遗产京剧为核心内容，创新打造“讲、展、演”融合一体的文化交流范式，推动中华优秀传统文化在东盟地区落地生根、广泛传播。
+据介绍，本次陕西端午文旅活动立足全省地域文旅特色，依托关中汉唐文脉、陕北红色文化与黄土民俗、陕南秦巴山水生态三大资源基底，全域统筹、错位布局，兼顾传统民俗回归与新潮文旅消费，推动传统文化沉浸式活化、文旅业态全域升级，实现省市联动、城乡同乐、全龄友好，全方位激活端午假期文旅市场活力。
 
-联合国教科文组织亚太区主任景峰，以及中国驻泰大使馆、泰国文化部相关官员等中外嘉宾出席活动。
+据了解，围绕端午赛龙舟、忆屈原、制香囊等经典民俗，陕西各地将打造分层分类文化活动，让传统节日可感、可玩、可体验。
 
-活动举办地华彬东西方文化交流中心以北京颐和园仁寿殿为蓝本，由清华大学国家遗产中心主任吕舟设计，一比一等比复制。
+同时，陕西重点文旅集团同步加码特色内容，陕旅、陕文投推出端午限定沉浸式剧本杀、古风汉服巡游、毕业季专属文旅活动，搭配无人机科技嘉年华、秦始皇陵XR沉浸式体验等科技文旅项目，让千年端午民俗搭上数字文旅快车，实现传统文化与现代潮流双向碰撞。
 
-建筑采用中国国家级非物质文化遗产——榫卯结构建造，在泉州加工约35万个木构件，由中泰两国近300名工匠历时三年组装完成。
+此外，结合大众假日出游偏好，陕西精心打磨了48条端午精品旅游线路，串联全省山岳景区、江河湿地、古城街区等点位，满足不同人群出游诉求。
 
-以非遗技艺建成的地标建筑，与本次核心非遗主题京剧彼此呼应。
+其中面向避暑人群，依托秦岭、巴山生态资源，推出多条山林清凉避暑线路；面向亲子家庭，打造非遗研学、航空科普、史记文化研学、红色亲子打卡线路，实现游玩与科普教育双向融合。
 
-活动特邀国家京剧院一级编剧、故宫博物院博士后、中国梅兰芳文化艺术研究会副会长池浚演讲展览总策划、总撰稿和艺术指导，以专业学术视角构建完整叙事体系。
+端午假期，陕西推出了覆盖门票、演艺、住宿等全链条的169项惠民举措，全省预计发放消费券及节日赠品价值超百万元，多地专项发放文旅消费券、惠民卡共计近190万元。
 
-活动围绕京剧发展脉络设置三大篇章，由中国戏曲学院硕士李娜系统讲述京剧从宫廷孕育、艺术成熟到走向世界的传承历程，全面展现国粹艺术的历史价值与当代意义。
+针对考生群体，全省多家核心景区推出中高考生凭准考证免门票、免费观演、免费汉服体验等专属福利；针对广大游客，推出景区背诵经典篇目免门票、穿汉服免门票、优待人群门票减免等特色福利；针对全域游客，各大文旅企业推出演出住宿优惠套票、预售折扣票、消费满减等福利。
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 01:06 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 00:51 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 01:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 00:51 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 01:18 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 00:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 00:48 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 00:56 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 01:02 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 01:12 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 00:48 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 00:56 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 01:00 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 00:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 01:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 01:08 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 01:04 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 01:23 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 01:05 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 01:19 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 01:05 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 01:01 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 01:07 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 00:55 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 01:21 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 01:10 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 01:00 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 01:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:10 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/29309180185.shtml)
-- 2026-06-30 01:06 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/098556071.shtml)
-- 2026-06-30 01:11 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/497804342.shtml)
-- 2026-06-30 01:09 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/59492.shtml)
-- 2026-06-30 01:06 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/0779951.shtml)
-- 2026-06-30 00:57 - [第一炉香](https://www.share.kurohicncr.top/Article/details/92094248.shtml)
-- 2026-06-30 00:54 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/948839.shtml)
-- 2026-06-30 01:03 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/389023.shtml)
-- 2026-06-30 01:11 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/56827.shtml)
-- 2026-06-30 00:59 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/23027461.shtml)
-- 2026-06-30 01:12 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/878401.shtml)
-- 2026-06-30 01:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/700562162721.shtml)
-- 2026-06-30 01:13 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/708609617806.shtml)
-- 2026-06-30 00:48 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/7814974.shtml)
-- 2026-06-30 01:17 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/540357408.shtml)
+- 2026-06-30 01:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/463610874.shtml)
+- 2026-06-30 01:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/92136523.shtml)
+- 2026-06-30 01:23 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/13764175.shtml)
+- 2026-06-30 01:14 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/6583647246.shtml)
+- 2026-06-30 00:57 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/15630.shtml)
+- 2026-06-30 01:01 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/26541.shtml)
+- 2026-06-30 01:23 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/03724413325.shtml)
+- 2026-06-30 01:08 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/2878043.shtml)
+- 2026-06-30 01:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/9317697628.shtml)
+- 2026-06-30 01:00 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/09526.shtml)
+- 2026-06-30 01:01 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/0188347.shtml)
+- 2026-06-30 01:20 - [刘念回应](http://www.blog.minike.top/Article/details/72943659.shtml)
+- 2026-06-30 01:21 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/150881.shtml)
+- 2026-06-30 00:56 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/57096.shtml)
+- 2026-06-30 00:55 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/3497019852.shtml)

@@ -1,53 +1,57 @@
-# 美国拟撤销对印度亿万富翁阿达尼的刑事指控
+# 长江有色：18日铜价下跌 今日多以按需采购为主
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-美国司法部当地时间周一申请撤销对亚洲首富高塔姆·阿达尼的刑事指控，稍早美国财政部宣布就一项涉及印度阿达尼集团旗舰公司的制裁调查达成和解。而美国证券交易委员会已在上周推进和解以结束对他提起的欺诈诉讼。 美国当局陆续收缩针对阿达尼及其公司的法律行动，对这家企业集团而言构成重大利好，也被视为该商业帝国可能重返美国市场的重要信号。 此前，2024年底美国检方指控阿达尼等人参与一项约2.
+长江有色金属网 6月18日铜期货市场动态：今日沪期铜主力月2607合约进入高位回调整理阶段；开盘价报105280元/吨，最高105580元/吨，最低104430元/吨，昨结105290元/吨，今日收盘价报104780元/吨，跌510元，跌幅0.48%，沪铜主力2607合约全天成交量72083手增加3487手。持仓量112863手减少11434手。亚盘时段，伦铜疲弱震荡，北京时间
 
 ## 正文
 
-美国司法部当地时间周一申请撤销对亚洲首富高塔姆·阿达尼的刑事指控，稍早美国财政部宣布就一项涉及印度阿达尼集团旗舰公司的制裁调查达成和解。
+长江有色金属网 6月18日铜期货市场动态：今日沪期铜主力月2607合约进入高位回调整理阶段；开盘价报105280元/吨，最高105580元/吨，最低104430元/吨，昨结105290元/吨，今日收盘价报104780元/吨，跌510元，跌幅0.48%，沪铜主力2607合约全天成交量72083手增加3487手。
 
-而美国证券交易委员会已在上周推进和解以结束对他提起的欺诈诉讼。
+持仓量112863手减少11434手。
 
-美国当局陆续收缩针对阿达尼及其公司的法律行动，对这家企业集团而言构成重大利好，也被视为该商业帝国可能重返美国市场的重要信号。
+亚盘时段，伦铜疲弱震荡，北京时间15：11最新报价13699美元/吨，跌136 美元/吨，跌幅0.98%。
 
-此前，2024年底美国检方指控阿达尼等人参与一项约2.5亿美元的贿赂计划，通过行贿获得印度太阳能项目合同，并在向美国投资者融资时隐瞒相关安排，引发印度金融市场震荡。
+长江铜业网铜价格统计：今日国内现货铜价格下跌，长江现货1#铜价报105270元/吨，跌380元，升水100-升水140，持平；长江综合1#铜价报105255元/吨，跌380元，升水50-升水160，持平；广东现货1#铜价报105310元/吨，跌400元，升水60-升水260，跌20元；上海地区1#铜价报105180元/吨，跌370元，贴水10-升水70，涨10元。
 
-阿达尼集团始终否认上述指控，包括阿达尼本人在内的被告均未在相关案件中出庭，使案件进展陷入停滞。
+长江铜市分析：宏观“鹰”击长空，产业“韧”性托底：铜价节前承压，节后博弈加剧 宏观层面，地缘政治与货币政策的双重变奏主导了近期市场情绪。
 
-责任编辑：于健 SF069
+巴基斯坦总理夏巴兹18日确认，美伊远程签署的谅解备忘录已立即生效，作为协议第一步，伊朗将重开霍尔木兹海峡，美国同步解除海上封锁，双方承诺在60天内推进最终协议谈判。
+
+尽管这一消息为中东局势带来短暂缓和，但市场仍对后续执行保持谨慎，油价虽有回落但仍处高位震荡。
+
+与此同时，美联储新任主席沃什的首秀令全球金融市场震动。
 
 ## 相关推荐
 
-- 2026-06-30 00:56 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 01:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 00:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 01:14 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 01:03 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 01:05 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 01:09 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 00:58 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 01:04 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 01:09 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 00:54 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 00:58 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 01:07 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 01:18 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 01:01 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 01:12 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 01:19 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 01:16 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 01:21 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 01:20 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 01:00 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 01:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:57 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/685704495.shtml)
-- 2026-06-30 01:06 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/931210521.shtml)
-- 2026-06-30 01:01 - [扫黑风暴](https://www.blog.minike.top/Article/details/4868104.shtml)
-- 2026-06-30 01:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/6902574.shtml)
-- 2026-06-30 01:11 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/1072428.shtml)
-- 2026-06-30 01:12 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/1254095400.shtml)
-- 2026-06-30 01:00 - [沙丘](https://www.blog.minike.top/Article/details/48120.shtml)
-- 2026-06-30 01:12 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/6543888.shtml)
-- 2026-06-30 01:14 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/111891.shtml)
-- 2026-06-30 00:56 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/8915034.shtml)
-- 2026-06-30 00:54 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/9608591.shtml)
-- 2026-06-30 01:10 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/7232271796.shtml)
-- 2026-06-30 01:01 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/083165674702.shtml)
-- 2026-06-30 00:58 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/11479236.shtml)
-- 2026-06-30 01:11 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/9931499.shtml)
+- 2026-06-30 01:17 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/15245306493.shtml)
+- 2026-06-30 01:10 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/75530306.shtml)
+- 2026-06-30 00:54 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/20393.shtml)
+- 2026-06-30 01:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/1650188034.shtml)
+- 2026-06-30 01:09 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/348853331539.shtml)
+- 2026-06-30 01:23 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/335710.shtml)
+- 2026-06-30 00:55 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/237004263.shtml)
+- 2026-06-30 01:15 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/63840.shtml)
+- 2026-06-30 01:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/75728239.shtml)
+- 2026-06-30 01:01 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/05418079.shtml)
+- 2026-06-30 01:22 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/6139962.shtml)
+- 2026-06-30 01:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/48465806525.shtml)
+- 2026-06-30 01:16 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/464273251.shtml)
+- 2026-06-30 01:14 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/59378.shtml)
+- 2026-06-30 01:19 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/913458828846.shtml)

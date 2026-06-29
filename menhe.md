@@ -1,53 +1,60 @@
-# 机器人出租车驶入伦敦街头测试
+# 6家银行获批直接开展离岸人民币外汇交易
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-Alphabet旗下的Waymo在伦敦扩大了高精地图测绘和试运行范围。随着人工智能驱动的车队日益接近商业化服务，自动驾驶车辆与传统黑色出租车之间的竞争愈发激烈。伦敦交通局正密切关注测试进展，并着手制定自动驾驶出租车的运营规范。黑色出租车司机协会表达了对就业冲击的担忧，呼吁政府限制自动驾驶车辆在市中心区域的运营。Waymo表示其技术将提升道路安全并降低出行成本，计划在取得监管许可
+记者丨余纪昕 编辑丨杨希 刘雪莹 曾芳 6月17日，随着2026陆家嘴论坛开幕，一批政策也正式对外“揭幕”。 中国人民银行、国家发展改革委、金融监管总局、中国证监会、国家外汇局和上海市人民政府联合印发《上海国际金融中心发展离岸金融行动方案》（以下简称“行动方案”）。行动方案今日正式对外公布。 记者注意到，本次行动方案提出：支持在浦东新区开展离岸金融先行先试。同时，也在资金流动与
 
 ## 正文
 
-Alphabet旗下的Waymo在伦敦扩大了高精地图测绘和试运行范围。
+记者丨余纪昕 编辑丨杨希 刘雪莹 曾芳 6月17日，随着2026陆家嘴论坛开幕，一批政策也正式对外“揭幕”。
 
-随着人工智能驱动的车队日益接近商业化服务，自动驾驶车辆与传统黑色出租车之间的竞争愈发激烈。
+中国人民银行、国家发展改革委、金融监管总局、中国证监会、国家外汇局和上海市人民政府联合印发《上海国际金融中心发展离岸金融行动方案》（以下简称“行动方案”）。
 
-伦敦交通局正密切关注测试进展，并着手制定自动驾驶出租车的运营规范。
+行动方案今日正式对外公布。
 
-黑色出租车司机协会表达了对就业冲击的担忧，呼吁政府限制自动驾驶车辆在市中心区域的运营。
+记者注意到，本次行动方案提出：支持在浦东新区开展离岸金融先行先试。
 
-Waymo表示其技术将提升道路安全并降低出行成本，计划在取得监管许可后于2027年前推出付费服务。
+同时，也在资金流动与账户管理、离岸金融业务及相关法律制度体系、离岸金融监管等方面提出了重点举措。
 
-责任编辑：张俊 SF065
+据《金融时报》报道，中国人民银行行长潘功胜同时宣布，将在上海自贸区开展离岸人民币外汇交易试点，授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台开展离岸人民币外汇交易。
+
+对此，跨境金融研究院院长王志毅对21世纪经济报道记者指出，其意义已经不是单个金融试点。
+
+上海正在把FT账户、OSA账户、自贸离岸债、离岸贸易金融、离岸再保险、国际财资中心、离岸人民币外汇交易、数字人民币跨境基础设施放进一套体系里。
 
 ## 相关推荐
 
-- 2026-06-30 01:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 01:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 00:52 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 00:59 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 00:50 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 00:53 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 01:05 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 01:06 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 01:14 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 01:04 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 00:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 01:04 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 01:07 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 01:02 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 01:00 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 01:21 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 01:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 01:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 01:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 01:17 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 01:01 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 01:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 01:17 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 00:57 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 00:56 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/569011.shtml)
-- 2026-06-30 01:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/966959572.shtml)
-- 2026-06-30 01:02 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/91743595788.shtml)
-- 2026-06-30 00:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/7913890792.shtml)
-- 2026-06-30 01:13 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/0895292140.shtml)
-- 2026-06-30 00:54 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/7770276.shtml)
-- 2026-06-30 00:54 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/166465167201.shtml)
-- 2026-06-30 01:03 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/52025.shtml)
-- 2026-06-30 00:51 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/01006.shtml)
-- 2026-06-30 01:06 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/474270089.shtml)
-- 2026-06-30 01:03 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/312626990811.shtml)
-- 2026-06-30 01:09 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/1192357.shtml)
-- 2026-06-30 01:00 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/4415916365.shtml)
-- 2026-06-30 01:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/1962227286.shtml)
-- 2026-06-30 01:05 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/028773.shtml)
+- 2026-06-30 01:02 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/35782544.shtml)
+- 2026-06-30 01:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/82401.shtml)
+- 2026-06-30 01:21 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/14863542.shtml)
+- 2026-06-30 01:04 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/868459676.shtml)
+- 2026-06-30 01:01 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/9046871755.shtml)
+- 2026-06-30 01:22 - [沉睡花园](http://www.blog.minike.top/Article/details/93141055.shtml)
+- 2026-06-30 01:18 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/9008013.shtml)
+- 2026-06-30 00:56 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/3395487.shtml)
+- 2026-06-30 01:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/247896781792.shtml)
+- 2026-06-30 01:22 - [毒液2](https://www.share.kurohicncr.top/Article/details/692742.shtml)
+- 2026-06-30 01:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/93143192660.shtml)
+- 2026-06-30 01:22 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/0632438646.shtml)
+- 2026-06-30 01:22 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/32857.shtml)
+- 2026-06-30 01:00 - [新官上任三把火](http://www.blog.minike.top/Article/details/8362824.shtml)
+- 2026-06-30 01:18 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/683418124.shtml)

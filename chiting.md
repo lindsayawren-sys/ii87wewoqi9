@@ -1,54 +1,61 @@
-# 英国将允许进口使用俄罗斯石油提炼的柴油和航空煤油
+# 促进分布式数字身份互通互认 国家网信办公开征求意见
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-英国将允许从印度和土耳其等国进口用俄罗斯原油提炼的柴油和航空煤油，从而实际上放松对俄罗斯的部分制裁。 周二晚些时候发布的通用许可将于周三生效，并未设定时间限制。该措施仅适用于这两种燃油，当前大量石油生产仍因伊朗战争而中断，其中柴油和航空煤油受到的冲击尤为严重。 该许可放松了今年早些时候生效的制裁措施，这些制裁旨在遏制俄罗斯从其石油和天然气行业获取资金的能力。 据Vortexa数
+为促进分布式数字身份创新发展和互通互认应用，建立健全分布式数字身份公共服务体系，支撑国家区块链网络基础共性服务能力建设，根据有关法律法规，我办会同有关部门起草了《促进分布式数字身份互通互认应用规定(征求意见稿)》，现向社会公开征求意见。公众可通过以下途径和方式提出反馈意见：1.通过电子邮件方式发送至：did@cac.gov.cn。 2.通过信函方式将意见寄至：北京市海淀区阜成路
 
 ## 正文
 
-英国将允许从印度和土耳其等国进口用俄罗斯原油提炼的柴油和航空煤油，从而实际上放松对俄罗斯的部分制裁。
+为促进分布式数字身份创新发展和互通互认应用，建立健全分布式数字身份公共服务体系，支撑国家区块链网络基础共性服务能力建设，根据有关法律法规，我办会同有关部门起草了《促进分布式数字身份互通互认应用规定(征求意见稿)》，现向社会公开征求意见。
 
-周二晚些时候发布的通用许可将于周三生效，并未设定时间限制。
+公众可通过以下途径和方式提出反馈意见：1.通过电子邮件方式发送至：did@cac.gov.cn。
 
-该措施仅适用于这两种燃油，当前大量石油生产仍因伊朗战争而中断，其中柴油和航空煤油受到的冲击尤为严重。
+2.通过信函方式将意见寄至：北京市海淀区阜成路15号国家互联网信息办公室信息化发展局，邮编100048，并在信封上注明“促进分布式数字身份互通互认应用规定”。
 
-该许可放松了今年早些时候生效的制裁措施，这些制裁旨在遏制俄罗斯从其石油和天然气行业获取资金的能力。
+意见反馈截止时间为2026年7月18日。
 
-据Vortexa数据，自1月以来，英国没有从印度进口任何柴油或航空煤油。
+附件：促进分布式数字身份互通互认应用规定(征求意见稿) 国家互联网信息办公室 2026年6月18日 促进分布式数字身份互通互认应用规定 (征求意见稿) 第一章 总则 第一条 为深入推进网络强国、数字中国战略实施，促进分布式数字身份创新发展和互通互认应用，建立健全分布式数字身份公共服务体系，夯实网络空间可信身份认证基础，支撑国家区块链网络基础共性服务能力建设，推动国民经济和社会发展各领域数字身份跨平台互通互认，根据《中华人民共和国网络安全法》《中华人民共和国数据安全法》《中华人民共和国个人信息保护法》《中华人民共和国电子签名法》等法律法规，制定本规定。
 
-责任编辑：王永生
+第二条 本规定所称分布式数字身份，是指基于区块链等分布式技术，支持用户自主管理身份信息的新型数字身份，由标识符、密钥、可验证凭证和可验证声明构成，可用于数字账户管理、登录认证、数据授权等场景，旨在解决跨地域、跨行业、跨平台身份互通互认问题。
+
+本规定所称国家区块链网络，是指基于区块链技术，由国家统筹规划建设，遵循统一技术标准和接入规范，面向社会提供服务的数字基础设施。
+
+本规定所称分布式数字身份公共服务(以下称“公共服务”)，是指依托分布式数字身份链，为个人、机关事业单位、法人及其他组织机构、工业设备及物品等主体提供的分布式数字身份申请注册、身份核验、可验证凭证签发和可验证凭证授权使用等服务。
 
 ## 相关推荐
 
-- 2026-06-30 01:11 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 01:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 00:56 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 00:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 00:55 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 01:16 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 01:00 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 00:49 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 01:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 01:09 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 01:05 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 01:12 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 01:04 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 00:54 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 01:04 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 01:01 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 01:13 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 01:06 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 01:01 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 01:07 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 01:00 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 01:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 01:06 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 01:09 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 00:59 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 00:54 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 00:59 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/883553493272.shtml)
-- 2026-06-30 01:04 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/252214.shtml)
-- 2026-06-30 00:51 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/9853376197.shtml)
-- 2026-06-30 01:08 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/270630.shtml)
-- 2026-06-30 01:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/754594456809.shtml)
-- 2026-06-30 01:11 - [扫黑风暴](http://www.blog.minike.top/Article/details/015753396463.shtml)
-- 2026-06-30 01:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/9126400.shtml)
-- 2026-06-30 01:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/64326195.shtml)
-- 2026-06-30 01:09 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/8523505286.shtml)
-- 2026-06-30 01:04 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/0391898386.shtml)
-- 2026-06-30 01:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/5399039.shtml)
-- 2026-06-30 01:11 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/819836.shtml)
-- 2026-06-30 00:49 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/533641008665.shtml)
-- 2026-06-30 01:07 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/91768.shtml)
-- 2026-06-30 01:08 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/65187025199.shtml)
+- 2026-06-30 01:16 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/4285866.shtml)
+- 2026-06-30 01:05 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/85986183.shtml)
+- 2026-06-30 01:17 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/50624173839.shtml)
+- 2026-06-30 00:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/49347874288.shtml)
+- 2026-06-30 00:58 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/633268.shtml)
+- 2026-06-30 01:04 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/591515006620.shtml)
+- 2026-06-30 01:16 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/83194.shtml)
+- 2026-06-30 00:58 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/58728673.shtml)
+- 2026-06-30 01:07 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/6850869.shtml)
+- 2026-06-30 01:20 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/75908916.shtml)
+- 2026-06-30 00:55 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/01713315.shtml)
+- 2026-06-30 01:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/283887.shtml)
+- 2026-06-30 01:00 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/49411315.shtml)
+- 2026-06-30 00:58 - [千香](http://www.share.minike.top/Article/details/958740.shtml)
+- 2026-06-30 01:03 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/01180905013.shtml)

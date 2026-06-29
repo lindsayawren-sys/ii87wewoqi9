@@ -1,61 +1,56 @@
-# 特朗普：应海湾三国请求 推迟攻击伊朗
+# 江西民建参政履职见实效 凝心聚力助发展
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-新华社华盛顿5月18日电（记者黄强 徐剑梅）美东时间18日下午，美国总统特朗普在社交媒体发文称，应卡塔尔、沙特阿拉伯、阿联酋领导人请求，他已下令推迟“原定于明天（19日）”对伊朗发动的军事攻击。 特朗普说，美国和伊朗正在进行“严肃的谈判”，上述三国领导人认为，美伊终将达成“美国以及中东地区乃至更广泛范围的所有国家均能接受”的协议。重要的是，协议将规定“伊朗不得拥有核武器”。 特
+中新网南昌6月17日电 (记者 吴鹏泉)17日，中国民主建国会江西省第十届委员会第五次全体会议在南昌召开。记者从会议上了解到，2025年江西民建扎实履职尽责、主动担当作为，在参政议政、民主监督、定点帮扶、招商引资、社会公益等领域多点发力、成效凸显，以实干实绩助力江西高质量发展。 2025年是江西民建组织建立70周年。民建中央副主席、江西省委会主委孙菊生在上述会议上表示，一年来，
 
 ## 正文
 
-新华社华盛顿5月18日电（记者黄强 徐剑梅）美东时间18日下午，美国总统特朗普在社交媒体发文称，应卡塔尔、沙特阿拉伯、阿联酋领导人请求，他已下令推迟“原定于明天（19日）”对伊朗发动的军事攻击。
+中新网南昌6月17日电 (记者 吴鹏泉)17日，中国民主建国会江西省第十届委员会第五次全体会议在南昌召开。
 
-特朗普说，美国和伊朗正在进行“严肃的谈判”，上述三国领导人认为，美伊终将达成“美国以及中东地区乃至更广泛范围的所有国家均能接受”的协议。
+记者从会议上了解到，2025年江西民建扎实履职尽责、主动担当作为，在参政议政、民主监督、定点帮扶、招商引资、社会公益等领域多点发力、成效凸显，以实干实绩助力江西高质量发展。
 
-重要的是，协议将规定“伊朗不得拥有核武器”。
+2025年是江西民建组织建立70周年。
 
-特朗普称，出于对上述领导人的尊重，他已指示美国防部长赫格塞思、美军参谋长联席会议主席凯恩以及美军，19日将不按原计划对伊朗发动攻击。
+民建中央副主席、江西省委会主委孙菊生在上述会议上表示，一年来，民建江西省委会充分发挥自身特色优势，紧紧围绕中心大局，积极履行参政党职能，各项工作实现新发展、取得新成效。
 
-同时，他要求美军必须做好准备，一旦未能达成令人满意的协议，随时准备对伊朗发起“全面、大规模”进攻。
+参政议政精准发力，资政建言更具含金量。
 
-特朗普当天早些时候接受美国媒体采访时表示，在收到伊朗“令人失望”的最新提案后，他不考虑向伊朗作出任何让步。
+一年来，民建江西省委会深入多地开展实地调研，形成《优化开发区招商环境 助推经济强县建设》专题报告，并在政党协商专题座谈会上向中共江西省委、省政府主要领导作专题汇报。
 
-伊朗塔斯尼姆通讯社18日援引消息人士的话报道，伊朗已通过巴基斯坦将包含14点的最新谈判文本转交美方，核心内容聚焦于“结束战争”相关议题，以及美方应采取的各项建立信任的措施。
+组织会内专家骨干召开专题议政性座谈会，并围绕“无人驾驶汽车产业布局”开展深度调研，为江西省“十五五”规划编制工作献计出力。
 
-美国阿克西奥斯新闻网站随后援引美方高级官员的话报道，白宫认为伊朗最新提案没有实质性改进，不足以作为达成协议的基础，特朗普正考虑重启军事行动。
+民主监督是民主党派的一项基本职能。
 
 ## 相关推荐
 
-- 2026-06-30 00:52 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 00:58 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 01:16 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 01:06 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 01:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 01:15 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 01:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 00:58 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 00:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 00:55 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 01:00 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 01:04 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 00:53 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 01:14 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 00:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 01:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 01:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 01:23 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 00:55 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 01:05 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 01:18 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 00:57 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 01:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 01:09 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 01:13 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/873614.shtml)
-- 2026-06-30 00:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/35225325.shtml)
-- 2026-06-30 00:54 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/2611982505.shtml)
-- 2026-06-30 00:56 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/676660375.shtml)
-- 2026-06-30 01:00 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/0622111.shtml)
-- 2026-06-30 01:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/19742866344.shtml)
-- 2026-06-30 01:02 - [浙江进入梅雨最强“攻击时段”](http://www.blog.minike.top/Article/details/292184185586.shtml)
-- 2026-06-30 01:08 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/372209630159.shtml)
-- 2026-06-30 01:04 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/42296821832.shtml)
-- 2026-06-30 00:56 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/94426078.shtml)
-- 2026-06-30 00:57 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/38570846402.shtml)
-- 2026-06-30 01:17 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/8462774.shtml)
-- 2026-06-30 00:52 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/95951.shtml)
-- 2026-06-30 01:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/006353.shtml)
-- 2026-06-30 01:16 - [一见倾心](https://www.share.kurohicncr.top/Article/details/9827407672.shtml)
+- 2026-06-30 00:57 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/98395418562.shtml)
+- 2026-06-30 01:18 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/22597.shtml)
+- 2026-06-30 01:17 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/75120.shtml)
+- 2026-06-30 01:14 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/07124540.shtml)
+- 2026-06-30 01:08 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/869750728798.shtml)
+- 2026-06-30 01:21 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/955347102569.shtml)
+- 2026-06-30 01:03 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/043386754113.shtml)
+- 2026-06-30 01:18 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/14497172482.shtml)
+- 2026-06-30 01:20 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/2233908.shtml)
+- 2026-06-30 01:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/36788.shtml)
+- 2026-06-30 00:55 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/55968305199.shtml)
+- 2026-06-30 00:55 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/8336694.shtml)
+- 2026-06-30 01:05 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/70450224.shtml)
+- 2026-06-30 01:01 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/25728962.shtml)
+- 2026-06-30 00:56 - [美人鱼](https://www.share.kurohicncr.top/Article/details/987657574365.shtml)

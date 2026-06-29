@@ -1,56 +1,58 @@
-# 数字产品影响孩子视力、注意力等 教育部紧急叫停“电子带娃”
+# 美国主导海事安全机构：伊美达成协议后，霍尔木兹海峡威胁等级下调
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-今天(19日)，教育部启动2026年全国学前教育宣传月，主题是“共同守护数字时代的童年”，呼吁各地幼儿园“以游戏为基本活动”，不能以伴读、聊天、互动游戏等儿童数字产品替代图画书、玩具，不能用数字产品直接生成儿童观察记录、评价幼儿等。引导广大家长树立“多陪伴、多游戏、多运动、多亲近自然”的育儿理念，自觉识别并抵制早教类App等商业宣传误导，防范“电子带娃”。 当前，部分人群对学前
+核心要点 由美国牵头的海军联盟本周向航运企业发布通知表示，随着伊美相关协议落地，途经霍尔木兹海峡的船舶面临的安全威胁有所缓解。 联合海事信息中心在周二发布的安全通告中，将霍尔木兹海峡的航运威胁等级从最高的 “严重” 下调至 “较高”。该海事安全机构总部位于巴林，主要负责统筹协调中东地区盟国海军力量与商船的海上安保工作。 该机构同时提醒航运企业：船舶航行该海峡期间，遭遇袭击的可能
 
 ## 正文
 
-今天(19日)，教育部启动2026年全国学前教育宣传月，主题是“共同守护数字时代的童年”，呼吁各地幼儿园“以游戏为基本活动”，不能以伴读、聊天、互动游戏等儿童数字产品替代图画书、玩具，不能用数字产品直接生成儿童观察记录、评价幼儿等。
+核心要点 由美国牵头的海军联盟本周向航运企业发布通知表示，随着伊美相关协议落地，途经霍尔木兹海峡的船舶面临的安全威胁有所缓解。
 
-引导广大家长树立“多陪伴、多游戏、多运动、多亲近自然”的育儿理念，自觉识别并抵制早教类App等商业宣传误导，防范“电子带娃”。
+联合海事信息中心在周二发布的安全通告中，将霍尔木兹海峡的航运威胁等级从最高的 “严重” 下调至 “较高”。
 
-当前，部分人群对学前领域数字应用存在一些认识误区，部分商业机构存在宣传误导，个别地方和幼儿园存在滥用、误用数字产品现象。
+该海事安全机构总部位于巴林，主要负责统筹协调中东地区盟国海军力量与商船的海上安保工作。
 
-大量权威研究证实，幼儿过早、过多接触数字产品，将会对视力健康、注意力集中、语言交往、情感发展等方面带来长期且难以逆转的不利影响。
+该机构同时提醒航运企业：船舶航行该海峡期间，遭遇袭击的可能性依旧很高；水雷威胁并未消除，所有进出海峡的航道都需要保持高度警惕。
 
-倡导学前儿童远离数字产品，保护儿童发展权益，也已成为世界各国的广泛共识。
+联合海事信息中心称，美伊协议公布后，伊朗革命卫队的行动趋于平稳，不再频繁出现过激举动，美国海军仍在该区域执行维稳巡航监管任务。
 
-宣传月期间，各地将持续开展系列主题宣传活动，整合多方专业资源与社会力量，聚焦数字时代学前儿童权益保护，推动多方协同联动，构建全方位、立体化的幼儿成长防护屏障。
+数据机构克普勒的数据显示，美伊周日官宣协议后，霍尔木兹海峡油轮通行量并未显著上涨；周二当天仅有 6 艘油轮、13 艘各类商船途经该海峡。
 
-近年来，我国学前教育普及普惠水平大幅提升，2025年全国学前三年毛入园率达到92.9%，全国普惠性幼儿园覆盖率达到91.5%。
+而冲突爆发前，每日有超百艘船舶经由霍尔木兹海峡通航。
 
-2025年6月1日，学前教育法正式施行，7月底，国家部署逐步推行免费学前教育，我国学前教育进入了有法可依、逐步免费的新时代。
+联合海事信息中心在周二的通告中表示：当前霍尔木兹海峡的船舶通行量依旧远低于战前水平。
 
 ## 相关推荐
 
-- 2026-06-30 01:14 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 01:08 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 01:05 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 00:52 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 01:17 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 01:03 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 01:17 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 01:10 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-30 00:51 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 00:58 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 01:00 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 01:04 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 01:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 01:12 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 00:57 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 00:57 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 01:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 00:59 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-30 01:14 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 00:56 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 01:18 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 01:23 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/43112.shtml)
-- 2026-06-30 01:16 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/903424.shtml)
-- 2026-06-30 01:14 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/01747742.shtml)
-- 2026-06-30 01:00 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/987919.shtml)
-- 2026-06-30 01:11 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/070649.shtml)
-- 2026-06-30 01:00 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/750069994945.shtml)
-- 2026-06-30 01:16 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/434859664.shtml)
-- 2026-06-30 01:07 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/1946489.shtml)
-- 2026-06-30 00:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/22412985.shtml)
-- 2026-06-30 01:04 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/6252588.shtml)
-- 2026-06-30 00:48 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/467328.shtml)
-- 2026-06-30 00:49 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/597956178.shtml)
-- 2026-06-30 01:17 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/86957452.shtml)
-- 2026-06-30 00:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/9240373525.shtml)
-- 2026-06-30 01:07 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/96037480.shtml)
+- 2026-06-30 00:58 - [沙丘](https://www.share.kurohicncr.top/Article/details/5970162.shtml)
+- 2026-06-30 01:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/728452845.shtml)
+- 2026-06-30 01:13 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/75388754.shtml)
+- 2026-06-30 01:13 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/278089.shtml)
+- 2026-06-30 01:02 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/9361481.shtml)
+- 2026-06-30 01:10 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/4251396841.shtml)
+- 2026-06-30 00:56 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/03270922363.shtml)
+- 2026-06-30 01:07 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/91404586018.shtml)
+- 2026-06-30 01:07 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/46259182.shtml)
+- 2026-06-30 01:22 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/15649419.shtml)
+- 2026-06-30 01:21 - [毒液2](http://www.share.kurohicncr.top/Article/details/671685584110.shtml)
+- 2026-06-30 00:59 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/307852.shtml)
+- 2026-06-30 01:09 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/50596958.shtml)
+- 2026-06-30 01:06 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/36139.shtml)
+- 2026-06-30 01:12 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/88356651880.shtml)

@@ -1,60 +1,60 @@
-# 2026香港合作发展论坛举行 聚焦推动国际合作
+# 以AI对抗AI！谷澍详解防范大模型应用风险四大做法
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-中新社香港5月19日电 (记者 赵静怡)2026香港合作发展论坛19日在港举行，邀请百余位来自美国、俄罗斯、法国、瑞士、泰国等国家的各领域专业人士参会，聚焦推动开展国际合作完善全球治理。 中国外文出版发行事业局(下称“中国外文局”)局长常勃在当天的致辞中表示，合作是中华优秀传统文化的深沉底色，发展是新中国孜孜以求的奋斗目标，合作发展是新时代中国贡献给全人类的公共财富。论坛聚焦合
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 张欣 “要‘以AI对抗AI’，建立纵深防御体系，确保攻击可以早发现、快处置、能自愈，不断提升自动化、智能化的风险应对水平。要增强AI对抗能力，部署专门的安全监测模型，持续进行对抗训练，提升系统韧性。” 6月18日，农业银行董事长谷澍在2026陆家嘴论坛——“全体大会五：健全科技金融全生命周期服务
 
 ## 正文
 
-中新社香港5月19日电 (记者 赵静怡)2026香港合作发展论坛19日在港举行，邀请百余位来自美国、俄罗斯、法国、瑞士、泰国等国家的各领域专业人士参会，聚焦推动开展国际合作完善全球治理。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 张欣 “要‘以AI对抗AI’，建立纵深防御体系，确保攻击可以早发现、快处置、能自愈，不断提升自动化、智能化的风险应对水平。
 
-中国外文出版发行事业局(下称“中国外文局”)局长常勃在当天的致辞中表示，合作是中华优秀传统文化的深沉底色，发展是新中国孜孜以求的奋斗目标，合作发展是新时代中国贡献给全人类的公共财富。
+要增强AI对抗能力，部署专门的安全监测模型，持续进行对抗训练，提升系统韧性。
 
-论坛聚焦合作与发展，将为构建人类命运共同体提供助力。
+” 6月18日，农业银行董事长谷澍在2026陆家嘴论坛——“全体大会五：健全科技金融全生命周期服务体系，服务实体经济高质量”发展上发表题为《控制大模型应用风险的几点做法》演讲时如是表示。
 
-国际调解院秘书长郑若骅出席活动并表示，论坛主题“合作与发展推动构建人类命运共同体”与国际调解院的宗旨高度契合，愿携手打造全球调解生态体系，营造更和平、更合作的国际环境。
+“创新与安全的平衡问题，成为制约大模型深化应用的关键所在。
 
-活动期间举办了两场圆桌对话，各领域人士围绕“开展国际合作完善全球治理”“追求共同发展实现美好未来”两大议题展开讨论。
+”谷澍指出，当前AI已成为科技创新的重要引擎，在银行的应用不断拓展深化，有效助力了金融高质量发展。
 
-针对近期中美元首会晤，圆桌对话主持人、中欧美全球倡议发起人高大伟(David Gosset)接受中新社记者采访时表示：“没有稳定的中美关系，就没有良好的全球治理；中美关系稳定，世界才有稳定、发展、和平的希望。
+但也要关注大模型的规模化应用带来的新风险挑战。
 
-”他表示，近期多国领导人先后访华，足以说明中国毋庸置疑的国际影响力和重要性。
+在他看来，模型黑箱、模型幻觉、模型自主思考与决策带来的不确定性，是当前金融业大模型应用面临的突出风险。
 
-“在当今国际秩序中，国际合作比以往任何时候都更加必要。
+从底层运行机理来看，模型风险是一种客观存在，金融从业者要做的不是追求对风险的绝对消除，而是如何建立与风险共生的治理体系。
 
 ## 相关推荐
 
-- 2026-06-30 00:52 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 01:04 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 01:03 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 01:09 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 01:08 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 01:10 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 01:16 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 01:00 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 00:48 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 01:15 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 01:17 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 01:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 01:04 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 01:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 01:17 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 01:22 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 01:03 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 01:02 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 00:54 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 01:06 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 00:57 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 01:05 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 01:10 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 01:10 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 00:54 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 00:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 01:16 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 01:15 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:13 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/4052685887.shtml)
-- 2026-06-30 01:14 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/395068.shtml)
-- 2026-06-30 00:55 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/001036.shtml)
-- 2026-06-30 00:53 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/29175.shtml)
-- 2026-06-30 00:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/171340687.shtml)
-- 2026-06-30 00:59 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/030627.shtml)
-- 2026-06-30 00:51 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/61518449.shtml)
-- 2026-06-30 01:01 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/913978034007.shtml)
-- 2026-06-30 00:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/07762707238.shtml)
-- 2026-06-30 01:06 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/2724194717.shtml)
-- 2026-06-30 01:10 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/35306436426.shtml)
-- 2026-06-30 01:16 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/9191070.shtml)
-- 2026-06-30 00:48 - [恋与深空致歉](https://www.share.minike.top/Article/details/390483769620.shtml)
-- 2026-06-30 01:15 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/820154432227.shtml)
-- 2026-06-30 00:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/19385356817.shtml)
+- 2026-06-30 01:12 - [恋与深空 日服](https://www.share.minike.top/Article/details/9910846993.shtml)
+- 2026-06-30 01:15 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/3416930739.shtml)
+- 2026-06-30 00:56 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/06343361.shtml)
+- 2026-06-30 00:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/333074337217.shtml)
+- 2026-06-30 01:01 - [第一炉香](https://www.share.kurohicncr.top/Article/details/66131066532.shtml)
+- 2026-06-30 01:05 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/6117286313.shtml)
+- 2026-06-30 01:12 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/4367713543.shtml)
+- 2026-06-30 01:05 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/26071401.shtml)
+- 2026-06-30 00:55 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/0712739.shtml)
+- 2026-06-30 01:07 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/77064949419.shtml)
+- 2026-06-30 01:16 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/691660660.shtml)
+- 2026-06-30 01:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/092573897447.shtml)
+- 2026-06-30 01:15 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/32383568.shtml)
+- 2026-06-30 01:19 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/7921185384.shtml)
+- 2026-06-30 01:08 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/055794005.shtml)

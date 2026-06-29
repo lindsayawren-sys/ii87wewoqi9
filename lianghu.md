@@ -1,57 +1,59 @@
-# 美国CFTC正在调查特朗普3月推迟对德黑兰实施打击前夕 石油期货交易出现的激增现象
+# 通航曙光渐近？美伊达成协议后 霍尔木兹海峡威胁级别下调
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-3月23日清晨，特朗普在社交媒体发文宣布推迟打击伊朗能源基础设施，就在此消息发布前夕，盘外时段市场突然出现大批异动交易。据伦敦证券交易所集团数据显示，短短数分钟内，价值超8亿美元的美国及国际原油期货完成交割。 特朗普态度转变后，美原油价格暴跌至多13%，精准押注此次行情的交易员顺势获利。媒体查阅的交易记录显示，按成交量加权均价核算，当日至少五家机构通过原油期货买卖斩获500万美
+来源：财联社 财联社6月18日讯（编辑 刘蕊）随着美伊宣布达成谅解备忘录，美国领导的海军联盟本周向航运公司发布通告称，穿越霍尔木兹海峡的船舶所面临的威胁评级已有所降低，不过航运公司在航行时仍应警惕袭击风险。 威胁评级有所下调 联合海上信息中心（JMIC）发表最新公告，将霍尔木兹地区的威胁等级从“严重（Severe）”下调至“显著（Substantial）”。该中心是总部位于巴林
 
 ## 正文
 
-3月23日清晨，特朗普在社交媒体发文宣布推迟打击伊朗能源基础设施，就在此消息发布前夕，盘外时段市场突然出现大批异动交易。
+来源：财联社 财联社6月18日讯（编辑 刘蕊）随着美伊宣布达成谅解备忘录，美国领导的海军联盟本周向航运公司发布通告称，穿越霍尔木兹海峡的船舶所面临的威胁评级已有所降低，不过航运公司在航行时仍应警惕袭击风险。
 
-据伦敦证券交易所集团数据显示，短短数分钟内，价值超8亿美元的美国及国际原油期货完成交割。
+威胁评级有所下调 联合海上信息中心（JMIC）发表最新公告，将霍尔木兹地区的威胁等级从“严重（Severe）”下调至“显著（Substantial）”。
 
-特朗普态度转变后，美原油价格暴跌至多13%，精准押注此次行情的交易员顺势获利。
+该中心是总部位于巴林的海上安全组织，负责协调中东地区盟军海军与商船之间的行动。
 
-媒体查阅的交易记录显示，按成交量加权均价核算，当日至少五家机构通过原油期货买卖斩获500万美元或更多收益。
+然而，联合海上信息中心在通告中指出，航运公司在航行时仍需保持警惕，因为“仍存在较大的袭击可能性”。
 
-美国商品期货交易委员会现已着手核查此次异常放量交易。
+水雷依然构成威胁，“所有接近区域均应保持谨慎”。
 
-知情人士透露，这家期货市场监管机构正调查是否有内部人事先知晓特朗普此次表态，并利用该内幕信息交易，或是将消息外泄牟利。
+此前，JMIC在6月4日才将霍尔木兹的安全状况定为“关键（Critical）”，这是其发布的最高威胁等级。
 
-据查阅的文件及知情人士透露，美国商品期货交易委员会此次调查至少重点关注三家机构。
+6月7日，JMIC又将霍尔木兹的威胁评估从“关键（Critical）”下调至“严重（Severe）”，这是第二高的级别， 根据JMIC的最新公告，随着美伊协议的公布，伊朗革命卫队的行为“已变得不那么激进”。
 
-文件显示，伦敦投资机构库比研究技术公司在相关交易中获利约500万美元，福尔扎基金净赚约1000万美元，法国道达尔能源旗下交易子公司托萨则获利约20万美元。
+通告还提到，美国海军仍在持续“提供稳定监督”。
 
 ## 相关推荐
 
-- 2026-06-30 00:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 00:59 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 00:53 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 00:57 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 01:15 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 00:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 01:04 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 00:51 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 01:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 01:11 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 00:54 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 01:11 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 01:23 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 01:19 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 00:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 01:07 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 01:01 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 01:14 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 01:04 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 01:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 01:07 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 01:11 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 01:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 01:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:48 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/92852199.shtml)
-- 2026-06-30 00:55 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/9528956.shtml)
-- 2026-06-30 00:55 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/45839011.shtml)
-- 2026-06-30 00:57 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/19960.shtml)
-- 2026-06-30 01:02 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/974155.shtml)
-- 2026-06-30 01:17 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/0457216010.shtml)
-- 2026-06-30 00:49 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/619672.shtml)
-- 2026-06-30 00:57 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/414780.shtml)
-- 2026-06-30 01:12 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/712594948.shtml)
-- 2026-06-30 01:02 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/0587630264.shtml)
-- 2026-06-30 01:10 - [新官上任三把火](https://www.share.minike.top/Article/details/448716242.shtml)
-- 2026-06-30 00:49 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/54794525580.shtml)
-- 2026-06-30 01:11 - [美股](https://www.blog.kurohicncr.top/Article/details/0515859.shtml)
-- 2026-06-30 01:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/921921066531.shtml)
-- 2026-06-30 01:04 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/676422347.shtml)
+- 2026-06-30 01:05 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/46876235.shtml)
+- 2026-06-30 00:55 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/9918774598.shtml)
+- 2026-06-30 01:06 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/1597937.shtml)
+- 2026-06-30 00:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/9842267.shtml)
+- 2026-06-30 01:17 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/495191820524.shtml)
+- 2026-06-30 01:16 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/14461.shtml)
+- 2026-06-30 01:08 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/20621.shtml)
+- 2026-06-30 01:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/95184940.shtml)
+- 2026-06-30 01:04 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/2475498.shtml)
+- 2026-06-30 01:21 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/02314.shtml)
+- 2026-06-30 00:54 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/9838790020.shtml)
+- 2026-06-30 01:07 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/651998934.shtml)
+- 2026-06-30 01:17 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/666015311.shtml)
+- 2026-06-30 01:15 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/15665404.shtml)
+- 2026-06-30 01:00 - [一见倾心](http://www.share.kurohicncr.top/Article/details/67423781.shtml)

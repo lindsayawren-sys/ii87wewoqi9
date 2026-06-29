@@ -1,57 +1,56 @@
-# 金价短线反弹 关注4500美元关口支撑
+# 广西北部至长江中下游等地有强降雨 东北华北等地多雷阵雨
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-文章来源：新华财经 新华财经北京5月19日电 周一（5月18日），国际金价开盘4531.02美元，最高4585.03美元，最低4480.01美元，收盘报4566.39美元，全天波幅105.02美元，上涨27.00美元美元，涨幅0.59%，日K线呈现带有长下影线的小阳线形态。从整体上来看，金价的4500美元关口暂时失而复得，再次回归4500-4800美元的震荡区间，能否触及区间上
+中新网6月18日电 据中央气象台网站消息，昨日，广东、广西、贵州、重庆等地出现暴雨或大暴雨、局地特大暴雨。未来三天，广西、贵州至长江中下游地区有强降雨过程，各地需关注可能引发的山洪、地质灾害，以及对交通运输、农业生产、户外活动等的影响。东北、华北和内蒙古等地多雷阵雨，局地伴有雷暴大风等强对流天气，关注对交通、城市运行等影响。 广西北部至长江中下游等地有强降雨 18至25日，西南
 
 ## 正文
 
-文章来源：新华财经 新华财经北京5月19日电 周一（5月18日），国际金价开盘4531.02美元，最高4585.03美元，最低4480.01美元，收盘报4566.39美元，全天波幅105.02美元，上涨27.00美元美元，涨幅0.59%，日K线呈现带有长下影线的小阳线形态。
+中新网6月18日电 据中央气象台网站消息，昨日，广东、广西、贵州、重庆等地出现暴雨或大暴雨、局地特大暴雨。
 
-从整体上来看，金价的4500美元关口暂时失而复得，再次回归4500-4800美元的震荡区间，能否触及区间上限，短期需要重点关注4625美元一线阻力。
+未来三天，广西、贵州至长江中下游地区有强降雨过程，各地需关注可能引发的山洪、地质灾害，以及对交通运输、农业生产、户外活动等的影响。
 
-基本面上看，美伊谈判依旧存在较大不确定性。
+东北、华北和内蒙古等地多雷阵雨，局地伴有雷暴大风等强对流天气，关注对交通、城市运行等影响。
 
-而在经济数据层面，周一暂无重磅宏观数据扰动，市场焦点集中在利率与债市定价上。
+广西北部至长江中下游等地有强降雨 18至25日，西南地区东部和南部、江汉、江淮、江南、华南西部等地将有大到暴雨，部分地区有大暴雨，局地特大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
 
-市场普遍预期美联储维持利率不变，且加息可能性有所上升，这一政策预期仍然对金价构成压制。
+6月18日8时至19日8时，河南南部、江淮、江汉、江南北部、西南地区东部、华南中西部等地部分地区有大到暴雨，其中，湖北中部、湖南西部、贵州西南部、广西中北部等地部分地区有大暴雨(100～240毫米)。
 
-但是，摩根大通表示，本月美债收益率大幅上行或已接近峰值，市场对政策前景的定价较机构基准情景更为鹰派。
+上述部分地区伴有短时强降水(最大小时降雨量30～60毫米，局地可超过90毫米)，局地有雷暴大风等强对流天气。
 
-收益率见顶预期也缓解了金价下行压力。
+中央气象台6月18日6时发布暴雨黄色预警。
 
-此外，美元指数在逼近100关口受阻回落，为金价回升提供助力。
+东北华北等地多雷阵雨 未来三天，内蒙古中东部、东北地区、华北、黄淮等地多阵雨或雷阵雨天气，以小到中雨为主，局地大雨或暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
 
 ## 相关推荐
 
-- 2026-06-30 01:12 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 01:02 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 01:12 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 00:48 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 00:53 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 01:06 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 01:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 01:16 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 00:49 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 01:01 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 01:11 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 01:08 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 01:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 01:05 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 01:21 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 00:56 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 01:02 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 01:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 00:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 01:17 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 01:12 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/0422320.shtml)
-- 2026-06-30 01:14 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/679426892560.shtml)
-- 2026-06-30 00:51 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/0859494.shtml)
-- 2026-06-30 00:48 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/0562637.shtml)
-- 2026-06-30 01:08 - [我们的少年时代2](https://www.blog.minike.top/Article/details/66749944.shtml)
-- 2026-06-30 00:58 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/18075555204.shtml)
-- 2026-06-30 00:48 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/8420696578.shtml)
-- 2026-06-30 01:09 - [绘画区你赢了](https://www.blog.minike.top/Article/details/659371802329.shtml)
-- 2026-06-30 00:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/55042004.shtml)
-- 2026-06-30 00:55 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/6100261.shtml)
-- 2026-06-30 01:08 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/906169628.shtml)
-- 2026-06-30 00:59 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/3876913988.shtml)
-- 2026-06-30 01:07 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/15504297753.shtml)
-- 2026-06-30 00:51 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/01653601.shtml)
-- 2026-06-30 01:03 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/057390.shtml)
+- 2026-06-30 00:54 - [明星大侦探第四季](https://www.share.minike.top/Article/details/777223347359.shtml)
+- 2026-06-30 01:08 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/293092.shtml)
+- 2026-06-30 01:15 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/16547175.shtml)
+- 2026-06-30 01:13 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/21283298.shtml)
+- 2026-06-30 01:02 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/421962517.shtml)
+- 2026-06-30 00:55 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/295264185.shtml)
+- 2026-06-30 00:55 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/4125575893.shtml)
+- 2026-06-30 01:18 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/84190.shtml)
+- 2026-06-30 01:01 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/126721786918.shtml)
+- 2026-06-30 00:57 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/42466841029.shtml)
+- 2026-06-30 01:15 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/791905.shtml)
+- 2026-06-30 01:14 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/109883738.shtml)
+- 2026-06-30 00:57 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/524371792.shtml)
+- 2026-06-30 01:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/90634068297.shtml)
+- 2026-06-30 00:57 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/579526857748.shtml)

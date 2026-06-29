@@ -1,56 +1,59 @@
-# 禾赛预计Q2营收8.5亿至9亿元，全年激光雷达出货量剑指350万颗
+# 坦桑尼亚小伙续写中非杂技“甲子缘”
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-禾赛科技周二公布2026年第一季度财报，并给出乐观业绩指引。公司预计第二季度净营收为8.5亿至9亿元人民币，同比增长20%至27%；同时重申2026年全年激光雷达出货量预计为300万至350万颗。 Q1业绩亮眼，扭亏为盈 财报显示，禾赛一季度实现营收6.81亿元，同比增长29.6%；净利润1830万元，实现扭亏为盈。按Non-GAAP计算，净利润达4770万元，同比增长452.
+中新社河北沧州6月18日电(记者 赵安源)圆管剧烈晃动，演员层层叠加，在失衡的边缘构筑平衡——这不是特效，而是坦桑尼亚哈库纳马塔塔杂技团在“长城杯”中外精品杂技艺术周开幕式上带来的杂技绝技《集体晃管》。 “来到中国，是坦桑尼亚杂技回到了源头。”17日晚，专程带领团队来河北吴桥参加艺术周开幕式的坦桑尼亚哈库纳马塔塔杂技团队长穆罕默德·塔代伊告诉中新社记者，对他而言，“杂技”是师父
 
 ## 正文
 
-禾赛科技周二公布2026年第一季度财报，并给出乐观业绩指引。
+中新社河北沧州6月18日电(记者 赵安源)圆管剧烈晃动，演员层层叠加，在失衡的边缘构筑平衡——这不是特效，而是坦桑尼亚哈库纳马塔塔杂技团在“长城杯”中外精品杂技艺术周开幕式上带来的杂技绝技《集体晃管》。
 
-公司预计第二季度净营收为8.5亿至9亿元人民币，同比增长20%至27%；同时重申2026年全年激光雷达出货量预计为300万至350万颗。
+“来到中国，是坦桑尼亚杂技回到了源头。
 
-Q1业绩亮眼，扭亏为盈 财报显示，禾赛一季度实现营收6.81亿元，同比增长29.6%；净利润1830万元，实现扭亏为盈。
+”17日晚，专程带领团队来河北吴桥参加艺术周开幕式的坦桑尼亚哈库纳马塔塔杂技团队长穆罕默德·塔代伊告诉中新社记者，对他而言，“杂技”是师父手把手传授的技艺，更是跨越60年的坦中情缘。
 
-按Non-GAAP计算，净利润达4770万元，同比增长452.9%。
+1965年，坦桑尼亚时任总统尼雷尔访华，提出希望中方帮助培养杂技人才。
 
-激光雷达总出货量达47.17万台，同比增长140.9%，其中ADAS出货35.34万台，机器人领域出货11.83万台，均创历史新高。
+经中央批准，武汉杂技团承接援外教学任务。
 
-市场份额断层领先 据盖世汽车研究院数据，2026年3月禾赛在中国车载主激光雷达市场份额达55%，连续14个月蝉联行业第一。
+同年10月，30余名坦桑尼亚青年来到中国武汉，从“腰、腿、顶、跟斗”学起，精研了近20个中国传统杂技节目。
 
-国际权威研究机构Yole Group报告显示，禾赛以43%的市占率位居全球ADAS主激光雷达出货量第一。
+彼时，穆罕默德·塔代伊的师父拉贾布·祖瓦正是这批学员中的一位。
 
-战略升维与新业务布局 公司宣布战略升维，从“空间感知”进化为“空间智能”，并发布全球首款6D全彩激光雷达超感光芯片“毕加索”。
+“师父手把手教我空翻、倒立、平衡等技艺，让我成长为专业杂技演员。
 
 ## 相关推荐
 
-- 2026-06-30 00:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 00:50 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 01:06 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 01:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 00:52 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 01:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 01:01 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 00:59 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 01:01 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 00:56 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 01:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 01:05 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 01:23 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 01:15 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 01:09 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 01:12 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 01:06 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 01:04 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 00:55 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 01:21 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 01:05 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 01:21 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 00:58 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/151334401.shtml)
-- 2026-06-30 00:56 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/15461.shtml)
-- 2026-06-30 00:55 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/32307854262.shtml)
-- 2026-06-30 01:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/74972143.shtml)
-- 2026-06-30 01:03 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/74514274568.shtml)
-- 2026-06-30 01:12 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/32419939.shtml)
-- 2026-06-30 01:03 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/9180786.shtml)
-- 2026-06-30 00:59 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/31410133.shtml)
-- 2026-06-30 01:06 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/96755459.shtml)
-- 2026-06-30 01:02 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/924887.shtml)
-- 2026-06-30 01:05 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/523790189848.shtml)
-- 2026-06-30 01:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/97353371.shtml)
-- 2026-06-30 00:52 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/644057123972.shtml)
-- 2026-06-30 01:06 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/2489957.shtml)
-- 2026-06-30 01:13 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/59023685.shtml)
+- 2026-06-30 01:18 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/4587072686.shtml)
+- 2026-06-30 01:04 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/866575.shtml)
+- 2026-06-30 01:15 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/04669659228.shtml)
+- 2026-06-30 01:02 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/5559065.shtml)
+- 2026-06-30 00:56 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/61814.shtml)
+- 2026-06-30 01:03 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/701330.shtml)
+- 2026-06-30 00:54 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/9825204209.shtml)
+- 2026-06-30 01:13 - [起风了](https://www.blog.minike.top/Article/details/03088255961.shtml)
+- 2026-06-30 01:16 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/254365.shtml)
+- 2026-06-30 01:06 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/745391.shtml)
+- 2026-06-30 01:09 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/9784567.shtml)
+- 2026-06-30 01:13 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/31557503340.shtml)
+- 2026-06-30 01:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/1166824152.shtml)
+- 2026-06-30 00:59 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/1413498.shtml)
+- 2026-06-30 01:06 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/5704388.shtml)

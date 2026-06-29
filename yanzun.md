@@ -1,57 +1,61 @@
-# A股“股王”激战！近1个月来频繁易主
+# 端午小长假叠加避暑游热潮 黑龙江机场集团预计运送旅客超18万人次
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 刘夏菲 5月18日，A股“股王”再易主。截至当日收盘，联讯仪器（688808.SH）涨近15%，报1344.99元/股，登顶A股“股王”。 值得注意的是，联讯仪器在4月24日登陆科创板，上市仅仅14个交易日。该股发行价为81.88元/股，上市首日以799元/股收盘，涨幅高达875.83%。上市第5个交易日（4月30日），联讯仪器即跻身“千元股”之列。 国泰
+中新网哈尔滨6月17日电 (刘烨)2026年端午小长假将至，端午假期叠加毕业旅行和龙江避暑旅游热潮，民航出行需求迎来集中释放。端午小长假期间，黑龙江机场集团预计运送旅客18.49万人次，执行航班1419架次，其中哈尔滨机场预计运送旅客16万人次，执行航班1137架次，客流与航班量均保持稳定增长态势。端午假期，黑龙江文旅市场热度提前攀升。近一周以黑龙江为目的地的端午假期机票搜索热
 
 ## 正文
 
-21世纪经济报道记者 刘夏菲 5月18日，A股“股王”再易主。
+中新网哈尔滨6月17日电 (刘烨)2026年端午小长假将至，端午假期叠加毕业旅行和龙江避暑旅游热潮，民航出行需求迎来集中释放。
 
-截至当日收盘，联讯仪器（688808.SH）涨近15%，报1344.99元/股，登顶A股“股王”。
+端午小长假期间，黑龙江机场集团预计运送旅客18.49万人次，执行航班1419架次，其中哈尔滨机场预计运送旅客16万人次，执行航班1137架次，客流与航班量均保持稳定增长态势。
 
-值得注意的是，联讯仪器在4月24日登陆科创板，上市仅仅14个交易日。
+端午假期，黑龙江文旅市场热度提前攀升。
 
-该股发行价为81.88元/股，上市首日以799元/股收盘，涨幅高达875.83%。
+近一周以黑龙江为目的地的端午假期机票搜索热度持续上涨，客源地覆盖广东、上海、浙江、江苏等地，越来越多游客提前规划来龙江体验端午民俗、观看“东北超”足球赛事、享受凉爽夏日。
 
-上市第5个交易日（4月30日），联讯仪器即跻身“千元股”之列。
+除了长线避暑客流，北京、长春、沈阳、大连等周边城市游客来龙江“微度假”的订单增长较快，不少旅客选择错峰乘机往返，畅享三天假期休闲时光。
 
-国泰海通证券计算机首席分析师杨林团队认为，联讯仪器是国内高端光通信及半导体测试仪器龙头，业绩处于高速增长期；但需注意光通信需求不及预期、竞争加剧影响利润等风险。
+同时，从哈尔滨出发前往俄罗斯符拉迪沃斯托克的直航航线，凭借飞行时间短、签证办理便利的优势，持续吸引京津冀地区游客前往体验异域风情，短途“快闪”出境游保持稳定热度。
 
-事实上，自4月17日以来，A股“股王”已多次易主。
+黑龙江机场集团提示，端午小长假期间建议旅客提前确认出行路线，预留足够的乘机办理时间，出行过程中注意安全，配合机场工作人员指引，平安顺畅欢度端午假期。
 
-4月17日，光芯片龙头源杰科技（688498.SH）以1445元/股的收盘价首次超越贵州茅台（600519.SH）登顶，此后便与贵州茅台展开了多轮拉锯。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 01:02 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 01:06 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 01:02 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 01:09 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 01:06 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 01:03 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 00:50 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 01:13 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 01:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 01:17 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 01:07 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 01:20 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 01:16 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 01:05 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 01:15 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 00:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 01:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 01:09 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 01:00 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 01:14 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 01:22 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 01:05 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 01:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 01:00 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 01:09 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/987021346.shtml)
-- 2026-06-30 00:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/05920171.shtml)
-- 2026-06-30 00:48 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/75304613.shtml)
-- 2026-06-30 01:02 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/96170415.shtml)
-- 2026-06-30 00:59 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/9250379.shtml)
-- 2026-06-30 01:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/27621305335.shtml)
-- 2026-06-30 00:59 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/1180513.shtml)
-- 2026-06-30 01:15 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/15100.shtml)
-- 2026-06-30 01:07 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/2450652803.shtml)
-- 2026-06-30 00:57 - [送你一朵小红花](https://www.share.minike.top/Article/details/18710990.shtml)
-- 2026-06-30 01:10 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/919536729.shtml)
-- 2026-06-30 01:02 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/29546.shtml)
-- 2026-06-30 01:07 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/564592273.shtml)
-- 2026-06-30 00:57 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/9496819996.shtml)
-- 2026-06-30 01:06 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/31578.shtml)
+- 2026-06-30 00:57 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/8994698.shtml)
+- 2026-06-30 00:57 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/633360.shtml)
+- 2026-06-30 01:18 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/7494701678.shtml)
+- 2026-06-30 01:20 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/13854827.shtml)
+- 2026-06-30 01:06 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/05720490150.shtml)
+- 2026-06-30 01:12 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/57964645144.shtml)
+- 2026-06-30 01:18 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/18160287.shtml)
+- 2026-06-30 01:07 - [世界杯](http://www.share.minike.top/Article/details/5525080151.shtml)
+- 2026-06-30 01:03 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/623383471.shtml)
+- 2026-06-30 01:16 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/233276848628.shtml)
+- 2026-06-30 01:06 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/063271192434.shtml)
+- 2026-06-30 01:15 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/26637331761.shtml)
+- 2026-06-30 01:07 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/3775029.shtml)
+- 2026-06-30 01:10 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/95718874934.shtml)
+- 2026-06-30 01:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/41239.shtml)

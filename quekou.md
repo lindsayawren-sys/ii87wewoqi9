@@ -1,60 +1,56 @@
-# 股海导航_2026年5月19日_沪深股市公告与交易提示
+# 韩国股市收盘大涨2.25%，首次突破9000点大关
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【热点】 合肥城建：不涉及半导体、芯片及存储等相关领域，公司与长鑫科技无任何业务往来。 大普微：公司股票将于5月19日停牌核查，预计停牌时间不超过3个交易日。 威龙股份：公司股价短期上涨幅度较大存在市场情绪过热、非理性炒作风险。 京能电力：截至目前公司尚无新投运的大型新能源项目。 索辰科技：
+韩国股市周四大涨逾2%，有史以来首次突破 9000 点大关。由于美联储采取鹰派立场以及伊朗局势不明朗，投资者纷纷押注芯片制造商。 韩国综合股价指数（KOSPI）收盘上涨199.6点，涨幅2.25%，报9063.84点，盘中最高触及9106.07点。 受人工智能（AI）及相关行业乐观情绪提振，该指数连续第六个交易日上涨。 当天成交量巨大，达5.059亿股，成交额达49.9万亿韩元
 
 ## 正文
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+韩国股市周四大涨逾2%，有史以来首次突破 9000 点大关。
 
-【热点】 合肥城建：不涉及半导体、芯片及存储等相关领域，公司与长鑫科技无任何业务往来。
+由于美联储采取鹰派立场以及伊朗局势不明朗，投资者纷纷押注芯片制造商。
 
-大普微：公司股票将于5月19日停牌核查，预计停牌时间不超过3个交易日。
+韩国综合股价指数（KOSPI）收盘上涨199.6点，涨幅2.25%，报9063.84点，盘中最高触及9106.07点。
 
-威龙股份：公司股价短期上涨幅度较大存在市场情绪过热、非理性炒作风险。
+受人工智能（AI）及相关行业乐观情绪提振，该指数连续第六个交易日上涨。
 
-京能电力：截至目前公司尚无新投运的大型新能源项目。
+当天成交量巨大，达5.059亿股，成交额达49.9万亿韩元（约合327亿美元）。
 
-索辰科技：公司物理AI业务目前尚处于布局初期。
+外资净买入1.3万亿韩元，而散户和机构投资者合计净卖出1.2万亿韩元。
 
-滨化股份：电子级氢氟酸2025年销售收入占公司营收比例为0.43%。
+该指数逆转了隔夜华尔街股市的下跌势头，此前美联储决策者暗示，为抑制通胀，加息势在必行。
 
-新天科技：公司及子公司品牌的产品暂未在液冷行业形成收入。
+韩国未来资产证券公司分析师金锡焕（Kim Seok-hwan）表示，韩国两大芯片制造商三星电子和SK海力士的股价上涨是推动KOSPI指数持续上涨的主要动力。
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 00:48 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 01:06 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 01:06 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 01:07 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 01:08 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 01:14 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 01:03 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 01:08 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 01:12 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-30 01:16 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 00:49 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 00:50 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 00:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 01:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 01:07 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 01:21 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 01:19 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 00:54 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 01:16 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 01:09 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 01:21 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 00:56 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 01:04 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/61922.shtml)
-- 2026-06-30 01:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/5922145850.shtml)
-- 2026-06-30 00:59 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/9227123938.shtml)
-- 2026-06-30 01:06 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/386972200.shtml)
-- 2026-06-30 01:10 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/66572424.shtml)
-- 2026-06-30 00:52 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/70613.shtml)
-- 2026-06-30 01:12 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/7425673.shtml)
-- 2026-06-30 00:53 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/3267331052.shtml)
-- 2026-06-30 01:08 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/40905.shtml)
-- 2026-06-30 00:57 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/6680261.shtml)
-- 2026-06-30 01:14 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/1310030.shtml)
-- 2026-06-30 01:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/1769802.shtml)
-- 2026-06-30 00:58 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/26680853224.shtml)
-- 2026-06-30 01:17 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/204829604032.shtml)
-- 2026-06-30 00:58 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/68743546.shtml)
+- 2026-06-30 01:20 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/4511740368.shtml)
+- 2026-06-30 01:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/15956.shtml)
+- 2026-06-30 01:20 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/616865330988.shtml)
+- 2026-06-30 01:06 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/2554072.shtml)
+- 2026-06-30 01:09 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/60032611430.shtml)
+- 2026-06-30 01:12 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/97613.shtml)
+- 2026-06-30 01:19 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/928652.shtml)
+- 2026-06-30 00:58 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/95107766.shtml)
+- 2026-06-30 01:11 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/3125087.shtml)
+- 2026-06-30 00:59 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/84984771.shtml)
+- 2026-06-30 01:01 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/835814773.shtml)
+- 2026-06-30 01:14 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/06414.shtml)
+- 2026-06-30 00:54 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/95274094639.shtml)
+- 2026-06-30 01:14 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/59575417.shtml)
+- 2026-06-30 00:57 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/12484.shtml)

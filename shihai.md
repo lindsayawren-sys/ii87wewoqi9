@@ -1,56 +1,58 @@
-# 礼来将出席伯恩斯坦第42届年度战略决策会议
+# 五部门组织开展2026年新能源汽车下乡活动
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-参会详情 礼来公司宣布，将出席于2026年5月28日举行的伯恩斯坦第42届年度战略决策会议。礼来首席科学官、礼来研究实验室总裁Daniel M． Skovronsky医学博士将在美国东部时间下午1：30参加炉边谈话。 线上参与方式 届时，礼来投资者网站“网络广播与演示”栏目将提供现场音频直播。会议重播将在同一网站在线保存约90天。 礼来公司总部位于印第安纳波利斯，目前市值超过1
+中新网6月18日电 据工业和信息化部网站消息，为推进美丽乡村建设，活跃线下消费，激发下沉市场消费活力，加快补齐乡村地区绿色出行基础设施短板，推广绿色低碳、智能安全的乡村出行新体验，工业和信息化部、商务部会同国家发展改革委、农业农村部、国家能源局组织开展2026年新能源汽车下乡活动。活动主题为“绿色、低碳、智能、安全——智行千县万镇，绿惠乡村万家”。通知提到，选取满足乡村地区使用
 
 ## 正文
 
-参会详情 礼来公司宣布，将出席于2026年5月28日举行的伯恩斯坦第42届年度战略决策会议。
+中新网6月18日电 据工业和信息化部网站消息，为推进美丽乡村建设，活跃线下消费，激发下沉市场消费活力，加快补齐乡村地区绿色出行基础设施短板，推广绿色低碳、智能安全的乡村出行新体验，工业和信息化部、商务部会同国家发展改革委、农业农村部、国家能源局组织开展2026年新能源汽车下乡活动。
 
-礼来首席科学官、礼来研究实验室总裁Daniel M． Skovronsky医学博士将在美国东部时间下午1：30参加炉边谈话。
+活动主题为“绿色、低碳、智能、安全——智行千县万镇，绿惠乡村万家”。
 
-线上参与方式 届时，礼来投资者网站“网络广播与演示”栏目将提供现场音频直播。
+通知提到，选取满足乡村地区使用需求、口碑好、质量可靠的新能源车型，有关车型目录在“新能源汽车下乡服务平台”公众号中动态更新。
 
-会议重播将在同一网站在线保存约90天。
+落实车购税、车船税减免、县域充换电设施补短板等政策，积极扩大新能源汽车乡村地区消费。
 
-礼来公司总部位于印第安纳波利斯，目前市值超过1万亿美元，是全球最大的制药公司之一。
+深入推进汽车以旧换新进乡村。
 
-责任编辑：张俊 SF065
+在新能源汽车下乡活动中设置以旧换新专区，开展补贴政策宣介推广，提供旧车检测评估回收、补贴申请手续代办等“一站式”服务，进一步提高优惠政策知晓度、覆盖面，便利乡村地区消费者参与享受补贴。
+
+对换购新能源汽车的乡村地区消费者，均可按政策要求申领汽车以旧换新补贴，不受补贴资格数量限制。
+
+加强与“千县万镇新能源汽车消费季”等已有品牌活动统筹融合。
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 00:59 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 01:11 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 00:49 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 01:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 00:52 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 00:57 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 00:53 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 01:06 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 01:16 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 00:52 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 01:10 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 01:13 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 00:58 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 01:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 01:17 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 01:21 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 01:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 01:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 01:04 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 01:01 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 01:06 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 01:09 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 00:55 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 01:06 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 01:10 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/539974643884.shtml)
-- 2026-06-30 01:02 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/9112612112.shtml)
-- 2026-06-30 01:15 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/79119204.shtml)
-- 2026-06-30 01:12 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/0306513.shtml)
-- 2026-06-30 01:09 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/9828250.shtml)
-- 2026-06-30 01:13 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/657076239.shtml)
-- 2026-06-30 01:05 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/026936674660.shtml)
-- 2026-06-30 00:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/86342.shtml)
-- 2026-06-30 01:02 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/238265877.shtml)
-- 2026-06-30 00:58 - [电影后室值得看吗](https://www.share.minike.top/Article/details/125543058.shtml)
-- 2026-06-30 01:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/88827209100.shtml)
-- 2026-06-30 00:53 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/85825.shtml)
-- 2026-06-30 01:05 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/92348103832.shtml)
-- 2026-06-30 00:50 - [巴西vs日本](https://www.share.minike.top/Article/details/8772900451.shtml)
-- 2026-06-30 01:14 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/1365770859.shtml)
+- 2026-06-30 01:01 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/073021.shtml)
+- 2026-06-30 01:14 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/845056374.shtml)
+- 2026-06-30 01:15 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/1854974733.shtml)
+- 2026-06-30 01:23 - [周生如故](http://www.share.kurohicncr.top/Article/details/7772742226.shtml)
+- 2026-06-30 00:55 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/822609792.shtml)
+- 2026-06-30 01:11 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/75558398257.shtml)
+- 2026-06-30 00:54 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/8606681511.shtml)
+- 2026-06-30 01:23 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/45839199.shtml)
+- 2026-06-30 01:15 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/16427.shtml)
+- 2026-06-30 01:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/72146.shtml)
+- 2026-06-30 01:09 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/807870.shtml)
+- 2026-06-30 01:11 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/701791310743.shtml)
+- 2026-06-30 01:17 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/218854.shtml)
+- 2026-06-30 00:58 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/905906207059.shtml)
+- 2026-06-30 01:07 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/3600123.shtml)

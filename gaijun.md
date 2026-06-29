@@ -1,49 +1,60 @@
-# 上交所终止新芯股份科创板上市审核
+# 州立农业保险面向销售代理人推出AI新政引发集体强烈抗议
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！人民财讯5月19日电，上交所公告，日前新芯股份和保荐人国泰海通、华源证券提交申请撤回公司发行上市申请文件。根据《上海证券交易所股票发行上市审核规则》第六十三条的有关规定，交易所决定终止对新芯股份首次公开发行股票并在科创板上市的审核。责任编辑：刘万里 SF014
+保险公司推出 AI 工具并修改 1.9 万名销售代理人的劳务合同，此举意在扭转公司行业地位不断下滑的颓势 内容要点 州立农业保险首席执行官乔恩・法尼宣布，依托人工智能技术迭代与行业变革，所有计划 2027 年后继续任职的代理人必须签署全新劳务合同。 上个月，州立农业保险在拉斯维加斯举办行业大会，盛情款待旗下数千名销售代理人。公司承担所有差旅费用，参会代理人不仅免费观看了粉红乐队
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+保险公司推出 AI 工具并修改 1.9 万名销售代理人的劳务合同，此举意在扭转公司行业地位不断下滑的颓势 内容要点 州立农业保险首席执行官乔恩・法尼宣布，依托人工智能技术迭代与行业变革，所有计划 2027 年后继续任职的代理人必须签署全新劳务合同。
 
-人民财讯5月19日电，上交所公告，日前新芯股份和保荐人国泰海通、华源证券提交申请撤回公司发行上市申请文件。
+上个月，州立农业保险在拉斯维加斯举办行业大会，盛情款待旗下数千名销售代理人。
 
-根据《上海证券交易所股票发行上市审核规则》第六十三条的有关规定，交易所决定终止对新芯股份首次公开发行股票并在科创板上市的审核。
+公司承担所有差旅费用，参会代理人不仅免费观看了粉红乐队专场演唱会、参与吉米・法伦主持的合唱活动，还能和品牌经典形象 “州立农业的杰克” 扮演者合影留念。
 
-责任编辑：刘万里 SF014
+就在这场盛会之上，任职 33 年的公司元老、首席执行官乔恩・法尼在忠诚体育场的舞台上抛出一则重磅消息：公司将废除全体代理人现行劳务合同。
+
+任何希望在 2027 年之后继续从业的代理人，都必须接受全新薪酬方案与业绩考核指标。
+
+《华尔街曰报》获取的现场会议视频显示，法尼在会上表示：“州立农业保险必须做出变革。
+
+” 此次变革的核心驱动力来自人工智能。
+
+这项飞速迭代的技术正在颠覆保险业沿用数十年的线下销售模式，让保险交易变得更高效、成本更低、精准度更高；各类手机应用与智能机器人也彻底重塑了消费者购买保险等金融产品的方式。
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 00:57 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 00:55 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 01:03 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 01:13 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 01:14 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 00:59 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 01:02 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 00:55 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 00:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 01:04 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 01:13 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 00:57 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 01:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 00:58 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 01:22 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 01:08 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 00:55 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 01:08 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 01:07 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 00:59 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 01:13 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 01:03 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 00:57 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 01:19 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/27567812225.shtml)
-- 2026-06-30 01:09 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/6633489810.shtml)
-- 2026-06-30 01:15 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/696421922522.shtml)
-- 2026-06-30 00:49 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/71198511826.shtml)
-- 2026-06-30 01:02 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/3857569403.shtml)
-- 2026-06-30 00:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/5192797.shtml)
-- 2026-06-30 01:17 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/148817.shtml)
-- 2026-06-30 01:11 - [时光音乐会](http://www.share.minike.top/Article/details/70309.shtml)
-- 2026-06-30 00:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/4520859075.shtml)
-- 2026-06-30 01:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/89583477689.shtml)
-- 2026-06-30 01:13 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/1310708.shtml)
-- 2026-06-30 00:55 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/6239895294.shtml)
-- 2026-06-30 01:05 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/21573592.shtml)
-- 2026-06-30 00:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/40906462.shtml)
-- 2026-06-30 01:11 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/6056989457.shtml)
+- 2026-06-30 00:57 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/70521571.shtml)
+- 2026-06-30 01:23 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/48155.shtml)
+- 2026-06-30 00:57 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/57341942000.shtml)
+- 2026-06-30 01:12 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/50962072.shtml)
+- 2026-06-30 00:54 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/60729861481.shtml)
+- 2026-06-30 01:23 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/625315.shtml)
+- 2026-06-30 01:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/7191300.shtml)
+- 2026-06-30 00:56 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/68702592.shtml)
+- 2026-06-30 01:24 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/41088414.shtml)
+- 2026-06-30 01:16 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/2433724.shtml)
+- 2026-06-30 01:10 - [月亮](http://www.blog.minike.top/Article/details/924437859.shtml)
+- 2026-06-30 01:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/59515832116.shtml)
+- 2026-06-30 01:21 - [第一炉香](http://www.blog.minike.top/Article/details/91173.shtml)
+- 2026-06-30 01:12 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/9439454.shtml)
+- 2026-06-30 01:00 - [小娘惹](https://www.share.minike.top/Article/details/95328075198.shtml)

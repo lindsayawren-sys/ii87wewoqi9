@@ -1,54 +1,56 @@
-# 以城为媒，文明互鉴！2026年网络文明国际交流互鉴城市典型案例发布
+# 端午假期铁路运输启动 国铁北京局预计发送旅客689万人次
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 15:52 来源：中国新闻网 一滴水，可以折射太阳的光辉。一座城，可以照见文明的足迹。历史长河中，城市是思想、制度、技术淬炼的熔炉，承载通向繁荣与秩序的梦想。数智浪潮下，城市是网络空间的物理支点，更是文明交流互鉴的数字桥梁。由中国网络空间研究院主办，《中国网信》杂志承办的2026年网络文明国际交流互鉴城市典型案例征集活动，今天隆重揭晓结果。 责
+中新网北京6月18日电 (记者 贾天勇)记者从中国铁路北京局集团有限公司(以下简称：国铁北京局)获悉：2026年端午假期铁路运输期限为6月18日至6月22日，共计5天。国铁北京局预计发送旅客689万人次，同比增长2.5%。客流最高峰预计出现在6月19日，当日预计发送旅客约170万人次。 针对端午假期客流特点，国铁北京局动态实施“一日一图”，加开临客高峰线144.5对，其中长途旅
 
 ## 正文
 
-发布时间：2026年05月19日 15:52 来源：中国新闻网 一滴水，可以折射太阳的光辉。
+中新网北京6月18日电 (记者 贾天勇)记者从中国铁路北京局集团有限公司(以下简称：国铁北京局)获悉：2026年端午假期铁路运输期限为6月18日至6月22日，共计5天。
 
-一座城，可以照见文明的足迹。
+国铁北京局预计发送旅客689万人次，同比增长2.5%。
 
-历史长河中，城市是思想、制度、技术淬炼的熔炉，承载通向繁荣与秩序的梦想。
+客流最高峰预计出现在6月19日，当日预计发送旅客约170万人次。
 
-数智浪潮下，城市是网络空间的物理支点，更是文明交流互鉴的数字桥梁。
+针对端午假期客流特点，国铁北京局动态实施“一日一图”，加开临客高峰线144.5对，其中长途旅客列车75对，主要为沈阳、大连、大同、呼和浩特、郑州、青岛等方向，京津冀区域内旅客列车69.5对，主要为天津、保定、石家庄、邯郸、秦皇岛、张家口等方向。
 
-由中国网络空间研究院主办，《中国网信》杂志承办的2026年网络文明国际交流互鉴城市典型案例征集活动，今天隆重揭晓结果。
+同时，在客流量大的区段和方向，采取加开列车、扩大编组等措施增加运能，并根据预售及候补数据适时加开旅客列车。
 
-责任编辑：【任帅】
+在服务保障方面，国铁北京局坚持以旅客需求为导向，推动一批服务升级在假期前落地。
+
+北京站对站内候车区域实施专项升级，在第四、七候车室增设异形沙发并搭配绿植景观，第八候车室打造小桥、流水、假山中式自然元素休憩区，缓解旅客候车疲惫感。
+
+北京南站新推出脚部安检探测及限定文创三大权益；水陆联动优惠政策持续，列车与海河游船联动，推出津旅时光号普票X海河游船专属联票，游客仅需加价10元，即可升级解锁列车+海河游船升级体验。
 
 ## 相关推荐
 
-- 2026-06-30 00:51 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 00:57 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 01:03 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 01:12 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 01:13 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 01:06 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 00:59 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 01:13 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 01:10 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 00:49 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 01:14 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 00:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 01:18 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 01:04 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 01:18 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 00:57 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 00:55 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 01:02 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 01:03 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 00:54 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 01:16 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 00:57 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/163221408921.shtml)
-- 2026-06-30 01:12 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/10929.shtml)
-- 2026-06-30 00:49 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/794261681497.shtml)
-- 2026-06-30 00:53 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/62222209492.shtml)
-- 2026-06-30 01:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/641080.shtml)
-- 2026-06-30 01:10 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/8894730953.shtml)
-- 2026-06-30 01:16 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/11546817.shtml)
-- 2026-06-30 00:52 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/150316.shtml)
-- 2026-06-30 00:52 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/25976609874.shtml)
-- 2026-06-30 01:11 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/01349178137.shtml)
-- 2026-06-30 01:06 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/858950735097.shtml)
-- 2026-06-30 00:51 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/93181439997.shtml)
-- 2026-06-30 01:03 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/743980.shtml)
-- 2026-06-30 00:48 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/4487094.shtml)
-- 2026-06-30 00:52 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/2717926272.shtml)
+- 2026-06-30 01:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/189733334058.shtml)
+- 2026-06-30 00:59 - [一生一世](http://www.blog.kurohicncr.top/Article/details/783905.shtml)
+- 2026-06-30 01:16 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/447836.shtml)
+- 2026-06-30 01:02 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/25778.shtml)
+- 2026-06-30 01:17 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/10030196512.shtml)
+- 2026-06-30 00:56 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/613808372.shtml)
+- 2026-06-30 01:10 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/9524923.shtml)
+- 2026-06-30 01:02 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/645724363123.shtml)
+- 2026-06-30 01:01 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/12468541.shtml)
+- 2026-06-30 01:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/1955661491.shtml)
+- 2026-06-30 01:12 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/00965832693.shtml)
+- 2026-06-30 00:55 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/3767149536.shtml)
+- 2026-06-30 00:57 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/4930166.shtml)
+- 2026-06-30 01:18 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/2367374284.shtml)
+- 2026-06-30 00:56 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/58952.shtml)

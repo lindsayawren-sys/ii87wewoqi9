@@ -1,59 +1,54 @@
-# 金石控股集团附属拟出资1000万元参与投资合伙企业
+# 伊朗外长与俄外长通电话 讨论美伊谅解备忘录
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-金石控股集团（01943）发布公告，于2026年5月16日，本公司的附属公司深圳恒宸宇（作为有限合伙人）与广东芯动能源（作为普通合伙人及执行事务合伙人）、北京国交英华（作为普通合伙人）、北京兆瑄电力（作为有限合伙人）及北京国交中兴（作为有限合伙人）订立合伙协议，以共同投资合伙企业（广州芯动长擎投资合伙企业（有限合伙）），合伙期限为十年。据此，深圳恒宸宇同意作为有限合伙人参与投资
+当地时间17日，俄罗斯外长拉夫罗夫与伊朗外长阿拉格齐通电话，就美伊谅解备忘录及一些地区和双边议题进行了讨论。 阿拉格齐在通话中介绍了该谅解备忘录的相关细节，并强调美国对其条款的良好执行负有责任，同时强调必须彻底停止以色列对黎巴嫩的袭击。 拉夫罗夫对该谅解备忘录文本最终敲定表示欢迎，并重申俄方完全支持其条款的实施。 两国外长指出，国际社会及联合国安理会有必要支持该协议，同时强调应
 
 ## 正文
 
-金石控股集团（01943）发布公告，于2026年5月16日，本公司的附属公司深圳恒宸宇（作为有限合伙人）与广东芯动能源（作为普通合伙人及执行事务合伙人）、北京国交英华（作为普通合伙人）、北京兆瑄电力（作为有限合伙人）及北京国交中兴（作为有限合伙人）订立合伙协议，以共同投资合伙企业（广州芯动长擎投资合伙企业（有限合伙）），合伙期限为十年。
+当地时间17日，俄罗斯外长拉夫罗夫与伊朗外长阿拉格齐通电话，就美伊谅解备忘录及一些地区和双边议题进行了讨论。
 
-据此，深圳恒宸宇同意作为有限合伙人参与投资合伙企业，认缴出资人民币1000万元。
+阿拉格齐在通话中介绍了该谅解备忘录的相关细节，并强调美国对其条款的良好执行负有责任，同时强调必须彻底停止以色列对黎巴嫩的袭击。
 
-合伙企业增资后的认缴出资总额为人民币3560万元，深圳恒宸宇将占合伙企业认缴出资总额的28.09%。
+拉夫罗夫对该谅解备忘录文本最终敲定表示欢迎，并重申俄方完全支持其条款的实施。
 
-合伙企业的主要投资目的为全体合伙人认可的新能源的投资，以及合伙企业有盈余条件下的其他全体合伙人认可的新能源业务，使合伙企业取得最佳经济效益。
+两国外长指出，国际社会及联合国安理会有必要支持该协议，同时强调应继续加强地区国家间的外交合作，以实现地区和平与稳定。
 
-本集团一直积极寻找具有潜力的投资机会，以拓宽本集团的收入来源并提升股东价值。
+双方还就双边关系中的若干问题交换意见，并同意继续跟进相关事项并加以落实。
 
-合伙企业重点投资于新能源领域相关业务。
-
-董事会认为，新型储能及新能源行业受国家政策大力支持，具有广阔的市场前景和增长潜力。
-
-透过参与投资合伙企业，本集团可借助普通合伙人及其他合伙人在相关领域的专业知识及资源，以较低风险涉足新能源产业，符合本集团的长期发展战略。
+(总台记者 魏然)
 
 ## 相关推荐
 
-- 2026-06-30 00:51 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 01:00 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-30 01:08 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 00:58 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 00:56 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 01:04 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 00:56 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 00:59 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 01:09 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 00:51 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 01:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 00:55 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 01:14 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 01:10 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 01:18 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 01:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 00:58 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 01:18 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 01:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 01:09 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-30 01:12 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 00:55 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 01:07 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 00:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 01:04 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:10 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/111757847.shtml)
-- 2026-06-30 01:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/0362492.shtml)
-- 2026-06-30 00:51 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/132420.shtml)
-- 2026-06-30 00:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/1403864777.shtml)
-- 2026-06-30 01:15 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/32780549.shtml)
-- 2026-06-30 01:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/296394.shtml)
-- 2026-06-30 00:57 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/015181.shtml)
-- 2026-06-30 00:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/6436340.shtml)
-- 2026-06-30 00:50 - [毒液2](http://www.blog.minike.top/Article/details/974363392.shtml)
-- 2026-06-30 00:59 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/25539036600.shtml)
-- 2026-06-30 01:14 - [流金岁月](http://www.blog.minike.top/Article/details/65315982.shtml)
-- 2026-06-30 01:16 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/4179178303.shtml)
-- 2026-06-30 01:01 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/508960.shtml)
-- 2026-06-30 01:13 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/661136.shtml)
-- 2026-06-30 00:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/63027205.shtml)
+- 2026-06-30 01:11 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/120188253992.shtml)
+- 2026-06-30 01:07 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/90897.shtml)
+- 2026-06-30 00:56 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/39878692.shtml)
+- 2026-06-30 00:54 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/67782.shtml)
+- 2026-06-30 00:55 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/02309187639.shtml)
+- 2026-06-30 00:58 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/483573.shtml)
+- 2026-06-30 01:15 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/12510.shtml)
+- 2026-06-30 01:18 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/6244176.shtml)
+- 2026-06-30 01:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/4126630346.shtml)
+- 2026-06-30 01:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/326886833661.shtml)
+- 2026-06-30 01:07 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/64528097.shtml)
+- 2026-06-30 01:09 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/83911.shtml)
+- 2026-06-30 00:54 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/433458.shtml)
+- 2026-06-30 01:24 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/415360424761.shtml)
+- 2026-06-30 01:16 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/83114890342.shtml)

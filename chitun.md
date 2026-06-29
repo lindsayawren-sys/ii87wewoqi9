@@ -1,58 +1,56 @@
-# 早盘：美股继续下滑 纳指下跌0.6%
+# 巨星之日！美加墨世界杯三大球星亮相，他们首战创下了哪些纪录？
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-北京时间5月19日晚，美股周二早盘继续下跌，纳指下跌0.6%。引领AI牛市的芯片股继续遭到抛售。美国国债收益率攀升令股指承压。交易员还关注美国总统特朗普取消对伊朗打击计划后的石油市场。 道指跌108.11点，跌幅为0.22%，报49578.01点；纳指跌166.70点，跌幅为0.64%，报25924.04点；标普500指数跌26.53点，跌幅为0.36%，报7376.52点。
+中新网北京6月17日电 题：巨星之日！姆巴佩、哈兰德、梅西相继亮相，他们首战创下哪些纪录？ 作者 刘梦青 邢翀 当地时间16日，美加墨世界杯小组赛迎来巨星大放异彩的一天，本届杯赛三大顶级球星姆巴佩、哈兰德、梅西接连登场，姆巴佩、哈兰德先后完成双响，梅西上演帽子戏法，首战即表现出强大战力，各自更是创下一系列纪录。 姆巴佩：打破质疑，成就法国队史第一射手面对24年前爆冷击败自己的塞
 
 ## 正文
 
-北京时间5月19日晚，美股周二早盘继续下跌，纳指下跌0.6%。
+中新网北京6月17日电 题：巨星之日！
 
-引领AI牛市的芯片股继续遭到抛售。
+姆巴佩、哈兰德、梅西相继亮相，他们首战创下哪些纪录？
 
-美国国债收益率攀升令股指承压。
+作者 刘梦青 邢翀 当地时间16日，美加墨世界杯小组赛迎来巨星大放异彩的一天，本届杯赛三大顶级球星姆巴佩、哈兰德、梅西接连登场，姆巴佩、哈兰德先后完成双响，梅西上演帽子戏法，首战即表现出强大战力，各自更是创下一系列纪录。
 
-交易员还关注美国总统特朗普取消对伊朗打击计划后的石油市场。
+姆巴佩：打破质疑，成就法国队史第一射手面对24年前爆冷击败自己的塞内加尔队，夺冠热门法国队欲一雪前耻。
 
-道指跌108.11点，跌幅为0.22%，报49578.01点；纳指跌166.70点，跌幅为0.64%，报25924.04点；标普500指数跌26.53点，跌幅为0.36%，报7376.52点。
+然而上半场的姆巴佩和法国队的表现让人大跌眼镜，射门次数1:5落后，预期进球只有可怜的0.02。
 
-债券市场给牛市增添了新的变数，美国10年期和30年期国债收益率在周一交易中触及2025年初以来的最高水平之后继续攀升。
+0次射门、3次尝试过人失败、丢失球权7次的姆巴佩，让球迷捏了一把汗。
 
-随着投资者对通胀加速的担忧加剧，引发全球债券市场抛售，最长期限的美国国债收益率升至近二十年来最高水平。
+但下半场风云突变，第66分钟，奥利塞的直塞唤醒了沉睡的“高卢雄鸡”：姆巴佩接球转身一气呵成，低射远角打破僵局。
 
-30年期美国国债收益率周二上涨5个基点，至5.18%。
+补时最后时刻，塞内加尔刚扳回一城，姆巴佩就在禁区弧顶附近轰出一记石破天惊的世界波。
 
 ## 相关推荐
 
-- 2026-06-30 00:49 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 01:07 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 01:09 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 01:06 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 01:07 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 01:16 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 01:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 01:09 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 01:08 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 01:12 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 00:57 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 00:55 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 00:58 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 01:12 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 01:18 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 00:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 01:22 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 01:15 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 01:17 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 01:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 01:19 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 01:14 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:16 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/794769726.shtml)
-- 2026-06-30 01:07 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/1898924732.shtml)
-- 2026-06-30 01:13 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/131132604063.shtml)
-- 2026-06-30 01:07 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/07630429096.shtml)
-- 2026-06-30 01:09 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/768509983279.shtml)
-- 2026-06-30 00:52 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/8766407601.shtml)
-- 2026-06-30 00:51 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/42117405.shtml)
-- 2026-06-30 01:03 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/990126.shtml)
-- 2026-06-30 01:00 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/7309504.shtml)
-- 2026-06-30 01:12 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/6072520054.shtml)
-- 2026-06-30 01:12 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/71344.shtml)
-- 2026-06-30 00:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/969989693.shtml)
-- 2026-06-30 00:49 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/92290838.shtml)
-- 2026-06-30 01:02 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/92007.shtml)
-- 2026-06-30 01:06 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/6606264068.shtml)
+- 2026-06-30 01:03 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/408832.shtml)
+- 2026-06-30 01:15 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/162289688.shtml)
+- 2026-06-30 01:11 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/652391097.shtml)
+- 2026-06-30 01:03 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/0833322.shtml)
+- 2026-06-30 01:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/6081263.shtml)
+- 2026-06-30 01:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/70257854375.shtml)
+- 2026-06-30 01:23 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/64557345264.shtml)
+- 2026-06-30 01:10 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/957390791805.shtml)
+- 2026-06-30 01:08 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/65392656737.shtml)
+- 2026-06-30 01:04 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/4437887.shtml)
+- 2026-06-30 01:19 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/790645150935.shtml)
+- 2026-06-30 01:05 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/00711218820.shtml)
+- 2026-06-30 00:58 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/18199320353.shtml)
+- 2026-06-30 00:58 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/443263395910.shtml)
+- 2026-06-30 00:55 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/655244.shtml)

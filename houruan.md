@@ -1,59 +1,61 @@
-# 美国玉米现货飙升，受中国巨额采购承诺提振
+# 连亏三年的凯旺科技拟收购液冷资产，两家标的企业疑似关系紧密
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-（来源：粮信网） 外媒5月18日消息：周一（5月18日），美国玉米现货市场大幅上涨。，因为白宫宣布中国承诺未来三年每年额外采购170亿美元美国农产品，以及美国玉米带遭遇严重风暴灾害。 美国农业部每日天气报告显示，强烈的暴风雨天气导致玉米带出现龙卷风和山洪，平原地区的风暴给堪萨斯州和南达科他州带来了大风和冰雹灾害。 出口方面，美国农业部出口检验数据显示，截至5月14日当周，美国玉
+界面新闻记者 赵阳戈 凯旺科技（301182.SZ）正试图描画出自己的第二增长曲线。6月11日，这家在安防线缆领域深耕多年的公司发布公告，拟以现金收购两家五金制品企业不低于51%的股权，由此切入炙手可热的“液冷散热”赛道。 界面新闻注意到，凯旺科技已连亏三年，进入2026年也依然没有摆脱亏损的泥潭。从这个角度来看，凯旺科技的这场并购，既是抓住时代机遇的跨界，又是一场关于生存的自
 
 ## 正文
 
-（来源：粮信网） 外媒5月18日消息：周一（5月18日），美国玉米现货市场大幅上涨。
+界面新闻记者 赵阳戈 凯旺科技（301182.SZ）正试图描画出自己的第二增长曲线。
 
-，因为白宫宣布中国承诺未来三年每年额外采购170亿美元美国农产品，以及美国玉米带遭遇严重风暴灾害。
+6月11日，这家在安防线缆领域深耕多年的公司发布公告，拟以现金收购两家五金制品企业不低于51%的股权，由此切入炙手可热的“液冷散热”赛道。
 
-美国农业部每日天气报告显示，强烈的暴风雨天气导致玉米带出现龙卷风和山洪，平原地区的风暴给堪萨斯州和南达科他州带来了大风和冰雹灾害。
+界面新闻注意到，凯旺科技已连亏三年，进入2026年也依然没有摆脱亏损的泥潭。
 
-出口方面，美国农业部出口检验数据显示，截至5月14日当周，美国玉米出口检验量为138万吨，虽低于前一周和去年同期水平，但是中国采购承诺为未来出口打开了想象空间。
+从这个角度来看，凯旺科技的这场并购，既是抓住时代机遇的跨界，又是一场关于生存的自救。
 
-周一，美湾6月船期的2号黄玉米现货报价为每蒲5.61美元，相当于每吨220.9美元，比上个交易日上涨21.25美分．高于去年同期的5.12美元。
+只不过由于尽调尚在进行，标的资产依然未完全露出庐山真面目，结果如何还需等待后续进展。
 
-路易斯安那湾的基差是比CBOT的7月玉米期价高出84美分。
+寻找第二曲线 近日，凯旺科技的一则公告，引起市场注意。
 
-在伊利诺伊州中部地区，玉米加工厂收购二号黄玉米的报价平均为每蒲4.7283美元，比上个交易日上涨22.25美分，远高于去年同期的4.4533美元；基差报价比CBOT的7月玉米期货低22到高12美分。
+公告显示，凯旺科技拟筹划以现金方式收购东莞市秦鼎五金制品有限公司（以下简称“东莞秦鼎”）和东莞市兴鼎五金制品有限公司（以下简称“东莞兴鼎”）不低于51%的股权，交易完成后公司预计将实现对两个标的公司的控股，并纳入公司合并财务报表范围。
 
-周一，芝加哥期货交易所（CBOT）玉米期货大幅上涨，2026年7月玉米收报477美分/蒲，比上个交易日上涨21.25美分；9月玉米期货收报482.25美分/蒲，上涨19.25美分；新季12月玉米收报498美分，上涨17美分。
+“公告发出后，公司已着手准备开展尽职调查”，界面新闻致电凯旺科技，相关负责人表示，目前签署的只是意向协议，是否并购存在不确定。
 
 ## 相关推荐
 
-- 2026-06-30 00:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 01:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 01:06 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 00:58 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 01:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 01:17 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 01:16 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 01:05 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 01:17 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 00:55 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 00:50 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 00:58 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 01:01 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 01:12 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 01:01 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 00:56 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 01:18 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 01:17 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 01:10 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 01:07 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 01:04 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 01:07 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 01:17 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 01:01 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 00:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 01:16 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 00:58 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 01:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/174448.shtml)
-- 2026-06-30 00:50 - [小娘惹](http://www.share.minike.top/Article/details/000924231941.shtml)
-- 2026-06-30 01:10 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/8478067.shtml)
-- 2026-06-30 00:49 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/25234751044.shtml)
-- 2026-06-30 01:03 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/5418045.shtml)
-- 2026-06-30 00:58 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/048149650.shtml)
-- 2026-06-30 01:07 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/45531224217.shtml)
-- 2026-06-30 00:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/166395050.shtml)
-- 2026-06-30 01:11 - [世界杯](https://www.blog.minike.top/Article/details/4912294396.shtml)
-- 2026-06-30 01:02 - [流金岁月](http://www.blog.minike.top/Article/details/63395500.shtml)
-- 2026-06-30 00:59 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/1077814579.shtml)
-- 2026-06-30 01:05 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/54145.shtml)
-- 2026-06-30 01:03 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/5129564392.shtml)
-- 2026-06-30 01:07 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/074482873650.shtml)
-- 2026-06-30 01:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/58408091.shtml)
+- 2026-06-30 00:55 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/992612.shtml)
+- 2026-06-30 01:04 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/5388628862.shtml)
+- 2026-06-30 01:01 - [速度与激情9](https://www.blog.minike.top/Article/details/681654033333.shtml)
+- 2026-06-30 01:12 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/11493.shtml)
+- 2026-06-30 01:20 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/87886.shtml)
+- 2026-06-30 01:07 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/231565766.shtml)
+- 2026-06-30 01:18 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/35110382.shtml)
+- 2026-06-30 01:03 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/139780.shtml)
+- 2026-06-30 01:15 - [扫黑风暴](https://www.blog.minike.top/Article/details/1742824.shtml)
+- 2026-06-30 01:17 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/84406.shtml)
+- 2026-06-30 01:03 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/575856769.shtml)
+- 2026-06-30 01:19 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/8789409.shtml)
+- 2026-06-30 01:03 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/1950613225.shtml)
+- 2026-06-30 01:15 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/9902027.shtml)
+- 2026-06-30 01:07 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/147298539084.shtml)

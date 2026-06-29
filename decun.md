@@ -1,50 +1,59 @@
-# 广东用400多座博物馆，架起了联通世界的“大桥”｜学习粤报
+# 道指跌超500点，芯片股狂欢，黄金跳水
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-一座博物馆，就是一所大学校，也是一座桥梁，联结历史、现在与未来。今年5月18日，第50个国际博物馆日以“博物馆：联结世界的桥梁”为主题，与习近平总书记“博物馆是保护和传承人类文明的重要殿堂，是连接过去、现在、未来的桥梁”的重要论述深度契合。 在南粤大地，400多座博物馆如同星辰遍布，年接待观众首破1亿人次，它们正以独特的方式，讲述着岭南文化自信、活化创新与融通世界的故事。 统筹
+*纳指、标普500指数跌超1%； *中长期美债收益率上扬，10年期美债逼近4.50%； *费城半导体指数涨1.44%。 周三美股收跌， 美联储宣布维持联邦基金利率目标区间3.50%–3.75%不变，新任美联储主席凯文・沃什强调必须压制通胀，多名政策官员预计年内加息，交易员押注美联储下一步将上调利率。 【热门股表现】 明星科技股表现不佳，亚马逊、微软和Meta跌超3%。 Spac
 
 ## 正文
 
-一座博物馆，就是一所大学校，也是一座桥梁，联结历史、现在与未来。
+*纳指、标普500指数跌超1%； *中长期美债收益率上扬，10年期美债逼近4.50%； *费城半导体指数涨1.44%。
 
-今年5月18日，第50个国际博物馆日以“博物馆：联结世界的桥梁”为主题，与习近平总书记“博物馆是保护和传承人类文明的重要殿堂，是连接过去、现在、未来的桥梁”的重要论述深度契合。
+周三美股收跌， 美联储宣布维持联邦基金利率目标区间3.50%–3.75%不变，新任美联储主席凯文・沃什强调必须压制通胀，多名政策官员预计年内加息，交易员押注美联储下一步将上调利率。
 
-在南粤大地，400多座博物馆如同星辰遍布，年接待观众首破1亿人次，它们正以独特的方式，讲述着岭南文化自信、活化创新与融通世界的故事。
+【热门股表现】 明星科技股表现不佳，亚马逊、微软和Meta跌超3%。
 
-统筹：李琳 杨格 策划：倪仕轩 设计：陈伟红 校对：陈学德 (南方网·粤学习)
+SpaceX下跌4.95%，上市以来首次收低。
+
+这家火箭企业上周完成 IPO，发行价135美元，上市短期股价累计大涨约45%，公司市值一度超越亚马逊。
+
+芯片板块整体反弹，费城半导体指数涨1.44%， 博通涨超4%，迈威尔科技涨3.90%，英特尔涨3.46%。
+
+此前英特尔旗下最先进的 18A-P 工艺制程正式投产，距离拿下苹果设备芯片代工合作更近一步。
+
+莫德纳大涨近12%，公司计划在德国扩建生产基地，并有意收购Biotech计划关停的工厂。
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 01:05 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 00:55 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 00:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 01:05 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 00:49 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 01:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 01:16 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 01:17 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 01:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 01:09 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 00:58 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 01:10 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 01:11 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 01:11 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 01:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 01:20 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 01:20 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 01:20 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 01:03 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 01:03 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 01:14 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 00:54 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 00:56 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 01:16 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:00 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/96011.shtml)
-- 2026-06-30 00:52 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/5104640.shtml)
-- 2026-06-30 00:55 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/47018765445.shtml)
-- 2026-06-30 00:57 - [内马尔替补](http://www.share.minike.top/Article/details/7679203.shtml)
-- 2026-06-30 01:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/4643084460.shtml)
-- 2026-06-30 01:06 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/556577381593.shtml)
-- 2026-06-30 00:48 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/5144775.shtml)
-- 2026-06-30 01:08 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/035714.shtml)
-- 2026-06-30 01:11 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/110957619.shtml)
-- 2026-06-30 01:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/10529051401.shtml)
-- 2026-06-30 01:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/826498.shtml)
-- 2026-06-30 00:57 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/58634452.shtml)
-- 2026-06-30 01:09 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/03510324139.shtml)
-- 2026-06-30 01:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/503259836138.shtml)
-- 2026-06-30 00:50 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/02354627.shtml)
+- 2026-06-30 01:07 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/38242987.shtml)
+- 2026-06-30 01:06 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/6065219878.shtml)
+- 2026-06-30 01:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/185108.shtml)
+- 2026-06-30 01:00 - [世界杯](http://www.share.kurohicncr.top/Article/details/08727140.shtml)
+- 2026-06-30 00:58 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/1241927.shtml)
+- 2026-06-30 00:56 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/343585.shtml)
+- 2026-06-30 01:08 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/930623671.shtml)
+- 2026-06-30 01:02 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/3439993.shtml)
+- 2026-06-30 00:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/63905.shtml)
+- 2026-06-30 01:20 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/39388570305.shtml)
+- 2026-06-30 00:56 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/826685427827.shtml)
+- 2026-06-30 01:08 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/318398761544.shtml)
+- 2026-06-30 01:06 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/266308278300.shtml)
+- 2026-06-30 00:54 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/3286247362.shtml)
+- 2026-06-30 01:20 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/287744.shtml)

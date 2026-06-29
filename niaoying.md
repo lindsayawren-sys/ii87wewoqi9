@@ -1,53 +1,60 @@
-# 国内首次！128通道全植入式脑机接口开启临床试验
+# 首届浙江省“之江潮”文化奖表彰会议在杭州举行
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-今天，我国正式启动首个128通道全植入式脑机接口系统多中心临床试验，这项试验由首都医科大学附属北京天坛医院担任组长单位，这也标志着我国自主研发的高通量侵入式脑机接口技术进入临床转化的快车道。 此次研究采用的侵入式脑机接口系统，由皮层内植入式柔性电极与高集成度全植入式信号采集器两大模块构成。柔性电极采用超薄生物相容材料，可显著降低植入后的免疫反应，同时精准捕获具备高时空分辨率的单
+中新网杭州6月17日电(林波)6月17日，首届浙江省“之江潮”文化奖表彰会议在杭州举行，共有80项成果入选。其中特别大奖1项，为浙江大学的“中国历代绘画大系”项目；大奖19项，包括电视剧《县委大院》、越剧《钱塘里》、歌剧《红船》等；优秀奖60项，包括网络游戏《黑神话：悟空》、越剧《新龙门客栈》等。 打造文化领域的拳头产品，是浙江加快建设高水平文化强省的应有之义。 2021年8月
 
 ## 正文
 
-今天，我国正式启动首个128通道全植入式脑机接口系统多中心临床试验，这项试验由首都医科大学附属北京天坛医院担任组长单位，这也标志着我国自主研发的高通量侵入式脑机接口技术进入临床转化的快车道。
+中新网杭州6月17日电(林波)6月17日，首届浙江省“之江潮”文化奖表彰会议在杭州举行，共有80项成果入选。
 
-此次研究采用的侵入式脑机接口系统，由皮层内植入式柔性电极与高集成度全植入式信号采集器两大模块构成。
+其中特别大奖1项，为浙江大学的“中国历代绘画大系”项目；大奖19项，包括电视剧《县委大院》、越剧《钱塘里》、歌剧《红船》等；优秀奖60项，包括网络游戏《黑神话：悟空》、越剧《新龙门客栈》等。
 
-柔性电极采用超薄生物相容材料，可显著降低植入后的免疫反应，同时精准捕获具备高时空分辨率的单神经元动作电位，不仅让系统具备对精细脑电信息实时、高精度解码的能力，更使人机交互的信息传输速率实现数量级跃升。
+打造文化领域的拳头产品，是浙江加快建设高水平文化强省的应有之义。
 
-与之配套的全植入式信号采集器采用无线全埋置设计，内置医疗级可充电电池并支持无线充电，可同步采集并传输高通道神经信号。
+2021年8月31日，浙江省委文化工作会议提出设立“之江潮”文化大奖，对为浙江文化建设作出重大贡献的单位和个人予以表彰。
 
-患者可以在更自然、舒适的环境中接受治疗与康复训练，真正满足临床应用的便捷与安全需求。
+浙江省委宣传部牵头起草评选办法，多次召集相关部门进行专题研究，历时四年筹备，于2025年3月正式印发《浙江省“之江潮”文化奖评选办法(试行)》，明确每三年评选一次。
 
-(央视新闻客户端 总台央视记者 杨阳 牟媞媞)
+“之江潮”文化奖评选范围包括理论、传播、文学、出版、电影、戏剧、电视、广播剧、音乐、舞蹈、曲艺、杂技、美术、摄影、书法、民间文艺、文艺评论等门类。
+
+首届入选的作品紧扣时代脉搏、扎根浙江实践，立体呈现了浙江文化建设的丰硕成果与繁荣风貌。
+
+自2005年启动以来，“中国历代绘画大系”先后三次对全球范围的中国历代绘画作了高精度拍摄与系统编录，覆盖海内外文博机构263家，汇聚精品佳作12405件(套)，编纂出版《先秦汉唐画全集》《宋画全集》《元画全集》《明画全集》《清画全集》五部断代全集，共计68卷257册，建成迄今收录最全、规模最大、精度最高的中国绘画图像文献库。
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 01:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 00:49 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 00:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 01:09 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 00:50 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 01:05 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 01:09 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 00:50 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 00:56 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 01:04 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 01:08 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 00:55 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 00:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 00:55 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 01:05 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 01:04 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 01:04 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 01:23 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 01:10 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 00:57 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 00:54 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 00:56 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 01:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 01:05 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:02 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/75274.shtml)
-- 2026-06-30 01:04 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/837048756.shtml)
-- 2026-06-30 01:11 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/6797744906.shtml)
-- 2026-06-30 00:54 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/72350326542.shtml)
-- 2026-06-30 00:51 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/844736552.shtml)
-- 2026-06-30 00:57 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/54769378.shtml)
-- 2026-06-30 01:14 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/34559.shtml)
-- 2026-06-30 01:16 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/35122138.shtml)
-- 2026-06-30 00:57 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/4950433.shtml)
-- 2026-06-30 00:48 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/495406806589.shtml)
-- 2026-06-30 00:57 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/126212641.shtml)
-- 2026-06-30 01:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/66976093.shtml)
-- 2026-06-30 00:58 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/8263980842.shtml)
-- 2026-06-30 01:06 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/234655276.shtml)
-- 2026-06-30 01:06 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/89909694.shtml)
+- 2026-06-30 01:00 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/57044671673.shtml)
+- 2026-06-30 01:20 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/8112613915.shtml)
+- 2026-06-30 01:06 - [新官上任三把火](https://www.blog.minike.top/Article/details/10477.shtml)
+- 2026-06-30 01:09 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/3246363483.shtml)
+- 2026-06-30 01:04 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/6562994.shtml)
+- 2026-06-30 01:06 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/73363413051.shtml)
+- 2026-06-30 01:11 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/19671874172.shtml)
+- 2026-06-30 01:06 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/8237421748.shtml)
+- 2026-06-30 00:55 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/5348644.shtml)
+- 2026-06-30 00:55 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/3017749.shtml)
+- 2026-06-30 01:15 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/91429.shtml)
+- 2026-06-30 00:54 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/1933801.shtml)
+- 2026-06-30 01:00 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/81888.shtml)
+- 2026-06-30 01:18 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/5699980.shtml)
+- 2026-06-30 00:55 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/459054.shtml)

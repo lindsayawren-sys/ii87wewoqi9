@@ -1,61 +1,48 @@
-# 铁矿：供需面临转折，成本支撑仍存
+# Meta“AI for work”转型项目的产品负责人即将离职
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-广发期货研究 证监许可【2011】1292号 | 徐艺丹 Z0020017 | 2026年5月19日 星期二 今日行情：铁矿主力合约小幅下跌，盘面持仓持续下降。螺矿比延续触底反弹趋势，9-1月差维持震荡运行。截至收盘，铁矿主力合约下跌0.87%，收于798.5元/吨。现货方面，港口铁矿主流品种报价较上一工作日小幅下跌，贸易商报盘积极性尚可，买方询盘偏少，钢厂采购计划有限。山东港
+据媒体周三获得的一份内部备忘录显示，Meta旗下公司的一位高管即将离职，该高管曾负责监督该公司围绕AI代理展开的重组工作中的关键部分。 Meta今年4月曾宣布，高管史密斯（Emily Dalton Smith）将负责领导产品工作，以整合并改进内部AI工具，作为此次全面改革的一部分。 备忘录显示，她自2015年起便在该公司任职。责任编辑：李桐
 
 ## 正文
 
-广发期货研究 证监许可【2011】1292号 | 徐艺丹 Z0020017 | 2026年5月19日 星期二 今日行情：铁矿主力合约小幅下跌，盘面持仓持续下降。
+据媒体周三获得的一份内部备忘录显示，Meta旗下公司的一位高管即将离职，该高管曾负责监督该公司围绕AI代理展开的重组工作中的关键部分。
 
-螺矿比延续触底反弹趋势，9-1月差维持震荡运行。
+Meta今年4月曾宣布，高管史密斯（Emily Dalton Smith）将负责领导产品工作，以整合并改进内部AI工具，作为此次全面改革的一部分。
 
-截至收盘，铁矿主力合约下跌0.87%，收于798.5元/吨。
+备忘录显示，她自2015年起便在该公司任职。
 
-现货方面，港口铁矿主流品种报价较上一工作日小幅下跌，贸易商报盘积极性尚可，买方询盘偏少，钢厂采购计划有限。
-
-山东港口市场60.8%PB粉主流在770-775；超特粉主流在630-635；麦克粉主流在765-770。
-
-供应持续走高，非主流维持强劲表现 近期，铁矿石发运中枢上移，绝对值维持历史同期偏高水平，这主要与季节性因素消除、非主流增长强劲以及矿山财年冲量等因素相关。
-
-具体来看，进入5月后，铁矿发运的天气扰动因素基本消除，澳洲巴西雨季影响减弱，铁矿石发运中枢逐步向旺季高点靠拢。
-
-其次，矿价仍维持在历史同期相对高位水平，前期一度突破110美金，对非主流发运增量有明显支撑。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 01:12 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 00:53 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 00:59 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 01:04 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 01:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 01:01 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 01:07 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 01:07 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 00:55 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 01:04 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 01:05 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 00:59 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 01:00 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 01:14 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 00:52 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 01:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 00:55 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 01:10 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 01:19 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 01:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 01:01 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 01:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 01:08 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 01:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 01:07 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:58 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/01505578631.shtml)
-- 2026-06-30 01:00 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/24272900906.shtml)
-- 2026-06-30 00:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/4350602.shtml)
-- 2026-06-30 01:14 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/0867423.shtml)
-- 2026-06-30 01:10 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/007567349518.shtml)
-- 2026-06-30 01:04 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/1839872077.shtml)
-- 2026-06-30 01:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/2547770.shtml)
-- 2026-06-30 01:03 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/26032.shtml)
-- 2026-06-30 01:17 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/06931.shtml)
-- 2026-06-30 01:05 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/2446315.shtml)
-- 2026-06-30 01:00 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/8151986941.shtml)
-- 2026-06-30 01:11 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/82764899010.shtml)
-- 2026-06-30 01:09 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/7070318.shtml)
-- 2026-06-30 01:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/3907905618.shtml)
-- 2026-06-30 01:00 - [第一炉香](http://www.blog.minike.top/Article/details/520404762.shtml)
+- 2026-06-30 01:13 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/46697.shtml)
+- 2026-06-30 01:18 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/23336.shtml)
+- 2026-06-30 01:17 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/966989288.shtml)
+- 2026-06-30 01:17 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/64156.shtml)
+- 2026-06-30 01:03 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/43910979802.shtml)
+- 2026-06-30 01:05 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/72525.shtml)
+- 2026-06-30 01:20 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/289190504573.shtml)
+- 2026-06-30 01:15 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/17271.shtml)
+- 2026-06-30 01:09 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/41788.shtml)
+- 2026-06-30 00:54 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/29475066000.shtml)
+- 2026-06-30 00:58 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/24670217.shtml)
+- 2026-06-30 00:58 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/3625966.shtml)
+- 2026-06-30 01:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/9016024545.shtml)
+- 2026-06-30 00:57 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/60755264485.shtml)
+- 2026-06-30 00:56 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/5927703.shtml)

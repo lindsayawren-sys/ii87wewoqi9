@@ -1,46 +1,51 @@
-# 太原市尖草坪区信都村镇银行被罚43.91万元：违反金融统计相关规定等
+# 苏州银行被罚721.02万元，涉违反账户管理规定等11项违法行为
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-5月19日金融一线消息，中国人民银行山西省分行行政处罚决定信息公示表显示，太原市尖草坪区信都村镇银行股份有限公司因违反金融统计相关规定、违反账户管理规定、违反网络安全管理规定、违反人民币流通管理规定、违反反假货币业务管理规定、未按照规定开展客户尽职调查、未按规定报告大额交易，被给予警告，并处罚款43.91万元。 责任编辑：王馨茹
+6月18日金融一线消息，中国人民银行江苏省分行行政处罚决定信息公示表显示，苏州银行股份有限公司因11项违法行为，被给予警告、通报批评，没收违法所得399480.86元，并处罚款721.02万元。 罚单涉及违法行为类型如下：违反账户管理规定；违反收单管理规定；违反网络安全管理规定；违反数据安全管理规定；违反人民币流通管理规定；违反反假货币业务管理规定；占压财政存款或者资金；违反信
 
 ## 正文
 
-5月19日金融一线消息，中国人民银行山西省分行行政处罚决定信息公示表显示，太原市尖草坪区信都村镇银行股份有限公司因违反金融统计相关规定、违反账户管理规定、违反网络安全管理规定、违反人民币流通管理规定、违反反假货币业务管理规定、未按照规定开展客户尽职调查、未按规定报告大额交易，被给予警告，并处罚款43.91万元。
+6月18日金融一线消息，中国人民银行江苏省分行行政处罚决定信息公示表显示，苏州银行股份有限公司因11项违法行为，被给予警告、通报批评，没收违法所得399480.86元，并处罚款721.02万元。
+
+罚单涉及违法行为类型如下：违反账户管理规定；违反收单管理规定；违反网络安全管理规定；违反数据安全管理规定；违反人民币流通管理规定；违反反假货币业务管理规定；占压财政存款或者资金；违反信用信息采集、提供、查询及相关管理规定；未按照规定开展客户尽职调查；未按照规定保存客户身份资料和交易记录；未按照规定报告可疑交易。
+
+同时，相关责任人吴某（苏州银行股份有限公司越溪支行）因对违反反假货币业务管理规定负有责任，被给予警告并罚款6.5万元；陆某（苏州银行股份有限公司网络金融部）因对违反收单管理规定负有责任，被给予警告并罚款5万元。
 
 责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 01:03 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 01:06 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 01:06 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 01:05 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 01:02 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 00:53 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 00:50 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 01:03 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 00:53 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 00:48 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 01:11 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 01:06 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 01:14 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 01:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 01:19 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 01:15 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 01:16 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 01:00 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 01:17 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 01:12 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 01:18 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 01:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 01:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 01:21 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 00:54 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:17 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/133949404.shtml)
-- 2026-06-30 01:12 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/597435.shtml)
-- 2026-06-30 01:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/8046694681.shtml)
-- 2026-06-30 01:02 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/850919537.shtml)
-- 2026-06-30 01:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/47576623.shtml)
-- 2026-06-30 01:13 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/13395.shtml)
-- 2026-06-30 00:50 - [明星大侦探第四季](https://www.share.minike.top/Article/details/791308500665.shtml)
-- 2026-06-30 01:16 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/82411290340.shtml)
-- 2026-06-30 00:48 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/5752295165.shtml)
-- 2026-06-30 01:09 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/5457879.shtml)
-- 2026-06-30 00:58 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/37432.shtml)
-- 2026-06-30 01:15 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/5269789.shtml)
-- 2026-06-30 01:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/4518375.shtml)
-- 2026-06-30 01:11 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/028235.shtml)
-- 2026-06-30 01:16 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/13479.shtml)
+- 2026-06-30 00:59 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/394883.shtml)
+- 2026-06-30 01:14 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/29264171.shtml)
+- 2026-06-30 01:06 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/7756834.shtml)
+- 2026-06-30 01:18 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/717094652.shtml)
+- 2026-06-30 01:10 - [啊啊啊](http://www.blog.minike.top/Article/details/801869259.shtml)
+- 2026-06-30 01:06 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/02917.shtml)
+- 2026-06-30 01:19 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/298147.shtml)
+- 2026-06-30 01:12 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/95549959.shtml)
+- 2026-06-30 01:05 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/02757486.shtml)
+- 2026-06-30 01:22 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/09679464323.shtml)
+- 2026-06-30 01:13 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/91253565669.shtml)
+- 2026-06-30 01:12 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/73324.shtml)
+- 2026-06-30 00:55 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/57003625141.shtml)
+- 2026-06-30 01:09 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/7906230.shtml)
+- 2026-06-30 01:07 - [时光音乐会](http://www.share.minike.top/Article/details/89580072588.shtml)

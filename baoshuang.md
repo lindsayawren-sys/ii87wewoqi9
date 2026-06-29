@@ -1,61 +1,47 @@
-# 博腾股份海外扩产遇黑天鹅：4.3亿索赔压顶，合规性瑕疵暴露多重风险
+# 中国高速传动公布6月18日上午起复牌
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、海外基地“合规性瑕疵”引爆合作危机，诺华单方面解约 博腾股份的全球化战略正遭遇严重打击。近日，公司公告称，其位于斯洛文尼亚的CDMO基地项目突发重大变故，合作方诺华单方面提出解约，并保留约5470万欧元（约合人民币4.3亿元）的服务费及损失赔偿金索赔权。 此次冲突的核心，源于B30生产车间前期报批手续存在合规性问题。正是这一
+中国高速传动（00658）公布，公司股份将于2026年6月18日上午九时正起恢复买卖。责任编辑：卢昱君
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、海外基地“合规性瑕疵”引爆合作危机，诺华单方面解约 博腾股份的全球化战略正遭遇严重打击。
+中国高速传动（00658）公布，公司股份将于2026年6月18日上午九时正起恢复买卖。
 
-近日，公司公告称，其位于斯洛文尼亚的CDMO基地项目突发重大变故，合作方诺华单方面提出解约，并保留约5470万欧元（约合人民币4.3亿元）的服务费及损失赔偿金索赔权。
-
-此次冲突的核心，源于B30生产车间前期报批手续存在合规性问题。
-
-正是这一合规性瑕疵引发的连锁反应，导致双方矛盾激化。
-
-尽管公司已与诺华沟通，但目前仍存在重大争议和分歧，最终诺华选择终止合作，并要求PSI在90天内搬离园区、交还场地。
-
-值得关注的是，博腾股份此前从未在公告中披露与诺华存在任何矛盾，也未明确说明该合规问题暴露的具体时间与细节。
-
-这种信息披露的“滞后”与“模糊”，本身就可能引发投资者对公司治理透明度的质疑。
-
-二、潜在损失超4亿元，资产减值与合同履约风险叠加 此次事件对博腾股份的财务冲击不容小觑。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 01:00 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 01:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 01:07 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 01:15 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 01:14 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 01:00 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 00:58 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 01:14 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 00:51 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 01:04 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 01:06 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 00:52 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 00:48 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 00:48 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 00:57 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 00:56 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 01:22 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 00:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 01:19 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 01:07 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 01:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 01:01 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 01:18 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 01:00 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 01:05 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 01:15 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 01:12 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:52 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/7776568.shtml)
-- 2026-06-30 01:11 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/329254110.shtml)
-- 2026-06-30 01:15 - [千香](https://www.share.kurohicncr.top/Article/details/5036908.shtml)
-- 2026-06-30 01:12 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/86308.shtml)
-- 2026-06-30 00:54 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/8941015.shtml)
-- 2026-06-30 00:59 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/4890631886.shtml)
-- 2026-06-30 01:04 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/08488027647.shtml)
-- 2026-06-30 00:50 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/70037.shtml)
-- 2026-06-30 01:01 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/8692079.shtml)
-- 2026-06-30 01:15 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/015098.shtml)
-- 2026-06-30 01:02 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/13301628841.shtml)
-- 2026-06-30 01:13 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/523149.shtml)
-- 2026-06-30 01:10 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/25243.shtml)
-- 2026-06-30 01:17 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/62283363.shtml)
-- 2026-06-30 01:08 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/62425692.shtml)
+- 2026-06-30 00:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/0007813862.shtml)
+- 2026-06-30 00:57 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/400276.shtml)
+- 2026-06-30 00:56 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/21406596197.shtml)
+- 2026-06-30 00:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/85398539588.shtml)
+- 2026-06-30 01:08 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/0485785344.shtml)
+- 2026-06-30 01:19 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/40655502323.shtml)
+- 2026-06-30 01:02 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/33565.shtml)
+- 2026-06-30 00:56 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/09224997546.shtml)
+- 2026-06-30 01:19 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/07063809.shtml)
+- 2026-06-30 00:56 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/91431.shtml)
+- 2026-06-30 01:13 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/75129.shtml)
+- 2026-06-30 01:20 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/664253628826.shtml)
+- 2026-06-30 00:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/617112316652.shtml)
+- 2026-06-30 01:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/6746821947.shtml)
+- 2026-06-30 01:20 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/0875996.shtml)

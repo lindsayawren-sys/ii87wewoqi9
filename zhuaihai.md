@@ -1,60 +1,60 @@
-# 中装建设（002822）投资者索赔再获得法院立案，已有胜诉
+# 申万宏源董事长刘健：建议港股通进一步扩容， 研究允许内地投资者参与港股IPO
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-2026年5月14日，上海久诚律师事务所股票索赔律师许峰代理的中装建设（002822）投资者索赔案再获得深圳市中级人民法院立案。（许峰律师专栏） 许峰律师提示，中装建设虚假陈述引发的投资者索赔案已有投资者获得一审胜诉，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2025年4月19日，中装建设公告收到《行政处罚决定书》，经查明，中装建设存在以下
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，申万宏源集团股份有限公司和申万宏源证券有限公司董事长刘健指出，在当前全球经济格局深刻调整与中国金融市场加速开放的背景下，沪港金融协作已从区域性的城市合作，上升为国家金融战略的关键支点，兼具现实迫切性与长远战略意义。 刘健在发言中首先
 
 ## 正文
 
-2026年5月14日，上海久诚律师事务所股票索赔律师许峰代理的中装建设（002822）投资者索赔案再获得深圳市中级人民法院立案。
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，申万宏源集团股份有限公司和申万宏源证券有限公司董事长刘健指出，在当前全球经济格局深刻调整与中国金融市场加速开放的背景下，沪港金融协作已从区域性的城市合作，上升为国家金融战略的关键支点，兼具现实迫切性与长远战略意义。
 
-（许峰律师专栏） 许峰律师提示，中装建设虚假陈述引发的投资者索赔案已有投资者获得一审胜诉，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+刘健在发言中首先剖析了沪港金融协作的深层动力。
 
-2025年4月19日，中装建设公告收到《行政处罚决定书》，经查明，中装建设存在以下违法事实： 中装建设及其子公司深圳市中装市政园林工程有限公司将部分内部承包项目按照自营项目进行核算，导致少记成本、虚增利润。
+他援引数据指出，2025年底中国人均GDP已达10万元人民币（约合1.4万美元），标志着中国正式步入中等收入国家行列。
 
-2017年至2021年，中装建设虚增利润金额分别为1，833.44万元、1，292.45万元、4，398.64万元、1，302.19万元、1，610.39万元，分别占中装建设当期披露利润总额的9.06%、5.26%、14.74%、3.91%、8.88%，导致公司2017年年度报告、2018年年度报告、2019年年度报告、2020年年度报告、2021年年度报告虚假记载。
+伴随居民财富积累与企业国际化需求井喷，跨境资产配置成为必然趋势。
 
-中装建设2019年3月22日披露《公开发行可转换公司债券募集说明书》等发行文件，2020年9月1日披露《发行股份及支付现金购买资产并募集配套资金实施情况报告暨新增股份上市公告书》等发行文件，2021年4月14日披露《公开发行可转换公司债券募集说明书》等发行文件，引用了上述相关年度财务数据。
+建议进一步扩容港股通标的，研究允许内地投资者参与港股IPO。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，在2018年4月16日到2023年12月16日之间买入中装建设股票，并且在2023年12月16日后卖出或继续持有股票的投资者，目前还可发起索赔。
+第一，沪港金融协作是制度型对外开放的典范。
 
-（中装建设维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
+刘健回顾了自2003年以来沪港金融合作逾二十载的历程，从股票通、债券通、互换通，到基金互认与ETF通，互联互通机制不断深化。
 
-许峰律师，上海久诚律师事务所主任，2008年起律师执业，执业服务范围涉及虚假陈述、内幕交易、操纵市场等证券欺诈领域索赔代理。
+他引用数据指出，近期外资通过陆港通投资A股的占比已达90%，通过债券通投资中国债券市场的比例接近70%。
 
 ## 相关推荐
 
-- 2026-06-30 00:57 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 00:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 00:49 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 01:09 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 01:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 01:14 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 00:50 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 01:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 00:54 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 01:06 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 01:07 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 00:48 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 01:01 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 00:59 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 00:54 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 00:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 00:59 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 01:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 01:16 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 01:13 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 00:55 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 01:15 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 01:19 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 01:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 01:18 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 01:09 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 01:18 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 01:17 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/845411918.shtml)
-- 2026-06-30 01:11 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/2011930.shtml)
-- 2026-06-30 01:16 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/820133484.shtml)
-- 2026-06-30 01:15 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/48199.shtml)
-- 2026-06-30 01:01 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/88682.shtml)
-- 2026-06-30 01:16 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/577153.shtml)
-- 2026-06-30 01:03 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/44031.shtml)
-- 2026-06-30 00:51 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/686906032857.shtml)
-- 2026-06-30 01:08 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/189068.shtml)
-- 2026-06-30 00:55 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/301315.shtml)
-- 2026-06-30 01:02 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/28844185.shtml)
-- 2026-06-30 01:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/86581.shtml)
-- 2026-06-30 01:14 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/8319763503.shtml)
-- 2026-06-30 00:58 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/773589448.shtml)
-- 2026-06-30 00:55 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/3534734.shtml)
+- 2026-06-30 01:07 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/41684999.shtml)
+- 2026-06-30 00:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/53971140.shtml)
+- 2026-06-30 01:23 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/63556.shtml)
+- 2026-06-30 00:57 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/2847656213.shtml)
+- 2026-06-30 01:12 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/72192623347.shtml)
+- 2026-06-30 01:22 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/0692482599.shtml)
+- 2026-06-30 00:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/38252.shtml)
+- 2026-06-30 01:02 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/22915.shtml)
+- 2026-06-30 00:59 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/31469.shtml)
+- 2026-06-30 01:01 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/234668.shtml)
+- 2026-06-30 01:12 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/613823912287.shtml)
+- 2026-06-30 01:08 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/123517455067.shtml)
+- 2026-06-30 01:07 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/6638365142.shtml)
+- 2026-06-30 01:03 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/02347754157.shtml)
+- 2026-06-30 01:19 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/794032.shtml)

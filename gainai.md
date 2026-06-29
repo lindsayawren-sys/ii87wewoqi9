@@ -1,60 +1,60 @@
-# 坦克制造商KNDS乘Renk股价上涨东风，减持股份备战IPO
+# Allbirds持续向AI赛道转型：再度更名并聘任新任CEO，股价应声暴涨
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-欧洲坦克制造商KNDS正在利用其持股的传动系统专家Renk近期的股价上涨，减持部分股份，以在自身IPO前夕锁定收益。 减持套现 根据周二发布的公告，KNDS计划出售580万股Renk股票，约占后者股本的5.8%。此次出售将通过加速簿记建档方式面向机构投资者进行。交易完成后，KNDS在Renk的持股比例将从目前的约15.83%降至约10%。 KNDS选择此时减持时机微妙。受欧洲防
+核心要点 距离突然宣布全面押注人工智能、完成品牌更名仅过去两个月，原鞋履品牌 Allbirds 再度更名为 Smartbird，同时迎来新任首席执行官。 这家从制鞋企业转型为人工智能基础设施服务商的公司于周三官宣：任命纳迪娅・卡尔斯滕出任首席执行官兼董事会成员，接替现任 CEO 乔・维尔纳基奥。 卡尔斯滕曾执掌亚马逊云科技量子计算中心，还曾任职于美国国土安全部；加入本公司前，她
 
 ## 正文
 
-欧洲坦克制造商KNDS正在利用其持股的传动系统专家Renk近期的股价上涨，减持部分股份，以在自身IPO前夕锁定收益。
+核心要点 距离突然宣布全面押注人工智能、完成品牌更名仅过去两个月，原鞋履品牌 Allbirds 再度更名为 Smartbird，同时迎来新任首席执行官。
 
-减持套现 根据周二发布的公告，KNDS计划出售580万股Renk股票，约占后者股本的5.8%。
+这家从制鞋企业转型为人工智能基础设施服务商的公司于周三官宣：任命纳迪娅・卡尔斯滕出任首席执行官兼董事会成员，接替现任 CEO 乔・维尔纳基奥。
 
-此次出售将通过加速簿记建档方式面向机构投资者进行。
+卡尔斯滕曾执掌亚马逊云科技量子计算中心，还曾任职于美国国土安全部；加入本公司前，她担任人工智能基础设施企业 DCAI 的首席执行官，该企业近期与英伟达达成合作，旗下运营着名为 “盖菲昂” 的超级计算机。
 
-交易完成后，KNDS在Renk的持股比例将从目前的约15.83%降至约10%。
+受利好消息提振，BIRD 股价周三大涨 41.88%。
 
-KNDS选择此时减持时机微妙。
+今年 4 月，Allbirds 突然向市场抛出重磅转型计划：彻底放弃鞋履生产业务，全面布局人工智能算力基础设施与硬件赛道，彼时公司更名为 NewBird AI，市值随即暴涨 7 倍。
 
-受欧洲防务支出增加预期推动，近期防务板块表现强劲，Renk股价在周二上涨约5%，成为DAX指数中的领涨股之一。
+就在此次转型公告发布的一个月前，该公司以 3900 万美元的价格，将全部鞋类业务资产出售给品牌运营企业美国交易集团；今年 2 月，Allbirds 已经关停了美国所有正价线下门店。
 
-多家银行在5月给予Renk“买入”评级，分析师给出的平均目标价为71.67欧元，较当前水平有近59%的上行空间。
+Allbirds 是当下大批跟风转型 AI 赛道的企业之一，众多公司希望抓住 2022 年末 ChatGPT 问世掀起的科技行业红利。
 
-IPO稳步推进 此次减持被市场解读为KNDS为其自身IPO铺路。
+就在 Allbirds 官宣品牌更名的次日，社交媒体平台迈西姆也宣布全面转型布局人工智能业务。
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 00:51 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 00:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 00:55 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 01:08 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 00:55 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 01:13 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 01:17 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 01:16 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 01:07 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 00:56 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 01:06 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 01:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 00:59 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 01:21 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 01:21 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 01:06 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 01:19 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 00:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 01:04 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 01:13 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 01:04 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 00:55 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 00:54 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 01:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 01:08 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 01:17 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 01:10 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/661787796.shtml)
-- 2026-06-30 00:53 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/2443905913.shtml)
-- 2026-06-30 01:12 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/923549822.shtml)
-- 2026-06-30 00:53 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/620703059018.shtml)
-- 2026-06-30 01:07 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/3647804.shtml)
-- 2026-06-30 01:11 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/55458469.shtml)
-- 2026-06-30 00:49 - [美人鱼](https://www.share.minike.top/Article/details/453407.shtml)
-- 2026-06-30 00:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/34839386744.shtml)
-- 2026-06-30 00:55 - [金牌调解](https://www.share.minike.top/Article/details/2840839.shtml)
-- 2026-06-30 00:55 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/95981712783.shtml)
-- 2026-06-30 00:55 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/3019966134.shtml)
-- 2026-06-30 01:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/19474589.shtml)
-- 2026-06-30 00:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/6509841.shtml)
-- 2026-06-30 01:05 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/990835.shtml)
-- 2026-06-30 00:58 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/4087412.shtml)
+- 2026-06-30 01:17 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/955894.shtml)
+- 2026-06-30 01:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/711179013139.shtml)
+- 2026-06-30 00:57 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/725736887141.shtml)
+- 2026-06-30 01:16 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/54102388.shtml)
+- 2026-06-30 01:19 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/241594.shtml)
+- 2026-06-30 01:03 - [毒液2](http://www.blog.kurohicncr.top/Article/details/218621.shtml)
+- 2026-06-30 01:20 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/386595322.shtml)
+- 2026-06-30 01:05 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/4691844.shtml)
+- 2026-06-30 01:12 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/84292494.shtml)
+- 2026-06-30 00:56 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/697919963984.shtml)
+- 2026-06-30 01:00 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/686638943404.shtml)
+- 2026-06-30 01:20 - [流金岁月](http://www.share.minike.top/Article/details/538806767.shtml)
+- 2026-06-30 01:12 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/79600280697.shtml)
+- 2026-06-30 01:05 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/85276781193.shtml)
+- 2026-06-30 01:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/086329237439.shtml)

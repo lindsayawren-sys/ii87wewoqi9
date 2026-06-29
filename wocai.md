@@ -1,56 +1,51 @@
-# 中俄高校共建工业智能国际联合实验室
+# 香港西九龙站高铁直达内地站点新增3个 相关车票已发售
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-中新网青岛5月18日电(王禹)由青岛科技大学与俄罗斯斯科尔科沃科学技术研究院共建的工业智能国际联合实验室18日在青岛市崂山区揭牌。 当前，人工智能(AI)正深刻驱动产业变革，工业智能是推动制造业转型升级、培育新质生产力的关键引擎，对突破关键核心技术瓶颈、保障产业链供应链安全稳定、实现高水平科技自立自强具有重大意义。 据介绍，俄罗斯斯科尔科沃科学技术研究院在俄罗斯人工智能领域位居
+发布时间：2026年06月17日 19:42 来源：中国新闻网 由香港铁路有限公司运营的高速铁路(香港段)7月1日起新增广州北、义乌、福清西三个站点。至此，香港西九龙站直达内地站点增至113个，相关车票于6月17日起发售。 港铁表示，本次新增站点中，广州北站为区域交通枢纽，接驳地铁、城际铁路，临近白云机场与广州融创文旅城；浙江义乌有“世界超市”之称，是知名的小商品集散中心；福建
 
 ## 正文
 
-中新网青岛5月18日电(王禹)由青岛科技大学与俄罗斯斯科尔科沃科学技术研究院共建的工业智能国际联合实验室18日在青岛市崂山区揭牌。
+发布时间：2026年06月17日 19:42 来源：中国新闻网 由香港铁路有限公司运营的高速铁路(香港段)7月1日起新增广州北、义乌、福清西三个站点。
 
-当前，人工智能(AI)正深刻驱动产业变革，工业智能是推动制造业转型升级、培育新质生产力的关键引擎，对突破关键核心技术瓶颈、保障产业链供应链安全稳定、实现高水平科技自立自强具有重大意义。
+至此，香港西九龙站直达内地站点增至113个，相关车票于6月17日起发售。
 
-据介绍，俄罗斯斯科尔科沃科学技术研究院在俄罗斯人工智能领域位居前列，其人工智能中心聚焦“应用人工智能”方向，在多智能体工业AI系统、生成式设计与数字孪生等前沿领域拥有突出优势与丰富的产业落地经验。
+港铁表示，本次新增站点中，广州北站为区域交通枢纽，接驳地铁、城际铁路，临近白云机场与广州融创文旅城；浙江义乌有“世界超市”之称，是知名的小商品集散中心；福建福清有灵石山国家森林公园等众多文旅资源。
 
-俄罗斯斯科尔科沃科学技术研究院人工智能中心主任伊万·秋金表示：“工业智能国际联合实验室的正式揭牌，标志着双方合作步入实质性落地与纵深推进的新阶段，将为工业智能前沿探索、核心技术研发与国际学术交流提供高能级平台支撑。
+港铁将持续优化跨境铁路服务，便利乘客出行。
 
-” 据介绍，在技术层面，工业智能国际联合实验室将融合两校在AI基础理论和随机学习算法、生成式AI、多智能体系统等方向的优势资源，共同开发具有自主知识产权的工业智能软件平台与解决方案。
-
-在产业层面，该实验室将紧密对接山东制造业数字化转型的关键痛点，推动科研成果的本地化落地与产业化转化，助力传统制造环节向智能化、绿色化方向升级。
-
-青岛科技大学教授、工业智能国际联合实验室主任王殿辉表示：“工业智能国际联合实验室将聚焦轻量化机器学习理论、工业基础模型等前沿方向，打造国内领先、国际一流的‘AI+工业’创新平台，推动关键核心技术攻关与高质量成果转化。
-
-”(完)
+(记者 孙悦) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 01:05 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 01:07 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 00:55 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 01:17 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 00:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 00:51 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 00:50 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 00:49 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 01:01 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 01:09 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 01:16 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 00:54 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 01:05 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 01:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 01:03 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 00:55 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 01:16 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 01:07 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 01:15 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 01:21 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 01:13 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/425454584.shtml)
-- 2026-06-30 01:02 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/4170865921.shtml)
-- 2026-06-30 01:09 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/577886304.shtml)
-- 2026-06-30 01:02 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/129828284445.shtml)
-- 2026-06-30 01:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/190988136.shtml)
-- 2026-06-30 00:58 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/7504922.shtml)
-- 2026-06-30 01:05 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/80469767.shtml)
-- 2026-06-30 01:04 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/77729532.shtml)
-- 2026-06-30 00:50 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/941744.shtml)
-- 2026-06-30 00:53 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/140953.shtml)
-- 2026-06-30 01:10 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/880987044473.shtml)
-- 2026-06-30 01:10 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/310098.shtml)
-- 2026-06-30 00:52 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/0118223.shtml)
-- 2026-06-30 00:48 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/334022567.shtml)
-- 2026-06-30 01:09 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/827282.shtml)
+- 2026-06-30 01:07 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/42973.shtml)
+- 2026-06-30 01:01 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/8747694148.shtml)
+- 2026-06-30 01:12 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/25612.shtml)
+- 2026-06-30 00:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/330961039359.shtml)
+- 2026-06-30 00:54 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/24967115469.shtml)
+- 2026-06-30 01:09 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/740266.shtml)
+- 2026-06-30 01:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/789044985.shtml)
+- 2026-06-30 01:11 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/056062735.shtml)
+- 2026-06-30 00:54 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/962265.shtml)
+- 2026-06-30 01:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/85516125000.shtml)
+- 2026-06-30 00:59 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/999369595.shtml)
+- 2026-06-30 00:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/37610087.shtml)
+- 2026-06-30 01:08 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/239078444245.shtml)
+- 2026-06-30 01:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/2204274.shtml)
+- 2026-06-30 01:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/24394952129.shtml)

@@ -1,53 +1,57 @@
-# Anthropic将向监管机构通报网络风险
+# 邦达亚洲:美联储加息预期升温 黄金回落收跌
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-随着人工智能公司Anthropic与金融稳定委员会分享其漏洞研究成果，苹果和摩根大通等科技与金融巨头正在评估其“Mythos”模型的研究发现。该模型揭示了大型语言模型可能被用于生成网络攻击代码和绕过安全防护的新型风险。监管机构对此高度关注，担忧人工智能技术的滥用可能威胁金融系统的稳定性。Anthropic表示将主动与政策制定者合作，推动建立行业安全标准。此次简报会是科技公司与监
+6月18日，美国商务部周三发布的数据显示，5月零售销售环比增长0.9%，远高于预期的0.5%。经济学家指出，4月和5月的大规模政府退税为消费提供了助力，但这一现金缓冲正在开始消退。5月加油站销售额环比增长3.4%，高于4月的2.4%，同比则大幅增长26.5%。剔除加油站销售额后，5月零售销售增长0.7%，这表明消费增长呈现广泛分布。服装、配饰及家具等门店销售均实现增长，线上销售
 
 ## 正文
 
-随着人工智能公司Anthropic与金融稳定委员会分享其漏洞研究成果，苹果和摩根大通等科技与金融巨头正在评估其“Mythos”模型的研究发现。
+6月18日，美国商务部周三发布的数据显示，5月零售销售环比增长0.9%，远高于预期的0.5%。
 
-该模型揭示了大型语言模型可能被用于生成网络攻击代码和绕过安全防护的新型风险。
+经济学家指出，4月和5月的大规模政府退税为消费提供了助力，但这一现金缓冲正在开始消退。
 
-监管机构对此高度关注，担忧人工智能技术的滥用可能威胁金融系统的稳定性。
+5月加油站销售额环比增长3.4%，高于4月的2.4%，同比则大幅增长26.5%。
 
-Anthropic表示将主动与政策制定者合作，推动建立行业安全标准。
+剔除加油站销售额后，5月零售销售增长0.7%，这表明消费增长呈现广泛分布。
 
-此次简报会是科技公司与监管机构就人工智能安全议题展开的最高级别对话之一。
+服装、配饰及家具等门店销售均实现增长，线上销售增长1.5%。
 
-责任编辑：张俊 SF065
+当然，也存在部分疲弱领域，电子及家电商店和百货商店销售额均出现小幅下滑。
+
+周三发布的数据仅反映消费支出的一个截面，未涵盖旅游和酒店住宿等服务性消费。
+
+在唯一纳入统计的服务类别中，餐饮支出下降了0.1%。
 
 ## 相关推荐
 
-- 2026-06-30 00:52 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 00:54 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 01:14 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 00:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 00:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 00:56 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 00:49 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 01:14 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 00:48 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 01:14 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 00:56 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 01:08 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 01:10 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 01:03 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 01:20 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 01:18 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 01:11 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 01:01 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 01:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 00:58 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 01:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 01:03 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/705839.shtml)
-- 2026-06-30 01:01 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/059454592.shtml)
-- 2026-06-30 00:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/27485079741.shtml)
-- 2026-06-30 00:49 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/33846379003.shtml)
-- 2026-06-30 01:11 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/91370.shtml)
-- 2026-06-30 01:01 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/9104070132.shtml)
-- 2026-06-30 01:01 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/78202475851.shtml)
-- 2026-06-30 01:11 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/33840695.shtml)
-- 2026-06-30 01:07 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/55207.shtml)
-- 2026-06-30 01:08 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/963911770203.shtml)
-- 2026-06-30 01:12 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/11791543.shtml)
-- 2026-06-30 01:01 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/5680095.shtml)
-- 2026-06-30 00:58 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/52379640849.shtml)
-- 2026-06-30 01:05 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/04725437.shtml)
-- 2026-06-30 01:17 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/6501795.shtml)
+- 2026-06-30 01:09 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/974134345.shtml)
+- 2026-06-30 00:59 - [月亮](http://www.share.kurohicncr.top/Article/details/821365.shtml)
+- 2026-06-30 01:06 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/19210711538.shtml)
+- 2026-06-30 01:08 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/42541.shtml)
+- 2026-06-30 00:58 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/11882.shtml)
+- 2026-06-30 01:18 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/6663813460.shtml)
+- 2026-06-30 01:07 - [一见倾心](https://www.blog.minike.top/Article/details/7660330619.shtml)
+- 2026-06-30 01:02 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/09391471394.shtml)
+- 2026-06-30 01:04 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/6390461.shtml)
+- 2026-06-30 01:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/5967582606.shtml)
+- 2026-06-30 01:14 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/72811499.shtml)
+- 2026-06-30 00:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/93604753.shtml)
+- 2026-06-30 01:20 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/836881124.shtml)
+- 2026-06-30 01:01 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/56252722590.shtml)
+- 2026-06-30 01:18 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/2386183960.shtml)

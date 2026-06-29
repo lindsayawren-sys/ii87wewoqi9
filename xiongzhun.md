@@ -1,57 +1,60 @@
-# 广西柳州震区秩序安稳 民众自发成为志愿者
+# 华虹宏力、智谱大涨超10%！规模最大港股通信息技术ETF华宝（159131）强势翻红逼近上市高点
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-中新网柳州5月19日电(林馨 杨宗盛 邓竣缤)广西柳州市柳南区18日先后发生两次5.2级地震。当晚，受影响民众安置工作连夜冒雨开展、有序进行。19日，记者走访柳州市地震震中太阳村镇多个安置点，食品充足、用水和卫生等设施完备。 螺蛳粉小镇安置点天桥螺蛳粉店向安置点民众提供热腾腾的柳州螺蛳粉。该店老板苏东旭家在震区，受到地震影响，他妈妈到此安置。“我和妈妈商量后，决定免费提供600
+今日（6月18日）午后，港股硬科技强势冲高翻红，智谱、天数智心大涨逾13%，华虹宏力涨超10%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）午后发力拉涨0.72%，盘中价格逼近上市以来高点。 银河证券指出， 6月预计全球半导体板块将处于高位震荡阶段，建议继续关注产业链有增量和景气加强的环节。或可关注存储、半导体设备和材料、功率半导体、国产算力方向。 大同
 
 ## 正文
 
-中新网柳州5月19日电(林馨 杨宗盛 邓竣缤)广西柳州市柳南区18日先后发生两次5.2级地震。
+今日（6月18日）午后，港股硬科技强势冲高翻红，智谱、天数智心大涨逾13%，华虹宏力涨超10%。
 
-当晚，受影响民众安置工作连夜冒雨开展、有序进行。
+同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）午后发力拉涨0.72%，盘中价格逼近上市以来高点。
 
-19日，记者走访柳州市地震震中太阳村镇多个安置点，食品充足、用水和卫生等设施完备。
+银河证券指出， 6月预计全球半导体板块将处于高位震荡阶段，建议继续关注产业链有增量和景气加强的环节。
 
-螺蛳粉小镇安置点天桥螺蛳粉店向安置点民众提供热腾腾的柳州螺蛳粉。
+或可关注存储、半导体设备和材料、功率半导体、国产算力方向。
 
-该店老板苏东旭家在震区，受到地震影响，他妈妈到此安置。
+大同证券认为，英伟达新一代Vera Rubin平台已步入密集拉货期，其架构革新对PCB的层数、材质及工艺要求实现了全面跃升，带动单台服务器PCB价值量显著提升。
 
-“我和妈妈商量后，决定免费提供6000碗螺蛳粉，让安置民众暖身。
+从台积电先进制程产能排产及供应链备货节奏来看，AI算力硬件的订单能见度已延伸至2027年，短期与中期需求均呈现持续超预期的强劲态势。
 
-” 正在忙着给该安置点民众发放物资的志愿者罗少云，自柳南区地震发生后，已经两天连轴转，睡在车里。
+在此背景下，AI服务器及高速交换机需求呈现爆发式增长，PCB板块迎来量价齐升的景气格局。
 
-“最让我感动的是一开始我们志愿者只有几个，发展到现在有几十个。
+目前国内多家AIPCB核心供应商产能利用率已触及历史峰值，在手订单饱满、满产满销，并正积极通过资本开支扩张产能以响应下游迫切需求，业绩高增长的确定性较强，正向盈利弹性有望持续释放。
 
 ## 相关推荐
 
-- 2026-06-30 01:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 00:49 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 01:04 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 00:48 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 00:56 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 00:59 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 00:51 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 01:17 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 01:12 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 01:14 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 01:13 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 01:23 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 01:20 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 00:54 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 01:17 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 00:59 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 01:08 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 01:02 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 01:09 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 00:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 00:59 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 01:18 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 00:58 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 00:58 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 01:00 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:53 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/27046.shtml)
-- 2026-06-30 01:10 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/3187142791.shtml)
-- 2026-06-30 00:57 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/888138809423.shtml)
-- 2026-06-30 00:55 - [新官上任三把火](https://www.blog.minike.top/Article/details/5667390154.shtml)
-- 2026-06-30 01:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/5734403583.shtml)
-- 2026-06-30 00:53 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/548685.shtml)
-- 2026-06-30 01:12 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/36672238768.shtml)
-- 2026-06-30 00:52 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/9932520622.shtml)
-- 2026-06-30 01:09 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/825066.shtml)
-- 2026-06-30 01:03 - [点菜也要教吗](http://www.share.minike.top/Article/details/8112709.shtml)
-- 2026-06-30 00:50 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/4006878528.shtml)
-- 2026-06-30 01:14 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/567987.shtml)
-- 2026-06-30 01:18 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/073477335074.shtml)
-- 2026-06-30 00:50 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/854012301.shtml)
-- 2026-06-30 00:48 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/53693.shtml)
+- 2026-06-30 00:59 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/58570487208.shtml)
+- 2026-06-30 01:05 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/20109243289.shtml)
+- 2026-06-30 00:57 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/4830665607.shtml)
+- 2026-06-30 01:05 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/995260669123.shtml)
+- 2026-06-30 01:00 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/83806.shtml)
+- 2026-06-30 00:58 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/0797800061.shtml)
+- 2026-06-30 00:57 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/734197.shtml)
+- 2026-06-30 01:10 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/234699737.shtml)
+- 2026-06-30 01:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/84783335603.shtml)
+- 2026-06-30 01:16 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/9427754.shtml)
+- 2026-06-30 01:11 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/63050347.shtml)
+- 2026-06-30 01:04 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/3841265.shtml)
+- 2026-06-30 01:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/4045435.shtml)
+- 2026-06-30 01:10 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/3080793323.shtml)
+- 2026-06-30 01:03 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/63821.shtml)

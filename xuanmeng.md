@@ -1,57 +1,60 @@
-# Dynamic Active美国投资级公司债券ETF宣布月度派息0.075加元
+# 8个汽车项目年内投产 天津武清助力京津冀“共造一辆车”
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-Dynamic Active美国投资级公司债券ETF于5月19日宣布，将向持有人派发每股0.075加元的月度现金股息。该股息将于5月29日支付，股权登记日为5月26日，同日为除息交易日。 月度派息略有回落 该ETF在多伦多证券交易所交易，代码为DXBU。此次0.075加元的派息水平较上月有所回落。根据历史派息记录，DXBU在2026年4月派发每股0.081加元，3月派发0.06
+中新网天津6月18日电 (薛淳月 周亚强)天津市政府新闻办17日举行“开局起步‘十五五’”系列主题新闻发布会——武清区专场。天津市武清区委副书记、区长许颖悟介绍，武清加快推进京津冀智能网联新能源汽车科技生态港(武清园)建设，东亚汽车等8个汽车项目年内将陆续投产，加速壮大动力总成、底盘车身、智能网联、汽车服务等产业链条，更好助力京津冀“共造一辆车”。 据介绍，京津冀智能网联新能源
 
 ## 正文
 
-Dynamic Active美国投资级公司债券ETF于5月19日宣布，将向持有人派发每股0.075加元的月度现金股息。
+中新网天津6月18日电 (薛淳月 周亚强)天津市政府新闻办17日举行“开局起步‘十五五’”系列主题新闻发布会——武清区专场。
 
-该股息将于5月29日支付，股权登记日为5月26日，同日为除息交易日。
+天津市武清区委副书记、区长许颖悟介绍，武清加快推进京津冀智能网联新能源汽车科技生态港(武清园)建设，东亚汽车等8个汽车项目年内将陆续投产，加速壮大动力总成、底盘车身、智能网联、汽车服务等产业链条，更好助力京津冀“共造一辆车”。
 
-月度派息略有回落 该ETF在多伦多证券交易所交易，代码为DXBU。
+据介绍，京津冀智能网联新能源汽车科技生态港(武清园)已累计入驻汽车零部件企业超40家，与小米、理想、北汽、长城等整车厂紧密配套。
 
-此次0.075加元的派息水平较上月有所回落。
+武清京津产业新城(开发区)管委会主任郎聪介绍，今年已有11个北京项目落地武清，其中4家为北京经开区整车厂配套企业，年内将新引入汽车产业实体项目10个以上。
 
-根据历史派息记录，DXBU在2026年4月派发每股0.081加元，3月派发0.062加元，2月派发0.065加元，1月派发0.035加元。
+此外，天津武清还同步培育汽车消费场景。
 
-前几个月派息水平的波动主要反映了美国投资级公司债市场利率环境的变化。
+依托V1汽车世界等载体，武清持续开展汽车展销、高端赛事、购车惠民等活动。
 
-投资策略与组合构成 该基金由1832 Asset Management L.P．发起并管理，成立于2023年10月24日，注册地在加拿大。
+武清区商务局局长苗煦雯表示，今年1至5月，武清“新商圈”核心区消费券活动已带动汽车消费2.99亿元，消费撬动比达89.39倍。
 
-基金主要投资于美元计价的美国投资级公司债券，旨在通过主动管理信用风险、证券选择和利率头寸，产生高于政府债券的收益水平。
+许颖悟表示，目前武清正深化与北京经开区、廊坊经开区、天开高教科创园等务实合作，合作共建生物医药产业园、京津冀“机器人+”产业园等园区。
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 01:08 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 00:54 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 01:02 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 00:50 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 01:08 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 00:54 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 00:57 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 00:58 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 01:17 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 00:56 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 01:09 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 01:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 01:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 01:20 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 01:18 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 01:15 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 00:59 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 01:00 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 01:15 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 00:55 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 01:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 00:54 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 01:05 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 01:11 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:13 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/572675715585.shtml)
-- 2026-06-30 01:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/74027240424.shtml)
-- 2026-06-30 01:16 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/5382191606.shtml)
-- 2026-06-30 01:02 - [逃狱兄弟](http://www.blog.minike.top/Article/details/653331532929.shtml)
-- 2026-06-30 01:02 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/125988.shtml)
-- 2026-06-30 00:57 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/18954.shtml)
-- 2026-06-30 01:12 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/72947.shtml)
-- 2026-06-30 00:51 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/086919675377.shtml)
-- 2026-06-30 01:14 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/0334949.shtml)
-- 2026-06-30 00:56 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/72832.shtml)
-- 2026-06-30 00:57 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/2055180142.shtml)
-- 2026-06-30 00:57 - [我和我的家乡](http://www.share.minike.top/Article/details/66423701003.shtml)
-- 2026-06-30 01:05 - [月亮](https://www.blog.kurohicncr.top/Article/details/04941.shtml)
-- 2026-06-30 01:17 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/7542701292.shtml)
-- 2026-06-30 01:06 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/7187683.shtml)
+- 2026-06-30 01:06 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/6256301.shtml)
+- 2026-06-30 01:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/22977550245.shtml)
+- 2026-06-30 01:00 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/85315966.shtml)
+- 2026-06-30 01:13 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/16722473311.shtml)
+- 2026-06-30 01:13 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/9427489581.shtml)
+- 2026-06-30 00:55 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/915045.shtml)
+- 2026-06-30 01:12 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/51261.shtml)
+- 2026-06-30 00:59 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/133426.shtml)
+- 2026-06-30 01:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/62438015.shtml)
+- 2026-06-30 00:56 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/7930505066.shtml)
+- 2026-06-30 01:18 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/848857603047.shtml)
+- 2026-06-30 01:11 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/812169.shtml)
+- 2026-06-30 01:19 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/83361.shtml)
+- 2026-06-30 01:10 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/869938238.shtml)
+- 2026-06-30 01:03 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/923633.shtml)

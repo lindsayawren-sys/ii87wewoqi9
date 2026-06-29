@@ -1,57 +1,59 @@
-# 数读卫浴制品年报 | 松霖科技、建霖家居靠机器人“翻盘”？ 惠达卫浴存货、应收账款周转天数双高
+# 成渝中线高铁重庆北站站改施工第三阶段完成
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。这意味着，存
+中新网重庆6月17日电 (张旭)中国铁路成都局集团有限公司17日发布消息称，当日，成渝中线高铁重庆北站站改施工第三阶段顺利完成，为成渝中线高铁正式引入重庆北站创造了条件。 成渝中线高铁是中国“八纵八横”高铁网沿江通道的重要组成部分，重庆北站是既有一等站，主要承担郑渝高铁、沪蓉铁路、渝怀铁路、渝利铁路、成渝高铁等铁路的客运业务。 为确保成渝中线高铁顺利引入重庆北站，铁路部门对重庆
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。
+中新网重庆6月17日电 (张旭)中国铁路成都局集团有限公司17日发布消息称，当日，成渝中线高铁重庆北站站改施工第三阶段顺利完成，为成渝中线高铁正式引入重庆北站创造了条件。
 
-国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。
+成渝中线高铁是中国“八纵八横”高铁网沿江通道的重要组成部分，重庆北站是既有一等站，主要承担郑渝高铁、沪蓉铁路、渝怀铁路、渝利铁路、成渝高铁等铁路的客运业务。
 
-与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。
+为确保成渝中线高铁顺利引入重庆北站，铁路部门对重庆北站站改分为四个阶段。
 
-这意味着，存量房翻新已正式取代新房装修，成为家居消费的主要需求来源。
+其中，第一阶段恢复渝怀线双线运行；第二阶段开通新建渝万上行联络线；第三阶段完成重庆北站19—21道、13—18道改造；第四阶段完成渝中线引入重庆北站及重庆北站互联互通运输优化。
 
-另一方面，“以旧换新”政策持续释放红利。
+第三阶段施工于6月9日开始、6月17日结束，共计4个天窗(指封锁线路，确保无列车经过，而预留的相应时间段)施工，需同步封锁多个区域，进行既有道岔拆除、轨排回铺、线路拨移、道岔移铺、线路连通、钢轨焊接、大机捣固、信号过渡及调试、接触网调整等作业。
 
-2025年，社会消费品零售总额达50.12万亿元，同比增长3.7%。
+据中铁五局现场施工负责人介绍，第三阶段施工中，该局累计投入1100余名作业人员及80余台大型设备，将有限复杂作业空间合理划分，实现人员、材料和设备等资源高效周转，充分释放作业空间效能，确保多工序有序作业。
 
-其中，家具类消费品全年零售额实现同比增长14.6%，较2024年显著提速，智能家居和适老化改造成为新增长极；建筑及装潢材料类受房地产市场转型期影响，零售额同比下降约2.7%，但降幅已明显收窄。
+成渝中线高铁建成后，将与已建成运营以及在建的多条铁路互联互通，进一步完善成渝地区路网结构，大幅压缩成渝两地旅行时间，极大便利沿线民众出行。
 
-截至4月30日，A股6家卫浴制品（按申万三级行业分类）上市公司均已披露2025年报。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 00:51 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 00:57 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 01:13 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 01:08 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 00:55 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 01:15 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 00:58 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 01:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 01:05 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 01:01 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 00:54 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 01:02 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 01:12 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 01:10 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 01:14 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 01:01 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 01:02 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 00:59 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 01:03 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 00:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 01:10 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 01:23 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 01:19 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:49 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/456518.shtml)
-- 2026-06-30 01:14 - [急先锋](http://www.blog.kurohicncr.top/Article/details/95518249.shtml)
-- 2026-06-30 01:04 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/7506335147.shtml)
-- 2026-06-30 00:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/0187054.shtml)
-- 2026-06-30 00:57 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/12897341.shtml)
-- 2026-06-30 00:53 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/155845452278.shtml)
-- 2026-06-30 00:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/151809685294.shtml)
-- 2026-06-30 00:52 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/28654.shtml)
-- 2026-06-30 01:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/81374156.shtml)
-- 2026-06-30 00:48 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/70320.shtml)
-- 2026-06-30 00:53 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/03166.shtml)
-- 2026-06-30 00:52 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/32235267.shtml)
-- 2026-06-30 00:48 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/8204187.shtml)
-- 2026-06-30 01:04 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/50740461.shtml)
-- 2026-06-30 01:13 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/2435484.shtml)
+- 2026-06-30 01:08 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/668151.shtml)
+- 2026-06-30 01:09 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/45359790.shtml)
+- 2026-06-30 01:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/716153.shtml)
+- 2026-06-30 01:12 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/8301342.shtml)
+- 2026-06-30 01:23 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/57898.shtml)
+- 2026-06-30 01:04 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/407128.shtml)
+- 2026-06-30 01:14 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/351574.shtml)
+- 2026-06-30 01:03 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/12667485.shtml)
+- 2026-06-30 00:54 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/6927343.shtml)
+- 2026-06-30 01:03 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/265897142.shtml)
+- 2026-06-30 00:56 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/63533706436.shtml)
+- 2026-06-30 01:20 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/2224409.shtml)
+- 2026-06-30 01:05 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/874201992442.shtml)
+- 2026-06-30 00:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/748349.shtml)
+- 2026-06-30 00:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/16522260.shtml)

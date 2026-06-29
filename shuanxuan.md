@@ -1,56 +1,55 @@
-# 中国国家卫健委：警惕与生命健康相关伪“科技概念”诈骗
+# 零成本环保攻略 从源头减少生活垃圾
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月19日电 (记者 李纯)中国国家卫生健康委员会19日在北京举行新闻发布会，新闻发言人谢杨提示公众，警惕不法分子编造与生命健康相关的伪“科技概念”行骗欺诈。 谢杨指出，近年来，一些不法分子打着“生命科学”等名义，编造“脑波修复”“能量疗愈”“光波疗愈”等与生命健康相关的伪“科技概念”行骗欺诈，宣称可以治愈疾病等，危害民众身心健康和财产安全。 谢杨说，国家卫健委郑重提
+发布时间：2026年06月18日 18:42 来源：中国新闻网 2026年6月15日至21日是第36个全国节能宣传周，主题为“节能新起点 低碳向未来”。日常买菜、点外卖，哪些小习惯能实实在在减少垃圾、保护环境？普通人收入有限，低成本甚至零成本的环保做法有哪些？《能源对话》栏目第一期，中新社国是直通车采访清华大学环境学院教授、固体废物控制与资源化教研所所长刘建国，进行解答。(汪俐
 
 ## 正文
 
-中新社北京5月19日电 (记者 李纯)中国国家卫生健康委员会19日在北京举行新闻发布会，新闻发言人谢杨提示公众，警惕不法分子编造与生命健康相关的伪“科技概念”行骗欺诈。
+发布时间：2026年06月18日 18:42 来源：中国新闻网 2026年6月15日至21日是第36个全国节能宣传周，主题为“节能新起点 低碳向未来”。
 
-谢杨指出，近年来，一些不法分子打着“生命科学”等名义，编造“脑波修复”“能量疗愈”“光波疗愈”等与生命健康相关的伪“科技概念”行骗欺诈，宣称可以治愈疾病等，危害民众身心健康和财产安全。
+日常买菜、点外卖，哪些小习惯能实实在在减少垃圾、保护环境？
 
-谢杨说，国家卫健委郑重提示，疾病诊断与治疗必须在医疗机构由具备资质的卫生专业技术人员进行。
+普通人收入有限，低成本甚至零成本的环保做法有哪些？
 
-购买药品、医疗器械和保健产品要查看批准文号和适用范围等。
+《能源对话》栏目第一期，中新社国是直通车采访清华大学环境学院教授、固体废物控制与资源化教研所所长刘建国，进行解答。
 
-非医疗机构及无资质人员利用所谓“高科技手段”进行诊疗行为的，可能涉嫌非法行医。
-
-谢杨说，不法分子常常假借“培训班”“研讨会”等名义，通过制造焦虑，利用伪科学理论塑造“权威”、虚构治愈案例等方式，对他人进行精神控制，从而骗钱敛财甚至造成人身伤害，老年人尤其要避免轻信上当。
-
-公众要提高警惕，发现相关线索的，可以向当地公安机关、卫生健康行政部门、市场监管部门等举报，也可以拨打热线反映。
-
-(完)
+(汪俐辰） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 01:17 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 01:04 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 00:55 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 00:57 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 01:04 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 01:10 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 01:13 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 00:59 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 00:55 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 01:04 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 01:05 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 01:04 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 01:14 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 01:14 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 01:13 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 01:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 01:07 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 01:17 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 01:05 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 01:05 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 00:59 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 01:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 00:54 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 01:17 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:17 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/473208.shtml)
-- 2026-06-30 00:54 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/407216795.shtml)
-- 2026-06-30 01:06 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/108941457302.shtml)
-- 2026-06-30 01:09 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/3676471744.shtml)
-- 2026-06-30 01:04 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/69950283231.shtml)
-- 2026-06-30 00:49 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/609785.shtml)
-- 2026-06-30 00:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/1485167.shtml)
-- 2026-06-30 01:14 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/40294878562.shtml)
-- 2026-06-30 00:54 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/25998622721.shtml)
-- 2026-06-30 00:57 - [急先锋](https://www.share.kurohicncr.top/Article/details/04294271119.shtml)
-- 2026-06-30 00:51 - [金刚川](https://www.blog.minike.top/Article/details/446580921009.shtml)
-- 2026-06-30 01:02 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/647397712.shtml)
-- 2026-06-30 01:16 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/917286076.shtml)
-- 2026-06-30 01:09 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/55315113.shtml)
-- 2026-06-30 01:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/516712.shtml)
+- 2026-06-30 01:03 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/2247651.shtml)
+- 2026-06-30 00:57 - [沉睡花园](http://www.blog.minike.top/Article/details/98206407.shtml)
+- 2026-06-30 01:20 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/725989.shtml)
+- 2026-06-30 01:04 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/677862929672.shtml)
+- 2026-06-30 01:13 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/35252042982.shtml)
+- 2026-06-30 01:02 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/87248779174.shtml)
+- 2026-06-30 01:19 - [蔚来车主罚站](https://www.share.minike.top/Article/details/8368842189.shtml)
+- 2026-06-30 00:58 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/4050625.shtml)
+- 2026-06-30 01:11 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/23781289.shtml)
+- 2026-06-30 01:08 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/7725995933.shtml)
+- 2026-06-30 01:05 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/19114750246.shtml)
+- 2026-06-30 01:21 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/68214224.shtml)
+- 2026-06-30 01:21 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/791105631.shtml)
+- 2026-06-30 01:07 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/60145.shtml)
+- 2026-06-30 01:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/5393524.shtml)

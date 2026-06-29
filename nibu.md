@@ -1,60 +1,45 @@
-# 中欧空间科学深度合作 “微笑”卫星守望地球家园
+# 德国汉莎航空或将进一步削减其欧洲航线网络
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月19日电 (记者 孙自法)中文“微笑”和对应的英文“SMILE”，可以说是人类社会交流交往中最和善、最常用、最有效的表情。 5月19日，由中欧联合研制、命名“微笑”的卫星成功发射升空，将中欧空间科学团队地面微笑开展的深度合作延续到太空中，通过全景成像观测地球磁层在太阳风作用下形成的微笑曲线，守望人类共同的地球家园。 “微笑”卫星是颗怎样的卫星？为何能吸引中欧合作研
+发布时间：2026年06月18日 09:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网北京5月19日电 (记者 孙自法)中文“微笑”和对应的英文“SMILE”，可以说是人类社会交流交往中最和善、最常用、最有效的表情。
-
-5月19日，由中欧联合研制、命名“微笑”的卫星成功发射升空，将中欧空间科学团队地面微笑开展的深度合作延续到太空中，通过全景成像观测地球磁层在太阳风作用下形成的微笑曲线，守望人类共同的地球家园。
-
-“微笑”卫星是颗怎样的卫星？
-
-为何能吸引中欧合作研制？
-
-双方各承担了哪些工作？
-
-未来有什么进一步的合作规划？
-
-对中欧乃至世界航天合作有何影响？
-
-“微笑”卫星中方首席科学家、中国科学院国家空间科学中心主任王赤院士就这些备受关注的话题进行科普解读。
+发布时间：2026年06月18日 09:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 01:06 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 00:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 01:17 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 01:05 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 01:12 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 00:48 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 00:53 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 01:09 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 01:16 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 00:59 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 00:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-30 01:10 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 01:05 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 00:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 01:09 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 01:23 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 01:08 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 01:14 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 00:57 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 01:15 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 00:54 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 01:10 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 01:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 01:12 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 01:05 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 01:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:58 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/57740919.shtml)
-- 2026-06-30 01:14 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/75935286413.shtml)
-- 2026-06-30 00:48 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/57194.shtml)
-- 2026-06-30 01:10 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/061707893689.shtml)
-- 2026-06-30 01:04 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/45847755510.shtml)
-- 2026-06-30 01:09 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/57177463.shtml)
-- 2026-06-30 01:13 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/47325446.shtml)
-- 2026-06-30 00:53 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/60558.shtml)
-- 2026-06-30 00:53 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/53192.shtml)
-- 2026-06-30 01:10 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/573222382.shtml)
-- 2026-06-30 00:49 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/88970510006.shtml)
-- 2026-06-30 00:51 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/068268.shtml)
-- 2026-06-30 01:01 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/4842798.shtml)
-- 2026-06-30 01:12 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/105537.shtml)
-- 2026-06-30 01:04 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/129289956.shtml)
+- 2026-06-30 01:11 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/9772887783.shtml)
+- 2026-06-30 01:00 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/51061.shtml)
+- 2026-06-30 01:13 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/65555041.shtml)
+- 2026-06-30 01:22 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/422454.shtml)
+- 2026-06-30 01:21 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/95943857248.shtml)
+- 2026-06-30 01:00 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/573094205.shtml)
+- 2026-06-30 01:06 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/181398.shtml)
+- 2026-06-30 01:12 - [千香](https://www.share.minike.top/Article/details/99770.shtml)
+- 2026-06-30 00:54 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/08449436.shtml)
+- 2026-06-30 00:59 - [周生如故](https://www.blog.kurohicncr.top/Article/details/71579448.shtml)
+- 2026-06-30 01:22 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/32890795643.shtml)
+- 2026-06-30 01:19 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/581748.shtml)
+- 2026-06-30 01:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/805523334113.shtml)
+- 2026-06-30 01:11 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/0779063.shtml)
+- 2026-06-30 01:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/899278443.shtml)

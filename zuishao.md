@@ -1,59 +1,60 @@
-# 大豆：美方称中美达成新协议 国产大豆价格走低
+# 美团、淘宝闪购、京东外卖，集体发声！
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-卓创资讯大豆市场分析师王文深 【导语】随着美国元首访华结束，中方并无宣布有新的大豆采购协议，但美方在上周末称中美达成新采购协议，美豆期货走势前跌后涨，市场对其执行力度莫衷一是。对于国内大豆市场来说，前期持续僵持的价格近期开始下跌，持续低迷的需求是导致价格下跌的主要原因。卓创资讯预计，5月下旬国产大豆价格将继续下跌。 中美新协议消息提振外盘 影响相对有限 美国总统结束访华后，中方
+据新华社消息，为规范外卖平台补贴行为，国家市场监督管理总局近日依据反垄断法、反不正当竞争法、价格法、电子商务法、食品安全法等法律法规规定，起草形成《外卖平台补贴行为规范十条（征求意见稿）》，自6月17日起至7月17日公开征求意见。 美团官网发布消息称，美团坚决拥护规范，将认真学习，积极配合，按照要求，推动各项规范要求落地见效。外卖行业长周期大规模补贴等非理性竞争，扰乱了正常的市
 
 ## 正文
 
-卓创资讯大豆市场分析师王文深 【导语】随着美国元首访华结束，中方并无宣布有新的大豆采购协议，但美方在上周末称中美达成新采购协议，美豆期货走势前跌后涨，市场对其执行力度莫衷一是。
+据新华社消息，为规范外卖平台补贴行为，国家市场监督管理总局近日依据反垄断法、反不正当竞争法、价格法、电子商务法、食品安全法等法律法规规定，起草形成《外卖平台补贴行为规范十条（征求意见稿）》，自6月17日起至7月17日公开征求意见。
 
-对于国内大豆市场来说，前期持续僵持的价格近期开始下跌，持续低迷的需求是导致价格下跌的主要原因。
+美团官网发布消息称，美团坚决拥护规范，将认真学习，积极配合，按照要求，推动各项规范要求落地见效。
 
-卓创资讯预计，5月下旬国产大豆价格将继续下跌。
+外卖行业长周期大规模补贴等非理性竞争，扰乱了正常的市场秩序。
 
-中美新协议消息提振外盘 影响相对有限 美国总统结束访华后，中方并无宣布中美达成新的大豆采购协议。
+此次《外卖平台补贴行为规范十条（征求意见稿）》的出台，将明确补贴行为的合规边界，有力遏制外卖行业“内卷式”竞争，促进行业规范健康发展。
 
-但根据上周末白宫发布的事实清单看，中国同意到2028年每年至少购买170亿美元美国农产品，这些采购承诺不包括去年10月份承诺采购的美国大豆。
+美团将对照《规范十条》各项要求，与行业各平台一道，切实履行平台主体责任，推动外卖行业走向拼品质、拼服务的良性竞争，促进多方共赢。
 
-去年10月底两国元首在韩国会晤，美国当时称中国将在2026年至2028年每年至少采购2500万吨美国大豆。
+“淘宝闪购”微信公众号发文称，健康的行业生态离不开规则的守护，公司坚决支持市场监管总局制定相关规范，促进行业高质量发展。
 
-目前市场普遍认为中美新的采购协议尚不明确，尤其是涉及后期执行情况，因此利多定价影响有所削弱。
+对于《外卖平台补贴行为规范十条（征求意见稿）》，公司将与行业各方一道，共同维护公平有序的市场竞争环境。
 
-从价格走势看，美豆期货主力7月合约价格先跌后涨：先从5月13日最高的1235美分/蒲式耳快速下行，截至5月15日收盘，价格跌至1177.25美分/蒲式耳，跌幅达到4.7%。
+“京东外卖”微信公众号也发文表示，坚决拥护这一规范，高度赞同反内卷，维护市场公平竞争秩序，保障消费者与经营者、骑手合法权益的措施。
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 00:57 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 01:17 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 00:51 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 00:49 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 01:16 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 00:50 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 01:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 01:14 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 00:49 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 00:50 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 01:04 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 01:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 01:16 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 00:58 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 00:58 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 01:09 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 01:21 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 01:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 01:23 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 01:21 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 01:03 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 00:54 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 01:09 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 01:20 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 01:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 01:13 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/55556336.shtml)
-- 2026-06-30 01:08 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/4441315.shtml)
-- 2026-06-30 01:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/34761431936.shtml)
-- 2026-06-30 00:52 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/2523953.shtml)
-- 2026-06-30 01:13 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/5041494.shtml)
-- 2026-06-30 00:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/40341100157.shtml)
-- 2026-06-30 00:54 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/27710432.shtml)
-- 2026-06-30 01:05 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/62887.shtml)
-- 2026-06-30 00:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/6036859472.shtml)
-- 2026-06-30 01:09 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/957758.shtml)
-- 2026-06-30 01:00 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/32175619812.shtml)
-- 2026-06-30 00:48 - [沉睡花园](http://www.share.minike.top/Article/details/314676067738.shtml)
-- 2026-06-30 00:56 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/383490681.shtml)
-- 2026-06-30 01:11 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/039746294102.shtml)
-- 2026-06-30 01:07 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/34331458059.shtml)
+- 2026-06-30 01:20 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/72644559070.shtml)
+- 2026-06-30 00:59 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/0176098350.shtml)
+- 2026-06-30 01:06 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/65186178.shtml)
+- 2026-06-30 01:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/3017964489.shtml)
+- 2026-06-30 01:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/423922404745.shtml)
+- 2026-06-30 00:54 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/85129130356.shtml)
+- 2026-06-30 01:19 - [毒液2](http://www.share.minike.top/Article/details/62967.shtml)
+- 2026-06-30 01:12 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/06494728255.shtml)
+- 2026-06-30 01:21 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/8168069.shtml)
+- 2026-06-30 01:08 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/4550023809.shtml)
+- 2026-06-30 01:23 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/3748298879.shtml)
+- 2026-06-30 01:16 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/856626519.shtml)
+- 2026-06-30 01:08 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/283822795.shtml)
+- 2026-06-30 01:02 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/39327868.shtml)
+- 2026-06-30 01:20 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/93721084492.shtml)

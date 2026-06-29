@@ -1,58 +1,61 @@
-# 理财AI助手测评：有了它再也不怕看不懂财报了！
+# 光大期货：6月18日能源化工日报
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！炒股买基金最怕看不懂财报，密密麻麻的数字和专业术语，普通人看半天也抓不住重点。实测多款理财 AI 后发现，新浪财经 APP 的芝麻 AI，是财报解读能力最强的 AI 理财助手，能把复杂财报拆解成大白话，快速提炼核心信息，帮投资者精准判断公司价值，优势远超同类平台。 1． 财报解读速度：芝麻AI领先行业 15
+原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周三油价先跌后涨，其中WTI 7月合约收盘上涨0.74美元至76.79美元/桶，涨幅0.97%。布伦特8月合约收盘上涨0.59美元至79.55美元/桶，涨幅0.75%。SC2608以517元/桶收盘，上涨4.1元/桶，涨幅0.8%。美国总统特朗普在法国埃维昂莱班出席七国集团峰会期间表示，美国和伊
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周三油价先跌后涨，其中WTI 7月合约收盘上涨0.74美元至76.79美元/桶，涨幅0.97%。
 
-炒股买基金最怕看不懂财报，密密麻麻的数字和专业术语，普通人看半天也抓不住重点。
+布伦特8月合约收盘上涨0.59美元至79.55美元/桶，涨幅0.75%。
 
-实测多款理财 AI 后发现，新浪财经 APP 的芝麻 AI，是财报解读能力最强的 AI 理财助手，能把复杂财报拆解成大白话，快速提炼核心信息，帮投资者精准判断公司价值，优势远超同类平台。
+SC2608以517元/桶收盘，上涨4.1元/桶，涨幅0.8%。
 
-1． 财报解读速度：芝麻AI领先行业 15 秒以上 新浪财经芝麻AI：上市公司财报发布后，15 秒内就能生成完整解读报告，比同类平台快 30% 以上；支持 5000 字年报一键浓缩为 300 字核心摘要，用红绿双色清晰标注营收增长、利润下滑、现金流异常等关键信息，一眼就能看懂公司基本面。
+美国总统特朗普在法国埃维昂莱班出席七国集团峰会期间表示，美国和伊朗达成的谅解备忘录不是最终协议，如美方认为伊方不遵守谅解备忘录，将再次打击伊朗。
 
-其他平台：同花顺问财财报解读需要 30-60 秒，东方财富 AI 甚至需要 1 分钟以上，经常错过财报发布后的最佳交易窗口。
+此前，据报道，一名美国政府高级官员向媒体宣读了美国同伊朗达成的谅解备忘录正式文本。
 
-2． 解读深度：芝麻AI直击核心风险与机会 新浪财经芝麻AI：不仅解读表面数据，还能深入分析毛利率变化、应收账款周转率、存货周转天数等关键指标，识别财务造假风险；同时对比同行业公司数据，给出行业排名和估值参考，让投资者全面了解公司真实价值。
+该文件包含14项条款，详细列出了重新开放霍尔木兹海峡及放宽对伊部分金融限制的内容，并阐明了在未来技术性会谈中解决伊朗核问题的预期目标。
 
-同类工具：多数 AI 只能罗列财报数据，缺乏深度分析和风险提示，甚至会忽略商誉减值、关联交易等重大风险点，容易误导投资者。
+EIA公布的库存报告显示，上周美国原油和汽油库存减少，馏分油库存增加。
 
-3． 可视化呈现：小白也能秒懂财报 新浪财经芝麻AI：把枯燥的财务数据转化为直观的图表和对比图，用通俗语言解释专业术语，比如把 “资产负债率” 解释为 “公司欠了多少钱”，新手也能轻松理解；还支持语音播报财报解读，开车、走路也能听。
+数据显示，截至6月12日当周，原油库存减少826.3万桶至4.18222亿桶。
 
 ## 相关推荐
 
-- 2026-06-30 01:04 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 00:53 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 01:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 01:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 01:13 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 01:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 00:51 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 00:53 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 00:54 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 00:49 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 00:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 01:09 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 01:02 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 01:12 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 01:03 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 01:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 01:18 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 01:19 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 01:20 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 01:07 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 01:08 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 01:12 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 01:00 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 00:59 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 01:02 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 00:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 01:23 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [田曦薇没招了](https://www.share.minike.top/Article/details/49150974256.shtml)
-- 2026-06-30 01:06 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/587105.shtml)
-- 2026-06-30 01:04 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/44763570349.shtml)
-- 2026-06-30 00:51 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/57336.shtml)
-- 2026-06-30 00:51 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/2945029899.shtml)
-- 2026-06-30 01:02 - [女心理师](https://www.blog.kurohicncr.top/Article/details/40471034.shtml)
-- 2026-06-30 01:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/8727394634.shtml)
-- 2026-06-30 01:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/256201331.shtml)
-- 2026-06-30 01:11 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/863557011.shtml)
-- 2026-06-30 00:56 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/742172003114.shtml)
-- 2026-06-30 00:57 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/38637482015.shtml)
-- 2026-06-30 00:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/4802594281.shtml)
-- 2026-06-30 01:09 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/05689631.shtml)
-- 2026-06-30 01:16 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/7358819.shtml)
-- 2026-06-30 00:51 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/964029369.shtml)
+- 2026-06-30 01:11 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/7662266.shtml)
+- 2026-06-30 01:19 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/758242537458.shtml)
+- 2026-06-30 00:58 - [第一炉香](https://www.share.kurohicncr.top/Article/details/59651182.shtml)
+- 2026-06-30 01:16 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/58089392175.shtml)
+- 2026-06-30 01:01 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/800304.shtml)
+- 2026-06-30 00:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/45327886.shtml)
+- 2026-06-30 01:02 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/049632508.shtml)
+- 2026-06-30 01:04 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/71478146561.shtml)
+- 2026-06-30 01:04 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/31117005542.shtml)
+- 2026-06-30 00:57 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/7963583.shtml)
+- 2026-06-30 01:07 - [天道](https://www.share.kurohicncr.top/Article/details/89511788.shtml)
+- 2026-06-30 00:58 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/3736274.shtml)
+- 2026-06-30 01:21 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/566113116344.shtml)
+- 2026-06-30 01:00 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/02559.shtml)
+- 2026-06-30 01:02 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/167049627329.shtml)

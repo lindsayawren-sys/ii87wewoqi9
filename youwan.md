@@ -1,51 +1,49 @@
-# 福耀玻璃遭摩根大通减持约61.87万股 每股作价约61.21港元
+# 国际能源署：美国原油大批出口打压地中海原油价格
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月14日，摩根大通减持福耀玻璃（03606）61.8741万股，每股作价61.2138港元，总金额约为3787.55万港元。减持后最新持股数目约为8465.47万股，最新持股比例为13.95%。责任编辑：卢昱君
+国际能源署在月度报告中称，上月大量美国原油涌入大西洋盆地，拖累地中海、里海原油价差走弱；同时受需求降温影响，安哥拉原油升水大幅下跌。 尽管炼油利润向好、运费走低，且炼厂为夏季出行旺季提前提升加工负荷，地中海与里海原油品种价格依旧承压。责任编辑：陈钰嘉
 
 ## 正文
 
-香港联交所最新资料显示，5月14日，摩根大通减持福耀玻璃（03606）61.8741万股，每股作价61.2138港元，总金额约为3787.55万港元。
+国际能源署在月度报告中称，上月大量美国原油涌入大西洋盆地，拖累地中海、里海原油价差走弱；同时受需求降温影响，安哥拉原油升水大幅下跌。
 
-减持后最新持股数目约为8465.47万股，最新持股比例为13.95%。
+尽管炼油利润向好、运费走低，且炼厂为夏季出行旺季提前提升加工负荷，地中海与里海原油品种价格依旧承压。
 
-责任编辑：卢昱君
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 01:12 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 00:57 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 01:09 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 01:02 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 01:03 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 01:05 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 01:07 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 00:49 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 01:10 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 01:12 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 01:00 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 00:54 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 01:06 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 01:09 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 00:50 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 01:21 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 01:00 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 01:09 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 01:22 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 00:55 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 01:21 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 01:13 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 00:57 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 00:55 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 01:23 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 01:23 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 01:18 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 01:15 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:54 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/739960429165.shtml)
-- 2026-06-30 01:06 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/548019.shtml)
-- 2026-06-30 01:07 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/660360158.shtml)
-- 2026-06-30 00:59 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/36090726659.shtml)
-- 2026-06-30 00:54 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/841731228067.shtml)
-- 2026-06-30 00:56 - [金牌调解](https://www.share.minike.top/Article/details/800291208.shtml)
-- 2026-06-30 01:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/77475.shtml)
-- 2026-06-30 00:59 - [货车司机恶意闯卡逃费被行拘](http://www.share.minike.top/Article/details/698006.shtml)
-- 2026-06-30 00:48 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/45411279306.shtml)
-- 2026-06-30 01:06 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/448859822.shtml)
-- 2026-06-30 01:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/95855.shtml)
-- 2026-06-30 01:11 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/394294845.shtml)
-- 2026-06-30 01:04 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/15061575.shtml)
-- 2026-06-30 00:48 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/801642663.shtml)
-- 2026-06-30 01:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/62514.shtml)
+- 2026-06-30 01:04 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/435908.shtml)
+- 2026-06-30 01:19 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/16039.shtml)
+- 2026-06-30 00:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/8057363.shtml)
+- 2026-06-30 01:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/293478289151.shtml)
+- 2026-06-30 01:12 - [毒液2](https://www.share.kurohicncr.top/Article/details/18721283.shtml)
+- 2026-06-30 01:21 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/87480212.shtml)
+- 2026-06-30 01:15 - [恋与深空 日服](https://www.blog.minike.top/Article/details/05444011.shtml)
+- 2026-06-30 01:02 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/18581.shtml)
+- 2026-06-30 01:00 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/945727804.shtml)
+- 2026-06-30 01:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/90992.shtml)
+- 2026-06-30 01:18 - [田曦薇没招了](https://www.blog.minike.top/Article/details/676630882.shtml)
+- 2026-06-30 01:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/841203915.shtml)
+- 2026-06-30 01:00 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/8702042.shtml)
+- 2026-06-30 01:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/0473171128.shtml)
+- 2026-06-30 01:19 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/61987.shtml)

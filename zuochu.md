@@ -1,59 +1,60 @@
-# 国家级战略合作按下加速键，海信视像打造东盟市场新增长极
+# 新加坡冬海集团悄然进军美国市场 测试AI聊天机器人Migoo
 
-> 更新时间：2026-06-30 01:18:02 UTC+8
+> 更新时间：2026-06-30 01:24:02 UTC+8
 
 ## 摘要
 
-5月15日，海信集团与印度尼西亚丹纳塔拉投资管理局(BPI Danantara)正式签署战略合作备忘录。印尼总统普拉博沃·苏比安托与海信集团董事长贾少谦共同出席并见证签约。 此次国家级战略合作的达成，为海信全方位布局东盟市场按下了“加速键”。此前，印尼总统亲自牵头推进首个国家级民生教育工程，为全国30万所学校配备教育交互大屏——这是全球最大的交互平板单一工程项目。凭借卓越的产品
+在美股上市的新加坡互联网领军企业冬海集团（Sea Ltd．）正在包括美国在内的地区推出一款生成式人工智能（AI）聊天机器人，这是该公司首次进军竞争激烈的美国消费市场，加快AI布局。 知情人士透露，这款名为Migoo的AI陪伴聊天机器人已经上线，可能很快会进行更大规模发布。Migoo的网站和应用并未提及冬海为所有者。该应用直接接入苹果iMessage等平台，旨在充当高度个性化的陪
 
 ## 正文
 
-5月15日，海信集团与印度尼西亚丹纳塔拉投资管理局(BPI Danantara)正式签署战略合作备忘录。
+在美股上市的新加坡互联网领军企业冬海集团（Sea Ltd．）正在包括美国在内的地区推出一款生成式人工智能（AI）聊天机器人，这是该公司首次进军竞争激烈的美国消费市场，加快AI布局。
 
-印尼总统普拉博沃·苏比安托与海信集团董事长贾少谦共同出席并见证签约。
+知情人士透露，这款名为Migoo的AI陪伴聊天机器人已经上线，可能很快会进行更大规模发布。
 
-此次国家级战略合作的达成，为海信全方位布局东盟市场按下了“加速键”。
+Migoo的网站和应用并未提及冬海为所有者。
 
-此前，印尼总统亲自牵头推进首个国家级民生教育工程，为全国30万所学校配备教育交互大屏——这是全球最大的交互平板单一工程项目。
+该应用直接接入苹果iMessage等平台，旨在充当高度个性化的陪伴型聊天机器人，能够记住用户的喜好和习惯。
 
-凭借卓越的产品表现和当地化供应链布局，海信商显成功中标该工程，并在当年顺利完成了全部终端的交付。
+该项目是冬海迄今进军AI领域最重要的举措之一。
 
-赢的底气，源自海信视像核心技术的自主可控。
+冬海运营热门线上零售平台虾皮和游戏平台Garena，过去一年股价下跌逾40%，因其在AI领域落后于阿里巴巴和腾讯控股等亚洲同行。
 
-海信商用显示业务“以AI技术突破与全球化布局”为双轮驱动，坚定推进自主品牌出海战略，坚定创新投入高端平台。
+知情人士称，在美国，冬海的目标是利润丰厚且竞争激烈的Z世代AI市场，该市场由OpenAI和字节跳等公司主导。
 
-正是这一前瞻决策，让海信在此次竞标中具备了绝对的技术优势。
+知情人士因讨论非公开计划而要求匿名。
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 00:58 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 01:17 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 01:17 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 00:58 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 00:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 01:02 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 00:59 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 00:48 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 01:17 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 01:17 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 01:07 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 01:09 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 00:55 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 00:55 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 01:01 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 01:17 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 01:09 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 01:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 01:14 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 00:57 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 01:22 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 01:23 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 01:02 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 01:23 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 00:59 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 00:58 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/645481966.shtml)
-- 2026-06-30 01:09 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/28455.shtml)
-- 2026-06-30 01:12 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/47478.shtml)
-- 2026-06-30 01:17 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/443430109153.shtml)
-- 2026-06-30 01:10 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/16877753249.shtml)
-- 2026-06-30 01:16 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/63136.shtml)
-- 2026-06-30 01:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/055355.shtml)
-- 2026-06-30 00:54 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/240400437.shtml)
-- 2026-06-30 01:08 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/458362093343.shtml)
-- 2026-06-30 01:06 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/0622975.shtml)
-- 2026-06-30 01:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/84279782876.shtml)
-- 2026-06-30 01:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/0975069.shtml)
-- 2026-06-30 00:59 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/22741085.shtml)
-- 2026-06-30 00:54 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/92564719751.shtml)
-- 2026-06-30 01:17 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/86884472213.shtml)
+- 2026-06-30 01:21 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/034906164.shtml)
+- 2026-06-30 01:05 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/193959.shtml)
+- 2026-06-30 01:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/0444017117.shtml)
+- 2026-06-30 01:07 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/1389155740.shtml)
+- 2026-06-30 01:21 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/67080.shtml)
+- 2026-06-30 01:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/81811357.shtml)
+- 2026-06-30 01:06 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/86797016152.shtml)
+- 2026-06-30 01:04 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/58437104.shtml)
+- 2026-06-30 01:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/1320030753.shtml)
+- 2026-06-30 01:15 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/464695654.shtml)
+- 2026-06-30 01:13 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/79653314561.shtml)
+- 2026-06-30 00:58 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/5296660.shtml)
+- 2026-06-30 01:17 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/5633328.shtml)
+- 2026-06-30 01:16 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/975564424831.shtml)
+- 2026-06-30 01:21 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/36653.shtml)
