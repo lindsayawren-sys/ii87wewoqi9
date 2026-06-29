@@ -1,56 +1,57 @@
-# 东西问｜诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力
+# 致敬劳动者！建行这些个人和集体获全国五一劳动奖
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月23日电 题：诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力 作者 贺劭清 李嘉茵 “波斯大地不因世间的苦难而悲伤，只要有神荫如你般笼罩其上。哦，主啊，请从风暴中守护这片土地——只要土地长存，风暴亦将永恒。” 4月21日，美伊两周停火来到了最后时刻。面对“摧毁一切”的威胁，伊朗总统佩泽希齐扬在社交平台分享了一段诗句——出自古波斯诗人萨迪之手。 波斯，有
+4月28日，中华全国总工会召开庆祝“五一”国际劳动节暨全国五一劳动奖表彰大会，发布关于表彰2026年全国五一劳动奖的决定，共表彰全国五一劳动奖3024个。其中，全国五一劳动奖状379个、全国五一劳动奖章1462名、全国工人先锋号1183个。 建设银行共有2名个人和2个集体喜获全国五一劳动奖。其中，湖南省岳阳县支行行长方石奎、云南省玉溪市红塔支行客户经理王俊颖被授予全国五一劳动奖
 
 ## 正文
 
-中新网北京4月23日电 题：诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力 作者 贺劭清 李嘉茵 “波斯大地不因世间的苦难而悲伤，只要有神荫如你般笼罩其上。
+4月28日，中华全国总工会召开庆祝“五一”国际劳动节暨全国五一劳动奖表彰大会，发布关于表彰2026年全国五一劳动奖的决定，共表彰全国五一劳动奖3024个。
 
-哦，主啊，请从风暴中守护这片土地——只要土地长存，风暴亦将永恒。
+其中，全国五一劳动奖状379个、全国五一劳动奖章1462名、全国工人先锋号1183个。
 
-” 4月21日，美伊两周停火来到了最后时刻。
+建设银行共有2名个人和2个集体喜获全国五一劳动奖。
 
-面对“摧毁一切”的威胁，伊朗总统佩泽希齐扬在社交平台分享了一段诗句——出自古波斯诗人萨迪之手。
+其中，湖南省岳阳县支行行长方石奎、云南省玉溪市红塔支行客户经理王俊颖被授予全国五一劳动奖章，内蒙古满洲里分行国际业务部、重庆市杨家坪支行营业室被授予全国工人先锋号。
 
-波斯，有诗国之名。
+为大力弘扬劳模精神、劳动精神、工匠精神，表彰激励先进典型，凝聚起团结奋进的强大力量，本期刊发受表彰的个人和集体事迹简介。
 
-萨迪，是诗国最伟大的诗人之一。
+全国五一劳动奖章获得者方石奎任建设银行岳阳县支行行长，助理会计师 作为建设银行一名基层行长，方石奎打造的县域“党费云”平台实现全县单位全覆盖；推广的裕农信贷产品被广大农户亲切称为“王鸽贷”“水稻贷”，帮助数百农户增收增效，助力“岳阳王鸽”品牌走出湖南；他带领团队扎实做好金融“五篇大文章”，为“十四五”电力发展规划国家级重大项目和多个省市级重点项目提供优质的金融服务。
 
-八个世纪前，半生颠沛流离的萨迪游历埃及、阿拉伯、印度等地，历经战乱与磨难，用一生的见闻与哲思为波斯文明写下了温柔一笔。
+全国五一劳动奖章获得者王俊颖任建设银行玉溪市分行红塔支行客户经理 深耕基层十余载，王俊颖用行动诠释党员担当，以暖心服务书写金融人的温情答卷。
 
-从十字军东征到美以伊战事，风暴在中东从未停歇，而萨迪的诗歌也在这片土地传唱至今。
+她走出网点，把金融课堂搬进车间厂房，用心倾听一线职工心声，将专业复杂的金融方案化作家常话语，暖心化解群众困惑；在棚改民生服务关键时期，她创新便民服务模式，携移动设备走街串巷，用心用情办好民生实事；面对行动不便的独居老人，她主动上门答疑解惑，用脚步缩短服务距离。
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 06:28 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 06:18 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 06:07 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 06:09 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 06:29 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 06:24 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 06:27 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 06:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 06:32 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 06:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 06:35 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 06:15 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 06:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 06:40 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 06:13 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 06:34 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 06:26 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 06:32 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 06:15 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 06:17 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:26 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/331573375847.shtml)
-- 2026-06-30 06:07 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/203795549444.shtml)
-- 2026-06-30 06:17 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/61487.shtml)
-- 2026-06-30 06:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/637904459198.shtml)
-- 2026-06-30 06:34 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/088324885.shtml)
-- 2026-06-30 06:09 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/250797909940.shtml)
-- 2026-06-30 06:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/83851.shtml)
-- 2026-06-30 06:35 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/2870946147.shtml)
-- 2026-06-30 06:29 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/652774.shtml)
-- 2026-06-30 06:25 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/894563.shtml)
-- 2026-06-30 06:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/98970.shtml)
-- 2026-06-30 06:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/052359451090.shtml)
-- 2026-06-30 06:21 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/37712871.shtml)
-- 2026-06-30 06:09 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/5687432.shtml)
-- 2026-06-30 06:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/224998.shtml)
+- 2026-06-30 06:18 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/0719767188.shtml)
+- 2026-06-30 06:21 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/25801392649.shtml)
+- 2026-06-30 06:37 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/623676302.shtml)
+- 2026-06-30 06:19 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/88767.shtml)
+- 2026-06-30 06:40 - [第一炉香](http://www.share.kurohicncr.top/Article/details/8674486.shtml)
+- 2026-06-30 06:26 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/234929461.shtml)
+- 2026-06-30 06:34 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/9101282.shtml)
+- 2026-06-30 06:17 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/380958.shtml)
+- 2026-06-30 06:28 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/39512.shtml)
+- 2026-06-30 06:16 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/297444408.shtml)
+- 2026-06-30 06:24 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/843793265.shtml)
+- 2026-06-30 06:18 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/452672755627.shtml)
+- 2026-06-30 06:31 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/43098144.shtml)
+- 2026-06-30 06:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/710050583364.shtml)
+- 2026-06-30 06:23 - [一见倾心](https://www.share.kurohicncr.top/Article/details/0627673.shtml)

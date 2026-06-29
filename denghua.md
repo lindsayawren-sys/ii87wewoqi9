@@ -1,56 +1,59 @@
-# 五一假期进山踏青 这份山火逃生指南请收好
+# 美国司法部：华盛顿晚宴枪击案嫌犯行刺前曾查询特朗普行踪
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-五一假期临近，很多游客假期里会进山踏青、亲近自然。国家森防指办公室、应急管理部近期督促各地做好五一假期期间森林草原火灾防控工作。总台记者近日在辽宁、山东走访时看到，当地正通过人防加技防等手段，加密火灾防控网。 建强空地装备 完善扑火救援力量体系 4月下旬，辽宁沈阳一场森林火灾扑救实战演练正在进行。演练模拟沈阳棋盘山突发火灾，扑火队员们利用无人机、高炮车等多种先进森林消防装备对火
+据美国司法部披露的最新细节，被控上周六在华盛顿一家酒店试图刺杀特朗普的男子，在与现场安保发生交火前曾通过网站和实时视频流跟踪该总统行踪。 司法部在一份法庭文件中称，嫌疑人科尔·托马斯·艾伦在酒店房间的镜子前拍下武装后的照片，随后下楼前往特朗普出席晚宴的地点。政府称，当接近一个安检点时，艾伦脱下遮掩霰弹枪的黑色长外套，“冲过”金属探测门，并至少朝着通往宴会厅的楼梯方向开枪一次，随
 
 ## 正文
 
-五一假期临近，很多游客假期里会进山踏青、亲近自然。
+据美国司法部披露的最新细节，被控上周六在华盛顿一家酒店试图刺杀特朗普的男子，在与现场安保发生交火前曾通过网站和实时视频流跟踪该总统行踪。
 
-国家森防指办公室、应急管理部近期督促各地做好五一假期期间森林草原火灾防控工作。
+司法部在一份法庭文件中称，嫌疑人科尔·托马斯·艾伦在酒店房间的镜子前拍下武装后的照片，随后下楼前往特朗普出席晚宴的地点。
 
-总台记者近日在辽宁、山东走访时看到，当地正通过人防加技防等手段，加密火灾防控网。
+政府称，当接近一个安检点时，艾伦脱下遮掩霰弹枪的黑色长外套，“冲过”金属探测门，并至少朝着通往宴会厅的楼梯方向开枪一次，随后他被制服并拘捕。
 
-建强空地装备 完善扑火救援力量体系 4月下旬，辽宁沈阳一场森林火灾扑救实战演练正在进行。
+联邦检察官周三披露了上述新信息，他们请求法官在审判前继续羁押艾伦。
 
-演练模拟沈阳棋盘山突发火灾，扑火队员们利用无人机、高炮车等多种先进森林消防装备对火势开展联合打击。
+政府律师写道，尽管艾伦没有犯罪记录，但他“不仅展现出获取并使用大量致命武器的能力，还表现出为通过暴力实现政治目的而欺骗身边最亲近之人的意愿”。
 
-总台央视记者 唐国荣：这是一套名叫朱雀的防灭火一体化无人机集群装备，每年到了防火紧要期，沈阳每周都会定期出动两台侦察无人机，对全市重点林区山头进行侦察，一旦发现有火情，它就会自动回传坐标。
+联邦检察官表示，“如果被告达成其预期结果，将成为美国历史上最黑暗的日子之一。
 
-遇到大火需要整编队出动的时候，10台红色灭火无人机就会挂载着500公斤的灭火弹，10分钟内完成起飞奔赴火场。
+” 听证会定于周四在华盛顿联邦地区法院举行。
 
-机群的最大作战半径达10公里，单次的打击过火面积达1200平方米。
+艾伦的律师暂未回应置评请求。
 
 ## 相关推荐
 
-- 2026-06-30 06:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 06:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 06:14 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 06:36 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 06:16 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 06:06 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 06:27 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 06:17 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 06:22 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 06:12 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 06:37 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-30 06:40 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 06:39 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 06:37 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 06:33 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 06:25 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 06:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 06:15 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 06:26 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 06:29 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 06:40 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 06:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 06:39 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:27 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/029099.shtml)
-- 2026-06-30 06:32 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/09844.shtml)
-- 2026-06-30 06:29 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/966781.shtml)
-- 2026-06-30 06:33 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/26423.shtml)
-- 2026-06-30 06:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/083346.shtml)
-- 2026-06-30 06:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/708890132758.shtml)
-- 2026-06-30 06:13 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/9214395.shtml)
-- 2026-06-30 06:06 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/1456261.shtml)
-- 2026-06-30 06:08 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/9308247.shtml)
-- 2026-06-30 06:33 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/6394797.shtml)
-- 2026-06-30 06:15 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/657143060.shtml)
-- 2026-06-30 06:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/674608874.shtml)
-- 2026-06-30 06:19 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/6174740646.shtml)
-- 2026-06-30 06:08 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/62627138453.shtml)
-- 2026-06-30 06:29 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/3560781543.shtml)
+- 2026-06-30 06:29 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/1370708.shtml)
+- 2026-06-30 06:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/37132354626.shtml)
+- 2026-06-30 06:15 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/342843019.shtml)
+- 2026-06-30 06:22 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/97889.shtml)
+- 2026-06-30 06:33 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/139600624243.shtml)
+- 2026-06-30 06:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/322065.shtml)
+- 2026-06-30 06:22 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/78145.shtml)
+- 2026-06-30 06:23 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/97782714.shtml)
+- 2026-06-30 06:23 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/60158003641.shtml)
+- 2026-06-30 06:17 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/22516.shtml)
+- 2026-06-30 06:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/97300388663.shtml)
+- 2026-06-30 06:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/87415.shtml)
+- 2026-06-30 06:40 - [巴西绝杀](https://www.blog.minike.top/Article/details/40169564396.shtml)
+- 2026-06-30 06:34 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/5718058308.shtml)
+- 2026-06-30 06:24 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/65975313.shtml)

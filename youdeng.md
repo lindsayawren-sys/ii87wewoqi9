@@ -1,52 +1,55 @@
-# 建交65周年 中国老挝合作“一路生花”香飘万里
+# 以军称哈马斯军事情报总部作战部门负责人身亡
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网4月25日电 2026年是中老建交65周年暨“中老友好年”。六十余载风雨同舟，两国在文化、教育、卫生、经贸等领域交流合作持续深化，结出累累硕果。 正如老挝谚语所说：“同饮一井水，同走一条路，清水能解乏，真心换友情。”从高质量共建“一带一路”到中老铁路开通运营，两国合作始终一路向前，一路生花。 (“图览天下”栏目) 文案：甘甜 设计：李永丽 策划及审校：孟湘君 孔庆玲 谷丽
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社耶路撒冷4月29日电（记者王卓伦庞昕熠）以色列国防军与以色列国家安全总局（辛贝特）29日发表联合声明称，双方28日在加沙地带北部发动空袭，打死巴勒斯坦伊斯兰抵抗运动（哈马斯）军事情报总部作战部门负责人伊亚德·艾哈迈德·阿卜杜勒-拉赫曼·尚巴里。 声明称，尚巴里近年来负责汇总整个加沙地带的作战态势评估，
 
 ## 正文
 
-中新网4月25日电 2026年是中老建交65周年暨“中老友好年”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-六十余载风雨同舟，两国在文化、教育、卫生、经贸等领域交流合作持续深化，结出累累硕果。
+新华社耶路撒冷4月29日电（记者王卓伦庞昕熠）以色列国防军与以色列国家安全总局（辛贝特）29日发表联合声明称，双方28日在加沙地带北部发动空袭，打死巴勒斯坦伊斯兰抵抗运动（哈马斯）军事情报总部作战部门负责人伊亚德·艾哈迈德·阿卜杜勒-拉赫曼·尚巴里。
 
-正如老挝谚语所说：“同饮一井水，同走一条路，清水能解乏，真心换友情。
+声明称，尚巴里近年来负责汇总整个加沙地带的作战态势评估，是哈马斯军事情报体系中的关键人物。
 
-”从高质量共建“一带一路”到中老铁路开通运营，两国合作始终一路向前，一路生花。
+他长期参与收集以军部队情报，用于制定并实施针对以军的袭击计划，对在该地区行动的以军构成“直接威胁”。
 
-(“图览天下”栏目) 文案：甘甜 设计：李永丽 策划及审校：孟湘君 孔庆玲 谷丽萍 文字来源：中华人民共和国外交部、新华社、人民日报、中新网等
+此外，他还参与策划了哈马斯在2023年10月7日对以色列发动的大规模袭击。
+
+声明称，以军南方司令部部队目前仍按相关协议部署在该地区，并将继续采取行动，以消除任何“即时威胁”。
+
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 06:08 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 06:09 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 06:31 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 06:14 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 06:22 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 06:28 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 06:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 06:23 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 06:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 06:28 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 06:19 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 06:09 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 06:34 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 06:16 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 06:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 06:30 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 06:28 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 06:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 06:15 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 06:39 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 06:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 06:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 06:32 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [青春环游记第三季](https://www.blog.minike.top/Article/details/64196.shtml)
-- 2026-06-30 06:09 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/0499731068.shtml)
-- 2026-06-30 06:16 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/14985008363.shtml)
-- 2026-06-30 06:32 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/5773804332.shtml)
-- 2026-06-30 06:25 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/1719679925.shtml)
-- 2026-06-30 06:29 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/754628762.shtml)
-- 2026-06-30 06:09 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/744561.shtml)
-- 2026-06-30 06:28 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/408826.shtml)
-- 2026-06-30 06:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/529383377.shtml)
-- 2026-06-30 06:34 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/19940.shtml)
-- 2026-06-30 06:13 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/94809774954.shtml)
-- 2026-06-30 06:13 - [急先锋](https://www.share.kurohicncr.top/Article/details/5955407.shtml)
-- 2026-06-30 06:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/49020.shtml)
-- 2026-06-30 06:31 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/75429.shtml)
-- 2026-06-30 06:07 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/1702413.shtml)
+- 2026-06-30 06:33 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/7775310.shtml)
+- 2026-06-30 06:15 - [绘画区你赢了](https://www.share.minike.top/Article/details/748891404936.shtml)
+- 2026-06-30 06:16 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/3525783.shtml)
+- 2026-06-30 06:18 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/60023871.shtml)
+- 2026-06-30 06:22 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/95407.shtml)
+- 2026-06-30 06:33 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/060058.shtml)
+- 2026-06-30 06:18 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/72766.shtml)
+- 2026-06-30 06:21 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/5349807909.shtml)
+- 2026-06-30 06:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/202921476.shtml)
+- 2026-06-30 06:19 - [张凌赫 客串](https://www.blog.minike.top/Article/details/621437497.shtml)
+- 2026-06-30 06:18 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/01909291.shtml)
+- 2026-06-30 06:33 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/047553.shtml)
+- 2026-06-30 06:21 - [斗破苍穹](https://www.blog.minike.top/Article/details/001592520338.shtml)
+- 2026-06-30 06:24 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/610744766.shtml)
+- 2026-06-30 06:14 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/3549707.shtml)

@@ -1,60 +1,59 @@
-# 北京国际电影节通州分会场上演“水上红毯” 同步启幕运河唤醒周
+# 摩根大通CEO戴蒙再度警告信贷市场风险 称潜在下行恐比预期更为严重
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月25日电 (记者 陈杭)第十六届北京国际电影节通州分会场系列活动24日在北京艺术中心和运河西岸华美绽放，以一场水岸交融的光影盛会，拉开2026运河唤醒周的全域文旅大幕。 作为北京城市副中心年度重点文化活动，本届电影节通州分会场以“光影唤醒运河”为鲜明主题，精心打造“影像未来式”主题研讨、“水上会客厅”“水上红毯”“电影视效荣耀时刻”四大特色板块，与2026运河唤醒
+摩根大通CEO杰米·戴蒙再次警告称信贷市场的下行可能比预期更为严重，尽管他的公司和华尔街其他大行在近期公布了亮眼的财报，且贷款组合保持稳健。 戴蒙周二在挪威央行投资管理公司会议上表示，私募信贷领域有超过1000家公司，这或许意味着当经济周期转变时，并非所有公司都能表现良好。 戴蒙说：“有些公司可能很出色，但我保证并非所有1000家公司都如此。因此，在我看来，由于这一点以及承销标
 
 ## 正文
 
-中新网北京4月25日电 (记者 陈杭)第十六届北京国际电影节通州分会场系列活动24日在北京艺术中心和运河西岸华美绽放，以一场水岸交融的光影盛会，拉开2026运河唤醒周的全域文旅大幕。
+摩根大通CEO杰米·戴蒙再次警告称信贷市场的下行可能比预期更为严重，尽管他的公司和华尔街其他大行在近期公布了亮眼的财报，且贷款组合保持稳健。
 
-作为北京城市副中心年度重点文化活动，本届电影节通州分会场以“光影唤醒运河”为鲜明主题，精心打造“影像未来式”主题研讨、“水上会客厅”“水上红毯”“电影视效荣耀时刻”四大特色板块，与2026运河唤醒周实现内容衔接、场景联动、全民共享，呈现一场兼具文化厚度、产业高度、时代气度与全民热度的文商旅体融合盛宴。
+戴蒙周二在挪威央行投资管理公司会议上表示，私募信贷领域有超过1000家公司，这或许意味着当经济周期转变时，并非所有公司都能表现良好。
 
-活动创新打造3.3公里“水上红毯”特色场景，5艘主题游船载着嘉宾踏波而行、逐光而上，在碧波荡漾间开展跨界对话与深度交流。
+戴蒙说：“有些公司可能很出色，但我保证并非所有1000家公司都如此。
 
-当游船抵达运河西岸，百米水岸红毯沿河岸迤逦铺展，嘉宾循着运河水韵依次登岸。
+因此，在我看来，由于这一点以及承销标准，我们已经这么久没有经历信贷衰退了，所以一旦衰退来临，情况会比人们想象的更糟。
 
-以电影节为纽带、以运河为脉络，北京通州同步启动2026运河唤醒周，联动大运河文化旅游景区、运河西岸、首都公共艺术创作基地等重点文旅地标、运河沿线街镇及核心商圈，打造全城可感、全民可享的文旅消费新场景。
+” “情况不会很糟糕，只是比人们想象的私募信贷情况更糟，”他补充道。
 
-运河唤醒周期间，一系列特色亮点活动将轮番登场、精彩纷呈。
+“顺便说一句，这种情况可能也适用于某些银行。
 
-其中，首次打造的漕运主题沉浸式夜游将亮相，深度挖掘通州运河漕运密码，以古风实景为舞台、以千年文脉为剧本、以NPC全程互动为线索，让游客化身漕运使者、民间工匠等角色，在解谜、寻宝、互动中“亲历”漕运繁华、解锁历史秘闻，实现从“看文物”到“品历史”的文旅新体验。
+” 近几个月来，随着人们对规模达1.8万亿美元的私募信贷市场担忧日益加剧，戴蒙也对一些问题发出警告。
 
-同时，首次打造的非遗主题运河时尚秀场将惊艳上演，传统文脉与现代潮流碰撞融合，演绎文化时尚；首次举办的电竞狂潮体育盛典将热血开启，推动“电竞+文化+体育”跨界破圈，为年轻群体带来潮酷新体验。
+他在本月早些时候发布的年度信函中表示，私募信贷“可能并不”构成系统性风险，周二他再次重申了这一观点。
 
 ## 相关推荐
 
-- 2026-06-30 06:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 06:35 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 06:18 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 06:33 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 06:25 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 06:14 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 06:33 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 06:27 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 06:08 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 06:23 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 06:35 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 06:21 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 06:27 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 06:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 06:25 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 06:38 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 06:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 06:35 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 06:29 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 06:24 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 06:17 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 06:39 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 06:29 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 06:23 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 06:19 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 06:36 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 06:14 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:32 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/811580180225.shtml)
-- 2026-06-30 06:32 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/14729594854.shtml)
-- 2026-06-30 06:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/6864904284.shtml)
-- 2026-06-30 06:18 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/10437916.shtml)
-- 2026-06-30 06:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/985273594803.shtml)
-- 2026-06-30 06:15 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/715379.shtml)
-- 2026-06-30 06:12 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/876168.shtml)
-- 2026-06-30 06:14 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/71264.shtml)
-- 2026-06-30 06:23 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/3062493.shtml)
-- 2026-06-30 06:15 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/59633392990.shtml)
-- 2026-06-30 06:35 - [送你一朵小红花](https://www.share.minike.top/Article/details/691924938.shtml)
-- 2026-06-30 06:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/41121152073.shtml)
-- 2026-06-30 06:24 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/55005.shtml)
-- 2026-06-30 06:23 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/353012455589.shtml)
-- 2026-06-30 06:35 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/671019006.shtml)
+- 2026-06-30 06:26 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/6174831208.shtml)
+- 2026-06-30 06:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/32074805769.shtml)
+- 2026-06-30 06:22 - [起风了](http://www.blog.kurohicncr.top/Article/details/44739630914.shtml)
+- 2026-06-30 06:25 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/857388.shtml)
+- 2026-06-30 06:24 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/964124451.shtml)
+- 2026-06-30 06:12 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/01521675.shtml)
+- 2026-06-30 06:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/85769726447.shtml)
+- 2026-06-30 06:26 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/438410105252.shtml)
+- 2026-06-30 06:17 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/86430370.shtml)
+- 2026-06-30 06:28 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/2410612.shtml)
+- 2026-06-30 06:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/705813771907.shtml)
+- 2026-06-30 06:18 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/69418349145.shtml)
+- 2026-06-30 06:30 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/5760845699.shtml)
+- 2026-06-30 06:28 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/31289760212.shtml)
+- 2026-06-30 06:25 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/09979387774.shtml)

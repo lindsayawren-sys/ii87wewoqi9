@@ -1,59 +1,56 @@
-# 国际顶尖山地赛事首次亮相北京 全球500名选手长城竞速
+# 特朗普对伊朗发出新威胁 布伦特原油突破每桶115美元
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月25日电 北京康养2026山地跑世界杯中国·北京昌平站uphill爬坡赛25日在居庸关长城鸣笛开跑。作为该项国际顶尖山地赛事落户北京后的首场较量，来自全球19个国家和地区的500名山地跑选手，在巍峨长城之上展开速度与耐力的极限比拼，用奔跑对话世界文化遗产精髓与千年历史建筑美学。 2026年全球赛历中，山地跑世界杯横跨三大洲，将在10个国家共举办16场比赛，中国·北
+要点速览 周三，油价再次上涨。交易员们一方面消化了阿拉伯联合酋长国意外退出石油输出国组织（欧佩克）的消息，另一方面也意识到伊朗战争短期内结束的可能性不大。 国际基准布伦特原油6 月交割期货在欧洲早盘交易中上涨 3.5%，报每桶115.13 美元，延续了周二连续第七个交易日上涨的势头。 美国西德克萨斯轻质原油（WTI）6 月交割期货上涨 3.7%，报每桶103.69 美元。该合约
 
 ## 正文
 
-中新网北京4月25日电 北京康养2026山地跑世界杯中国·北京昌平站uphill爬坡赛25日在居庸关长城鸣笛开跑。
+要点速览 周三，油价再次上涨。
 
-作为该项国际顶尖山地赛事落户北京后的首场较量，来自全球19个国家和地区的500名山地跑选手，在巍峨长城之上展开速度与耐力的极限比拼，用奔跑对话世界文化遗产精髓与千年历史建筑美学。
+交易员们一方面消化了阿拉伯联合酋长国意外退出石油输出国组织（欧佩克）的消息，另一方面也意识到伊朗战争短期内结束的可能性不大。
 
-2026年全球赛历中，山地跑世界杯横跨三大洲，将在10个国家共举办16场比赛，中国·北京昌平站是本年度亚洲区唯一一站山地跑世界杯赛事。
+国际基准布伦特原油6 月交割期货在欧洲早盘交易中上涨 3.5%，报每桶115.13 美元，延续了周二连续第七个交易日上涨的势头。
 
-同时，这也是山地跑世界杯第一次来到中国北京。
+美国西德克萨斯轻质原油（WTI）6 月交割期货上涨 3.7%，报每桶103.69 美元。
 
-随着发令汽笛鸣响，比赛在居庸关长城开跑，uphill爬坡赛迎来了新赛季全球首秀。
+该合约前一交易日收涨 3.7%，自 2 月 28 日美以联合对伊朗开战以来，涨幅已超过49%。
 
-以长城为赛道，全程爬升，对选手的爆发力、核心力量与节奏控制提出极高要求。
+此次最新上涨之际，有报道称美国将延长对伊朗港口的封锁，加剧了市场对霍尔木兹海峡航运长期中断的担忧。
 
-经过激烈角逐，来自意大利的伊萨科·科斯塔以22分31秒获得男子组冠军，女子组冠军则被瑞士名将莫德·马蒂斯以26分13秒摘得。
+《华尔街曰报》周二援引美国官员的话报道，美国总统唐纳德・特朗普将通过阻止船只进出伊朗港口，加大对伊朗经济和石油出口的压力。
 
-中国选手在比赛中也展示了不俗的实力。
+周三，特朗普在社交媒体 Truth Social 上发文威胁伊朗，称该国 “最好尽快学聪明点！
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 06:08 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 06:19 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 06:10 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 06:07 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 06:15 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 06:23 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 06:07 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 06:10 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 06:09 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 06:06 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 06:33 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 06:28 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 06:23 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 06:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 06:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 06:28 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 06:26 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 06:36 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 06:13 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 06:34 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 06:22 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 06:25 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/629199188739.shtml)
-- 2026-06-30 06:25 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/089028364.shtml)
-- 2026-06-30 06:23 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/693073036.shtml)
-- 2026-06-30 06:13 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/8936391984.shtml)
-- 2026-06-30 06:18 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/3137201605.shtml)
-- 2026-06-30 06:34 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/89816573567.shtml)
-- 2026-06-30 06:21 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/221997.shtml)
-- 2026-06-30 06:08 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/95007664.shtml)
-- 2026-06-30 06:32 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/24697.shtml)
-- 2026-06-30 06:15 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/44355714.shtml)
-- 2026-06-30 06:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/435638887.shtml)
-- 2026-06-30 06:32 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/22488664585.shtml)
-- 2026-06-30 06:22 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/96567617.shtml)
-- 2026-06-30 06:09 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/16654.shtml)
-- 2026-06-30 06:09 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/49544.shtml)
+- 2026-06-30 06:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/12265627308.shtml)
+- 2026-06-30 06:25 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/63343437723.shtml)
+- 2026-06-30 06:38 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/525406420227.shtml)
+- 2026-06-30 06:27 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/419669424095.shtml)
+- 2026-06-30 06:21 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/82834.shtml)
+- 2026-06-30 06:13 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/66610143220.shtml)
+- 2026-06-30 06:24 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/94814924723.shtml)
+- 2026-06-30 06:19 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/69597.shtml)
+- 2026-06-30 06:12 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/20655.shtml)
+- 2026-06-30 06:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/4522705191.shtml)
+- 2026-06-30 06:18 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/1959851208.shtml)
+- 2026-06-30 06:27 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/83577625227.shtml)
+- 2026-06-30 06:37 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/50886010288.shtml)
+- 2026-06-30 06:20 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/280566.shtml)
+- 2026-06-30 06:41 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/19694.shtml)

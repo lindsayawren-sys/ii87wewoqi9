@@ -1,55 +1,57 @@
-# 里昂：药明康德目标价上调至149.3港元 维持“跑赢大市”评级
+# 阿联酋“退群”，全球油市突变
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-里昂发布研报称，药明康德（02359，603259.SH） 将于下周一（27日）公布首季业绩，预期盈利动能仍在加速，业务组合改善，估值仍有重估空间。该行维持对H股及A股的“跑赢大市”评级，H股目标价由144.4港元上调至149.3港元，A股目标价由126.7元人民币上调至130.9元人民币，基于2027年预测市盈率20倍不变。 该行预计药明康德首季收入同比增长20%，其中持续经
+4月28日，阿联酋发布声明称，将自5月1日起正式退出石油输出国组织（OPEC）及OPEC+联盟，并将逐步提高石油产量。 消息公布后，国际油价一度快速下挫，WTI和布伦特原油价格直线回落，每桶跌幅一度超2美元，随后小幅回升。截至发稿，WTI原油报99.52美元/桶，布伦特原油报104.17美元/桶。 阿联酋在声明中表示，退出OPEC及OPEC+联盟的决定与该国的长期战略、经济愿景
 
 ## 正文
 
-里昂发布研报称，药明康德（02359，603259.SH） 将于下周一（27日）公布首季业绩，预期盈利动能仍在加速，业务组合改善，估值仍有重估空间。
+4月28日，阿联酋发布声明称，将自5月1日起正式退出石油输出国组织（OPEC）及OPEC+联盟，并将逐步提高石油产量。
 
-该行维持对H股及A股的“跑赢大市”评级，H股目标价由144.4港元上调至149.3港元，A股目标价由126.7元人民币上调至130.9元人民币，基于2027年预测市盈率20倍不变。
+消息公布后，国际油价一度快速下挫，WTI和布伦特原油价格直线回落，每桶跌幅一度超2美元，随后小幅回升。
 
-该行预计药明康德首季收入同比增长20%，其中持续经营业务收入同比增长25%，高毛利TIDES业务及剥离低增长临床CRO业务，将推动经调整非国际财务报告准则纯利同比增长超过35%。
+截至发稿，WTI原油报99.52美元/桶，布伦特原油报104.17美元/桶。
 
-该行上调药明康德2026至2028年收入及盈利预测1%及3%，以反映强劲的可见性。
+阿联酋在声明中表示，退出OPEC及OPEC+联盟的决定与该国的长期战略、经济愿景以及能源部门的发展方向相一致。
 
-截至2025年第四季，公司订单积压达580亿元人民币，同比增长29%，支持2026年持续经营业务收入同比增长22%，处于管理层18%至22%增长指引的上限。
+同时，阿联酋称，将逐步提高石油产量。
 
-责任编辑：卢昱君
+阿联酋能源部长在声明中强调：“这一决定是在仔细审视本国在能源领域、石油行业及其他相关领域的战略后作出的。
+
+阿联酋长期以来一直是OPEC和OPEC+的成员，但我们认为未来世界将需要更多能源。
+
+” 该声明还表示，由于海峡通行受限，阿联酋选择在“正确的时间”退出，并强调此举不会对市场产生重大影响。
 
 ## 相关推荐
 
-- 2026-06-30 06:12 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 06:10 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 06:21 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 06:28 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 06:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 06:28 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 06:31 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 06:26 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 06:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 06:35 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 06:31 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 06:13 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 06:10 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 06:27 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 06:18 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 06:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 06:23 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 06:40 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 06:14 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 06:38 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 06:29 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 06:16 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 06:25 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 06:21 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/15359.shtml)
-- 2026-06-30 06:34 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/5832211094.shtml)
-- 2026-06-30 06:35 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/5072206450.shtml)
-- 2026-06-30 06:23 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/0492086862.shtml)
-- 2026-06-30 06:06 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/6401776.shtml)
-- 2026-06-30 06:35 - [时光音乐会](http://www.share.minike.top/Article/details/336700506451.shtml)
-- 2026-06-30 06:07 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/644713361674.shtml)
-- 2026-06-30 06:13 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/2374910.shtml)
-- 2026-06-30 06:30 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/18834225079.shtml)
-- 2026-06-30 06:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/0156916.shtml)
-- 2026-06-30 06:14 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/018402430258.shtml)
-- 2026-06-30 06:27 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/57388352955.shtml)
-- 2026-06-30 06:31 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/1087552360.shtml)
-- 2026-06-30 06:13 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/528571.shtml)
-- 2026-06-30 06:28 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/6162773676.shtml)
+- 2026-06-30 06:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/399806.shtml)
+- 2026-06-30 06:19 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/78167519236.shtml)
+- 2026-06-30 06:36 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/155507.shtml)
+- 2026-06-30 06:17 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/7576657061.shtml)
+- 2026-06-30 06:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/773286.shtml)
+- 2026-06-30 06:41 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/3606672036.shtml)
+- 2026-06-30 06:41 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/02753687876.shtml)
+- 2026-06-30 06:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/205786361.shtml)
+- 2026-06-30 06:41 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/1814272.shtml)
+- 2026-06-30 06:18 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/820330.shtml)
+- 2026-06-30 06:41 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/0462039969.shtml)
+- 2026-06-30 06:24 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/00768.shtml)
+- 2026-06-30 06:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/39324469279.shtml)
+- 2026-06-30 06:13 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/144664714.shtml)
+- 2026-06-30 06:36 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/02493.shtml)

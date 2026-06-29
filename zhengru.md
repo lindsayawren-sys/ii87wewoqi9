@@ -1,57 +1,52 @@
-# 美伊谈判新变数，内塔尼亚胡下令“猛烈打击”黎巴嫩
+# 今年一季度西藏出口“新三样”产品同比增长23.92%
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-伊朗官员称美伊可能在未来几天举行第二轮谈判 当地时间25日，一位伊朗外交官员表示，伊朗与美国代表团可能在未来几天举行第二轮谈判。 据了解，伊朗方面已向美方传递信息，要求美国总统特朗普减少带有威胁性的言论，并表示若美方立场趋于缓和，伊朗国内强硬派将更有可能对参与谈判持支持态度。 伊朗外长将再次访问巴基斯坦 伊朗伊斯兰共和国通讯社25日报道说，根据伊朗外交部公布的计划，伊朗外长阿拉
+记者从拉萨海关了解到，2026年一季度，西藏“新三样”产品(新能源汽车、光伏产品、锂电池)出口累计7273.42万元，同比增长23.92%。“新三样”产品加速出海，是西藏面向南亚开放重要通道提质升级、口岸营商环境持续优化的直接体现。为助力“新三样”产品高效出海，拉萨海关围绕产品特点和企业需求，在申报、物流、现场监管等多个环节量身定制便利化措施。此外，针对锂电池等危险货物，拉萨海
 
 ## 正文
 
-伊朗官员称美伊可能在未来几天举行第二轮谈判 当地时间25日，一位伊朗外交官员表示，伊朗与美国代表团可能在未来几天举行第二轮谈判。
+记者从拉萨海关了解到，2026年一季度，西藏“新三样”产品(新能源汽车、光伏产品、锂电池)出口累计7273.42万元，同比增长23.92%。
 
-据了解，伊朗方面已向美方传递信息，要求美国总统特朗普减少带有威胁性的言论，并表示若美方立场趋于缓和，伊朗国内强硬派将更有可能对参与谈判持支持态度。
+“新三样”产品加速出海，是西藏面向南亚开放重要通道提质升级、口岸营商环境持续优化的直接体现。
 
-伊朗外长将再次访问巴基斯坦 伊朗伊斯兰共和国通讯社25日报道说，根据伊朗外交部公布的计划，伊朗外长阿拉格齐在结束对阿曼的访问之后、前往俄罗斯之前，将再次访问巴基斯坦。
+为助力“新三样”产品高效出海，拉萨海关围绕产品特点和企业需求，在申报、物流、现场监管等多个环节量身定制便利化措施。
 
-阿拉格齐24日至25日到访巴基斯坦。
+此外，针对锂电池等危险货物，拉萨海关深化危险品“云鉴定”项目应用，大幅压缩鉴定时长。
 
-据报道，阿拉格齐在同巴方人员会见时转达了伊朗关于“全面结束战争、实现和平”的协议所需基本条件的立场和观点，并于25日晚抵达阿曼首都马斯喀特继续他的对外访问行程。
-
-报道说，随同阿拉格齐访问巴基斯坦的部分代表团成员已返回德黑兰，就结束战争相关议题进行商议，计划于26日晚在巴首都伊斯兰堡重新与阿拉格齐会合。
-
-伊朗方面24日宣布，阿拉格齐将出访巴基斯坦、阿曼和俄罗斯三国。
-
-访问期间，除了就双边事务协调、地区形势发展进行磋商，伊方还将与三国就结束美国和以色列对伊朗的侵略战争、实现地区和平与稳定的最新进展交换意见。
+监制：陈琴 编辑：白宇坤 记者：扎旺 柯夏泉 来源：总台西藏总站
 
 ## 相关推荐
 
-- 2026-06-30 06:27 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 06:18 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 06:30 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 06:34 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 06:07 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 06:31 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 06:20 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 06:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 06:21 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 06:14 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 06:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 06:18 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 06:15 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 06:31 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 06:18 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 06:24 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 06:16 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 06:33 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 06:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 06:17 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 06:29 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 06:16 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 06:12 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:24 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/14875.shtml)
-- 2026-06-30 06:25 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/86856604609.shtml)
-- 2026-06-30 06:30 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/3993829.shtml)
-- 2026-06-30 06:18 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/2010672.shtml)
-- 2026-06-30 06:15 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/955746676.shtml)
-- 2026-06-30 06:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/133256001892.shtml)
-- 2026-06-30 06:11 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/1982474.shtml)
-- 2026-06-30 06:17 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/31680037.shtml)
-- 2026-06-30 06:08 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/48813972035.shtml)
-- 2026-06-30 06:33 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/808349544.shtml)
-- 2026-06-30 06:06 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/33220047410.shtml)
-- 2026-06-30 06:29 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/082146656292.shtml)
-- 2026-06-30 06:14 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/42430.shtml)
-- 2026-06-30 06:18 - [毒液2](https://www.share.minike.top/Article/details/5027607321.shtml)
-- 2026-06-30 06:35 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/998773260718.shtml)
+- 2026-06-30 06:29 - [TOP Prada](https://www.share.minike.top/Article/details/8639544123.shtml)
+- 2026-06-30 06:14 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/7935089991.shtml)
+- 2026-06-30 06:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/778200427.shtml)
+- 2026-06-30 06:18 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/2303494479.shtml)
+- 2026-06-30 06:18 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/414602872384.shtml)
+- 2026-06-30 06:34 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/0779205757.shtml)
+- 2026-06-30 06:30 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/80408614.shtml)
+- 2026-06-30 06:25 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/9077031274.shtml)
+- 2026-06-30 06:31 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/968463103977.shtml)
+- 2026-06-30 06:38 - [第一炉香](http://www.blog.minike.top/Article/details/22439126355.shtml)
+- 2026-06-30 06:22 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/7124580043.shtml)
+- 2026-06-30 06:37 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/34744816.shtml)
+- 2026-06-30 06:19 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/7229447.shtml)
+- 2026-06-30 06:20 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/05319790.shtml)
+- 2026-06-30 06:20 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/3902844.shtml)

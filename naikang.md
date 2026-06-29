@@ -1,61 +1,56 @@
-# 石头科技：2025年营收高增56.51%，2026Q1营收增23.31%！
+# 雪域破极 “沈阳造”氢能无人机飞越 “生命禁区”
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-4月22日晚间，石头科技同步发布2025年年度报告和2026年第一季度报告。两份财报数据显示，公司2025年实现营业收入186.95亿元，同比增长56.51%，创历史新高；2026年Q1实现营收42.27亿元，同比增长23.31%，归母净利润3.23亿元，同比增长20.83%。石头科技用连续的业绩表现，验证了其长期主义战略的正确性，展现出强劲的发展韧性和增长潜力。 2025年是
+中新网沈阳4月28日电 (记者 赵桂华)4月28日，记者由沈阳市沈北新区获悉，盛科航宇研发的适用于高原高寒环境的氢能燃料电池动力系统及氢能无人机，近日在西藏极寒高海拔地区试飞圆满成功。 此次试飞的成功，不仅标志着我国氢动力航空技术在极端环境下的应用瓶颈被成功突破，更填补了高原高寒地区长续航、零污染无人作业的市场空白，为我国低空经济在特殊场景的拓展定了坚实基础。 据了解，作为低空
 
 ## 正文
 
-4月22日晚间，石头科技同步发布2025年年度报告和2026年第一季度报告。
+中新网沈阳4月28日电 (记者 赵桂华)4月28日，记者由沈阳市沈北新区获悉，盛科航宇研发的适用于高原高寒环境的氢能燃料电池动力系统及氢能无人机，近日在西藏极寒高海拔地区试飞圆满成功。
 
-两份财报数据显示，公司2025年实现营业收入186.95亿元，同比增长56.51%，创历史新高；2026年Q1实现营收42.27亿元，同比增长23.31%，归母净利润3.23亿元，同比增长20.83%。
+此次试飞的成功，不仅标志着我国氢动力航空技术在极端环境下的应用瓶颈被成功突破，更填补了高原高寒地区长续航、零污染无人作业的市场空白，为我国低空经济在特殊场景的拓展定了坚实基础。
 
-石头科技用连续的业绩表现，验证了其长期主义战略的正确性，展现出强劲的发展韧性和增长潜力。
+据了解，作为低空经济领域的新锐力量，盛科航宇于2023年在沈北新区正式成立，是一家由哈尔滨工业大学沈轶岭博士领衔核心技术团队、专注于氢动力无人机研发制造的高新技术企业。
 
-2025年是石头科技战略投入的关键一年。
+公司深耕固定翼、多旋翼氢能无人机研发制造领域，凭借顶尖的技术研发实力，在短时间内实现了从技术研发到产品落地的跨越式发展，取得了业内领先的技术成果。
 
-面对全球智能清洁行业导入期的历史性机遇，石头科技主动让渡短期利润，将资源集中投入到技术研发、产品普惠和全球化布局三大核心领域。
+不久前，已获得沈阳产业技术研究院通过市场化投资平台完成的Pre-A轮投资。
 
-技术研发方面，2025年研发投入高达14.20亿元，同比增长46.13%，占营业收入比例为7.59%，研发投入规模持续居于行业前列。
+盛科航宇总经理秦健告诉记者，此次西藏试飞是对氢动力无人机极端环境适应能力的终极考验，环境极为恶劣。
 
-并推出了G-Rover、RockMow全地形割草机器人等多款具有里程碑意义的创新产品，构建了全栈自研的技术体系。
+西藏作为“生命禁区”，冬季气温-20℃~-40℃，昼夜温差大，传统锂电无人机易容量暴跌、无法启动。
 
-产品方面，通过技术普惠战略将高端技术下沉至全价位段，构建了从入门到主流、旗舰的完整产品矩阵，有效扩大了用户基数。
+试飞区域海拔4000-5500米，空气稀薄、氧含量仅为平原60%-70%，不仅导致传统动力大幅衰减，还对无人机核心系统提出高要求，八级强风裹挟乱流更加剧了试飞难度。
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 06:15 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 06:21 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 06:18 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 06:15 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 06:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 06:24 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 06:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 06:35 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 06:24 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 06:22 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 06:30 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 06:20 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 06:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 06:28 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 06:12 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 06:19 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 06:15 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 06:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 06:32 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 06:15 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 06:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 06:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 06:31 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 06:31 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/864377518263.shtml)
-- 2026-06-30 06:12 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/70287868.shtml)
-- 2026-06-30 06:23 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/37658.shtml)
-- 2026-06-30 06:23 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/229232367142.shtml)
-- 2026-06-30 06:11 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/000967083836.shtml)
-- 2026-06-30 06:20 - [天道](https://www.share.kurohicncr.top/Article/details/55200699.shtml)
-- 2026-06-30 06:15 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/9626991414.shtml)
-- 2026-06-30 06:21 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/353380.shtml)
-- 2026-06-30 06:35 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/630174375.shtml)
-- 2026-06-30 06:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/0330493.shtml)
-- 2026-06-30 06:20 - [巴西扳平比分](https://www.share.minike.top/Article/details/870584.shtml)
-- 2026-06-30 06:28 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/6533208.shtml)
-- 2026-06-30 06:21 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/87958309568.shtml)
-- 2026-06-30 06:12 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/105600055.shtml)
-- 2026-06-30 06:16 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/493627466461.shtml)
+- 2026-06-30 06:16 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/84759410258.shtml)
+- 2026-06-30 06:41 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/200033.shtml)
+- 2026-06-30 06:16 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/920316061466.shtml)
+- 2026-06-30 06:31 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/78116.shtml)
+- 2026-06-30 06:36 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/020388.shtml)
+- 2026-06-30 06:37 - [第一炉香](http://www.share.minike.top/Article/details/60673404144.shtml)
+- 2026-06-30 06:16 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/03908443.shtml)
+- 2026-06-30 06:35 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/362418.shtml)
+- 2026-06-30 06:24 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/5506703.shtml)
+- 2026-06-30 06:27 - [日本 高位逼抢](http://www.share.minike.top/Article/details/873074.shtml)
+- 2026-06-30 06:37 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/3843349715.shtml)
+- 2026-06-30 06:27 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/4682192171.shtml)
+- 2026-06-30 06:12 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/581245074.shtml)
+- 2026-06-30 06:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/6702498.shtml)
+- 2026-06-30 06:23 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/469558280.shtml)

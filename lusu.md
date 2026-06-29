@@ -1,61 +1,56 @@
-# 可听、可看、可玩、可聊 重庆嘉陵江畔解锁阅读新体验
+# 中钢协：钢材市场供强需弱考验企业自律控产的定力
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？太阳今日爆
+4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，钢材市场供强需弱考验企业自律控产的定力。 一季度，国内钢铁需求仍处于“总量见顶、结构优化”的转型期，呈现“地产偏弱、基建托底、制造业有韧性”的特点。其中，房地产开发投资、房屋新开工面积同比分别下降11.2%、20.3%，两位数的降幅显示房地产市场仍在筑底过程中，建筑用钢需求持续下降；基础设施投资同比增长8.9%，对基建用钢
 
 ## 正文
 
-推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？
+4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，钢材市场供强需弱考验企业自律控产的定力。
 
-义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？
+一季度，国内钢铁需求仍处于“总量见顶、结构优化”的转型期，呈现“地产偏弱、基建托底、制造业有韧性”的特点。
 
-太阳今日爆发X2.4级耀斑，有何影响？
+其中，房地产开发投资、房屋新开工面积同比分别下降11.2%、20.3%，两位数的降幅显示房地产市场仍在筑底过程中，建筑用钢需求持续下降；基础设施投资同比增长8.9%，对基建用钢形成较强托底作用；制造业投资同比增长4.1%，汽车、造船、家电、装备制造等行业用钢成为钢铁需求的关键支撑，制造业提质升级、新能源和人工智能等新兴产业催生新的需求增长点。
 
-为何说中国全面推广普及国家通用语言文字和保护少数民族语言文化并行不悖？
+后期，随着国家财政与金融政策加强协同，着力激发有潜能的消费、扩大有效益的投资，叠加建筑业随着天气回暖逐步复工复产，预计钢铁需求将环比有所改善。
 
-企业玩“心机商标”，但口碑不会陪你演作家蒋胜男：真正的“大女主”不是玛丽苏式“等人来救”孙悟空是“男主人设天花板”？
+钢协对会员企业的调研结果显示，60%的企业预判二季度钢材需求将环比上升，多数企业对后市保持乐观判断。
 
-六小龄童回应台湾退役舰长“打卡”人民海军舰艇 挥笔留言“两岸一家亲”大熊猫“平平”和“福双”将赴美开启10年旅居生活华谊兄弟沉浮录：曾是“中国影视第一股”罪恶神社的“招魂”闹剧12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
+乐观的判断对自律控产的执行将产生冲击，需要关注的是，虽然一季度钢铁企业通过主动减产来消化需求收缩的冲击，一定程度上缓解了市场供需矛盾，但供强需弱的态势并未改变，钢材库存水平仍然保持高位，自律控产稍有放松就会破坏十分脆弱的市场供需关系。
 
-台胞小可的拜祖初体验沈阳塔台迎接志愿军忠烈回家西藏樟木口岸全面复通后出入境人员突破100万人次中国海军以最高礼仪迎接烈士遗骸回国深圳市非血缘造血干细胞捐献达1000例宿迁：在“项王故里”邂逅水韵柔情沈阳全城披红 迎第十三批志愿军烈士遗骸归国实拍西汉王后的“硬核”文具惊险！
+4月中旬，重点统计钢铁企业粗钢日产环比增长0.4%，企业钢材库存量环比上升6.4%、同比上升11.5%，钢材社会库存环比下降2.0%、同比上升14.2%，显示需求的恢复强度不足以充分消化同期的供给增量。
 
-买馕忘拉手刹，爱车溜坡撞上绿化带5.2米高！
+当前，钢材市场供强需弱的矛盾仍然突出，保效益仍是首要任务，钢铁企业仍要保持战略定力，践行“三定三不要”经营原则，坚持自律控产降库存不动摇。
 
 ## 相关推荐
 
-- 2026-06-30 06:08 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 06:19 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 06:30 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 06:14 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 06:28 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 06:25 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 06:17 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 06:33 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 06:30 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 06:20 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 06:20 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 06:20 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 06:11 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 06:08 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 06:20 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 06:33 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 06:16 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 06:25 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 06:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 06:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 06:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 06:31 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 06:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 06:38 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 06:32 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:29 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/9224844733.shtml)
-- 2026-06-30 06:23 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/35818507.shtml)
-- 2026-06-30 06:12 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/13245796.shtml)
-- 2026-06-30 06:19 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/2456901.shtml)
-- 2026-06-30 06:13 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/99928182918.shtml)
-- 2026-06-30 06:35 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/15023148684.shtml)
-- 2026-06-30 06:09 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/714676.shtml)
-- 2026-06-30 06:35 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/0646180.shtml)
-- 2026-06-30 06:08 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/12310109.shtml)
-- 2026-06-30 06:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/681733796950.shtml)
-- 2026-06-30 06:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/47201608.shtml)
-- 2026-06-30 06:24 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/851754394.shtml)
-- 2026-06-30 06:35 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/538474233.shtml)
-- 2026-06-30 06:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/96484.shtml)
-- 2026-06-30 06:20 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/515932.shtml)
+- 2026-06-30 06:21 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/025222315247.shtml)
+- 2026-06-30 06:12 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/48820.shtml)
+- 2026-06-30 06:13 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/6861008845.shtml)
+- 2026-06-30 06:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/345119228393.shtml)
+- 2026-06-30 06:26 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/22833.shtml)
+- 2026-06-30 06:33 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/97650517150.shtml)
+- 2026-06-30 06:22 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/93218.shtml)
+- 2026-06-30 06:40 - [月亮](https://www.blog.minike.top/Article/details/177268.shtml)
+- 2026-06-30 06:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/33263793.shtml)
+- 2026-06-30 06:40 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/1569500.shtml)
+- 2026-06-30 06:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/3914390.shtml)
+- 2026-06-30 06:27 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/77702.shtml)
+- 2026-06-30 06:28 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/96266751.shtml)
+- 2026-06-30 06:38 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/4582270981.shtml)
+- 2026-06-30 06:23 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/52799080100.shtml)

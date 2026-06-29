@@ -1,52 +1,61 @@
-# 中国作家协会副主席：家长是孩子最好的“书”
+# 福布斯报告指美国比特币公司致散户损失5亿美元，埃里克·特朗普激烈反驳
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月23日 22:12 来源：中国新闻网 4月23日，正值第31个世界读书日。“一城一卷”阅行广西活动启幕式在南宁市三街两巷历史文化街区举行。中国作家协会副主席毕飞宇在活动中介绍，如果要让孩子爱读书，家长就是孩子最好的“书”。(陈沿佑) 【同期】中国作家协会副主席 毕飞宇 所以你要问我怎么走上文学道路的，两本书至为关键，第一“爸爸”，第二“妈妈”，所以在这
+纳斯达克上市的比特币挖矿公司美国比特币公司正面临一场关于其商业模式的激烈争议。《福布斯》本周发布调查报告，指控该公司实质上是一个利用特朗普品牌效应吸引散户（特别是MAGA支持者）的“套利工具”，自去年9月上市以来已导致散户投资者损失约5亿美元。 《福布斯》指控：高溢价上市与“空手套白狼” 报告称，美国比特币公司通过反复增发高估值的股票募集资金，用于在公开市场直接购买比特币，而非
 
 ## 正文
 
-发布时间：2026年04月23日 22:12 来源：中国新闻网 4月23日，正值第31个世界读书日。
+纳斯达克上市的比特币挖矿公司美国比特币公司正面临一场关于其商业模式的激烈争议。
 
-“一城一卷”阅行广西活动启幕式在南宁市三街两巷历史文化街区举行。
+《福布斯》本周发布调查报告，指控该公司实质上是一个利用特朗普品牌效应吸引散户（特别是MAGA支持者）的“套利工具”，自去年9月上市以来已导致散户投资者损失约5亿美元。
 
-中国作家协会副主席毕飞宇在活动中介绍，如果要让孩子爱读书，家长就是孩子最好的“书”。
+《福布斯》指控：高溢价上市与“空手套白狼” 报告称，美国比特币公司通过反复增发高估值的股票募集资金，用于在公开市场直接购买比特币，而非主要通过挖矿获得。
 
-(陈沿佑) 【同期】中国作家协会副主席 毕飞宇 所以你要问我怎么走上文学道路的，两本书至为关键，第一“爸爸”，第二“妈妈”，所以在这样的时候，如果我们家长们，要让自己的孩子爱读书，最好的办法是让自己成为一本“书”。
+自9月上市以来，其股价从峰值14.52美元暴跌逾92%，公司市值从132亿美元缩水至约12.4亿美元。
 
-责任编辑：【于晓】
+与此形成对比的是，联合创始人埃里克·特朗普的个人净资产在此期间却从约1.9亿美元增至2.8亿美元。
+
+报告还指出，公司实际上仅有2名全职员工，日常运营主要外包给合作伙伴Hut 8。
+
+埃里克·特朗普反击：指责“政治动机”与“中国宣传” 埃里克·特朗普在社交媒体平台X上猛烈抨击该报道，称其为“政治动机驱动的宣传”，并将矛头指向《福布斯》杂志的东家——香港投资公司。
+
+他通过展示公司运营数据来回应：持有超过7000枚比特币、拥有28 EH/s的算力和近9万台矿机，并强调第四季度营收环比增长22%至7830万美元。
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 06:26 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 06:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 06:18 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 06:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 06:24 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 06:34 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 06:11 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 06:13 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 06:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 06:10 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 06:12 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-30 06:23 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 06:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 06:36 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 06:31 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 06:23 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-30 06:26 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 06:41 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 06:18 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 06:20 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 06:13 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 06:15 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 06:18 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 06:28 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 06:32 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 06:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:11 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/0227269873.shtml)
-- 2026-06-30 06:22 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/2941750.shtml)
-- 2026-06-30 06:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/46780386.shtml)
-- 2026-06-30 06:17 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/7270755.shtml)
-- 2026-06-30 06:10 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/4295242453.shtml)
-- 2026-06-30 06:30 - [日本进球](http://www.share.kurohicncr.top/Article/details/2375440596.shtml)
-- 2026-06-30 06:09 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/40369.shtml)
-- 2026-06-30 06:08 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/180974388.shtml)
-- 2026-06-30 06:16 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/155055.shtml)
-- 2026-06-30 06:24 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/95342753.shtml)
-- 2026-06-30 06:21 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/9845653.shtml)
-- 2026-06-30 06:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/846604.shtml)
-- 2026-06-30 06:09 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/103197593.shtml)
-- 2026-06-30 06:13 - [周生如故](http://www.share.kurohicncr.top/Article/details/98950.shtml)
-- 2026-06-30 06:12 - [刘念回应](http://www.share.minike.top/Article/details/7285737.shtml)
+- 2026-06-30 06:15 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/7689612.shtml)
+- 2026-06-30 06:31 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/628382669074.shtml)
+- 2026-06-30 06:14 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/3374358.shtml)
+- 2026-06-30 06:30 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/2574995.shtml)
+- 2026-06-30 06:29 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/50588584880.shtml)
+- 2026-06-30 06:40 - [刘念回应](http://www.share.kurohicncr.top/Article/details/28595845302.shtml)
+- 2026-06-30 06:18 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/458225492657.shtml)
+- 2026-06-30 06:29 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/356136106.shtml)
+- 2026-06-30 06:15 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/513880753.shtml)
+- 2026-06-30 06:29 - [沙丘](http://www.share.minike.top/Article/details/9142148.shtml)
+- 2026-06-30 06:33 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/2739653602.shtml)
+- 2026-06-30 06:15 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/65232228.shtml)
+- 2026-06-30 06:37 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/13711530.shtml)
+- 2026-06-30 06:27 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/84968833528.shtml)
+- 2026-06-30 06:16 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/144629.shtml)

@@ -1,60 +1,56 @@
-# 三亚亚沙会沙滩排球女子组：中国组合蒋凯悦 / 董颉挺进八强
+# 欧洲科普展《肠子的小心思》亮相北京 中国科技馆将展出至8月中旬
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-“700台机器没日没夜打，月赚10万”，年轻人开始靠3D打印“搞钱”杨某某每天90元扮流浪女 “深山救助”视频摆拍细节公开“我们第一次来，太震撼了”，老外涌入北京车展采茶专列、球迷专列，旅游列车扎堆上新抢占“五一”市场如何从萨迦寺历史看中华民族大一统？推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变
+中新网北京4月28日电 (记者 孙自法)由法国国家科学技术总馆出品、风靡欧洲的现象级科普互动体验展《肠子的小心思——肠道的奇妙冒险》，4月28日在北京开幕亮相，4月29日至8月16日在中国科技馆向公众开放。 《肠子的小心思》展览内容源自德国微生物学博士朱莉娅·恩德斯的全球同名畅销科普著作，由多国科学中心联合打造，并获得法国国家农业研究院学术支持。该展在欧洲巡展期间广受好评，累计
 
 ## 正文
 
-“700台机器没日没夜打，月赚10万”，年轻人开始靠3D打印“搞钱”杨某某每天90元扮流浪女 “深山救助”视频摆拍细节公开“我们第一次来，太震撼了”，老外涌入北京车展采茶专列、球迷专列，旅游列车扎堆上新抢占“五一”市场如何从萨迦寺历史看中华民族大一统？
+中新网北京4月28日电 (记者 孙自法)由法国国家科学技术总馆出品、风靡欧洲的现象级科普互动体验展《肠子的小心思——肠道的奇妙冒险》，4月28日在北京开幕亮相，4月29日至8月16日在中国科技馆向公众开放。
 
-推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？
+《肠子的小心思》展览内容源自德国微生物学博士朱莉娅·恩德斯的全球同名畅销科普著作，由多国科学中心联合打造，并获得法国国家农业研究院学术支持。
 
-义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？
+该展在欧洲巡展期间广受好评，累计吸引350万人次参观，是极具国际影响力的优质科普IP。
 
-太阳今日爆发X2.4级耀斑，有何影响？
+中国科技馆介绍，该馆致力推动科普从“知识传达”向“体验启发”转型，积极拓展国际科普交流合作，以全球视野推动优质科学资源共享互鉴。
 
-为何说中国全面推广普及国家通用语言文字和保护少数民族语言文化并行不悖？
+本次引进《肠子的小心思》展览，聚焦民生健康热点，围绕被誉为人体“第二大脑”的肠道展开系统科普，以新奇视角打破专业知识与大众之间的壁垒，让抽象生理知识变得直观易懂、生动有趣。
 
-企业玩“心机商标”，但口碑不会陪你演作家蒋胜男：真正的“大女主”不是玛丽苏式“等人来救”12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
+本次展览以严谨科学内核、趣味艺术表达与沉浸式互动体验，旨在为公众带来一场别开生面的肠道健康科普盛宴。
 
-台胞小可的拜祖初体验沈阳塔台迎接志愿军忠烈回家西藏樟木口岸全面复通后出入境人员突破100万人次中国海军以最高礼仪迎接烈士遗骸回国深圳市非血缘造血干细胞捐献达1000例宿迁：在“项王故里”邂逅水韵柔情沈阳全城披红 迎第十三批志愿军烈士遗骸归国实拍西汉王后的“硬核”文具惊险！
+展览全程融入插画艺术家吉尔·恩德斯原创拟人化插画，以“科学+艺术+强互动”的创新形式，消解科学距离感。
 
-买馕忘拉手刹，爱车溜坡撞上绿化带5.2米高！
+观众可跟随展览动线，如同食物一般亲历消化全过程，在微观与宏观、趣味与思辨中感受肠道奥秘。
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 06:28 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 06:29 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 06:18 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 06:07 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 06:33 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 06:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 06:20 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 06:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 06:26 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 06:06 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 06:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 06:09 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 06:29 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 06:15 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 06:39 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 06:37 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 06:30 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 06:19 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 06:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 06:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 06:14 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 06:37 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 06:40 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:12 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/01450.shtml)
-- 2026-06-30 06:35 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/81622139.shtml)
-- 2026-06-30 06:26 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/5893941375.shtml)
-- 2026-06-30 06:06 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/476381516.shtml)
-- 2026-06-30 06:35 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/21331979609.shtml)
-- 2026-06-30 06:17 - [世界杯](https://www.blog.minike.top/Article/details/643868591.shtml)
-- 2026-06-30 06:33 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/86778745.shtml)
-- 2026-06-30 06:18 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/83061665665.shtml)
-- 2026-06-30 06:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/706187.shtml)
-- 2026-06-30 06:25 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/1411006.shtml)
-- 2026-06-30 06:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/04912.shtml)
-- 2026-06-30 06:09 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/20369911.shtml)
-- 2026-06-30 06:08 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/41033.shtml)
-- 2026-06-30 06:18 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/19212.shtml)
-- 2026-06-30 06:18 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/066261111330.shtml)
+- 2026-06-30 06:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/18847.shtml)
+- 2026-06-30 06:18 - [千与千寻](http://www.share.minike.top/Article/details/109025.shtml)
+- 2026-06-30 06:14 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/72197240062.shtml)
+- 2026-06-30 06:30 - [内马尔替补](http://www.share.minike.top/Article/details/83322.shtml)
+- 2026-06-30 06:27 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/230053537250.shtml)
+- 2026-06-30 06:36 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/603108.shtml)
+- 2026-06-30 06:24 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/57407686626.shtml)
+- 2026-06-30 06:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/77938.shtml)
+- 2026-06-30 06:21 - [金刚川](https://www.share.minike.top/Article/details/772178896.shtml)
+- 2026-06-30 06:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/8951833.shtml)
+- 2026-06-30 06:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/6158955722.shtml)
+- 2026-06-30 06:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/37596301.shtml)
+- 2026-06-30 06:22 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/199380412733.shtml)
+- 2026-06-30 06:15 - [逃狱兄弟](https://www.blog.minike.top/Article/details/15568.shtml)
+- 2026-06-30 06:41 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/8105901.shtml)

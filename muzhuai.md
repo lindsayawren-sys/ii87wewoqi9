@@ -1,57 +1,61 @@
-# “金饭碗”褪色！保代、分析师转型，中信、中金等7名从业人员拟考公“上岸”
+# 政治局会议：抓好农业生产，稳定生猪等农产品价格
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|陈晨 每经编辑|叶峰 近几日，中国人民银行、财政部分别公布了2026年拟录用人员名单，在金融圈引发广泛关注。两份名单中，有7名拟录用人员来自证券行业，包括中信证券、中金公司等头部券商，而且这7人均为硕士研究生学历，涵盖保荐代表人、资深分析师，毕业院校包括剑桥大学、复旦大学等海内外顶尖名校。 记者注
+自2026年春节以来，猪价深度下探的态势引发广泛关注，中央决策层面发出了明确的政策托底信号。 中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。会议强调，抓好农业生产，稳定生猪等农产品价格。 从上市公司披露的一季报来看，2026年第一季度，生猪养殖行业普遍陷入亏损。今年一季度，牧原股份归母净利润为-12.15亿元，同比转亏，上年同期为44.91亿元。温氏股份归母
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+自2026年春节以来，猪价深度下探的态势引发广泛关注，中央决策层面发出了明确的政策托底信号。
 
-每经记者|陈晨 每经编辑|叶峰 近几日，中国人民银行、财政部分别公布了2026年拟录用人员名单，在金融圈引发广泛关注。
+中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。
 
-两份名单中，有7名拟录用人员来自证券行业，包括中信证券、中金公司等头部券商，而且这7人均为硕士研究生学历，涵盖保荐代表人、资深分析师，毕业院校包括剑桥大学、复旦大学等海内外顶尖名校。
+会议强调，抓好农业生产，稳定生猪等农产品价格。
 
-记者注意到，近几年券商从业人员考公热情攀升，而这背后伴随着严监管常态化与券商业绩收缩，上市券商人均薪酬持续缩水，部分机构薪酬降幅超20%甚至“腰斩”。
+从上市公司披露的一季报来看，2026年第一季度，生猪养殖行业普遍陷入亏损。
 
-与此同时，4月17日出台的券商薪酬新规进一步强化了稳健薪酬管理，明确了递延支付起付年T+2以及离职退休人员“终身追责”机制。
+今年一季度，牧原股份归母净利润为-12.15亿元，同比转亏，上年同期为44.91亿元。
 
-在薪酬性价比下滑与严监管常态化的双重背景下，券商“金饭碗”优势弱化，考公“上岸”正成为证券从业人员的新选择。
+温氏股份归母净利润-10.7亿元，同比由盈转亏，上年同期为20.13亿元。
 
-履历亮眼！
+巨星农牧归母净利润-3.56亿元，上年同期为1.3亿元。
 
-中信保代、国海分析师，7名券商从业人员拟“上岸” 4月21日，中国人民银行和财政部陆续对外公布了2026年拟录用人员的名单，两份名单中共包含7名券商从业人员，分别来自中信证券、中金公司、申万宏源证券、中银证券、华西证券、国海证券以及野村东方国际证券。
+生猪价格跌势延续至今年4月中旬。
 
 ## 相关推荐
 
-- 2026-06-30 06:33 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 06:12 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 06:12 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 06:09 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 06:14 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 06:31 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 06:21 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 06:28 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 06:35 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 06:25 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 06:35 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 06:21 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 06:27 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 06:19 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 06:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 06:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 06:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 06:32 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 06:31 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 06:29 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 06:33 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 06:41 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 06:28 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 06:12 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 06:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 06:28 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:26 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/91428790.shtml)
-- 2026-06-30 06:17 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/1991108.shtml)
-- 2026-06-30 06:24 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/343654656.shtml)
-- 2026-06-30 06:26 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/762558611868.shtml)
-- 2026-06-30 06:28 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/5052442282.shtml)
-- 2026-06-30 06:21 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/859366.shtml)
-- 2026-06-30 06:06 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/337814393080.shtml)
-- 2026-06-30 06:33 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/00749.shtml)
-- 2026-06-30 06:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/69959046890.shtml)
-- 2026-06-30 06:18 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/385984224.shtml)
-- 2026-06-30 06:16 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/511952.shtml)
-- 2026-06-30 06:33 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/85635892.shtml)
-- 2026-06-30 06:30 - [我和我的家乡](http://www.share.minike.top/Article/details/02597720.shtml)
-- 2026-06-30 06:18 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/068252.shtml)
-- 2026-06-30 06:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/487903822337.shtml)
+- 2026-06-30 06:25 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/6752947344.shtml)
+- 2026-06-30 06:17 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/81250942652.shtml)
+- 2026-06-30 06:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/5985618641.shtml)
+- 2026-06-30 06:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/46694.shtml)
+- 2026-06-30 06:13 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/26665.shtml)
+- 2026-06-30 06:12 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/764751849684.shtml)
+- 2026-06-30 06:20 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/03600033094.shtml)
+- 2026-06-30 06:17 - [网瘾賊大的阿嬷](https://www.blog.kurohicncr.top/Article/details/7870826.shtml)
+- 2026-06-30 06:20 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/516786.shtml)
+- 2026-06-30 06:20 - [千与千寻](https://www.blog.minike.top/Article/details/725146684782.shtml)
+- 2026-06-30 06:41 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/9064215.shtml)
+- 2026-06-30 06:18 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/679581143154.shtml)
+- 2026-06-30 06:26 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/37741423782.shtml)
+- 2026-06-30 06:13 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/60283.shtml)
+- 2026-06-30 06:41 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/15209407878.shtml)

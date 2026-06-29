@@ -1,61 +1,58 @@
-# 2025年湖南有效发明专利总量14万件 同比增长16%
+# 持牌消金机构备战“五一”消费旺季
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网长沙4月23日电(向一鹏)2025年，湖南有效发明专利总量14万件，同比增长16%，其中高价值发明专利5.6万件，同比增长19.8%；PCT国际专利申请652件，同比增长18.8%。 湖南省2025年度知识产权保护状况新闻发布会23日在长沙举行，透露了上述消息。2025年，湖南知识产权创造量质齐升，主要知识产权指标持续增长。商标方面，新注册商标12.9万件；版权方面，登记
+来源：经济参考网 随着“五一”小长假临近，蚂蚁消费金融、海尔消费金融、建信消费金融等多家持牌机构紧扣惠民生、促消费政策导向，以场景深耕、产品与服务优化、数字赋能多维发力，叠加个人消费贷款财政贴息政策落地见效，为假期消费注入强劲动能。 便民惠民让利实体政策红利精准落地 多家消费金融机构紧跟国家优化个人消费贷款财政贴息政策步伐，简化流程、提升额度、放宽限制，让政策红利直达终端消费者
 
 ## 正文
 
-中新网长沙4月23日电(向一鹏)2025年，湖南有效发明专利总量14万件，同比增长16%，其中高价值发明专利5.6万件，同比增长19.8%；PCT国际专利申请652件，同比增长18.8%。
+来源：经济参考网 随着“五一”小长假临近，蚂蚁消费金融、海尔消费金融、建信消费金融等多家持牌机构紧扣惠民生、促消费政策导向，以场景深耕、产品与服务优化、数字赋能多维发力，叠加个人消费贷款财政贴息政策落地见效，为假期消费注入强劲动能。
 
-湖南省2025年度知识产权保护状况新闻发布会23日在长沙举行，透露了上述消息。
+便民惠民让利实体政策红利精准落地 多家消费金融机构紧跟国家优化个人消费贷款财政贴息政策步伐，简化流程、提升额度、放宽限制，让政策红利直达终端消费者。
 
-2025年，湖南知识产权创造量质齐升，主要知识产权指标持续增长。
+蚂蚁消费金融升级贴息支持，将政策实施期限延长至2026年底，取消单笔消费贴息金额500元上限及消费领域限制，覆盖更广泛消费场景，切实降低居民信贷成本。
 
-商标方面，新注册商标12.9万件；版权方面，登记版权作品21.7万件，办理出版外国图书合同备案245件；地理标志方面，新增地理标志110件，总量达449件；植物新品种方面，审定主要农作物品种100个，申请登记非主要农作物品种63个，审定林木品种12个；海关备案方面，备案知识产权903项，同比增长12.3%；知识产权转化方面，专利转让许可3.9万次，质押融资82.6亿元。
+海尔消费金融深耕核心消费场景，通过“产业贴息+国补”的智家分期服务，为消费者提供“0首付、0利息、0手续费”的分期方案，搭配6至12期灵活周期，降低大宗家电购置门槛，助力绿色消费升级。
 
-湖南省市场监督管理局党组成员、副局长吴峰介绍，湖南坚持司法保护与行政保护相结合，全链条保护格局进一步强化。
+建信消费金融近期发布个人消费贷款财政贴息服务公告，政策实施期限为2026年全年，期间客户可享受年化1个百分点的贴息优惠，年度累计贴息上限为3000元。
 
-市场监管部门开展“守护知识产权”专项行动，查办案件3017件，调解纠纷案件5000余件，4个案例入选全国典型案例及经验做法；版权部门部署推进“剑网”、院线电影版权保护等行动；人民法院受理知识产权案件2.2万件，审结2.3万件；检察机关审查起诉侵犯知识产权犯罪案件344件，审结知识产权民事行政诉讼监督案件、公益诉讼案件54件；司法部门办理知识产权公证案件3066件、仲裁案件61件；海关系统扣留侵权货物1660批次，数量2.5万件。
+该机构将贴息政策与线上产品相结合，深化在购物、文旅、教育等消费场景的布局，推动政策红利直达消费者。
 
-同时，全省各相关部门持续优化知识产权保护工作机制，保护工作效能持续提升。
+深耕全场景消费激活假日经济潜力 “五一”假期带动文娱、餐饮、出行、购物等场景集中升温，消费金融公司深入各类场景，推出专属优惠，助力激活节日消费效应。
 
-如建成3个海外纠纷应对平台，成立全国首个知识产权保护中心联盟，启动马栏山园区版权质押融资试点，开展知识产权非正常批量诉讼突出问题专项治理，设立知识产权人民调解委员会，编印《海外知识产权保护与纠纷应对指南》等。
+中邮消费金融推出“踏青邮礼季”活动，以15天免息券、利息折扣券及加油卡等福利，精准拉动出行、户外等消费场景。
 
 ## 相关推荐
 
-- 2026-06-30 06:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 06:07 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 06:27 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 06:06 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 06:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 06:19 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 06:15 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 06:10 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 06:20 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 06:35 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 06:33 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 06:24 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 06:34 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 06:15 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 06:34 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 06:25 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 06:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 06:17 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 06:30 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 06:18 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 06:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 06:38 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 06:30 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 06:23 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 06:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 06:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 06:26 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/56471.shtml)
-- 2026-06-30 06:17 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/69163816393.shtml)
-- 2026-06-30 06:25 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/2608877002.shtml)
-- 2026-06-30 06:16 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/594111003.shtml)
-- 2026-06-30 06:07 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/934063415.shtml)
-- 2026-06-30 06:27 - [孙兴慜道歉](https://www.share.minike.top/Article/details/651733.shtml)
-- 2026-06-30 06:14 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/30158252823.shtml)
-- 2026-06-30 06:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/38752473.shtml)
-- 2026-06-30 06:16 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/909898295743.shtml)
-- 2026-06-30 06:12 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/294291599803.shtml)
-- 2026-06-30 06:07 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/621603.shtml)
-- 2026-06-30 06:27 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/113443789.shtml)
-- 2026-06-30 06:19 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/012888.shtml)
-- 2026-06-30 06:14 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/166480.shtml)
-- 2026-06-30 06:30 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/37016.shtml)
+- 2026-06-30 06:40 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/90882104.shtml)
+- 2026-06-30 06:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/573567694.shtml)
+- 2026-06-30 06:18 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/39745666829.shtml)
+- 2026-06-30 06:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/399466150801.shtml)
+- 2026-06-30 06:34 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/2236691311.shtml)
+- 2026-06-30 06:30 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/81103933970.shtml)
+- 2026-06-30 06:23 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/221261563327.shtml)
+- 2026-06-30 06:30 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/2679901816.shtml)
+- 2026-06-30 06:34 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/616155011.shtml)
+- 2026-06-30 06:14 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/026105971.shtml)
+- 2026-06-30 06:19 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/546918588604.shtml)
+- 2026-06-30 06:17 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/49543.shtml)
+- 2026-06-30 06:39 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/4683262381.shtml)
+- 2026-06-30 06:17 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/7445293075.shtml)
+- 2026-06-30 06:20 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/0162413.shtml)

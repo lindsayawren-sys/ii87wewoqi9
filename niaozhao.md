@@ -1,57 +1,58 @@
-# （机遇香港）香港发展游艇经济为全球投资者打开新机遇
+# 中方：全面销毁日本遗弃在华化学武器是日方应尽国际义务
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新社香港4月26日电 (记者 魏华都)近日，香港机场管理局正式启动SKYTOPIA游艇港湾发展项目，向全球游艇、酒店及水上活动业界发出意向邀请，意味着香港游艇经济进一步进入全球投资者的视野。分析认为，投资者可通过提供高端海事服务、投资粤港澳大湾区及家族办公室资产配置等方式获益。 香港拥有1180公里海岸线、约4000个游艇泊位和超过1.2万艘注册游艇，且背靠大湾区内地城市，具
+中新网北京4月29日电 (记者 张蔚然 黄钰钦)中国外交部发言人林剑29日主持例行记者会。 有记者提问：今天是《禁止化学武器公约》生效29周年纪念日。根据公约规定，日本应于2007年内完成遗弃在华化学武器销毁，但目前销毁计划已多次逾期。禁止化学武器组织总干事阿里亚斯曾表示，“只有全部日遗化武完成销毁，‘无化武世界’才会到来”。请问发言人对此有何评论？ 林剑：日本遗弃在华化学武器
 
 ## 正文
 
-中新社香港4月26日电 (记者 魏华都)近日，香港机场管理局正式启动SKYTOPIA游艇港湾发展项目，向全球游艇、酒店及水上活动业界发出意向邀请，意味着香港游艇经济进一步进入全球投资者的视野。
+中新网北京4月29日电 (记者 张蔚然 黄钰钦)中国外交部发言人林剑29日主持例行记者会。
 
-分析认为，投资者可通过提供高端海事服务、投资粤港澳大湾区及家族办公室资产配置等方式获益。
+有记者提问：今天是《禁止化学武器公约》生效29周年纪念日。
 
-香港拥有1180公里海岸线、约4000个游艇泊位和超过1.2万艘注册游艇，且背靠大湾区内地城市，具备发展成为亚洲游艇枢纽的先天优势。
+根据公约规定，日本应于2007年内完成遗弃在华化学武器销毁，但目前销毁计划已多次逾期。
 
-香港特区行政长官李家超在2025年施政报告中明确提出发展游艇经济，优化游艇产业配套，推广高端游艇旅游。
+禁止化学武器组织总干事阿里亚斯曾表示，“只有全部日遗化武完成销毁，‘无化武世界’才会到来”。
 
-提供高端海事服务 SKYTOPIA游艇港湾位于大湾区核心位置，规划提供超500个泊位，最大可容纳120米长的超级游艇，设有游艇港湾、海湾度假酒店及水上游乐活动区三大主题项目，将是亚洲顶级滨海地标，首期预计2028年建成。
+请问发言人对此有何评论？
 
-项目将直接拉动高端海事服务需求，涵盖游艇管理、船员招聘、保险经纪及维修保养等。
+林剑：日本遗弃在华化学武器是日本军国主义侵华战争期间犯下的严重罪行之一，直到今天仍在危害中国人民生命财产和生态安全。
 
-目前已有来自中国内地、印尼、中东及新加坡的企业表达投资意向。
+全面销毁日遗化武是日方应尽的国际义务。
 
-亚太超级游艇协会执行董事Suzy Rayment(苏茜·雷蒙特)指出，游艇产业能为香港带来完整服务生态系统，香港业界将整体受益。
+中方一直敦促日方按照《禁止化学武器公约》和中日政府备忘录规定，早日全面彻底销毁日遗化武。
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-30 06:11 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 06:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 06:06 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 06:17 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 06:11 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 06:23 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 06:30 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 06:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 06:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 06:24 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 06:15 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 06:17 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 06:32 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 06:27 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 06:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 06:27 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 06:37 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 06:12 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 06:22 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 06:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 06:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 06:23 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/10227570285.shtml)
-- 2026-06-30 06:17 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/435609.shtml)
-- 2026-06-30 06:33 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/1836033742.shtml)
-- 2026-06-30 06:13 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/9074528.shtml)
-- 2026-06-30 06:19 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/481758.shtml)
-- 2026-06-30 06:27 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/9475379879.shtml)
-- 2026-06-30 06:33 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/9212636056.shtml)
-- 2026-06-30 06:31 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/752386897268.shtml)
-- 2026-06-30 06:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/33723404801.shtml)
-- 2026-06-30 06:35 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/759444.shtml)
-- 2026-06-30 06:10 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/08652210696.shtml)
-- 2026-06-30 06:32 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/83594.shtml)
-- 2026-06-30 06:08 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/180417427684.shtml)
-- 2026-06-30 06:17 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/526363401.shtml)
-- 2026-06-30 06:31 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/47688.shtml)
+- 2026-06-30 06:12 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/55285807.shtml)
+- 2026-06-30 06:18 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/2233844.shtml)
+- 2026-06-30 06:27 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/127927.shtml)
+- 2026-06-30 06:23 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/668005320597.shtml)
+- 2026-06-30 06:39 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/7988051.shtml)
+- 2026-06-30 06:12 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/37530266313.shtml)
+- 2026-06-30 06:36 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/42293361071.shtml)
+- 2026-06-30 06:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/28894941.shtml)
+- 2026-06-30 06:21 - [女心理师](http://www.blog.kurohicncr.top/Article/details/38506081330.shtml)
+- 2026-06-30 06:30 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/77250698920.shtml)
+- 2026-06-30 06:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/4706309.shtml)
+- 2026-06-30 06:15 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/6098733526.shtml)
+- 2026-06-30 06:38 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/5220111680.shtml)
+- 2026-06-30 06:25 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/452245.shtml)
+- 2026-06-30 06:36 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/156128234160.shtml)

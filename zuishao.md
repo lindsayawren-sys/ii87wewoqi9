@@ -1,54 +1,50 @@
-# 广州推出“动物总动员奇妙夜”迎接五一假期
+# 特朗普：伊朗希望美国尽快“开放霍尔木兹海峡”
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 15:42 来源：中国新闻网 4月25日晚，广州海洋馆与广州动物园携手打造的“动物总动员奇妙夜”夜游活动正式开启，活动以“动物魔法学院·星光开学季”为主题，融合昆虫、爬行动物、海洋动物等科普展示，邀请游客探秘星光下的海陆奇境，在夜幕下沉浸式观察了解动物的夜间习性与生态知识。 天色渐暗，广州海洋馆内千盏光影亮起，游客游园观赏海龟、海狮、海豹、白鲸
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月28日电美国总统特朗普28日在社交媒体发文称，伊朗希望美国“尽快开放霍尔木兹海峡”。（完）责任编辑：宋雅芳
 
 ## 正文
 
-发布时间：2026年04月26日 15:42 来源：中国新闻网 4月25日晚，广州海洋馆与广州动物园携手打造的“动物总动员奇妙夜”夜游活动正式开启，活动以“动物魔法学院·星光开学季”为主题，融合昆虫、爬行动物、海洋动物等科普展示，邀请游客探秘星光下的海陆奇境，在夜幕下沉浸式观察了解动物的夜间习性与生态知识。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-天色渐暗，广州海洋馆内千盏光影亮起，游客游园观赏海龟、海狮、海豹、白鲸、鲨鱼、海豚等海洋生物。
+新华社华盛顿4月28日电美国总统特朗普28日在社交媒体发文称，伊朗希望美国“尽快开放霍尔木兹海峡”。
 
-游客还可以观看《人鱼传说》和海洋特色NPC演艺，解锁独属于夜间海洋馆的奇遇。
-
-夜色渐浓，游客穿过夜间专属通道，来到广州动物园全新推出的昆虫科普径。
-
-昆虫科普径以生态造景还原自然栖息环境，集中展示了20种昆虫，包含中国巨竹节虫、长戟大兜虫，兰花螳螂…… 盘龙苑夜游区域则特设獭影迷踪、南美探秘、巨龙苏醒、鳄林蜥境、虫鸣意趣等主题展区，游客在科普老师的轻声指引下，开启探索这片神秘区域的奇妙旅程。
-
-(记者 陈楚红 制作 王嘉怡） 责任编辑：【周驰】
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 06:27 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 06:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 06:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 06:07 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 06:34 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 06:18 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 06:22 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 06:13 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 06:15 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 06:14 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 06:09 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 06:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 06:24 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 06:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 06:14 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 06:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 06:36 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 06:16 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 06:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 06:26 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 06:30 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 06:18 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 06:38 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 06:20 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 06:38 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 06:41 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:17 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/2703481433.shtml)
-- 2026-06-30 06:09 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/0880923675.shtml)
-- 2026-06-30 06:19 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/38738636344.shtml)
-- 2026-06-30 06:21 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/26961.shtml)
-- 2026-06-30 06:14 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/9523963.shtml)
-- 2026-06-30 06:29 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/4503199042.shtml)
-- 2026-06-30 06:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/1772215234.shtml)
-- 2026-06-30 06:14 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/9882144.shtml)
-- 2026-06-30 06:16 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/835714530.shtml)
-- 2026-06-30 06:27 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/36096.shtml)
-- 2026-06-30 06:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/369591.shtml)
-- 2026-06-30 06:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/3065678719.shtml)
-- 2026-06-30 06:19 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/17836222.shtml)
-- 2026-06-30 06:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/557960.shtml)
-- 2026-06-30 06:07 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/43979012.shtml)
+- 2026-06-30 06:38 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/03219.shtml)
+- 2026-06-30 06:40 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/71416.shtml)
+- 2026-06-30 06:35 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/163109509.shtml)
+- 2026-06-30 06:21 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/8030281.shtml)
+- 2026-06-30 06:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/9177155608.shtml)
+- 2026-06-30 06:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/94724061291.shtml)
+- 2026-06-30 06:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/7677700921.shtml)
+- 2026-06-30 06:27 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/37590.shtml)
+- 2026-06-30 06:32 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/9830804.shtml)
+- 2026-06-30 06:24 - [女心理师](https://www.share.kurohicncr.top/Article/details/856008688400.shtml)
+- 2026-06-30 06:14 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/266276.shtml)
+- 2026-06-30 06:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/0668708.shtml)
+- 2026-06-30 06:22 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/73865.shtml)
+- 2026-06-30 06:33 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/84289397700.shtml)
+- 2026-06-30 06:20 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/7564688438.shtml)

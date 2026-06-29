@@ -1,59 +1,45 @@
-# “国货一哥”净利连续三年下滑！香港“抄底”买楼被套拖累至今
+# 这不是打的车 这是老爸牌“限量版”专车 父母送货抵达女儿上大学的城市 接上没课的女儿一起回家
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财通社 在“体操王子”的带领下，李宁（02331.HK）的营业收入逐年上升，并于2025年达到了历史新高——接近人民币300亿元。但是，公司的归母净利润却连续第三年下滑，呈现出“增收不增利”的尴尬。 这一切，都要归因于2023年底的那个错误决定。 连续三年归母净利润同比下滑 4月22日，李宁发布了20
+发布时间：2026年04月29日 11:28 来源：中国新闻网 这不是打的车，这是老爸牌“限量版”专车！父母送货抵达女儿上大学的城市，接上没课的女儿一起回家 责任编辑：【翟璐】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月29日 11:28 来源：中国新闻网 这不是打的车，这是老爸牌“限量版”专车！
 
-来源：财通社 在“体操王子”的带领下，李宁（02331.HK）的营业收入逐年上升，并于2025年达到了历史新高——接近人民币300亿元。
-
-但是，公司的归母净利润却连续第三年下滑，呈现出“增收不增利”的尴尬。
-
-这一切，都要归因于2023年底的那个错误决定。
-
-连续三年归母净利润同比下滑 4月22日，李宁发布了2025年年报。
-
-从营业收入来看，李宁已经正式向人民币300亿元大关发起冲刺：2025年达到人民币296亿元，较2024年的人民币286.8亿元同比增长3.22%，同时，这也是公司自2004年上市22年以来的历史最高纪录。
-
-毛利润方面也是继续增长，2025年达到人民币144.9亿元，较2024年的人民币141.6亿元同比增长2.35%。
-
-不过毛利率较2024年略有下降，从49.4%回落到49%。
+父母送货抵达女儿上大学的城市，接上没课的女儿一起回家 责任编辑：【翟璐】
 
 ## 相关推荐
 
-- 2026-06-30 06:12 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 06:07 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 06:17 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 06:20 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-30 06:30 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 06:31 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 06:28 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 06:14 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 06:24 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 06:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 06:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 06:15 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 06:15 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 06:40 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 06:20 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 06:39 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 06:15 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 06:32 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 06:14 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 06:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 06:28 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 06:24 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 06:19 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 06:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/72189249.shtml)
-- 2026-06-30 06:06 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/48152.shtml)
-- 2026-06-30 06:11 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/652587433.shtml)
-- 2026-06-30 06:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/34026705690.shtml)
-- 2026-06-30 06:26 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/44482839309.shtml)
-- 2026-06-30 06:18 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/96654122.shtml)
-- 2026-06-30 06:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/01553.shtml)
-- 2026-06-30 06:27 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/393553.shtml)
-- 2026-06-30 06:17 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/56622002.shtml)
-- 2026-06-30 06:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/298500.shtml)
-- 2026-06-30 06:12 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/5640630936.shtml)
-- 2026-06-30 06:31 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/7948959889.shtml)
-- 2026-06-30 06:32 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/131661270.shtml)
-- 2026-06-30 06:34 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/93110.shtml)
-- 2026-06-30 06:26 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/3166973838.shtml)
+- 2026-06-30 06:21 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/187399089.shtml)
+- 2026-06-30 06:38 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/0380543811.shtml)
+- 2026-06-30 06:33 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/314012561039.shtml)
+- 2026-06-30 06:24 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/5697457.shtml)
+- 2026-06-30 06:15 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/76585966796.shtml)
+- 2026-06-30 06:37 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/47070.shtml)
+- 2026-06-30 06:40 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/38034729.shtml)
+- 2026-06-30 06:30 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/831924164965.shtml)
+- 2026-06-30 06:15 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/3884360280.shtml)
+- 2026-06-30 06:14 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/525902548878.shtml)
+- 2026-06-30 06:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/770460875.shtml)
+- 2026-06-30 06:21 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/40665357379.shtml)
+- 2026-06-30 06:36 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/7228741.shtml)
+- 2026-06-30 06:15 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/61834597758.shtml)
+- 2026-06-30 06:35 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/0096428756.shtml)

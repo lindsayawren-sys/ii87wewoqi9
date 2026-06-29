@@ -1,56 +1,60 @@
-# SpaceX瞄准内部GPU 警告投资者芯片供应和成本问题
+# 老牌芯片制造商英特尔正在AI驱动的世界中找到自己的位置
 
-> 更新时间：2026-06-30 06:36:02 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-SpaceX可能正在应对芯片业务中最大的挑战之一：制造为人工智能提供动力的关键部件，即图形处理器（GPU）。在SpaceX预计于今年夏天进行1.75万亿美元的首次公开募股（IPO）之前，该公司已向潜在投资者警告了其开发人工智能和其他技术的大笔支出计划。 根据媒体查阅的其S-1注册摘录，该公司将“制造我们自己的GPU”列为其正在进行的“大量资本支出”之一。公司向美国证券交易委员会
+周三英特尔股价飙升12.1%，再创历史新高，此前这家半导体巨头强调了其数据中心芯片需求快速上升。 分析师指出，英特尔正受益于人工智能趋势的转变 在错过了人工智能热潮的早期阶段之后，英特尔发现自己现在处于有利位置，能够从近期的技术进步中获利。 虽然人工智能模型训练在很大程度上依赖于英伟达和超威半导体等公司设计的图形处理器，但代理型人工智能的崛起正在提振对英特尔生产的那类中央处理器
 
 ## 正文
 
-SpaceX可能正在应对芯片业务中最大的挑战之一：制造为人工智能提供动力的关键部件，即图形处理器（GPU）。
+周三英特尔股价飙升12.1%，再创历史新高，此前这家半导体巨头强调了其数据中心芯片需求快速上升。
 
-在SpaceX预计于今年夏天进行1.75万亿美元的首次公开募股（IPO）之前，该公司已向潜在投资者警告了其开发人工智能和其他技术的大笔支出计划。
+分析师指出，英特尔正受益于人工智能趋势的转变 在错过了人工智能热潮的早期阶段之后，英特尔发现自己现在处于有利位置，能够从近期的技术进步中获利。
 
-根据媒体查阅的其S-1注册摘录，该公司将“制造我们自己的GPU”列为其正在进行的“大量资本支出”之一。
+虽然人工智能模型训练在很大程度上依赖于英伟达和超威半导体等公司设计的图形处理器，但代理型人工智能的崛起正在提振对英特尔生产的那类中央处理器的需求。
 
-公司向美国证券交易委员会提交这份文件，是为了在上市前披露其风险和财务状况。
+在经历数年的销售下滑之后，英特尔第一季度营收同比增长7%，达到136亿美元。
 
-SpaceX没有立即回应置评请求，也无法确定预期支出的规模。
+英特尔的数据中心和人工智能部门增长尤为强劲，营收跃升22%，达到51亿美元。
 
-责任编辑：王永生
+总体而言，英特尔调整后净利润飙升156%，达到15亿美元，合每股收益0.29美元。
+
+这一业绩远超华尔街预期——华尔街此前预计每股收益仅为0.01美元。
+
+管理层发布乐观预测 展望未来，英特尔预计第二季度营收将在138亿至148亿美元之间，调整后每股收益为0.20美元。
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 06:17 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 06:16 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 06:08 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 06:18 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 06:23 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 06:08 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 06:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 06:20 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 06:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 06:28 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 06:11 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 06:22 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 06:06 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 06:40 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 06:36 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 06:16 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 06:15 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 06:37 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 06:25 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 06:27 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 06:32 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 06:14 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 06:38 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 06:34 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 06:24 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 06:22 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 06:23 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/660507.shtml)
-- 2026-06-30 06:23 - [美人鱼](http://www.share.minike.top/Article/details/78026.shtml)
-- 2026-06-30 06:21 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/57413.shtml)
-- 2026-06-30 06:33 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/520988.shtml)
-- 2026-06-30 06:08 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/95323575.shtml)
-- 2026-06-30 06:32 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/82040334.shtml)
-- 2026-06-30 06:26 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/768929.shtml)
-- 2026-06-30 06:25 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/98574680.shtml)
-- 2026-06-30 06:31 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/9029362.shtml)
-- 2026-06-30 06:30 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/0057263336.shtml)
-- 2026-06-30 06:33 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/138928.shtml)
-- 2026-06-30 06:20 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/325180540.shtml)
-- 2026-06-30 06:25 - [85花告别古偶](http://www.blog.minike.top/Article/details/51096962.shtml)
-- 2026-06-30 06:22 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/72032852031.shtml)
-- 2026-06-30 06:24 - [日本反击率先破门](https://www.share.minike.top/Article/details/121437.shtml)
+- 2026-06-30 06:20 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/5135196457.shtml)
+- 2026-06-30 06:19 - [85花告别古偶](https://www.blog.minike.top/Article/details/82809.shtml)
+- 2026-06-30 06:12 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/2308733.shtml)
+- 2026-06-30 06:38 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/27834829183.shtml)
+- 2026-06-30 06:38 - [乔家的儿女](https://www.blog.minike.top/Article/details/7809141689.shtml)
+- 2026-06-30 06:40 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/872867.shtml)
+- 2026-06-30 06:30 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/72814.shtml)
+- 2026-06-30 06:36 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/863211567.shtml)
+- 2026-06-30 06:14 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/54019.shtml)
+- 2026-06-30 06:22 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/07323826038.shtml)
+- 2026-06-30 06:16 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/47705.shtml)
+- 2026-06-30 06:40 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/256918451.shtml)
+- 2026-06-30 06:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/5027200.shtml)
+- 2026-06-30 06:16 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/2575525.shtml)
+- 2026-06-30 06:40 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/486537.shtml)

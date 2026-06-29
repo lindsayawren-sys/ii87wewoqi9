@@ -1,56 +1,60 @@
-# 医生：一次低剂量CT辐射很低 不必过度焦虑
+# 交通运输部：“五一”假期 全社会跨区域人员流动量将创历史新高
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网4月23日电 国家卫生健康委23日下午召开新闻发布会，介绍肿瘤预防及早筛相关健康知识有关情况。有记者问，针对肿瘤筛查中涉及的影像学检查，其辐射剂量是否在安全范围内，检查的益处和辐射的危害哪个更大？上海市胸科医院主任医师韩宝惠介绍，谈到肺癌的筛查，人们关心最多的就是筛查带来的辐射问题，可以从“为什么用低剂量螺旋CT，剂量有多大，值不值得做”这三方面来看。 第一，肺癌高危人群
+今天，交通运输部举行新闻发布会，交通运输部运输服务司副司长高博介绍，“五一”假期，全社会跨区域人员流动量将创历史同期新高。 “五一”假期，全社会跨区域人员流动量预计将达15.2亿人次，日均3.04亿人次，同比增长4%。假期首日人流车流将创历史同期新高。预计5月1日全社会跨区域人员流动量将达3.44亿人次，同比增长3.3%；高速公路车流量将达到7000万辆，同比增长3.5%。 假
 
 ## 正文
 
-中新网4月23日电 国家卫生健康委23日下午召开新闻发布会，介绍肿瘤预防及早筛相关健康知识有关情况。
+今天，交通运输部举行新闻发布会，交通运输部运输服务司副司长高博介绍，“五一”假期，全社会跨区域人员流动量将创历史同期新高。
 
-有记者问，针对肿瘤筛查中涉及的影像学检查，其辐射剂量是否在安全范围内，检查的益处和辐射的危害哪个更大？
+“五一”假期，全社会跨区域人员流动量预计将达15.2亿人次，日均3.04亿人次，同比增长4%。
 
-上海市胸科医院主任医师韩宝惠介绍，谈到肺癌的筛查，人们关心最多的就是筛查带来的辐射问题，可以从“为什么用低剂量螺旋CT，剂量有多大，值不值得做”这三方面来看。
+假期首日人流车流将创历史同期新高。
 
-第一，肺癌高危人群筛查，目前推荐使用低剂量螺旋CT，而不建议使用普通CT来代替。
+预计5月1日全社会跨区域人员流动量将达3.44亿人次，同比增长3.3%；高速公路车流量将达到7000万辆，同比增长3.5%。
 
-原因很简单，肺癌发现的越早治疗效果会越好，而低剂量螺旋CT有助于更早地发现可疑病灶，提高早期诊断的机会，从而为后续的治疗争取更多的主动。
+假期期间，公路出行占主导。
 
-第二，低剂量螺旋CT的辐射剂量总体是比较低的，不必过度焦虑。
+预计假期期间公路人员流动量占比将达91.6%，全国高速公路日均车流量约6400万辆。
 
-有些人一听到CT，首先担心的就是辐射。
+其中日均新能源车约1540万辆，占比24%，同比增长33%。
 
-一次常规胸部CT的辐射剂量大约在6毫西弗左右，而一次低剂量螺旋CT筛查的剂量在1到2毫西弗左右，只有常规剂量的三分之一到六分之一。
+此外，铁路、民航保持高位运行。
 
 ## 相关推荐
 
-- 2026-06-30 06:31 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 06:27 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 06:18 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 06:20 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 06:22 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 06:22 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 06:19 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 06:21 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 06:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 06:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 06:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 06:41 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 06:39 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 06:26 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-30 06:23 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 06:40 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 06:22 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 06:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 06:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 06:28 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 06:32 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 06:24 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 06:15 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 06:33 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/664257.shtml)
-- 2026-06-30 06:31 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/1660134299.shtml)
-- 2026-06-30 06:33 - [张凌赫 客串](http://www.share.minike.top/Article/details/11393.shtml)
-- 2026-06-30 06:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/10565.shtml)
-- 2026-06-30 06:31 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/363389254.shtml)
-- 2026-06-30 06:29 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/5540993.shtml)
-- 2026-06-30 06:25 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/53823.shtml)
-- 2026-06-30 06:13 - [流金岁月](https://www.blog.minike.top/Article/details/66632252411.shtml)
-- 2026-06-30 06:20 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/7912176002.shtml)
-- 2026-06-30 06:21 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/25357198.shtml)
-- 2026-06-30 06:26 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/6553208.shtml)
-- 2026-06-30 06:34 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/62761.shtml)
-- 2026-06-30 06:30 - [爱很美味](http://www.blog.minike.top/Article/details/39572.shtml)
-- 2026-06-30 06:24 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/362246590.shtml)
-- 2026-06-30 06:28 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/07313167442.shtml)
+- 2026-06-30 06:33 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/114768528235.shtml)
+- 2026-06-30 06:20 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/9637455328.shtml)
+- 2026-06-30 06:28 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/04579264.shtml)
+- 2026-06-30 06:14 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/95394816132.shtml)
+- 2026-06-30 06:32 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/7298443303.shtml)
+- 2026-06-30 06:24 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/78709335.shtml)
+- 2026-06-30 06:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/5249677328.shtml)
+- 2026-06-30 06:41 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/961737850.shtml)
+- 2026-06-30 06:41 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/689299.shtml)
+- 2026-06-30 06:29 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/821082894980.shtml)
+- 2026-06-30 06:29 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/934616.shtml)
+- 2026-06-30 06:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/959512.shtml)
+- 2026-06-30 06:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/27158.shtml)
+- 2026-06-30 06:25 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/43643.shtml)
+- 2026-06-30 06:22 - [恋与深空 日服](http://www.share.minike.top/Article/details/03543.shtml)

@@ -1,57 +1,56 @@
-# 一季度全国纪检监察机关立案省部级干部30人
+# 绍兴越国都城和汉六朝会稽郡遗址：揭开都城“CBD”面纱
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新社北京4月23日电 中央纪委国家监委23日通报今年第一季度全国纪检监察机关监督检查审查调查情况时披露，立案省部级干部30人。 根据通报，2026年第一季度，全国纪检监察机关共接收信访举报96.8万件次，其中检举控告类信访举报26.4万件次。处置问题线索57万件。 立案24.5万件，其中立案省部级干部30人、厅局级干部1267人、县处级干部1万人、乡科级干部3.3万人；立案现
+中新网绍兴4月29日电(林波)“国之大事，在祀与戎。”这句出自《左传》的古训，在浙江绍兴的考古成果中找到了鲜活佐证。 4月29日，“2025年度全国十大考古新发现”揭晓，绍兴越国都城和汉六朝会稽郡遗址入选。该系列发掘首次揭开了越国都城核心区的神秘面纱——包括高等级祭祀场所、王宫建筑基址以及越国城墙遗迹。 该遗址位于绍兴古城南部，由稽中遗址与塔山和畅坊遗址构成。2024年至202
 
 ## 正文
 
-中新社北京4月23日电 中央纪委国家监委23日通报今年第一季度全国纪检监察机关监督检查审查调查情况时披露，立案省部级干部30人。
+中新网绍兴4月29日电(林波)“国之大事，在祀与戎。
 
-根据通报，2026年第一季度，全国纪检监察机关共接收信访举报96.8万件次，其中检举控告类信访举报26.4万件次。
+”这句出自《左传》的古训，在浙江绍兴的考古成果中找到了鲜活佐证。
 
-处置问题线索57万件。
+4月29日，“2025年度全国十大考古新发现”揭晓，绍兴越国都城和汉六朝会稽郡遗址入选。
 
-立案24.5万件，其中立案省部级干部30人、厅局级干部1267人、县处级干部1万人、乡科级干部3.3万人；立案现任或原任村党支部书记、村委会主任2.3万人。
+该系列发掘首次揭开了越国都城核心区的神秘面纱——包括高等级祭祀场所、王宫建筑基址以及越国城墙遗迹。
 
-处分18.3万人，其中党纪处分13.5万人、政务处分6.1万人；处分省部级干部56人，厅局级干部1125人，县处级干部8439人，乡科级干部2.5万人，一般干部2.5万人，农村、企业等其他人员12.4万人。
+该遗址位于绍兴古城南部，由稽中遗址与塔山和畅坊遗址构成。
 
-通报还显示，今年第一季度，全国纪检监察机关坚持受贿行贿一起查，立案行贿人员9066人，移送检察机关983人。
+2024年至2025年，经国家文物局批准，绍兴市文物考古研究所对两处遗址进行了系统发掘，取得重大突破。
 
-(完)
+“两处遗址的发掘使我们首次触摸到越国都城核心区和汉六朝会稽郡的文化面貌。
+
+”绍兴市文物考古研究所所长李龙彬如是介绍。
 
 ## 相关推荐
 
-- 2026-06-30 06:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 06:35 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 06:23 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 06:36 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 06:19 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 06:32 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 06:31 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 06:29 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 06:17 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 06:18 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 06:16 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 06:27 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 06:23 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 06:37 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 06:18 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 06:12 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 06:17 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 06:31 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 06:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 06:22 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 06:14 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 06:31 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 06:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/791469882300.shtml)
-- 2026-06-30 06:17 - [斗破苍穹](http://www.share.minike.top/Article/details/97282202447.shtml)
-- 2026-06-30 06:09 - [乔家的儿女](http://www.blog.minike.top/Article/details/9885314.shtml)
-- 2026-06-30 06:14 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/1249902.shtml)
-- 2026-06-30 06:20 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/634836748189.shtml)
-- 2026-06-30 06:19 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/61603.shtml)
-- 2026-06-30 06:18 - [巴西扳平比分](http://www.share.minike.top/Article/details/7753396234.shtml)
-- 2026-06-30 06:08 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/25541.shtml)
-- 2026-06-30 06:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/680272106852.shtml)
-- 2026-06-30 06:23 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/12296289.shtml)
-- 2026-06-30 06:06 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/044012184410.shtml)
-- 2026-06-30 06:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/72227187505.shtml)
-- 2026-06-30 06:35 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/53176313.shtml)
-- 2026-06-30 06:17 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/555771.shtml)
-- 2026-06-30 06:19 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/340888514.shtml)
+- 2026-06-30 06:23 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/32293.shtml)
+- 2026-06-30 06:18 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/857059.shtml)
+- 2026-06-30 06:36 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/33364729345.shtml)
+- 2026-06-30 06:25 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/706322185.shtml)
+- 2026-06-30 06:31 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/3886476.shtml)
+- 2026-06-30 06:34 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/680636187940.shtml)
+- 2026-06-30 06:21 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/938158.shtml)
+- 2026-06-30 06:34 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/820785102.shtml)
+- 2026-06-30 06:27 - [沉睡花园](http://www.share.minike.top/Article/details/2863470838.shtml)
+- 2026-06-30 06:25 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/57978874172.shtml)
+- 2026-06-30 06:32 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/17385716.shtml)
+- 2026-06-30 06:18 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/41009795920.shtml)
+- 2026-06-30 06:14 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/47125221166.shtml)
+- 2026-06-30 06:29 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/470333587.shtml)
+- 2026-06-30 06:17 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/7540129314.shtml)

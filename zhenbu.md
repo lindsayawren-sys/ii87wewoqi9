@@ -1,61 +1,59 @@
-# 【光明论坛】在增强经济韧性上持续用力
+# （寻味中华丨书香）当民间文学搬进石林山水：阿诗玛传说融入大众文化
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-【光明论坛】 作者：许江(中共江苏省委党校校刊部教授、江苏党的建设理论与实践创新研究院研究员) 近期，媒体分赴各经济大省采访调研，探寻经济大省在研究新情况、解决新问题上下功夫、出经验的实践与启示。 习近平总书记在参加十四届全国人大四次会议江苏代表团审议时强调，经济大省发展底盘稳、抵御外部冲击能力强，才能支撑全国经济大盘稳定。江苏要在增强经济韧性上持续用力。这不仅是经济大省江苏一
+中新社昆明4月29日电 题：当民间文学搬进石林山水：阿诗玛传说融入大众文化 作者 陈静 在云南石林风景名胜区，大型实景歌舞剧《阿诗玛》每天上演。不远处，一座宛若少女侧影的石峰静静伫立——她是撒尼人心中的“阿诗玛”，是“断得弯不得”精神的象征。 彝族支系撒尼人叙事长诗《阿诗玛》是国家级非物质文化遗产代表性项目，流传于云南省石林彝族自治县，讲述了撒尼姑娘阿诗玛面对地主之子逼迫她嫁给
 
 ## 正文
 
-【光明论坛】 作者：许江(中共江苏省委党校校刊部教授、江苏党的建设理论与实践创新研究院研究员) 近期，媒体分赴各经济大省采访调研，探寻经济大省在研究新情况、解决新问题上下功夫、出经验的实践与启示。
+中新社昆明4月29日电 题：当民间文学搬进石林山水：阿诗玛传说融入大众文化 作者 陈静 在云南石林风景名胜区，大型实景歌舞剧《阿诗玛》每天上演。
 
-习近平总书记在参加十四届全国人大四次会议江苏代表团审议时强调，经济大省发展底盘稳、抵御外部冲击能力强，才能支撑全国经济大盘稳定。
+不远处，一座宛若少女侧影的石峰静静伫立——她是撒尼人心中的“阿诗玛”，是“断得弯不得”精神的象征。
 
-江苏要在增强经济韧性上持续用力。
+彝族支系撒尼人叙事长诗《阿诗玛》是国家级非物质文化遗产代表性项目，流传于云南省石林彝族自治县，讲述了撒尼姑娘阿诗玛面对地主之子逼迫她嫁给自己，以“清水不愿和浑水搅在一起”表明立场。
 
-这不仅是经济大省江苏一地的任务，而是所有经济大省的共同使命。
+地主与崖神勾结，引来洪水把阿诗玛卷走，她最终化为石峰。
 
-经济韧性的关键在于坚实的实体经济基础，而经济大省的产业体系完整性，正是抵御外部冲击的“防火墙”。
+阿诗玛的兄长阿黑为救妹妹，先后与地主智斗、对歌、破铁门。
 
-江苏的先进制造业集群规模占全国比重超1/5，集成电路、生物医药等战略性产业的自主可控能力，使其在关键技术领域不受制于人；山东作为拥有41个工业大类的省份，从基础原材料到高端装备制造的全链条布局，让其在全球供应链波动中始终保持生产稳定性。
+云南民族大学社会学院教授吴兴帜向中新社记者介绍，《阿诗玛》采用了顺叙、倒叙、插叙、叠叙以及伏笔、夸张、讽刺等多种手法，语言生动，在世界民间文学史上实属罕见。
 
-这种产业韧性不仅体现在“全”，更在于“新”。
+这部史诗最初以撒尼语口耳相传，1954年，经过系统搜集整理，长达1800余行的全诗得以用汉文完整呈现。
 
-广东推动超1万家工业企业开展技术改造与数字化转型，人工智能核心企业数量占比全国领先，以新质生产力为传统产业注入“抗风险基因”；浙江规上工业企业数字化改造实现全覆盖，通过工业互联网平台将分散的中小企业串联成协同高效的产业网络，单个企业的波动难以影响整体产业链的运转。
+此后，《阿诗玛》先后被翻译成英、法、德、西班牙、俄、日、韩等多种语言，还被改编成电影、京剧、歌剧、舞剧等多种艺术形式。
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 06:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 06:34 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 06:12 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 06:27 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 06:34 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 06:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 06:25 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 06:14 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 06:19 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 06:31 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 06:11 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 06:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 06:30 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 06:22 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 06:30 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 06:15 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 06:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 06:22 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 06:34 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 06:18 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 06:28 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 06:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 06:22 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 06:41 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 06:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 06:39 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 06:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/031706150.shtml)
-- 2026-06-30 06:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/0899326.shtml)
-- 2026-06-30 06:14 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/979593847.shtml)
-- 2026-06-30 06:29 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/841177674.shtml)
-- 2026-06-30 06:17 - [起风了](http://www.share.kurohicncr.top/Article/details/37707.shtml)
-- 2026-06-30 06:25 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/86865713514.shtml)
-- 2026-06-30 06:23 - [美人鱼](http://www.share.kurohicncr.top/Article/details/9758773.shtml)
-- 2026-06-30 06:06 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/30311090859.shtml)
-- 2026-06-30 06:09 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/5617492511.shtml)
-- 2026-06-30 06:20 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/095697.shtml)
-- 2026-06-30 06:16 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/920336.shtml)
-- 2026-06-30 06:14 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/154487.shtml)
-- 2026-06-30 06:12 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/867590404.shtml)
-- 2026-06-30 06:29 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/6093846924.shtml)
-- 2026-06-30 06:29 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/006913.shtml)
+- 2026-06-30 06:22 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/565318.shtml)
+- 2026-06-30 06:29 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/524342127.shtml)
+- 2026-06-30 06:41 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/3583128.shtml)
+- 2026-06-30 06:19 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/6203347201.shtml)
+- 2026-06-30 06:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/888398818.shtml)
+- 2026-06-30 06:24 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/3839614633.shtml)
+- 2026-06-30 06:31 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/24649465.shtml)
+- 2026-06-30 06:27 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/90625.shtml)
+- 2026-06-30 06:28 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/6611325.shtml)
+- 2026-06-30 06:23 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/0447681.shtml)
+- 2026-06-30 06:36 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/25990348227.shtml)
+- 2026-06-30 06:19 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/321997074746.shtml)
+- 2026-06-30 06:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/7565168.shtml)
+- 2026-06-30 06:23 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/644479465277.shtml)
+- 2026-06-30 06:22 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/796999476.shtml)

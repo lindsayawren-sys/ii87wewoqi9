@@ -1,60 +1,56 @@
-# 正确理解“为官不易” 树牢正确政绩观(思想纵横)
+# 2026数字中国创新大赛·人工智能赛道总决赛福州举行 聚焦产业一线
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-领导干部担当作为，是从政本分。针对对“为官不易”的错误认识，习近平总书记指出：“如果组织上管得严一点、群众监督多一点就感到受不了，就要‘为官不易’，那是境界不高、不负责任的表现”，并强调：“‘为官不易’要正确理解，应该理解为用好党和人民赋予的权力不易，按照党和人民的要求严格要求自己不易，自觉接受党和人民监督不易，作出经得起实践、人民、历史检验的政绩不易。”这一重要论述廓清了“为
+发布时间：2026年04月28日 20:26 来源：中国新闻网 以“AI融百业，数智启新程”为主题的2026数字中国创新大赛·人工智能赛道总决赛4月28日在福州举行。来自全国各地的优秀AI创新团队齐聚一堂，围绕人工智能与实体产业深度融合展开对决。 本届赛道设置五大赛题方向，涵盖“人工智能+科学研究及应用创新”“人工智能+产业发展”“人工智能+消费民生”“人工智能+治理能力”，以
 
 ## 正文
 
-领导干部担当作为，是从政本分。
+发布时间：2026年04月28日 20:26 来源：中国新闻网 以“AI融百业，数智启新程”为主题的2026数字中国创新大赛·人工智能赛道总决赛4月28日在福州举行。
 
-针对对“为官不易”的错误认识，习近平总书记指出：“如果组织上管得严一点、群众监督多一点就感到受不了，就要‘为官不易’，那是境界不高、不负责任的表现”，并强调：“‘为官不易’要正确理解，应该理解为用好党和人民赋予的权力不易，按照党和人民的要求严格要求自己不易，自觉接受党和人民监督不易，作出经得起实践、人民、历史检验的政绩不易。
+来自全国各地的优秀AI创新团队齐聚一堂，围绕人工智能与实体产业深度融合展开对决。
 
-”这一重要论述廓清了“为官不易”的思想迷雾和认识误区，为树立和践行正确政绩观指明了方向。
+本届赛道设置五大赛题方向，涵盖“人工智能+科学研究及应用创新”“人工智能+产业发展”“人工智能+消费民生”“人工智能+治理能力”，以及专题挑战赛“基于数字中国创新大赛的AI辅助作品智能评审系统研发与应用”。
 
-新时代以来，我们党对领导干部的要求提高了、管理严格了，营造了干净干事、大胆干事的良好政治生态。
+赛事共汇聚997支参赛队伍，累计征集参赛作品534份。
 
-然而，个别领导干部却把严管视为束缚，对“为官不易”形成了错误认识，不愿担当、不想干事，还把不干事的原因归咎到严管上。
+经初赛、复赛严格筛选评审，最终93支优秀团队脱颖而出，会师总决赛舞台，在五大赛题方向上展开较量。
 
-这种错误观念的根子在于宗旨意识淡化，只想当官享福、不想为民谋利。
+记者注意到，本届赛题方向更加注重行业应用的实际落地，聚焦农业、工业、能源、医疗、城市治理等关键领域，推动AI技术真正服务于实体经济与社会民生，引导参赛作品从“能用”迈向“好用、管用”。
 
-须知严管不是束缚，而是干事创业的“安全屏障”。
-
-“不易”更不是“不为”的借口，面对艰巨的改革发展稳定任务，领导干部只有实干苦干，才能扛起应该扛的重担。
+(记者 吴晟炜） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 06:28 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 06:09 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 06:20 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 06:21 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 06:13 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 06:16 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 06:35 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 06:11 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 06:15 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 06:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 06:24 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 06:34 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 06:23 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 06:35 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 06:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 06:12 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 06:27 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 06:26 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 06:37 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 06:21 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 06:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 06:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 06:34 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 06:33 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 06:14 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 06:36 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:24 - [房价什么时候能涨](http://www.share.minike.top/Article/details/18399920.shtml)
-- 2026-06-30 06:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/4661221971.shtml)
-- 2026-06-30 06:31 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/11670.shtml)
-- 2026-06-30 06:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/86817089706.shtml)
-- 2026-06-30 06:13 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/828013.shtml)
-- 2026-06-30 06:35 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/8372964856.shtml)
-- 2026-06-30 06:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/1561517.shtml)
-- 2026-06-30 06:27 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/20038.shtml)
-- 2026-06-30 06:20 - [乔家的儿女](https://www.share.minike.top/Article/details/06578.shtml)
-- 2026-06-30 06:10 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/94580.shtml)
-- 2026-06-30 06:11 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/5859997258.shtml)
-- 2026-06-30 06:33 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/43489.shtml)
-- 2026-06-30 06:06 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/565470.shtml)
-- 2026-06-30 06:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/72746007.shtml)
-- 2026-06-30 06:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/3412370886.shtml)
+- 2026-06-30 06:15 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/08747.shtml)
+- 2026-06-30 06:13 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/372480673.shtml)
+- 2026-06-30 06:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/88834.shtml)
+- 2026-06-30 06:24 - [扫黑风暴](https://www.blog.minike.top/Article/details/70524440.shtml)
+- 2026-06-30 06:12 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/90268537056.shtml)
+- 2026-06-30 06:36 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/49110623.shtml)
+- 2026-06-30 06:34 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/52524.shtml)
+- 2026-06-30 06:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/840128261.shtml)
+- 2026-06-30 06:37 - [日本进球](http://www.share.kurohicncr.top/Article/details/8415016.shtml)
+- 2026-06-30 06:36 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/24617944.shtml)
+- 2026-06-30 06:29 - [起风了](https://www.share.minike.top/Article/details/5541576027.shtml)
+- 2026-06-30 06:29 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/775911336363.shtml)
+- 2026-06-30 06:38 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/9600033.shtml)
+- 2026-06-30 06:35 - [森保一 保守](http://www.blog.minike.top/Article/details/191952734796.shtml)
+- 2026-06-30 06:31 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/1540769.shtml)

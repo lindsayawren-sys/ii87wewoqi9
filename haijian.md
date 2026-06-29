@@ -1,48 +1,61 @@
-# 人民海军成立77周年系列报道：蹈海·锋刃制胜
+# 芯片、油价大幅飙升，通用电气医疗下调业绩预期
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月25日 22:04 来源：中国新闻网 军不思战，国之大患；兵不备战，胜无从谈。77年来，人民海军坚持实战化训练、深化联合作战、坚守战备巡逻、捍卫海上权益，锻造出全时待战、随时能战的过硬打赢能力，守护祖国万里海疆，履行强军使命担当。(李纯 刘少伟 程嘉豪 张雅中健 王文斌 制作 卢晓娜 素材来源 海政宣传局) 责任编辑：【李岩】
+通用医疗下调了本年度盈利预期。近期季度内，存储芯片、原油及货运价格大幅上涨，对公司业绩造成冲击。 这家医疗科技企业于周三公布，全年调整后每股收益预期由此前的4.95至5.15美元，下调至4.80至5美元。市场研究机构FactSet调查的分析师平均预期为每股调整后收益5.06美元。 公司维持全年3%至4%的有机营收增长目标不变。 首席执行官就下调盈利预期表示：“我们正采取审慎的经
 
 ## 正文
 
-发布时间：2026年04月25日 22:04 来源：中国新闻网 军不思战，国之大患；兵不备战，胜无从谈。
+通用医疗下调了本年度盈利预期。
 
-77年来，人民海军坚持实战化训练、深化联合作战、坚守战备巡逻、捍卫海上权益，锻造出全时待战、随时能战的过硬打赢能力，守护祖国万里海疆，履行强军使命担当。
+近期季度内，存储芯片、原油及货运价格大幅上涨，对公司业绩造成冲击。
 
-(李纯 刘少伟 程嘉豪 张雅中健 王文斌 制作 卢晓娜 素材来源 海政宣传局) 责任编辑：【李岩】
+这家医疗科技企业于周三公布，全年调整后每股收益预期由此前的4.95至5.15美元，下调至4.80至5美元。
+
+市场研究机构FactSet调查的分析师平均预期为每股调整后收益5.06美元。
+
+公司维持全年3%至4%的有机营收增长目标不变。
+
+首席执行官就下调盈利预期表示：“我们正采取审慎的经营策略。
+
+”他补充提到，企业将通过调价、成本管控等举措，抵消过半通胀带来的负面影响。
+
+他表示：“值得关注的是，新一轮创新战略落地推进顺利、成果显著，将助力未来营收扩张与利润率提升。
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 06:28 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 06:25 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 06:14 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 06:21 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 06:23 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 06:25 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 06:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 06:16 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 06:21 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 06:25 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 06:06 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 06:32 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 06:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 06:13 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 06:29 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 06:19 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 06:13 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 06:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 06:41 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 06:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 06:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 06:26 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 06:15 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 06:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 06:32 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 06:24 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:19 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/1818909214.shtml)
-- 2026-06-30 06:10 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/6162183145.shtml)
-- 2026-06-30 06:21 - [巴西vs日本](http://www.blog.minike.top/Article/details/33801831.shtml)
-- 2026-06-30 06:16 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/924398972.shtml)
-- 2026-06-30 06:31 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/619763418288.shtml)
-- 2026-06-30 06:17 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/793548.shtml)
-- 2026-06-30 06:22 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/26977356.shtml)
-- 2026-06-30 06:14 - [日本进球](http://www.share.kurohicncr.top/Article/details/879236935270.shtml)
-- 2026-06-30 06:33 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/2503516.shtml)
-- 2026-06-30 06:19 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/17813120680.shtml)
-- 2026-06-30 06:18 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/7570716.shtml)
-- 2026-06-30 06:14 - [美人鱼](https://www.share.minike.top/Article/details/90050750.shtml)
-- 2026-06-30 06:14 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/4553048.shtml)
-- 2026-06-30 06:19 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/9088968.shtml)
-- 2026-06-30 06:14 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/798336762670.shtml)
+- 2026-06-30 06:32 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/97816874520.shtml)
+- 2026-06-30 06:15 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/301544.shtml)
+- 2026-06-30 06:18 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/1404609.shtml)
+- 2026-06-30 06:15 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/77110.shtml)
+- 2026-06-30 06:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/859557587.shtml)
+- 2026-06-30 06:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/944420049831.shtml)
+- 2026-06-30 06:12 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/19932571225.shtml)
+- 2026-06-30 06:24 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/7729560842.shtml)
+- 2026-06-30 06:36 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/818651921973.shtml)
+- 2026-06-30 06:39 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/430572569939.shtml)
+- 2026-06-30 06:38 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/7418161554.shtml)
+- 2026-06-30 06:15 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/36528770494.shtml)
+- 2026-06-30 06:30 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/217030.shtml)
+- 2026-06-30 06:40 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/82148854.shtml)
+- 2026-06-30 06:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/75418138057.shtml)

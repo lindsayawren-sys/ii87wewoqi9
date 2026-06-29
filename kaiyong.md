@@ -1,59 +1,58 @@
-# 白宫记者晚宴传“枪声” 特朗普紧急撤离
+# 招商基金十年老将清仓式离任！李崟卸任4只产品，年化回报超12%，下一站公募？
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新社华盛顿4月25日电 (记者 陈孟统)美联社等多家美国媒体25日晚报道称，出席白宫记者晚宴的美国总统特朗普因现场传出疑似“枪声”而紧急撤离。 白宫记者晚宴当晚在位于华盛顿市区的一所酒店举行。这是特朗普首次以总统身份参加该活动。 根据白宫记者团发出的消息，事件发生在特朗普抵达活动现场后的半小时。当晚8时39分许，晚宴现场传出“枪声”，随后特勤局人员冲入宴会大厅，要求来宾撤离。
+4月29日，招商行业精选、招商安泰平衡、招商匠心优选A、招商安庆发布基金经理变更公告，投资管理一部总监、任职超10年的老将李崟因“个人原因”离任基金经理职务。此前的4月17日，李崟已先后卸任招商瑞智优选、招商稳健平衡A、招商睿逸3只基金，至此其名下已无在管公募产品，10年招商投研生涯就此画上句号。 招商基金10年老将李崟离任：7只产品清仓卸任，年化回报12%远超沪深300 公开
 
 ## 正文
 
-中新社华盛顿4月25日电 (记者 陈孟统)美联社等多家美国媒体25日晚报道称，出席白宫记者晚宴的美国总统特朗普因现场传出疑似“枪声”而紧急撤离。
+4月29日，招商行业精选、招商安泰平衡、招商匠心优选A、招商安庆发布基金经理变更公告，投资管理一部总监、任职超10年的老将李崟因“个人原因”离任基金经理职务。
 
-白宫记者晚宴当晚在位于华盛顿市区的一所酒店举行。
+此前的4月17日，李崟已先后卸任招商瑞智优选、招商稳健平衡A、招商睿逸3只基金，至此其名下已无在管公募产品，10年招商投研生涯就此画上句号。
 
-这是特朗普首次以总统身份参加该活动。
+招商基金10年老将李崟离任：7只产品清仓卸任，年化回报12%远超沪深300 公开资料显示，李崟职业生涯经历银行、基金、财务公司等多个阶段，2015年12月正式加入招商基金。
 
-根据白宫记者团发出的消息，事件发生在特朗普抵达活动现场后的半小时。
+截至离任前，其公募基金经理年限已超10年，一季度末管理规模约69.91亿元。
 
-当晚8时39分许，晚宴现场传出“枪声”，随后特勤局人员冲入宴会大厅，要求来宾撤离。
+旗下管理的多只平衡型产品在业内中长期业绩出众，招商稳健平衡、招商安泰平衡、招商匠心优选A等任职回报在同期同类型产品中居前甚至排在首位。
 
-截至中新社记者发稿时，美国官方尚未就此发表声明。
+其中，管理时间最长的招商睿逸累计任职近7年，任职回报高达118%，年化收益率12%；招商安泰平衡与招商匠心优选A任期回报分别为149.11%、86.26%，跑赢业绩比较基准。
 
-美联社发出的快讯称，白宫记者晚宴因一起“未具体说明的威胁”被紧急疏散。
+Wind数据显示，截至4月28日，李崟过往管理产品年化回报达12.13%，远超同期沪深300指数表现。
 
-暂时没有人员受伤的报告。
+据业内消息，李崟此次卸任后将离开招商基金，下一站或仍在公募基金发展。
 
 ## 相关推荐
 
-- 2026-06-30 06:27 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 06:29 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 06:16 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 06:24 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 06:12 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 06:27 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 06:11 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 06:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 06:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 06:06 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 06:33 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 06:13 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 06:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 06:28 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 06:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 06:40 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 06:40 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 06:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 06:18 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 06:22 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 06:21 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 06:28 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 06:18 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 06:39 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 06:39 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:35 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/71608.shtml)
-- 2026-06-30 06:20 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/8502181733.shtml)
-- 2026-06-30 06:23 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/53638181213.shtml)
-- 2026-06-30 06:31 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/71314444084.shtml)
-- 2026-06-30 06:33 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/180835025.shtml)
-- 2026-06-30 06:23 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/224360158172.shtml)
-- 2026-06-30 06:32 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/33858.shtml)
-- 2026-06-30 06:18 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/2336360.shtml)
-- 2026-06-30 06:30 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/366737014276.shtml)
-- 2026-06-30 06:29 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/84081759099.shtml)
-- 2026-06-30 06:26 - [《共患难》](http://www.blog.minike.top/Article/details/4588179.shtml)
-- 2026-06-30 06:07 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/696911743623.shtml)
-- 2026-06-30 06:25 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/61614396514.shtml)
-- 2026-06-30 06:21 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/80965772774.shtml)
-- 2026-06-30 06:12 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/989149944.shtml)
+- 2026-06-30 06:26 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/03442222827.shtml)
+- 2026-06-30 06:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/6649150552.shtml)
+- 2026-06-30 06:32 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/96347760.shtml)
+- 2026-06-30 06:39 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/398791736705.shtml)
+- 2026-06-30 06:25 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/306931371065.shtml)
+- 2026-06-30 06:13 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/99150265.shtml)
+- 2026-06-30 06:13 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/9675593743.shtml)
+- 2026-06-30 06:12 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/2509512.shtml)
+- 2026-06-30 06:18 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/11813.shtml)
+- 2026-06-30 06:24 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/542588145.shtml)
+- 2026-06-30 06:35 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/5995264.shtml)
+- 2026-06-30 06:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/044006.shtml)
+- 2026-06-30 06:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/748741958.shtml)
+- 2026-06-30 06:25 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/16087.shtml)
+- 2026-06-30 06:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/3548207809.shtml)

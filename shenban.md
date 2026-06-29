@@ -1,56 +1,58 @@
-# 伊朗总统：不会在压力、威胁和封锁下进行谈判
+# 阿联酋退出OPEC，对油价意味着什么？
 
-> 更新时间：2026-06-30 06:36:02 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-当地时间25日，伊朗总统府表示，伊朗总统佩泽希齐扬当天与巴基斯坦总理夏巴兹通电话。佩泽希齐扬在通话中表示，伊朗不会在压力、威胁和封锁下进行谈判。 佩泽希齐扬指出，美国对伊朗实施的海上封锁等措施阻碍了双方建立互信，而在谈判进程推进的同时，压力与对抗不断升级，也进一步削弱了相互信任。 佩泽希齐扬强调，在有关各方之间达成共识、形成共同愿景，并营造有利于有效对话的环境，是推动谈判取得进
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：华尔街见闻 阿联酋宣布退出OPEC，油市却几乎无动于衷——这一悖论本身，已道尽了这个成立66年的石油卡特尔今日的处境。一场历史性的中东冲突正在重塑全球能源格局，而阿联酋的离去，不过是让本已摇摇欲坠的OPEC权威再失一根支柱。 4月28日，阿联酋宣布将于5月1日正式退出OPEC及OPEC+联盟，一夜之间
 
 ## 正文
 
-当地时间25日，伊朗总统府表示，伊朗总统佩泽希齐扬当天与巴基斯坦总理夏巴兹通电话。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-佩泽希齐扬在通话中表示，伊朗不会在压力、威胁和封锁下进行谈判。
+来源：华尔街见闻 阿联酋宣布退出OPEC，油市却几乎无动于衷——这一悖论本身，已道尽了这个成立66年的石油卡特尔今日的处境。
 
-佩泽希齐扬指出，美国对伊朗实施的海上封锁等措施阻碍了双方建立互信，而在谈判进程推进的同时，压力与对抗不断升级，也进一步削弱了相互信任。
+一场历史性的中东冲突正在重塑全球能源格局，而阿联酋的离去，不过是让本已摇摇欲坠的OPEC权威再失一根支柱。
 
-佩泽希齐扬强调，在有关各方之间达成共识、形成共同愿景，并营造有利于有效对话的环境，是推动谈判取得进展的前提条件。
+4月28日，阿联酋宣布将于5月1日正式退出OPEC及OPEC+联盟，一夜之间，这一卡特尔失去了其第三大产油国。
 
-他还表示，美国加强在中东地区的军事存在，将加剧局势复杂性，不利于对话氛围的形成。
+消息落地后，布伦特原油延续此前连续七日的涨势，市场目光几乎全部锁定在美伊战争及霍尔木兹海峡的局势变化上——当日有报道称特朗普对伊朗的停战方案不满，推动6月布伦特原油收盘涨2.8%至111.26美元/桶，WTI原油涨3.7%至99.93美元/桶。
 
-(总台记者 李健南 赵远方）
+瑞银（UBS）在最新研报中判断，由于霍尔木兹海峡目前封闭，阿联酋暂时无法提升出口，此次退出对近期油价不构成实质影响；但着眼中期，随着阿联酋获得自主定产权限，油价面临下行压力。
+
+“这是OPEC走向终结的开始，“MST Financial能源分析师Saul Kavonic直言，”沙特将很难将其余成员凝聚在一起，包括委内瑞拉在内的其他成员可能步阿联酋后尘。
+
+“ 油市冷眼旁观：霍尔木兹才是当下主角 阿联酋宣布退出的震动，在油价上几乎找不到痕迹，原因并不难理解。
 
 ## 相关推荐
 
-- 2026-06-30 06:19 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 06:12 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 06:11 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 06:26 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 06:30 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 06:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 06:11 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 06:31 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 06:30 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 06:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 06:11 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 06:13 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 06:32 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 06:32 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 06:38 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 06:17 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 06:13 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 06:18 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 06:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 06:17 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 06:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 06:40 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 06:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 06:14 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 06:29 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 06:19 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:11 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/9353224427.shtml)
-- 2026-06-30 06:21 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/471696631.shtml)
-- 2026-06-30 06:07 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/090936501.shtml)
-- 2026-06-30 06:33 - [月亮](https://www.share.kurohicncr.top/Article/details/7546435.shtml)
-- 2026-06-30 06:23 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/442333200549.shtml)
-- 2026-06-30 06:35 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/013289010.shtml)
-- 2026-06-30 06:25 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/028412.shtml)
-- 2026-06-30 06:09 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/65252.shtml)
-- 2026-06-30 06:06 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/978566188.shtml)
-- 2026-06-30 06:28 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/93318.shtml)
-- 2026-06-30 06:18 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/72165.shtml)
-- 2026-06-30 06:34 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/29780.shtml)
-- 2026-06-30 06:16 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/04600.shtml)
-- 2026-06-30 06:32 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/694978.shtml)
-- 2026-06-30 06:35 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/3555710436.shtml)
+- 2026-06-30 06:35 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/395701389865.shtml)
+- 2026-06-30 06:37 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/7078126664.shtml)
+- 2026-06-30 06:16 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/429128562381.shtml)
+- 2026-06-30 06:28 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/889202933549.shtml)
+- 2026-06-30 06:16 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/210744970.shtml)
+- 2026-06-30 06:31 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/25933743763.shtml)
+- 2026-06-30 06:28 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/449569150458.shtml)
+- 2026-06-30 06:38 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/5494188951.shtml)
+- 2026-06-30 06:23 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/2574999004.shtml)
+- 2026-06-30 06:16 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/98869.shtml)
+- 2026-06-30 06:22 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/6224415.shtml)
+- 2026-06-30 06:23 - [毒液2](http://www.share.minike.top/Article/details/96111743895.shtml)
+- 2026-06-30 06:36 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/83315131813.shtml)
+- 2026-06-30 06:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/920545211.shtml)
+- 2026-06-30 06:14 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/4984518027.shtml)

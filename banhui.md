@@ -1,60 +1,59 @@
-# 外企民企接连投下信任票：心安之处何以浙江？
+# 税务部门集中曝光医美行业偷漏税案释放了什么信号
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月26日电(奚金燕)经济大省浙江一季度报近期出炉：全省GDP达23684亿元，同比增长6%；在册个体工商户总量738.33万户，同比增长2.95%，其中技术型个体户增势尤为强劲。 从“杭州六小龙”在全球出圈，到一大批“科技新小龙”接续崛起，再到如今的“技术型个体户”蓬勃兴起，浙江民营经济活力何以生生不息？究其背后，法治化营商环境正是核心支撑。 从资源小省到经济大省，
+新华社北京4月29日电 新闻分析：税务部门集中曝光医美行业偷漏税案释放了什么信号 新华社记者刘开雄 4月29日，国家税务总局集中曝光了辽宁、贵州、江苏、北京、河北、广东等地查处的6起医疗美容机构偷逃税典型案件。税务部门重拳出击，集中曝光医美行业偷逃税案件，释放了什么信号？ 近年来，随着人们生活水平的提高和对外在形象关注度增加，医美行业迎来了快速发展期。根据艾媒咨询最新发布的《2
 
 ## 正文
 
-中新网杭州4月26日电(奚金燕)经济大省浙江一季度报近期出炉：全省GDP达23684亿元，同比增长6%；在册个体工商户总量738.33万户，同比增长2.95%，其中技术型个体户增势尤为强劲。
+新华社北京4月29日电 新闻分析：税务部门集中曝光医美行业偷漏税案释放了什么信号 新华社记者刘开雄 4月29日，国家税务总局集中曝光了辽宁、贵州、江苏、北京、河北、广东等地查处的6起医疗美容机构偷逃税典型案件。
 
-从“杭州六小龙”在全球出圈，到一大批“科技新小龙”接续崛起，再到如今的“技术型个体户”蓬勃兴起，浙江民营经济活力何以生生不息？
+税务部门重拳出击，集中曝光医美行业偷逃税案件，释放了什么信号？
 
-究其背后，法治化营商环境正是核心支撑。
+近年来，随着人们生活水平的提高和对外在形象关注度增加，医美行业迎来了快速发展期。
 
-从资源小省到经济大省，20年来，浙江持续以法治之力涵养一流营商生态，破除壁垒、稳定预期、精准护航，守护各类市场主体安心经营、专心发展、放心投资，让每一份创业梦想都能在这片沃土扎根蓄力、向阳而生。
+根据艾媒咨询最新发布的《2025年中国医美行业发展状况与消费行为调查数据》显示，2025年中国医美服务行业市场规模为3701亿元，非手术类的轻医美市场用户规模达3105万人。
 
-科学立法良法善治 让企业家轻装上阵更从容 浙江是民营经济大省，拥有千万市场主体，平均每7个人中就有1个是老板。
+然而，在行业规模快速扩张的同时，部分经营主体却重逐利、轻合规，偷逃税款，严重破坏市场公平竞争秩序。
 
-对于企业家而言，创业创新常常伴随高风险与不确定性。
+此次曝光的案例中，部分医美机构将POS机、扫码支付等渠道收取的营业款项，直接转入法定代表人、股东甚至员工的私人银行账户，故意在财务账簿上不列、少列收入，进行虚假纳税申报。
 
-而稳定、公平、透明、可预期的法治环境，是企业敢投敢干敢创新的坚实底气。
+中山大学法学院教授杨小强指出，部分经营主体试图通过私户收款方式逃避监管，但不开发票并不意味着收入就会“隐身”，随着税收监管体系的不断完善，私户收款也会被发现。
 
-20年来，浙江秉持“法治是最好的营商环境”理念，坚持以高水平法治服务保障高质量发展，让企业吃下“定心丸”。
+私户收款隐匿收入进行虚假纳税申报，属于偷税行为，一旦查实将面临补缴税款、加收滞纳金、罚款等处罚，甚至承担刑事责任，得不偿失。
 
 ## 相关推荐
 
-- 2026-06-30 06:09 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 06:30 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 06:06 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 06:28 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 06:20 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 06:31 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 06:09 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 06:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 06:16 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 06:08 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 06:24 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 06:09 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 06:22 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 06:15 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 06:12 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 06:17 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 06:35 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 06:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 06:21 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 06:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 06:18 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 06:39 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 06:31 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 06:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 06:32 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 06:17 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 06:14 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/9611362878.shtml)
-- 2026-06-30 06:22 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/146375513.shtml)
-- 2026-06-30 06:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/78974201476.shtml)
-- 2026-06-30 06:08 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/237191435215.shtml)
-- 2026-06-30 06:07 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/110535.shtml)
-- 2026-06-30 06:31 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/30286411002.shtml)
-- 2026-06-30 06:14 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/207459404.shtml)
-- 2026-06-30 06:31 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/4721308714.shtml)
-- 2026-06-30 06:29 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/60216.shtml)
-- 2026-06-30 06:17 - [巴西绝杀日本](https://www.share.minike.top/Article/details/368549519671.shtml)
-- 2026-06-30 06:28 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/41996683437.shtml)
-- 2026-06-30 06:15 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/127326.shtml)
-- 2026-06-30 06:10 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/278814122097.shtml)
-- 2026-06-30 06:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/17023847.shtml)
-- 2026-06-30 06:06 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/3693604063.shtml)
+- 2026-06-30 06:37 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/63726403293.shtml)
+- 2026-06-30 06:17 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/58345.shtml)
+- 2026-06-30 06:38 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/88424.shtml)
+- 2026-06-30 06:27 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/97131.shtml)
+- 2026-06-30 06:28 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/72333796.shtml)
+- 2026-06-30 06:27 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/787827604.shtml)
+- 2026-06-30 06:34 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/5185129.shtml)
+- 2026-06-30 06:27 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/40927575.shtml)
+- 2026-06-30 06:31 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/2977650154.shtml)
+- 2026-06-30 06:29 - [周生如故](http://www.blog.kurohicncr.top/Article/details/4953845133.shtml)
+- 2026-06-30 06:33 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/2668150.shtml)
+- 2026-06-30 06:37 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/53808518843.shtml)
+- 2026-06-30 06:19 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/52064713756.shtml)
+- 2026-06-30 06:20 - [周生如故](http://www.share.minike.top/Article/details/99372360.shtml)
+- 2026-06-30 06:35 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/60556256691.shtml)

@@ -1,50 +1,57 @@
-# 野火持续肆虐 美国佐治亚州宣布91县进入紧急状态
+# 纽约汇市：美元延续涨势 美联储维持利率不变
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网4月23日电 据美国佐治亚州官网消息，当地时间22日，佐治亚州州长布莱恩·坎普宣布，由于野火持续肆虐，该州91个县进入紧急状态。 消息称，坎普指示该州相关部门调动一切必要资源，协助该州南部地区应对野火。 坎普表示，“佐治亚州大部分地区仍处于极端干旱状态，野火规模已超过该州五年来的平均水平，并且还在继续蔓延。” 据美联社报道，当地时间22日，由干旱和大风助长的野火已摧毁佐治
+专题：美联储维持利率不变 4人投反对票 美元进一步走强，此前美联储决策者周三维持利率不变，但显示出对政策前景的分歧加深。鲍威尔表示，将在美联储主席任期结束后继续担任理事。 美元指数上涨0.4%，升至4月13日以来最高。 “鲍威尔的理事任期将于2028年结束，因此，他的留任降低了再次进行美联储人事提名的可能性，”富国策略师Aroop Chatterjee表示，“加之出现多位鹰派反
 
 ## 正文
 
-中新网4月23日电 据美国佐治亚州官网消息，当地时间22日，佐治亚州州长布莱恩·坎普宣布，由于野火持续肆虐，该州91个县进入紧急状态。
+专题：美联储维持利率不变 4人投反对票 美元进一步走强，此前美联储决策者周三维持利率不变，但显示出对政策前景的分歧加深。
 
-消息称，坎普指示该州相关部门调动一切必要资源，协助该州南部地区应对野火。
+鲍威尔表示，将在美联储主席任期结束后继续担任理事。
 
-坎普表示，“佐治亚州大部分地区仍处于极端干旱状态，野火规模已超过该州五年来的平均水平，并且还在继续蔓延。
+美元指数上涨0.4%，升至4月13日以来最高。
 
-” 据美联社报道，当地时间22日，由干旱和大风助长的野火已摧毁佐治亚州50多所房屋，并迫使数百人撤离。
+“鲍威尔的理事任期将于2028年结束，因此，他的留任降低了再次进行美联储人事提名的可能性，”富国策略师Aroop Chatterjee表示，“加之出现多位鹰派反对票，显然下次会议将对政策前景展开更激烈的讨论”。
+
+“总体而言，这支持市场预期更少的降息，因为通胀面临的风险明显上升，”他表示。
+
+周三早些时候，特朗普提名的下一任美联储主席人选凯文·沃什获得参议院银行委员会支持。
+
+美元/加元基本持平，报1.3681；此前该货币对一度上涨0.2%，报1.3711。
+
+加拿大央行决定维持利率不变，符合预期。
 
 ## 相关推荐
 
-- 2026-06-30 06:31 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 06:31 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 06:09 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 06:33 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 06:06 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 06:17 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 06:13 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 06:18 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 06:11 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 06:12 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 06:14 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 06:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 06:22 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 06:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 06:14 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 06:21 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 06:37 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 06:39 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 06:30 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 06:18 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 06:35 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 06:34 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 06:17 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/128868.shtml)
-- 2026-06-30 06:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/9804840.shtml)
-- 2026-06-30 06:17 - [毒液2](https://www.share.minike.top/Article/details/52891337930.shtml)
-- 2026-06-30 06:07 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/91259279.shtml)
-- 2026-06-30 06:33 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/33079897.shtml)
-- 2026-06-30 06:33 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/69594.shtml)
-- 2026-06-30 06:16 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/663986091272.shtml)
-- 2026-06-30 06:31 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/08830.shtml)
-- 2026-06-30 06:15 - [毒液2](https://www.blog.minike.top/Article/details/11070191.shtml)
-- 2026-06-30 06:13 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/18549.shtml)
-- 2026-06-30 06:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/99269580170.shtml)
-- 2026-06-30 06:27 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/485357.shtml)
-- 2026-06-30 06:14 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/1997818981.shtml)
-- 2026-06-30 06:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/91478039.shtml)
-- 2026-06-30 06:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/4392929.shtml)
+- 2026-06-30 06:25 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/9390425.shtml)
+- 2026-06-30 06:22 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/306158.shtml)
+- 2026-06-30 06:36 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/420771.shtml)
+- 2026-06-30 06:38 - [请回答王牌2019](https://www.share.minike.top/Article/details/841060297739.shtml)
+- 2026-06-30 06:40 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/075243120.shtml)
+- 2026-06-30 06:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/9220029557.shtml)
+- 2026-06-30 06:15 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/77745.shtml)
+- 2026-06-30 06:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/94958076728.shtml)
+- 2026-06-30 06:29 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/77262698938.shtml)
+- 2026-06-30 06:40 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/0954670269.shtml)
+- 2026-06-30 06:30 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/50053.shtml)
+- 2026-06-30 06:12 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/672190030.shtml)
+- 2026-06-30 06:27 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/45158.shtml)
+- 2026-06-30 06:13 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/165650298868.shtml)
+- 2026-06-30 06:30 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/16494005.shtml)

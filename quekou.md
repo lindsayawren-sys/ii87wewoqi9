@@ -1,56 +1,61 @@
-# 从造水库建林场到“时尚弄潮儿”，福建这群渔女们太飒了！
+# 通用电气医疗下调全年业绩预期 拟合并两大核心业务板块
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-在闽南山海相拥之地，藏着一座温润且坚韧的小城——惠安。 这里有蜿蜒曲折、礁石错落的静谧海岸，海浪一遍又一遍地拍打着岸滩，诉说着渔家的岁月故事。 一群惊艳了时光、镌刻了风骨的女性，她们头戴黄斗笠、腰系银腰带，用美丽勾勒出渔家风情，她们就是惠安女。 六十多年前，1.3万多名惠安女用双手筑起了惠女水库，在盐碱地上历经数十年坚守建成了小岞林场。历经半个多世纪的风雨洗礼，“惠女精神”在新
+专题：聚焦美股2026年第一季度财报 这家医学影像企业预计，此次整合将提升运营效率，同时更好地服务患者与客户 受本季度存储芯片、原油及货运成本大幅攀升拖累，通用电气医疗（GE HealthCare） 下调了全年利润预期。 这家医疗科技企业同时宣布，将合并旗下两大最大业务板块，通过整合提升医学影像业务运营效率，同时优化对患者及客户的服务能力。 通用电气医疗于周三公布： 全年调整后
 
 ## 正文
 
-在闽南山海相拥之地，藏着一座温润且坚韧的小城——惠安。
+专题：聚焦美股2026年第一季度财报 这家医学影像企业预计，此次整合将提升运营效率，同时更好地服务患者与客户 受本季度存储芯片、原油及货运成本大幅攀升拖累，通用电气医疗（GE HealthCare） 下调了全年利润预期。
 
-这里有蜿蜒曲折、礁石错落的静谧海岸，海浪一遍又一遍地拍打着岸滩，诉说着渔家的岁月故事。
+这家医疗科技企业同时宣布，将合并旗下两大最大业务板块，通过整合提升医学影像业务运营效率，同时优化对患者及客户的服务能力。
 
-一群惊艳了时光、镌刻了风骨的女性，她们头戴黄斗笠、腰系银腰带，用美丽勾勒出渔家风情，她们就是惠安女。
+通用电气医疗于周三公布： 全年调整后每股收益预期下调至4.80–5.00 美元，此前预期为 4.95–5.15 美元；FactSet 调研分析师预期为 5.06 美元 / 股。
 
-六十多年前，1.3万多名惠安女用双手筑起了惠女水库，在盐碱地上历经数十年坚守建成了小岞林场。
+公司维持全年内生营收增速 3%–4% 的指引不变。
 
-历经半个多世纪的风雨洗礼，“惠女精神”在新时代不断传承升华、创新发展。
+首席执行官彼得・阿尔杜尼尼就下调盈利预期表示：“我们正采取审慎保守的经营策略。
 
-她们以自强不息的精神，在文化传承、产业发展、社会建设等领域彰显出磅礴力量，正以全新姿态在时代浪潮中绽放独特光芒。
+” 他补充称，公司计划通过产品调价与成本管控措施，抵消过半通胀带来的成本压力。
 
-硬核搞建设 她们凭双手，建起一座“女神水库” “三天没雨闹旱灾，一场大雨水成灾”，20世纪五六十年代的惠安，十年九旱，在贫瘠干旱的土地上，水稻难以插秧，当地以番薯为主粮，是远近闻名的“番薯县”，耕地水利灌溉设施覆盖率仅有7%。
+他同时表示：“重要的是，新一轮创新战略推进成效显著，将为未来营收与利润率增长蓄力。
 
-为彻底改变“靠天吃饭”的命运，1958年，当地决定兴建一座集灌溉、防洪、供水、发电于一体的综合性大型水库。
+” 公司盘前股价大跌 9.6%，报 61.93 美元。
 
 ## 相关推荐
 
-- 2026-06-30 06:33 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 06:23 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 06:07 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 06:15 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 06:18 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 06:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 06:26 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 06:16 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 06:12 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 06:20 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 06:27 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 06:38 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 06:13 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 06:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 06:39 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 06:24 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 06:31 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 06:33 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 06:13 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 06:36 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 06:29 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 06:14 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 06:32 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 06:31 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 06:33 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:08 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/8170464.shtml)
-- 2026-06-30 06:32 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/735034620883.shtml)
-- 2026-06-30 06:13 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/7361108.shtml)
-- 2026-06-30 06:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/2534669.shtml)
-- 2026-06-30 06:30 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/98032.shtml)
-- 2026-06-30 06:28 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/028433300877.shtml)
-- 2026-06-30 06:13 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/458958076.shtml)
-- 2026-06-30 06:28 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/4430111.shtml)
-- 2026-06-30 06:08 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/3732566.shtml)
-- 2026-06-30 06:34 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/416300.shtml)
-- 2026-06-30 06:30 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/233475.shtml)
-- 2026-06-30 06:26 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/310689522572.shtml)
-- 2026-06-30 06:14 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/499600.shtml)
-- 2026-06-30 06:21 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/113369.shtml)
-- 2026-06-30 06:20 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/10407164790.shtml)
+- 2026-06-30 06:34 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/387421949.shtml)
+- 2026-06-30 06:40 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/42420429601.shtml)
+- 2026-06-30 06:34 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/218822396890.shtml)
+- 2026-06-30 06:35 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/81387592.shtml)
+- 2026-06-30 06:31 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/91492570957.shtml)
+- 2026-06-30 06:31 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/250244820.shtml)
+- 2026-06-30 06:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/933733971.shtml)
+- 2026-06-30 06:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/25127.shtml)
+- 2026-06-30 06:41 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/52583470.shtml)
+- 2026-06-30 06:36 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/119021.shtml)
+- 2026-06-30 06:28 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/155014747.shtml)
+- 2026-06-30 06:15 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/523440.shtml)
+- 2026-06-30 06:20 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/35212876801.shtml)
+- 2026-06-30 06:15 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/435609934.shtml)
+- 2026-06-30 06:19 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/54654726657.shtml)

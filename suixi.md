@@ -1,56 +1,51 @@
-# 一分钟草编蚂蚱 萌娃外国游客现场围观
+# 建设银行：一季度净息差1.36%，较去年全年上升0.02个百分点
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 15:41 来源：中国新闻网 壁虎、蜘蛛、乌龟......草编艺术家张帮寿一分钟便用棕叶编制而成。走在798的街巷里，总能遇见惊喜。在这个不起眼的小摊前，常常围满了人，也吸引不少外国游客，被这些活灵活现的草编动物吸引。草编在中国民间历史悠久，材料就是草或棕叶，通过技法折编，制作成昆虫或小动物。张帮寿回忆在台湾交流的经历，“很受欢迎，跟我们爱好是
+4月29日，建行发布2026年一季度经营业绩。季报显示，建行一季度利息净收入和非利息收入同比双增。利息净收入同比增长8.13%，实现恢复性增长；非利息净收入同比增长20.15%，占经营收入比重同比提升1.96个百分点，手续费及佣金净收入同比增长6.72%。净息差1.36%，较去年全年上升0.02个百分点。责任编辑：王馨茹
 
 ## 正文
 
-发布时间：2026年04月26日 15:41 来源：中国新闻网 壁虎、蜘蛛、乌龟......草编艺术家张帮寿一分钟便用棕叶编制而成。
+4月29日，建行发布2026年一季度经营业绩。
 
-走在798的街巷里，总能遇见惊喜。
+季报显示，建行一季度利息净收入和非利息收入同比双增。
 
-在这个不起眼的小摊前，常常围满了人，也吸引不少外国游客，被这些活灵活现的草编动物吸引。
+利息净收入同比增长8.13%，实现恢复性增长；非利息净收入同比增长20.15%，占经营收入比重同比提升1.96个百分点，手续费及佣金净收入同比增长6.72%。
 
-草编在中国民间历史悠久，材料就是草或棕叶，通过技法折编，制作成昆虫或小动物。
+净息差1.36%，较去年全年上升0.02个百分点。
 
-张帮寿回忆在台湾交流的经历，“很受欢迎，跟我们爱好是一样的，喜欢龙、鹤、龟这些之类的，特别是大肚子蝈蝈，卖得非常好。
-
-”(记者 董语飞） 责任编辑：【周驰】
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 06:12 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 06:15 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 06:35 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 06:22 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 06:10 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 06:26 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 06:34 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 06:20 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 06:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-30 06:24 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 06:28 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 06:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 06:26 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 06:40 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 06:29 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 06:29 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 06:25 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 06:31 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 06:12 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 06:21 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 06:23 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 06:40 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 06:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 06:27 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:23 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/0664215.shtml)
-- 2026-06-30 06:29 - [月亮](https://www.blog.minike.top/Article/details/406109620026.shtml)
-- 2026-06-30 06:15 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/385919100.shtml)
-- 2026-06-30 06:10 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/1004672650.shtml)
-- 2026-06-30 06:31 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/51591.shtml)
-- 2026-06-30 06:22 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/69612660062.shtml)
-- 2026-06-30 06:13 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/7379682.shtml)
-- 2026-06-30 06:26 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/24027224021.shtml)
-- 2026-06-30 06:16 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/953883205.shtml)
-- 2026-06-30 06:20 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/723346205.shtml)
-- 2026-06-30 06:30 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/38416538902.shtml)
-- 2026-06-30 06:25 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/349773.shtml)
-- 2026-06-30 06:35 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/9557992855.shtml)
-- 2026-06-30 06:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/235232.shtml)
-- 2026-06-30 06:16 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/93397346.shtml)
+- 2026-06-30 06:41 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/192556624588.shtml)
+- 2026-06-30 06:36 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/530749397.shtml)
+- 2026-06-30 06:40 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/949564956.shtml)
+- 2026-06-30 06:21 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/9205084.shtml)
+- 2026-06-30 06:35 - [美股](https://www.blog.kurohicncr.top/Article/details/5056312073.shtml)
+- 2026-06-30 06:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/7543167.shtml)
+- 2026-06-30 06:18 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/4181824.shtml)
+- 2026-06-30 06:21 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/307604.shtml)
+- 2026-06-30 06:36 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/21647.shtml)
+- 2026-06-30 06:12 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/403451887318.shtml)
+- 2026-06-30 06:38 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/89482809028.shtml)
+- 2026-06-30 06:20 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/3899658.shtml)
+- 2026-06-30 06:30 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/81122155900.shtml)
+- 2026-06-30 06:35 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/13791979902.shtml)
+- 2026-06-30 06:37 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/731667198465.shtml)

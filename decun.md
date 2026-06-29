@@ -1,58 +1,61 @@
-# 蔚来秦力洪谈新车节奏：在中国造车是幸福的
+# 天佑德酒2025年报出炉:精耕渠道优化产品结构，多维布局夯实区域龙头韧性
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-2026北京国际车展期间，蔚来汽车联合创始人、总裁秦力洪接受了包括证券时报及在内的媒体采访，谈及车企密集上新问题，他对记者回应说，车企难以根据市场阶段性热度决定下个月发什么新品，车企上新都是一个长期准备的结果。如果不同的车企在同一时间都有密集的新产品，说明两三年前大家的想法是一样的，整个行业不约而同的进入到提速期。 秦力洪说，新车虽然密集发布，但是新品都是代表创新技术和新质生产
+来源：同壁财经 4月27日晚间，天佑德酒（002646）发布2025年年度报告。数据显示，2025年公司实现营业收入11.01亿元，归属于上市公司股东的净利润429.81万元。公司同步公布分红方案，拟向全体股东每10股派发现金红利0.05元（含税），在行业深度调整周期中，持续回馈股东。 纵观全年经营表现，面对白酒行业挤压式竞争加剧、消费场景修复乏力的行业环境，天佑德酒依托稳固的
 
 ## 正文
 
-2026北京国际车展期间，蔚来汽车联合创始人、总裁秦力洪接受了包括证券时报及在内的媒体采访，谈及车企密集上新问题，他对记者回应说，车企难以根据市场阶段性热度决定下个月发什么新品，车企上新都是一个长期准备的结果。
+来源：同壁财经 4月27日晚间，天佑德酒（002646）发布2025年年度报告。
 
-如果不同的车企在同一时间都有密集的新产品，说明两三年前大家的想法是一样的，整个行业不约而同的进入到提速期。
+数据显示，2025年公司实现营业收入11.01亿元，归属于上市公司股东的净利润429.81万元。
 
-秦力洪说，新车虽然密集发布，但是新品都是代表创新技术和新质生产力的产品，是以智能化车、新能源车为主，以性价比更高、更加优异的产品形式为主。
+公司同步公布分红方案，拟向全体股东每10股派发现金红利0.05元（含税），在行业深度调整周期中，持续回馈股东。
 
-所以，最近以SUV为代表的车型的集中爆发，是中国汽车工业的飞跃。
+纵观全年经营表现，面对白酒行业挤压式竞争加剧、消费场景修复乏力的行业环境，天佑德酒依托稳固的本土市场基本盘，以精细化运营、差异化产品布局，充分彰显区域龙头的经营韧性。
 
-“过了若干年，大家回头来看今天，肯定会记得和怀念这个时间的。
+同时，公司持续落地渠道深耕、年轻化产品创新、文旅品牌赋能多重举措，为后续业绩修复与稳健增长积蓄动能。
 
-如果有一天我们真正成为一个大家公认的汽车强国，或许跟2026年的3、4月车企密集发布季密不可分。
+行业周期承压稳健经营，优化产品结构抢抓结构性机遇 白酒行业整体进入调整阵痛期。
 
-”秦力洪认为。
+面对复杂的行业环境，天佑德酒主动适配市场变化，坚持稳健经营策略与精细化内部管理，严控运营成本。
 
-接受证券时报记者采访时，秦力洪举出一个反例：如果同样的新品发布的强度不在中国，在另外一个地方，我们只是一个看热闹的看客。
+2025年，公司销售费用同比下降6.41%，降幅远低于营收降幅，反映出成本管控成效突出。
 
 ## 相关推荐
 
-- 2026-06-30 06:09 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 06:09 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 06:26 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 06:24 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 06:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 06:23 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 06:17 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 06:35 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 06:35 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 06:32 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 06:35 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 06:34 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 06:23 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 06:31 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 06:24 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 06:41 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 06:14 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 06:18 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 06:15 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 06:42 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 06:34 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 06:38 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 06:29 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 06:25 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 06:27 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 06:34 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 06:19 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:16 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/5858765419.shtml)
-- 2026-06-30 06:32 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/4982246483.shtml)
-- 2026-06-30 06:17 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/899763995.shtml)
-- 2026-06-30 06:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/7869320.shtml)
-- 2026-06-30 06:15 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/33754.shtml)
-- 2026-06-30 06:27 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/513634558.shtml)
-- 2026-06-30 06:24 - [请回答王牌2019](https://www.blog.minike.top/Article/details/101419182.shtml)
-- 2026-06-30 06:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/49041969739.shtml)
-- 2026-06-30 06:21 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/040134806.shtml)
-- 2026-06-30 06:13 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/43043993704.shtml)
-- 2026-06-30 06:17 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/17711.shtml)
-- 2026-06-30 06:18 - [斛珠夫人](http://www.blog.minike.top/Article/details/5217174182.shtml)
-- 2026-06-30 06:08 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/13023626.shtml)
-- 2026-06-30 06:09 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/140095757013.shtml)
-- 2026-06-30 06:25 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/541177595954.shtml)
+- 2026-06-30 06:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/363638809288.shtml)
+- 2026-06-30 06:12 - [明星大侦探第四季](http://www.share.minike.top/Article/details/08112.shtml)
+- 2026-06-30 06:22 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/420419.shtml)
+- 2026-06-30 06:25 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/776869535609.shtml)
+- 2026-06-30 06:39 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/968851354042.shtml)
+- 2026-06-30 06:37 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/5670050.shtml)
+- 2026-06-30 06:23 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/32589.shtml)
+- 2026-06-30 06:23 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/4258055952.shtml)
+- 2026-06-30 06:32 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/49305512613.shtml)
+- 2026-06-30 06:32 - [第一炉香](https://www.share.kurohicncr.top/Article/details/243032.shtml)
+- 2026-06-30 06:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/21755881.shtml)
+- 2026-06-30 06:24 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/22010086.shtml)
+- 2026-06-30 06:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/633805458228.shtml)
+- 2026-06-30 06:12 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/00932073490.shtml)
+- 2026-06-30 06:14 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/592752601981.shtml)

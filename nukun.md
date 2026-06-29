@@ -1,54 +1,59 @@
-# 伊朗总统府高官：与美达成协议“需要时间”
+# 广东创新推出“气候贷”累计授信超1.4亿元
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰4月23日电据伊朗学生通讯社23日报道，伊朗总统府副主任赛义德·阿巴斯·穆萨维当天对媒体表示，与美国达成协议需要时间。 穆萨维说，不应忘记伊朗正处于战事之中，伊朗面对的不是贸易谈判，而是“和敌人的谈判”。伊朗要争取自己的权利，坚持自身立场，这一切都需要时间。 他说，在谈判问题上“不应操之过急”，
+中新网广州4月29日电 (记者 许青青)据中国人民银行广东省分行29日介绍，该行协同广东省气象局，组织全省金融系统联合各地气象部门创新推出“气候贷”产品谱系，目前已在河源、茂名、肇庆、珠海等地金融机构先行落地，累计授信超1.4亿元，发放贷款逾8400万元，为实体经济应对气候风险、加快绿色低碳转型打通融资堵点。据介绍，“气候贷”是银行机构将气象数据与传统信贷深度融合，面向符合气候
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网广州4月29日电 (记者 许青青)据中国人民银行广东省分行29日介绍，该行协同广东省气象局，组织全省金融系统联合各地气象部门创新推出“气候贷”产品谱系，目前已在河源、茂名、肇庆、珠海等地金融机构先行落地，累计授信超1.4亿元，发放贷款逾8400万元，为实体经济应对气候风险、加快绿色低碳转型打通融资堵点。
 
-新华社德黑兰4月23日电据伊朗学生通讯社23日报道，伊朗总统府副主任赛义德·阿巴斯·穆萨维当天对媒体表示，与美国达成协议需要时间。
+据介绍，“气候贷”是银行机构将气象数据与传统信贷深度融合，面向符合气候韧性评定标准的市场主体打造的特色信贷产品，破解了气候价值量化、生态资源变现、气候风险管控三大行业难题，让气象数据从“观测资料”变为“授信依据”“信用资产”。
 
-穆萨维说，不应忘记伊朗正处于战事之中，伊朗面对的不是贸易谈判，而是“和敌人的谈判”。
+在量化评估上，将温度、降水、积温、灾害频次等专业气象指标转化为金融通用语言，构建科学可落地的气候韧性评估体系，实现气候风险与气候价值精准计量；在价值转化上，把气候生态优势转变为融资优势，建立“生态表现越优、信贷支持越强”的正向激励机制，VEPC评估价值挂钩授信额度、气象保险保单替代抵押物，让“好生态”真正可变现、能增信；在风险管控上，打通气象预警、灾害防御、保险理赔与信贷风控全链条，形成“融资支持+风险防控”双重保障，多方协同筑牢资金安全防线，实现可持续运营。
 
-伊朗要争取自己的权利，坚持自身立场，这一切都需要时间。
+广东各地立足资源禀赋与产业特点，走出差异化、特色化的创新路径。
 
-他说，在谈判问题上“不应操之过急”，应理解伊朗需要在内部充分协调的基础上维护国家利益和安全。
+如茂名聚焦荔枝产业痛点，创新“保险+信贷”模式，依托荔枝金融气候指数体系，推出农业“大小年”专属信贷产品——“荔枝气候贷”。
 
-（完）责任编辑：宋雅芳
+大年授信额度提升60%，小年利率较同类产品低20个基点，以保险保单替代传统抵押物，已批量授信6000万元。
+
+珠海深耕海洋经济，搭建“央行+气象+银行”三方合作平台，聚焦海洋牧场、光伏发电等场景。
+
+工商银行珠海分行为小微企业发放光伏领域“气候贷”229万元，以纯信用方式降低融资成本等。
 
 ## 相关推荐
 
-- 2026-06-30 06:15 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 06:16 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 06:18 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 06:19 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 06:35 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 06:11 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 06:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 06:21 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 06:28 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 06:06 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 06:18 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 06:20 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 06:13 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 06:21 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 06:22 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 06:14 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 06:29 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 06:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 06:22 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 06:37 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 06:40 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 06:33 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 06:21 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 06:20 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 06:27 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:30 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/458932209766.shtml)
-- 2026-06-30 06:21 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/641465.shtml)
-- 2026-06-30 06:18 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/150901.shtml)
-- 2026-06-30 06:22 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/456190.shtml)
-- 2026-06-30 06:21 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/493051289114.shtml)
-- 2026-06-30 06:31 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/85152237480.shtml)
-- 2026-06-30 06:30 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/984461699695.shtml)
-- 2026-06-30 06:30 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/29158715545.shtml)
-- 2026-06-30 06:28 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/8991230.shtml)
-- 2026-06-30 06:12 - [金刚川](https://www.share.minike.top/Article/details/853925420775.shtml)
-- 2026-06-30 06:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/475177.shtml)
-- 2026-06-30 06:11 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/051175282882.shtml)
-- 2026-06-30 06:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/32756159.shtml)
-- 2026-06-30 06:27 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/3677584508.shtml)
-- 2026-06-30 06:17 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/4623032.shtml)
+- 2026-06-30 06:17 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/895912454.shtml)
+- 2026-06-30 06:33 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/0297485.shtml)
+- 2026-06-30 06:24 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/775123.shtml)
+- 2026-06-30 06:32 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/275188486.shtml)
+- 2026-06-30 06:28 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/3208276.shtml)
+- 2026-06-30 06:32 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/3938789.shtml)
+- 2026-06-30 06:28 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/69875.shtml)
+- 2026-06-30 06:37 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/27146450000.shtml)
+- 2026-06-30 06:20 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/9437259.shtml)
+- 2026-06-30 06:35 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/654967780.shtml)
+- 2026-06-30 06:24 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/964411.shtml)
+- 2026-06-30 06:16 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/94261964108.shtml)
+- 2026-06-30 06:23 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/59338550.shtml)
+- 2026-06-30 06:34 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/83059.shtml)
+- 2026-06-30 06:41 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/35687398.shtml)

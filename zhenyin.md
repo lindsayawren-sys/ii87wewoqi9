@@ -1,58 +1,61 @@
-# “书香吉林”阅读季长春启幕 全民阅读氛围持续升温
+# 双环科技2025年归母净利润由盈转亏 钠离子电池材料将视情况启动产业化
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网长春4月23日电 (高龙安 李彦国)《吉林省2025年全民阅读指数报告》显示，吉林省2025年全民阅读综合指数为73.24，个人阅读指数为75.25，公共阅读服务指数为70.26，这三项核心数据均居全国前列。 23日，2026年吉林省全民阅读活动周暨“书香吉林”阅读季在长春启动，现场对该报告进行了解读，并公布2026年“书香吉林”阅读季重点活动安排、2025年度“吉版好书
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|王琳 每经编辑|毕陆名 4月28日晚间，双环科技（SZ000707）发布2025年年报和2026年一季报，其在2025年营业收入同比下降21.73%，其归母净利润和扣非后归母净利润分别同比下降129.82%和160.50%，双双由盈转亏。到了2026年一季度，双环科技的亏损情况进一步恶化。 双环科
 
 ## 正文
 
-中新网长春4月23日电 (高龙安 李彦国)《吉林省2025年全民阅读指数报告》显示，吉林省2025年全民阅读综合指数为73.24，个人阅读指数为75.25，公共阅读服务指数为70.26，这三项核心数据均居全国前列。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-23日，2026年吉林省全民阅读活动周暨“书香吉林”阅读季在长春启动，现场对该报告进行了解读，并公布2026年“书香吉林”阅读季重点活动安排、2025年度“吉版好书”及第四届“吉图荐书”推荐书目等内容。
+每经记者|王琳 每经编辑|毕陆名 4月28日晚间，双环科技（SZ000707）发布2025年年报和2026年一季报，其在2025年营业收入同比下降21.73%，其归母净利润和扣非后归母净利润分别同比下降129.82%和160.50%，双双由盈转亏。
 
-近年来，吉林省将全民阅读作为文化建设的重要基础性工程，着力构建覆盖城乡的阅读体系，创新打造“吉阅万家”惠民数字阅读平台，持续举办东北图书交易博览会，建设“东西南北中”五大特色书房及一批新型阅读空间，让阅读成为群众生活新时尚。
+到了2026年一季度，双环科技的亏损情况进一步恶化。
 
-“报告显示，经过十几年的科学规划和不懈努力，‘书香吉林’建设成果扎实、底蕴厚重。
+双环科技也在积极通过新品研发和并购等方式寻求破局，其中公司已送下游客户检验的钠离子电池材料备受投资者关注。
 
-”吉林省全民阅读协会会长赵云良表示。
+双环科技在2025年年报中表示，公司将根据研发及检验情况择机启动产业化。
 
-从阅读群体来看，吉林省成年人综合阅读率为86.5%，图书阅读率为65.3%，数字化阅读接触率为85.2%，充分展现吉林省全民阅读的蓬勃活力；从阅读载体来看，吉林省超七成受访群众认为纸质阅读与数字阅读优势互补，也体现出读者对传统阅读与移动端阅读的兼容并蓄。
+双环科技主要生产与销售纯碱、氯化铵及其他化工产品，纯碱广泛用于玻璃、无机盐、冶金、医药、石油、制革、纺织印染、食品、造纸等行业，氯化铵则是氮肥的一种，在工业领域也可用于电池、电镀等领域。
 
-记者从现场了解到，吉林省将以更高标准、更实举措推动全民阅读持续升温，进一步完善覆盖城乡、便捷高效的现代阅读服务体系，推动“文明实践+阅读”深度融合，提升公益阅读服务效能，让优质阅读资源惠及更多群众，引导全社会涵养书卷之气、弘扬好学之风。
+年报显示，双环科技在2025年实现营业收入20.78亿元，同比下降21.73%，其归母净利润和扣非后归母净利润分别为-8889.54万元和-1.47亿元，分别同比下降129.82%和160.50%，双双由盈转亏。
 
-同时，发挥“书香吉林”阅读季统领作用，吉林省将组织实施“全民阅读活动周”，办好第三届东北图书交易博览会等品牌活动，鼓励省内各地打造“一地一品牌、一地一特色”的阅读活动，支持创作出版更多思想精深、艺术精湛、内容精良的优质读物。
+具体到2025年第四季度，双环科技的营业收入为5.28亿元，较上年同期下降超两成，其归母净利润和扣非后归母净利润分别为-6266.07万元和-7635.18万元，较上年同期的-4813.02万元和-5670.39万元亏损额进一步扩大。
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 06:14 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 06:12 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 06:25 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 06:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 06:24 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 06:19 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 06:13 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 06:21 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 06:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 06:19 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 06:16 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 06:37 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 06:30 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 06:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 06:20 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 06:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 06:34 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 06:36 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 06:24 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 06:24 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 06:21 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 06:19 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 06:41 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 06:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 06:14 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 06:27 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:12 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/548657.shtml)
-- 2026-06-30 06:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/3959356.shtml)
-- 2026-06-30 06:31 - [小娘惹](http://www.blog.minike.top/Article/details/12591.shtml)
-- 2026-06-30 06:32 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/3268050858.shtml)
-- 2026-06-30 06:19 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/096223934271.shtml)
-- 2026-06-30 06:25 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/336679366814.shtml)
-- 2026-06-30 06:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/5923848.shtml)
-- 2026-06-30 06:07 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/90701.shtml)
-- 2026-06-30 06:27 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/63596.shtml)
-- 2026-06-30 06:13 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/99801568935.shtml)
-- 2026-06-30 06:14 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/3770402.shtml)
-- 2026-06-30 06:11 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/9495349219.shtml)
-- 2026-06-30 06:20 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/6762124.shtml)
-- 2026-06-30 06:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/90039.shtml)
-- 2026-06-30 06:35 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/954302377.shtml)
+- 2026-06-30 06:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/6974319.shtml)
+- 2026-06-30 06:23 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/039356308532.shtml)
+- 2026-06-30 06:29 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/3025289.shtml)
+- 2026-06-30 06:21 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.kurohicncr.top/Article/details/634798793518.shtml)
+- 2026-06-30 06:18 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/642419.shtml)
+- 2026-06-30 06:31 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/93558.shtml)
+- 2026-06-30 06:40 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/79797180.shtml)
+- 2026-06-30 06:23 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/174484.shtml)
+- 2026-06-30 06:41 - [起风了](http://www.blog.kurohicncr.top/Article/details/279811.shtml)
+- 2026-06-30 06:16 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/301223616.shtml)
+- 2026-06-30 06:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/2618143280.shtml)
+- 2026-06-30 06:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/43385.shtml)
+- 2026-06-30 06:35 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/75086950082.shtml)
+- 2026-06-30 06:34 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/096535698701.shtml)
+- 2026-06-30 06:38 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/95530763309.shtml)

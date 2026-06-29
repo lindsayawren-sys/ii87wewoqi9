@@ -1,52 +1,60 @@
-# 香港证监会：普华永道同意向恒大集团部分股东赔偿10亿港元
+# 拖欠工资、有钱却“玩失联”？恶意逃避执行可能获刑
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-4月23日消息，据香港证监会发布消息，香港证监会与普华永道香港达成协议，据此，普华永道香港同意预留10亿港元，以向中国恒大集团的合资格独立少数股东作出赔偿。 香港证监会发布消息显示，于2019财政年度及2020财政年度，普华永道香港是中国恒大的核数师，而普华永道中天会计师事务所（特殊普通合伙）则协助普华永道香港对中国恒大的财务报表进行审计。尽管普华永道香港并不承认下述事项，但香
+中新网北京4月29日电(记者 高萌)4月29日，最高人民法院发布一批人民法院治理欠薪典型执行案例，旨在进一步指导各地法院加大治理欠薪工作力度，同时采取有效措施实质性化解矛盾纠纷，切实维护劳动者合法权益。最高法介绍，此次发布的5件案例中，案例一强调通过依法追究拒执罪，严厉打击恶意欠薪行为，倒逼被执行人履行债务。该案中，山东省乳山市人民法院判决乳山市某驾培公司向16名员工支付长期拖
 
 ## 正文
 
-4月23日消息，据香港证监会发布消息，香港证监会与普华永道香港达成协议，据此，普华永道香港同意预留10亿港元，以向中国恒大集团的合资格独立少数股东作出赔偿。
+中新网北京4月29日电(记者 高萌)4月29日，最高人民法院发布一批人民法院治理欠薪典型执行案例，旨在进一步指导各地法院加大治理欠薪工作力度，同时采取有效措施实质性化解矛盾纠纷，切实维护劳动者合法权益。
 
-香港证监会发布消息显示，于2019财政年度及2020财政年度，普华永道香港是中国恒大的核数师，而普华永道中天会计师事务所（特殊普通合伙）则协助普华永道香港对中国恒大的财务报表进行审计。
+最高法介绍，此次发布的5件案例中，案例一强调通过依法追究拒执罪，严厉打击恶意欠薪行为，倒逼被执行人履行债务。
 
-尽管普华永道香港并不承认下述事项，但香港证监会认为普华永道香港在担任中国恒大的核数师期间，牵涉入披露《证券及期货条例》第277条所指的虚假或具误导性的资料；在对中国恒大的2019财政年度及2020财政年度的财务报表进行审计期间，没有维持核数师的独立性；在审计规划、执行审计程序及处理审计违规事项方面，没有抱持充分和专业的怀疑态度；没有设计并执行有效的实地视察，以确定物业的建造及交付状况，从而作出适当的收入确认；主动默许中国恒大管理层操纵审计样本及实地视察的行为，致使提前确认收入一事遭到隐瞒；及没有充分核实相关证明文件及纪录的真确性。
+该案中，山东省乳山市人民法院判决乳山市某驾培公司向16名员工支付长期拖欠工资80余万元，后因驾培公司未履行致使员工们陷入生活困境，王某等16人申请强制执行。
 
-本着为股东争取赔偿的最终目标，香港证监会断定，与普华永道香港达成协议，最符合中国恒大独立少数股东的利益，而根据该协议，已预留10亿港元，以透过由独立管理人监督的程序，分发予该等独立少数股东作为赔偿。
+在该案执行过程中，经法院深入调查发现，驾培公司的实际控制人宋某甲有预谋采取伪装、隐匿财产等手段对抗执行。
 
-责任编辑：刘万里 SF014
+其明知公司账户被法院冻结，故意弃用该账户，指示公司会计通过现金交易、员工个人微信及支付宝等方式收取学费款项高达200余万元，并通过层层隐匿、转移等方式转到个人名下，将公司财产与个人财产混同。
+
+在法院约谈宋某甲过程中，宋某甲指使公司法定代表人、其兄宋某乙出面，假意与申请执行人达成和解，签订了分期履行书面和解协议。
+
+在履行过程中，宋某甲不仅分文未付，还多次捏造公司经营困难、无任何收入来源等事实，拖延执行进程；刻意隐匿自身行踪，切断与法院、申请执行人的所有有效沟通渠道。
+
+在公安机关侦查期间，法院工作人员再次到看守所约谈宋某甲，向其释明法律后果。
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 06:12 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 06:31 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 06:18 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 06:28 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 06:26 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 06:19 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 06:33 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 06:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 06:26 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 06:17 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 06:07 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 06:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 06:40 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 06:22 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 06:38 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 06:36 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 06:15 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 06:30 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 06:28 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 06:37 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 06:23 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 06:17 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 06:25 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 06:15 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 06:32 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/663604797796.shtml)
-- 2026-06-30 06:11 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/31438442.shtml)
-- 2026-06-30 06:12 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/9705885.shtml)
-- 2026-06-30 06:22 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/66254.shtml)
-- 2026-06-30 06:25 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/1222675469.shtml)
-- 2026-06-30 06:20 - [巴西vs日本](https://www.blog.minike.top/Article/details/23619.shtml)
-- 2026-06-30 06:20 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/582113628066.shtml)
-- 2026-06-30 06:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/39643216.shtml)
-- 2026-06-30 06:11 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/876059694734.shtml)
-- 2026-06-30 06:31 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/04444566.shtml)
-- 2026-06-30 06:07 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/9737414668.shtml)
-- 2026-06-30 06:23 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/70556839711.shtml)
-- 2026-06-30 06:08 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/400006790560.shtml)
-- 2026-06-30 06:12 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/30680.shtml)
-- 2026-06-30 06:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/912532.shtml)
+- 2026-06-30 06:25 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/0865028.shtml)
+- 2026-06-30 06:21 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/07911415.shtml)
+- 2026-06-30 06:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/09317729446.shtml)
+- 2026-06-30 06:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/39664.shtml)
+- 2026-06-30 06:37 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/1230625182.shtml)
+- 2026-06-30 06:34 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/10499.shtml)
+- 2026-06-30 06:28 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/13989456075.shtml)
+- 2026-06-30 06:27 - [张凌赫 客串](https://www.blog.minike.top/Article/details/99484.shtml)
+- 2026-06-30 06:39 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/518001.shtml)
+- 2026-06-30 06:37 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/66944714880.shtml)
+- 2026-06-30 06:25 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/2538852102.shtml)
+- 2026-06-30 06:14 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/564667.shtml)
+- 2026-06-30 06:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/12083284.shtml)
+- 2026-06-30 06:25 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/787096784.shtml)
+- 2026-06-30 06:24 - [日本反击率先破门](https://www.blog.minike.top/Article/details/9555693979.shtml)

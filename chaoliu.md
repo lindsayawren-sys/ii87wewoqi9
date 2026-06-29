@@ -1,56 +1,59 @@
-# “创客北京2026”创新创业大赛启动报名 单个获奖项目最高可获100万元奖励
+# 法国监管机构：75%电商平台送检产品违反欧盟标准
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月23日电 (记者 吕少威)第十一届“创客中国”北京市中小企业创新创业大赛暨“创客北京2026”创新创业大赛新闻发布会23日在数智北京创新中心举行。记者从会上获悉，大赛已启动报名，同时，奖励覆盖面更广、支持力度更大，单个获奖项目最高可获100万元奖励。 北京区域赛、龙头企业专项赛双赛并行、协同推进 “创客北京2026”由北京市经济和信息化局、北京市财政局、通州区人民
+法国竞争、消费和反欺诈总局周三公布的一项大规模抽检结果显示，从主要电商平台购买的送检产品中，高达75%不符合欧盟标准，其中近半数被判定为“危险”。这一发现正值欧盟收紧对跨境电商平台监管之际。 违规比例触目惊心，46%产品存在安全隐患 法国DGCCRF在2025年从七家境外电商平台购买了600多件产品进行检测，检测数量是往年的三倍。结果显示，仅25%产品完全符合欧盟标准。在所有检
 
 ## 正文
 
-中新网北京4月23日电 (记者 吕少威)第十一届“创客中国”北京市中小企业创新创业大赛暨“创客北京2026”创新创业大赛新闻发布会23日在数智北京创新中心举行。
+法国竞争、消费和反欺诈总局周三公布的一项大规模抽检结果显示，从主要电商平台购买的送检产品中，高达75%不符合欧盟标准，其中近半数被判定为“危险”。
 
-记者从会上获悉，大赛已启动报名，同时，奖励覆盖面更广、支持力度更大，单个获奖项目最高可获100万元奖励。
+这一发现正值欧盟收紧对跨境电商平台监管之际。
 
-北京区域赛、龙头企业专项赛双赛并行、协同推进 “创客北京2026”由北京市经济和信息化局、北京市财政局、通州区人民政府共同主办。
+违规比例触目惊心，46%产品存在安全隐患 法国DGCCRF在2025年从七家境外电商平台购买了600多件产品进行检测，检测数量是往年的三倍。
 
-今年大赛采用北京区域赛、龙头企业专项赛双赛并行、协同推进的赛事架构。
+结果显示，仅25%产品完全符合欧盟标准。
 
-北京区域赛设17个分赛区、近300个初赛点，采用初赛、复赛、决赛三级赛制。
+在所有检测产品中，46%不仅违规，而且存在电击、火灾、窒息或含有过量有害化学物质等安全隐患。
 
-龙头企业专项赛以行业龙头企业“张榜”，中小企业“揭榜”的形式，助力中小企业参与重点产业链供应链强链补链，推动形成大中小企业良性互动、协同发展格局。
+检测结果呈现系统性违规特征。
 
-目前已联合中国航天电子技术研究院、北京人形机器人创新中心、北汽集团、中兴数字星云、海博思创、软通动力、集创北方、京东方、京东、360、北京新奥聚变、和利时和东华软件等13家企业机构设置龙头企业专项赛道，以真实应用场景为牵引，推动中小企业协同研发、配套落地。
+所有接受检测的电器产品均不合格，其中近四分之三存在触电或火灾风险。
 
-北京市经济和信息化局党组成员、副局长苏国斌在讲话中表示，今年是“十五五”开局之年，北京正全力抢抓新质生产力发展机遇，加快构建现代化产业体系。
+儿童产品、珠宝和服装普遍存在窒息风险及化学品超标问题。
 
 ## 相关推荐
 
-- 2026-06-30 06:24 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 06:14 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 06:19 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 06:14 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 06:32 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-30 06:35 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 06:07 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 06:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 06:07 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 06:32 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 06:30 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 06:41 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 06:25 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 06:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 06:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 06:21 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 06:27 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 06:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 06:15 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 06:35 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 06:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 06:21 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 06:37 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:09 - [千香](http://www.blog.kurohicncr.top/Article/details/76715101532.shtml)
-- 2026-06-30 06:28 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/2958788.shtml)
-- 2026-06-30 06:16 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/463410.shtml)
-- 2026-06-30 06:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/23800017809.shtml)
-- 2026-06-30 06:09 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/565036.shtml)
-- 2026-06-30 06:31 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/91891785412.shtml)
-- 2026-06-30 06:10 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/128953243.shtml)
-- 2026-06-30 06:10 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/8651194136.shtml)
-- 2026-06-30 06:30 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/1762875063.shtml)
-- 2026-06-30 06:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/96740106464.shtml)
-- 2026-06-30 06:33 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/571307187181.shtml)
-- 2026-06-30 06:06 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/337242.shtml)
-- 2026-06-30 06:35 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/1814351.shtml)
-- 2026-06-30 06:16 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/15528.shtml)
-- 2026-06-30 06:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/706724440.shtml)
+- 2026-06-30 06:35 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/277072.shtml)
+- 2026-06-30 06:35 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/82287.shtml)
+- 2026-06-30 06:17 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/0649458.shtml)
+- 2026-06-30 06:23 - [毒液2](https://www.share.minike.top/Article/details/02939301398.shtml)
+- 2026-06-30 06:30 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/44574623172.shtml)
+- 2026-06-30 06:13 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/1762668.shtml)
+- 2026-06-30 06:22 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/298472.shtml)
+- 2026-06-30 06:27 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/1688533.shtml)
+- 2026-06-30 06:15 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/85984679598.shtml)
+- 2026-06-30 06:20 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/8395994.shtml)
+- 2026-06-30 06:38 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/600498670.shtml)
+- 2026-06-30 06:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/1917286108.shtml)
+- 2026-06-30 06:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/085186063.shtml)
+- 2026-06-30 06:41 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/769988549.shtml)
+- 2026-06-30 06:38 - [斛珠夫人](https://www.share.minike.top/Article/details/90585.shtml)

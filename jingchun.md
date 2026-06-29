@@ -1,60 +1,56 @@
-# 广西电力部门应战今年首轮超警洪水 快速处置保供电
+# 带着感情做工作才能出真政绩（思想纵横）
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月23日电 (陈钦荣 文洪灵 林洁琪)连日来，受持续强降雨影响，广西迎来今年首轮超警洪水过程。南方电网广西电网公司23日介绍，该公司运用先进监测预警技术与智能化装备，加强对设备的特巡特维，对受影响供电设备开展应急处置，全力保障电网安全稳定运行。 截至4月23日7时，广西电网公司累计投入抢修人员4351人次、抢修车辆1570辆次、发电车2辆开展应急值守、设备巡视和抢修
+“些小吾曹州县吏，一枝一叶总关情。”习近平总书记引用郑板桥诗句，嘱托党员干部厚植为民情怀、站稳人民立场，带着真挚感情做实做细工作。带着感情去做接地气的工作，是党员干部践行初心使命、走好新时代群众路线的重要要求，也是树立和践行正确政绩观的题中应有之义。感情是一个非常本质的东西，干部带着感情去做事，群众感受就不一样。党员干部做群众工作是带着真情实感、真心实意，还是装装样子、摆摆架子
 
 ## 正文
 
-中新网南宁4月23日电 (陈钦荣 文洪灵 林洁琪)连日来，受持续强降雨影响，广西迎来今年首轮超警洪水过程。
+“些小吾曹州县吏，一枝一叶总关情。
 
-南方电网广西电网公司23日介绍，该公司运用先进监测预警技术与智能化装备，加强对设备的特巡特维，对受影响供电设备开展应急处置，全力保障电网安全稳定运行。
+”习近平总书记引用郑板桥诗句，嘱托党员干部厚植为民情怀、站稳人民立场，带着真挚感情做实做细工作。
 
-截至4月23日7时，广西电网公司累计投入抢修人员4351人次、抢修车辆1570辆次、发电车2辆开展应急值守、设备巡视和抢修复电等应急处置工作。
+带着感情去做接地气的工作，是党员干部践行初心使命、走好新时代群众路线的重要要求，也是树立和践行正确政绩观的题中应有之义。
 
-4月19日以来，广西桂林、柳州等地遭遇强降雨袭击，兴安县局地降下349.4毫米特大暴雨。
+感情是一个非常本质的东西，干部带着感情去做事，群众感受就不一样。
 
-受降雨影响，古宜河、资江等8条河流12个站点出现超警0.05米至2.61米洪水。
+党员干部做群众工作是带着真情实感、真心实意，还是装装样子、摆摆架子，群众心明眼亮、心知肚明。
 
-4月21日下午，南方电网广西桂林兴安供电局溶江供电所运维人员在特巡中发现，位于界首镇苏家湾村委文家湾自然村附近的10千伏严苏家湾线有一基电杆基础在洪水冲刷中受损，杆塔发生倾斜。
+在工作中装样子、摆架子的党员干部，通常重形式轻实质，基层调研要么沿规划路线隔着车窗玻璃看，要么到群众家打了卡、拍了照，放下慰问品就走，还有的重程序轻实效，遇事就拿“按程序办”当挡箭牌，把走了流程当作解决了问题。
 
-兴安供电局迅速集结14名抢修人员，组成党员突击队赶赴现场，采取“先加固、后修复”的作业方案，对倾斜杆塔用拉线进行支撑加固，同时组立新电杆2基，并在新建电杆上装设横担、金具、绝缘子、架设导线。
+凡此种种做法，说到底是做工作不走心、不用情，让本该接地气、惠民生的工作变了形、走了样，拉大了和群众之间的距离。
 
-经过连续8小时的紧张作业，线路供电恢复正常。
+以这样的心态和状态做工作，自然也就难以干出群众认可的真业绩、好政绩。
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 06:09 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 06:25 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 06:16 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 06:25 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 06:22 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 06:12 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 06:33 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 06:14 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 06:14 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 06:20 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 06:23 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 06:26 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 06:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 06:41 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 06:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 06:27 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 06:12 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 06:17 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 06:35 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 06:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 06:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 06:29 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 06:33 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/724879776178.shtml)
-- 2026-06-30 06:10 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/7253002.shtml)
-- 2026-06-30 06:12 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/879097.shtml)
-- 2026-06-30 06:27 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/68859649735.shtml)
-- 2026-06-30 06:28 - [日本反击率先破门](https://www.blog.minike.top/Article/details/2887113311.shtml)
-- 2026-06-30 06:29 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/38611651307.shtml)
-- 2026-06-30 06:07 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/8244435755.shtml)
-- 2026-06-30 06:29 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/441070193561.shtml)
-- 2026-06-30 06:22 - [日本反击率先破门](https://www.blog.minike.top/Article/details/78044148005.shtml)
-- 2026-06-30 06:16 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/702561424914.shtml)
-- 2026-06-30 06:30 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/46331774243.shtml)
-- 2026-06-30 06:22 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/924197.shtml)
-- 2026-06-30 06:06 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/976822879137.shtml)
-- 2026-06-30 06:11 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/366449396.shtml)
-- 2026-06-30 06:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/202968126.shtml)
+- 2026-06-30 06:21 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/752453050.shtml)
+- 2026-06-30 06:33 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/0119053198.shtml)
+- 2026-06-30 06:26 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/5156305.shtml)
+- 2026-06-30 06:39 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/675483804354.shtml)
+- 2026-06-30 06:30 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/575817319.shtml)
+- 2026-06-30 06:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/68008287703.shtml)
+- 2026-06-30 06:27 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/3723152.shtml)
+- 2026-06-30 06:26 - [急先锋](https://www.share.minike.top/Article/details/64661959299.shtml)
+- 2026-06-30 06:12 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/015562.shtml)
+- 2026-06-30 06:12 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/05671104.shtml)
+- 2026-06-30 06:37 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/55837418795.shtml)
+- 2026-06-30 06:30 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/19874824.shtml)
+- 2026-06-30 06:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/376152.shtml)
+- 2026-06-30 06:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/208580686458.shtml)
+- 2026-06-30 06:23 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/68467.shtml)

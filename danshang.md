@@ -1,43 +1,59 @@
-# 虽未谋面 深受其恩 今天12位志愿军烈士在沈阳安葬
+# 报告：到2026年底中国煤电装机占比预计降至31%左右
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月23日 11:36 来源：中国新闻网 责任编辑：【李光伟】
+中新社北京4月28日电 (记者 阮煜琳)中国电力企业联合会28日发布《2026年一季度全国电力供需形势分析预测报告》预计，到2026年底，全国发电装机容量达到43亿千瓦左右，其中煤电装机占总装机比重降至31%左右。报告显示，一季度全国全社会用电量2.51万亿千瓦时，同比增长5.2%。截至3月底，全国全口径发电装机容量39.6亿千瓦，其中非化石能源发电装机容量24.6亿千瓦，同比
 
 ## 正文
 
-发布时间：2026年04月23日 11:36 来源：中国新闻网 责任编辑：【李光伟】
+中新社北京4月28日电 (记者 阮煜琳)中国电力企业联合会28日发布《2026年一季度全国电力供需形势分析预测报告》预计，到2026年底，全国发电装机容量达到43亿千瓦左右，其中煤电装机占总装机比重降至31%左右。
+
+报告显示，一季度全国全社会用电量2.51万亿千瓦时，同比增长5.2%。
+
+截至3月底，全国全口径发电装机容量39.6亿千瓦，其中非化石能源发电装机容量24.6亿千瓦，同比增长21.3%，占总装机容量比重为62.0%。
+
+一季度，风电和太阳能发电合计新增装机5716万千瓦，占新增发电装机总容量比重68.2%，电力行业绿色低碳转型持续推进。
+
+报告预计，2026年中国太阳能发电装机规模将首次超过煤电装机规模，年底风电和太阳能发电合计装机规模达到总发电装机的一半。
+
+在国家“双碳”目标下，新能源继续保持较大投产规模，预计2026年全年新增发电装机有望超过4亿千瓦，其中，新增新能源发电装机有望超过3亿千瓦；新增有效发电能力1亿千瓦左右，与最大负荷增量基本持平。
+
+预计全国发电装机在二季度超过40亿千瓦；到2026年底，全国发电装机容量达到43亿千瓦左右，其中非化石能源发电装机27亿千瓦，占总装机比重63%左右；煤电装机占总装机比重降至31%左右。
+
+报告显示，一季度，全国电力系统安全稳定运行，电力供需总体平衡。
 
 ## 相关推荐
 
-- 2026-06-30 06:23 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 06:27 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 06:19 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 06:12 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 06:23 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 06:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 06:21 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 06:26 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 06:20 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 06:33 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 06:30 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 06:34 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 06:38 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 06:18 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 06:35 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 06:39 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 06:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 06:13 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 06:20 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 06:36 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 06:38 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 06:15 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 06:21 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 06:39 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:10 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/14136775019.shtml)
-- 2026-06-30 06:30 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/439087800218.shtml)
-- 2026-06-30 06:28 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/783145.shtml)
-- 2026-06-30 06:30 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/472726828.shtml)
-- 2026-06-30 06:32 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/42579558.shtml)
-- 2026-06-30 06:27 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/476321448214.shtml)
-- 2026-06-30 06:08 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/504674.shtml)
-- 2026-06-30 06:33 - [孙兴慜道歉](https://www.share.minike.top/Article/details/84463701913.shtml)
-- 2026-06-30 06:29 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/4388970.shtml)
-- 2026-06-30 06:14 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/49499217.shtml)
-- 2026-06-30 06:11 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/7628695857.shtml)
-- 2026-06-30 06:29 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/624172099443.shtml)
-- 2026-06-30 06:19 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/875935431827.shtml)
-- 2026-06-30 06:28 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/26470969.shtml)
-- 2026-06-30 06:18 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/5289717.shtml)
+- 2026-06-30 06:19 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/86052.shtml)
+- 2026-06-30 06:41 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/8921080504.shtml)
+- 2026-06-30 06:18 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/93418.shtml)
+- 2026-06-30 06:38 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/800363672.shtml)
+- 2026-06-30 06:40 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/225980885.shtml)
+- 2026-06-30 06:28 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/70795671.shtml)
+- 2026-06-30 06:14 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/82081621.shtml)
+- 2026-06-30 06:28 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/8289613.shtml)
+- 2026-06-30 06:18 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/70613.shtml)
+- 2026-06-30 06:16 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/69774.shtml)
+- 2026-06-30 06:34 - [周生如故](https://www.share.minike.top/Article/details/8245110.shtml)
+- 2026-06-30 06:33 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/89996932829.shtml)
+- 2026-06-30 06:31 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/93876.shtml)
+- 2026-06-30 06:29 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/0716291.shtml)
+- 2026-06-30 06:25 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/263424.shtml)

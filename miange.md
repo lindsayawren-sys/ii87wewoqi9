@@ -1,44 +1,57 @@
-# 紫金银行：2026年第一季度净利润4.29亿元，同比增长1.62%
+# 美媒：巴基斯坦预计将收到伊朗调整版谈判方案
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-4月23日金融一线消息，紫金银行公告，2026年第一季度营业收入11.66亿元，同比增长2.22%；净利润4.29亿元，同比增长1.62%。 责任编辑：李琳琳
+中新网4月29日电 据美国有线电视新闻网(CNN)28日报道，据接近调解进程的消息人士透露，在美国总统特朗普表示不会接受伊朗此前提出的提案后，巴基斯坦的调解人员预计将在未来几天内收到伊朗提交的旨在结束战争的调整版提案。消息人士称，伊朗外交部长阿拉格齐结束对俄罗斯的访问返回德黑兰后，预计将与伊朗领导层进行磋商。 据报道，特朗普已明确表示，他不会接受伊朗此前提交的提案版本。该提案主
 
 ## 正文
 
-4月23日金融一线消息，紫金银行公告，2026年第一季度营业收入11.66亿元，同比增长2.22%；净利润4.29亿元，同比增长1.62%。
+中新网4月29日电 据美国有线电视新闻网(CNN)28日报道，据接近调解进程的消息人士透露，在美国总统特朗普表示不会接受伊朗此前提出的提案后，巴基斯坦的调解人员预计将在未来几天内收到伊朗提交的旨在结束战争的调整版提案。
 
-责任编辑：李琳琳
+消息人士称，伊朗外交部长阿拉格齐结束对俄罗斯的访问返回德黑兰后，预计将与伊朗领导层进行磋商。
+
+据报道，特朗普已明确表示，他不会接受伊朗此前提交的提案版本。
+
+该提案主张先结束战争，再在后续阶段解决与伊朗核计划相关的问题。
+
+消息人士称，谈判进程仍在进行且充满变数，很大程度上取决于伊朗能否提出一份更符合美国要求的调整版方案。
+
+特朗普28日在社交媒体发文声称，伊朗已告知美国，其正处于“崩溃状态”，并坚称德黑兰方面希望霍尔木兹海峡保持畅通。
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 06:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 06:20 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 06:15 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 06:08 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 06:13 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 06:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 06:08 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 06:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 06:08 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 06:37 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 06:34 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 06:39 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 06:21 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 06:28 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 06:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 06:28 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 06:31 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 06:18 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 06:24 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 06:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 06:20 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 06:15 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 06:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 06:17 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/17016758.shtml)
-- 2026-06-30 06:29 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/00260.shtml)
-- 2026-06-30 06:17 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/02830942.shtml)
-- 2026-06-30 06:29 - [恋与深空回应争议](http://www.share.minike.top/Article/details/624813121817.shtml)
-- 2026-06-30 06:29 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/5592665587.shtml)
-- 2026-06-30 06:07 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/83215.shtml)
-- 2026-06-30 06:10 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/66732238462.shtml)
-- 2026-06-30 06:34 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/36151879730.shtml)
-- 2026-06-30 06:12 - [起风了](http://www.share.kurohicncr.top/Article/details/6419473531.shtml)
-- 2026-06-30 06:18 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/55027129093.shtml)
-- 2026-06-30 06:28 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/1257212445.shtml)
-- 2026-06-30 06:32 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/8754301.shtml)
-- 2026-06-30 06:13 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/1594584650.shtml)
-- 2026-06-30 06:19 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/16718144.shtml)
-- 2026-06-30 06:12 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/31045910.shtml)
+- 2026-06-30 06:39 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/298659.shtml)
+- 2026-06-30 06:40 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/2382798700.shtml)
+- 2026-06-30 06:18 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/24045.shtml)
+- 2026-06-30 06:40 - [逃狱兄弟](https://www.blog.minike.top/Article/details/90766070.shtml)
+- 2026-06-30 06:35 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/7620394718.shtml)
+- 2026-06-30 06:37 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/882038153004.shtml)
+- 2026-06-30 06:17 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/84571532.shtml)
+- 2026-06-30 06:17 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/149835.shtml)
+- 2026-06-30 06:33 - [一见倾心](https://www.share.minike.top/Article/details/4820330.shtml)
+- 2026-06-30 06:36 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/813798967153.shtml)
+- 2026-06-30 06:16 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/58164496685.shtml)
+- 2026-06-30 06:38 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/40398.shtml)
+- 2026-06-30 06:20 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/5858210.shtml)
+- 2026-06-30 06:35 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/238483.shtml)
+- 2026-06-30 06:23 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/7448456.shtml)

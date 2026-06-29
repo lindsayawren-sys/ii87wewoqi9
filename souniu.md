@@ -1,61 +1,59 @@
-# 2026年“北京世园公园杯”京张公路自行车公开赛鸣枪
+# 伦敦世乒赛团体赛揭幕 中国军团剑指连冠
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月26日电 2026年“北京世园公园杯”京张公路自行车公开赛第一站赛事25日在北京世园国际旅游度假区鸣枪开赛，来自全国各地的19支车队、近500名运动员齐聚延庆，在世园春光中以速度与激情开启新赛季征程。 首站比赛竞争激烈，富士达车队的刘奥林夺得男子公开组冠军。团体成绩方面，富士达车队凭借默契的团队协作与战术执行能力成功摘得团体桂冠。女子公开组比赛，武琳怡(精创车队)
+中新社伦敦4月28日电 (记者 欧阳开宇)2026年国际乒联世界乒乓球团体锦标赛28日在英国伦敦揭幕。本届赛事恰逢国际乒联成立100周年，重返乒乓球运动发源地英国。 作为世界乒坛绝对霸主，中国男女队以头号种子身份出战，剑指男团十二连冠、女团七连冠，新老阵容搭配的中国军团成为本届赛事最大焦点。 本届伦敦世乒赛于4月28日至5月10日举行，男女团各有64支队伍参赛，规模创历史之最。
 
 ## 正文
 
-中新网北京4月26日电 2026年“北京世园公园杯”京张公路自行车公开赛第一站赛事25日在北京世园国际旅游度假区鸣枪开赛，来自全国各地的19支车队、近500名运动员齐聚延庆，在世园春光中以速度与激情开启新赛季征程。
+中新社伦敦4月28日电 (记者 欧阳开宇)2026年国际乒联世界乒乓球团体锦标赛28日在英国伦敦揭幕。
 
-首站比赛竞争激烈，富士达车队的刘奥林夺得男子公开组冠军。
+本届赛事恰逢国际乒联成立100周年，重返乒乓球运动发源地英国。
 
-团体成绩方面，富士达车队凭借默契的团队协作与战术执行能力成功摘得团体桂冠。
+作为世界乒坛绝对霸主，中国男女队以头号种子身份出战，剑指男团十二连冠、女团七连冠，新老阵容搭配的中国军团成为本届赛事最大焦点。
 
-女子公开组比赛，武琳怡(精创车队)凭借全程稳定的发挥与出色的冲刺能力斩获桂冠。
+本届伦敦世乒赛于4月28日至5月10日举行，男女团各有64支队伍参赛，规模创历史之最。
 
-值得一提的是，本赛季北京市自行车运动协会启动的“车队孵化计划”8支车队也完成首秀，其中怀柔超越单车车队的李思轶在比赛中表现亮眼，取得第十名，女子孵化车队ETM北京女子联队的王璐遥获得女子公开组季军。
+小组赛阶段在铜箱馆进行，淘汰赛及决赛则移师温布利体育馆。
 
-该计划以赛事为纽带，通过孵化支持，鼓励更多自行车爱好者组队参赛、稳定参赛，培养兼具竞技潜力与团队协作能力的自行车运动力量。
+全新的“分层晋级”赛制让赛事挑战性升级。
 
-据悉，世园国际旅游度假区本年度计划推出自行车主题培训营、青少年骑行研学、企业团建骑行等产品，将“周末赛事”延伸为“全年运营”。
+世界排名前七的队伍与东道主英格兰队作为8支种子队，落位两个“1A阶段”小组；其余56支队伍则进入“1B阶段”的14个小组。
 
-园区拟与专业骑行机构合作设立骑行训练基地，配套骑行驿站、维修点、淋浴房等设施，实现从“比赛场”到“训练场”的功能升级。
+在1B阶段，14个小组各自进行单循环赛。
 
 ## 相关推荐
 
-- 2026-06-30 06:22 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 06:19 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 06:20 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 06:26 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 06:21 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 06:17 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 06:29 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 06:15 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 06:35 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 06:17 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 06:29 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 06:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 06:26 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 06:15 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 06:25 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 06:31 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 06:36 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 06:40 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 06:41 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 06:17 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 06:29 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 06:28 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 06:35 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 06:19 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 06:29 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 06:36 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 06:13 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 06:15 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/859477536164.shtml)
-- 2026-06-30 06:23 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/209491.shtml)
-- 2026-06-30 06:29 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/7366954816.shtml)
-- 2026-06-30 06:23 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/267621760.shtml)
-- 2026-06-30 06:31 - [千香](https://www.blog.kurohicncr.top/Article/details/6623020162.shtml)
-- 2026-06-30 06:27 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/315055537732.shtml)
-- 2026-06-30 06:06 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/218859.shtml)
-- 2026-06-30 06:09 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/3782617.shtml)
-- 2026-06-30 06:06 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/835644695650.shtml)
-- 2026-06-30 06:24 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/671015824.shtml)
-- 2026-06-30 06:06 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/841491.shtml)
-- 2026-06-30 06:11 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/66758334548.shtml)
-- 2026-06-30 06:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/033169598816.shtml)
-- 2026-06-30 06:10 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/713053498.shtml)
-- 2026-06-30 06:24 - [周生如故](https://www.share.kurohicncr.top/Article/details/976124646.shtml)
+- 2026-06-30 06:40 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/2980208592.shtml)
+- 2026-06-30 06:27 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/137017061.shtml)
+- 2026-06-30 06:40 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/83947.shtml)
+- 2026-06-30 06:34 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/99902630.shtml)
+- 2026-06-30 06:21 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/081317.shtml)
+- 2026-06-30 06:24 - [极限挑战第一季](https://www.share.minike.top/Article/details/843512025.shtml)
+- 2026-06-30 06:39 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/19374898054.shtml)
+- 2026-06-30 06:23 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/115245330.shtml)
+- 2026-06-30 06:37 - [TOP Prada](http://www.blog.minike.top/Article/details/4147274334.shtml)
+- 2026-06-30 06:25 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/751692.shtml)
+- 2026-06-30 06:38 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/190076117.shtml)
+- 2026-06-30 06:37 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/16439533.shtml)
+- 2026-06-30 06:40 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/24882492.shtml)
+- 2026-06-30 06:35 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/25122982.shtml)
+- 2026-06-30 06:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/76435491.shtml)

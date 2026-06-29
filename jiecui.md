@@ -1,51 +1,61 @@
-# 特朗普称美国不会对伊朗使用核武器
+# OpenAI增长失速冲击AI板块：超大规模资本支出模式遭遇“信任危机”
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-在被问及美国是否会对伊朗使用核武器时，美国总统特朗普称“不会”。 特朗普在白宫发表上述讲话。 “绝不应允许任何人使用核武器，”特朗普还表示。责任编辑：丁文武
+随着一份揭示OpenAI未达内部营收及用户增长目标的报道发酵，市场对科技巨头在AI基础设施领域的巨额资本支出回报前景产生了强烈质疑，导致其核心合作伙伴股价在周二遭遇重挫。 增长放缓点燃市场忧虑 据报道，OpenAI在2026年已连续数月未能实现销售目标，且未能在2025年底前达成10亿周活跃用户的内部指标。更令投资者担忧的是，首席财务官萨拉·弗莱尔已向管理层表达忧虑，若收入增速
 
 ## 正文
 
-在被问及美国是否会对伊朗使用核武器时，美国总统特朗普称“不会”。
+随着一份揭示OpenAI未达内部营收及用户增长目标的报道发酵，市场对科技巨头在AI基础设施领域的巨额资本支出回报前景产生了强烈质疑，导致其核心合作伙伴股价在周二遭遇重挫。
 
-特朗普在白宫发表上述讲话。
+增长放缓点燃市场忧虑 据报道，OpenAI在2026年已连续数月未能实现销售目标，且未能在2025年底前达成10亿周活跃用户的内部指标。
 
-“绝不应允许任何人使用核武器，”特朗普还表示。
+更令投资者担忧的是，首席财务官萨拉·弗莱尔已向管理层表达忧虑，若收入增速不够快，公司未来可能无力承担巨额的算力合同支出。
 
-责任编辑：丁文武
+这一消息立即引发了资本市场的负面反应。
+
+作为拥有OpenAI约11%股份的核心投资方，软银集团在东京交易中一度暴跌11%，创下六个月来最大单日跌幅。
+
+美股盘前，微软、英伟达分别下跌近0.5%和1%，AMD跌超3%，甲骨文与CoreWeave跌幅更是接近5%。
+
+竞争加剧与IPO前路不明 报告指出，OpenAI面临的增长困境与其日益激烈的市场竞争密切相关。
+
+以Anthropic为代表的竞争对手在编程和企业级市场持续扩大份额，包括谷歌Gemini在内的其他AI模型也在快速追赶，两者正在显著蚕食OpenAI原有的市场份额。
 
 ## 相关推荐
 
-- 2026-06-30 06:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 06:27 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 06:09 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 06:20 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 06:30 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 06:21 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 06:23 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 06:09 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 06:32 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 06:27 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 06:29 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 06:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 06:07 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 06:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 06:24 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 06:15 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 06:13 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 06:37 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 06:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 06:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 06:26 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 06:24 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 06:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 06:36 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 06:24 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 06:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 06:32 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 06:15 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/4346368492.shtml)
-- 2026-06-30 06:09 - [日本进球](http://www.blog.kurohicncr.top/Article/details/44368868.shtml)
-- 2026-06-30 06:28 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/00879.shtml)
-- 2026-06-30 06:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/495939.shtml)
-- 2026-06-30 06:30 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/01361.shtml)
-- 2026-06-30 06:22 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/06516087.shtml)
-- 2026-06-30 06:16 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/10809319.shtml)
-- 2026-06-30 06:31 - [电影后室值得看吗](http://www.share.minike.top/Article/details/617577193.shtml)
-- 2026-06-30 06:26 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/2892523425.shtml)
-- 2026-06-30 06:24 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/94372868678.shtml)
-- 2026-06-30 06:34 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/8855260277.shtml)
-- 2026-06-30 06:19 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/522228650.shtml)
-- 2026-06-30 06:28 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/736175.shtml)
-- 2026-06-30 06:07 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/504803336548.shtml)
-- 2026-06-30 06:14 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/556726251.shtml)
+- 2026-06-30 06:34 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/785609232.shtml)
+- 2026-06-30 06:37 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/986482.shtml)
+- 2026-06-30 06:39 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/95629.shtml)
+- 2026-06-30 06:15 - [美人鱼](http://www.share.minike.top/Article/details/972652997.shtml)
+- 2026-06-30 06:33 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/069172.shtml)
+- 2026-06-30 06:30 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/703326.shtml)
+- 2026-06-30 06:25 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/500567373.shtml)
+- 2026-06-30 06:36 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/0386354118.shtml)
+- 2026-06-30 06:30 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/32952.shtml)
+- 2026-06-30 06:22 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/361417879158.shtml)
+- 2026-06-30 06:34 - [急先锋](https://www.share.minike.top/Article/details/78809591451.shtml)
+- 2026-06-30 06:14 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/9358727.shtml)
+- 2026-06-30 06:28 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/8458682.shtml)
+- 2026-06-30 06:26 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/73495969359.shtml)
+- 2026-06-30 06:16 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/258589856.shtml)

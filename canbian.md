@@ -1,60 +1,61 @@
-# 福建省推出系列举措加大对金砖创新基地支持力度
+# 报告：2026年中国太阳能发电装机规模预计将首次超过煤电
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网厦门4月23日电 (吴冠标)福建省23日发布《关于支持金砖国家新工业革命伙伴关系创新基地高质量发展的意见》(以下简称《意见》)，推出系列举措加大对金砖国家新工业革命伙伴关系创新基地(以下简称“金砖创新基地”)支持力度。《意见》围绕产业合作、制度创新、人才支撑、服务能级等方面，推出15条政策措施，提出到2030年，建立以金砖创新基地为窗口、面向“全球南方”的合作网络，打造更
+中新网北京4月28日电 (记者 阮煜琳)中国电力企业联合会28日发布报告认为，2026年，全国太阳能发电装机规模预计将首次超过煤电装机规模，年底风电和太阳能发电合计装机规模将达到总发电装机的一半。 当日发布的《2026年一季度全国电力供需形势分析预测报告》指出，作为“十五五”开局之年的首个季度，一季度电力行业运行呈现“消费向好、结构向优、投资向新、保障有力”四大特征，电力系统安
 
 ## 正文
 
-中新网厦门4月23日电 (吴冠标)福建省23日发布《关于支持金砖国家新工业革命伙伴关系创新基地高质量发展的意见》(以下简称《意见》)，推出系列举措加大对金砖国家新工业革命伙伴关系创新基地(以下简称“金砖创新基地”)支持力度。
+中新网北京4月28日电 (记者 阮煜琳)中国电力企业联合会28日发布报告认为，2026年，全国太阳能发电装机规模预计将首次超过煤电装机规模，年底风电和太阳能发电合计装机规模将达到总发电装机的一半。
 
-《意见》围绕产业合作、制度创新、人才支撑、服务能级等方面，推出15条政策措施，提出到2030年，建立以金砖创新基地为窗口、面向“全球南方”的合作网络，打造更具国际影响力的合作平台。
+当日发布的《2026年一季度全国电力供需形势分析预测报告》指出，作为“十五五”开局之年的首个季度，一季度电力行业运行呈现“消费向好、结构向优、投资向新、保障有力”四大特征，电力系统安全稳定运行，电力消费稳中向好，电力供应持续绿色低碳转型，电力供需总体平衡。
 
-《意见》中提出，支持厦门建设新工业革命国际合作城市，与金砖国家合作基础良好的城市建立“新工业革命伙伴城市网络”，建设金砖产业合作暨出海综合服务港，分批分行业遴选先进工业能力、技术解决方案向金砖国家精准输出。
+报告显示，一季度全国全社会用电量2.51万亿千瓦时，同比增长5.2%。
 
-福建省将推动省级金融机构参与设立金砖国家新工业基金，支持设立金砖创新基地产业发展专项资金，对电子信息、生物医药、高端装备等产业项目与社会资本开展联动投资。
+截至3月底，全国全口径发电装机容量39.6亿千瓦，其中非化石能源发电装机容量24.6亿千瓦，同比增长21.3%，占总装机容量比重为62.0%。
 
-制度创新方面，《意见》支持厦门积极争取更高对外投资审批额度，发挥好金砖创新基地在金砖国家“双向投资”中的推介、服务、对接等作用，建立赴金砖国家投资企业名录，实现企业投融资需求信息共享；同时优化跨境法律服务体系，加强厦门仲裁机构涉外业务拓展能力，扩大与境外仲裁机构交流合作。
+一季度，风电和太阳能发电合计新增装机5716万千瓦，占新增发电装机总容量比重68.2%，电力行业绿色低碳转型持续推进。
 
-人才支撑方面，《意见》支持厦门实施更加开放便利的境外人才引进制度，为急需来华从事非外交和非公务活动的金砖国家外籍人才提供入境便利；发挥金砖国家新工业“金鹭”卓越奖学金品牌作用，打造金砖创新基地研究培训中心；强化高层次人才引进，对能实现重大产业突破的领军人才或团队给予“一事一议”支持。
+报告预测，2026年我国宏观经济将继续保持平稳增长，拉动电力消费需求平稳较快增长，新型基础设施建设驱动相关行业用电快速增长。
 
-据悉，2020年11月的金砖国家领导人第十二次会晤上，中方宣布在福建厦门建设金砖创新基地，开展政策协调、人才培养、项目开发等领域合作。
+预计2026年全国全社会用电量10.9万亿-11万亿千瓦时，同比增长5%-6%，其中二季度全国全社会用电量增速5%左右。
 
-五年多来，金砖创新基地积极开展实质性合作，成效显著，已成为中国引领金砖国家新工业革命领域合作的重要平台。
+预计全年统调最大负荷在15.7亿-16.3亿千瓦左右。
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 06:32 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 06:32 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 06:33 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 06:27 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 06:06 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 06:26 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 06:10 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 06:23 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 06:06 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 06:15 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 06:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 06:30 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 06:29 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 06:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 06:36 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 06:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 06:18 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 06:34 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 06:20 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 06:38 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 06:12 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 06:17 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 06:28 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 06:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 06:27 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 06:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 06:26 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 06:13 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:18 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/5268052.shtml)
-- 2026-06-30 06:18 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/1354729513.shtml)
-- 2026-06-30 06:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/834064217.shtml)
-- 2026-06-30 06:35 - [千香](http://www.share.kurohicncr.top/Article/details/660246.shtml)
-- 2026-06-30 06:26 - [王欣瑜2-1击败科恰雷托](http://www.share.kurohicncr.top/Article/details/599526.shtml)
-- 2026-06-30 06:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/304043.shtml)
-- 2026-06-30 06:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/674767278381.shtml)
-- 2026-06-30 06:19 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/692314994284.shtml)
-- 2026-06-30 06:33 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/5293654.shtml)
-- 2026-06-30 06:30 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/98907697.shtml)
-- 2026-06-30 06:11 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/4739966.shtml)
-- 2026-06-30 06:35 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/433749128.shtml)
-- 2026-06-30 06:33 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/688761.shtml)
-- 2026-06-30 06:13 - [周生如故](https://www.share.minike.top/Article/details/484675941.shtml)
-- 2026-06-30 06:31 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/28398934.shtml)
+- 2026-06-30 06:38 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/41718941.shtml)
+- 2026-06-30 06:22 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/228321527.shtml)
+- 2026-06-30 06:34 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/25100515980.shtml)
+- 2026-06-30 06:20 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/1688687.shtml)
+- 2026-06-30 06:23 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/592882.shtml)
+- 2026-06-30 06:38 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/9669834.shtml)
+- 2026-06-30 06:16 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/45859241811.shtml)
+- 2026-06-30 06:22 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/80034.shtml)
+- 2026-06-30 06:27 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/5464308.shtml)
+- 2026-06-30 06:24 - [第一炉香](http://www.share.kurohicncr.top/Article/details/687601014728.shtml)
+- 2026-06-30 06:36 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/8365220320.shtml)
+- 2026-06-30 06:40 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/04216.shtml)
+- 2026-06-30 06:18 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/033032.shtml)
+- 2026-06-30 06:35 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/246617945026.shtml)
+- 2026-06-30 06:13 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/99394096026.shtml)

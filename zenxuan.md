@@ -1,58 +1,60 @@
-# 1名医生1分钟给3人“看病”26次？上海警方斩断骗保“黑手”
+# 拜耳农达除草剂诉讼案最高法院听证喜忧参半
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-医保基金作为人民群众的“看病钱”“救命钱”，直接关系到群众的切身利益。但总有一些人为了谋取私利，不惜铤而走险、触犯法律。近日，上海警方就破获了几起涉及骗取医保的案件。 用医保配药跨省倒卖 诈骗团伙被查处 去年9月，上海崇明警方接到一条倒卖药品的举报线索。经走访调查，警方发现一个以邵某为首的团伙，其药品来源主要依靠陈某、张某、孟某、刘某等4人。以上4人均从事废品回收工作，常在上海
+美国最高法院就拜耳公司试图驳回数万起诉讼的诉求，给出了喜忧参半的审理态度。这批诉讼指控拜耳旗下农达除草剂未标注致癌风险。 周一，最高法院大法官于华盛顿展开口头辩论，审议密苏里州一名男子胜诉的125 万美元陪审团裁决。该男子指控农达除草剂导致其患上非霍奇金淋巴瘤。 拜耳主张：由于美国监管机构并未要求产品加注致癌警示，联邦法律应驳回该起案件及其他同类州级诉讼。 大法官布雷特・卡瓦诺
 
 ## 正文
 
-医保基金作为人民群众的“看病钱”“救命钱”，直接关系到群众的切身利益。
+美国最高法院就拜耳公司试图驳回数万起诉讼的诉求，给出了喜忧参半的审理态度。
 
-但总有一些人为了谋取私利，不惜铤而走险、触犯法律。
+这批诉讼指控拜耳旗下农达除草剂未标注致癌风险。
 
-近日，上海警方就破获了几起涉及骗取医保的案件。
+周一，最高法院大法官于华盛顿展开口头辩论，审议密苏里州一名男子胜诉的125 万美元陪审团裁决。
 
-用医保配药跨省倒卖 诈骗团伙被查处 去年9月，上海崇明警方接到一条倒卖药品的举报线索。
+该男子指控农达除草剂导致其患上非霍奇金淋巴瘤。
 
-经走访调查，警方发现一个以邵某为首的团伙，其药品来源主要依靠陈某、张某、孟某、刘某等4人。
+拜耳主张：由于美国监管机构并未要求产品加注致癌警示，联邦法律应驳回该起案件及其他同类州级诉讼。
 
-以上4人均从事废品回收工作，常在上海的宝山、普陀、浦东等多个小区隐秘收购药品。
+大法官布雷特・卡瓦诺对拜耳观点表示认同，其质疑：未警示责任类诉讼，是否与联邦法律中要求除草剂标签规范统一的条款相冲突。
 
-上海市公安刑侦总队五支队一大队副大队长 于泽民：给这些医保卡持卡人讲好，你帮我开哪几种药，然后由持卡人去医院直接开。
+但首席大法官约翰・罗伯茨则提出，若各州掌握产品存在风险的新证据，理应有权向公众警示相关危险。
 
-自己吃一部分，自用一部分，剩下的一部分卖给了药贩。
+周二法兰克福早盘交易中，拜耳股价一度暴跌 6.5%。
 
 ## 相关推荐
 
-- 2026-06-30 06:12 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 06:35 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 06:10 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 06:28 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 06:21 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 06:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 06:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 06:20 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 06:09 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 06:34 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 06:25 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 06:29 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 06:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 06:33 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 06:39 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 06:19 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 06:13 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 06:22 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 06:37 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 06:28 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 06:26 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 06:32 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 06:41 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 06:40 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 06:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 06:27 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/60202773239.shtml)
-- 2026-06-30 06:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/92525414142.shtml)
-- 2026-06-30 06:09 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/1802772211.shtml)
-- 2026-06-30 06:10 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/13005724.shtml)
-- 2026-06-30 06:08 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/033145477.shtml)
-- 2026-06-30 06:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/6699615.shtml)
-- 2026-06-30 06:18 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/63363415.shtml)
-- 2026-06-30 06:17 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/3329709687.shtml)
-- 2026-06-30 06:32 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/486540.shtml)
-- 2026-06-30 06:32 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/1365702.shtml)
-- 2026-06-30 06:30 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/423169.shtml)
-- 2026-06-30 06:20 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/89585175.shtml)
-- 2026-06-30 06:33 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/89890.shtml)
-- 2026-06-30 06:22 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/1710894200.shtml)
-- 2026-06-30 06:18 - [小娘惹](http://www.blog.minike.top/Article/details/1155841.shtml)
+- 2026-06-30 06:14 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/96776.shtml)
+- 2026-06-30 06:31 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/859637605.shtml)
+- 2026-06-30 06:26 - [TOP Prada](http://www.share.minike.top/Article/details/33105488958.shtml)
+- 2026-06-30 06:28 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/26596.shtml)
+- 2026-06-30 06:39 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/4087028730.shtml)
+- 2026-06-30 06:29 - [斗破苍穹](https://www.blog.minike.top/Article/details/849236597.shtml)
+- 2026-06-30 06:33 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/7688171.shtml)
+- 2026-06-30 06:26 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/13610.shtml)
+- 2026-06-30 06:29 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/17729077332.shtml)
+- 2026-06-30 06:34 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/451032855341.shtml)
+- 2026-06-30 06:16 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/8892793.shtml)
+- 2026-06-30 06:29 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/3878249.shtml)
+- 2026-06-30 06:32 - [女心理师](https://www.share.minike.top/Article/details/76741297.shtml)
+- 2026-06-30 06:28 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/208752.shtml)
+- 2026-06-30 06:16 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/2780264602.shtml)

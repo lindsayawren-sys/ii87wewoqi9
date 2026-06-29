@@ -1,50 +1,58 @@
-# 以色列称已准备好重启与伊朗的战争
+# 刘浩凌是谁？履新证监会副主席 曾掌舵中投公司万亿资产
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-总台记者获悉，以色列国防部长卡茨23日在形势评估结束时表示，以色列已做好重启与伊朗战争的准备，“只等美国的绿灯”。 卡茨称，以色列国防军已做好防御和进攻的准备，目标已经确定，目前“正在等待美国的绿灯”。他称，只要美国同意，以色列将刺杀伊朗新任最高领袖穆杰塔巴·哈梅内伊，并通过炸毁能源和电力设施、摧毁经济基础设施，让伊朗“重回黑暗和石器时代”。(总台记者 梁慧 李享）
+专题：国务院任命刘浩凌为证监会副主席 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：盛华观察 4月29日，证监会官网发布消息，国务院近日决定，任命刘浩凌为中国证券监督管理委员会副主席。中央组织部同时通知，刘浩凌同志任中国证券监督管理委员会党委委员。此次人事变动，意味着这位曾掌舵中国投资有限责任公司（简称“中投公司”）万亿资产、横跨基金、证券、投资
 
 ## 正文
 
-总台记者获悉，以色列国防部长卡茨23日在形势评估结束时表示，以色列已做好重启与伊朗战争的准备，“只等美国的绿灯”。
+专题：国务院任命刘浩凌为证监会副主席 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-卡茨称，以色列国防军已做好防御和进攻的准备，目标已经确定，目前“正在等待美国的绿灯”。
+来源：盛华观察 4月29日，证监会官网发布消息，国务院近日决定，任命刘浩凌为中国证券监督管理委员会副主席。
 
-他称，只要美国同意，以色列将刺杀伊朗新任最高领袖穆杰塔巴·哈梅内伊，并通过炸毁能源和电力设施、摧毁经济基础设施，让伊朗“重回黑暗和石器时代”。
+中央组织部同时通知，刘浩凌同志任中国证券监督管理委员会党委委员。
 
-(总台记者 梁慧 李享）
+此次人事变动，意味着这位曾掌舵中国投资有限责任公司（简称“中投公司”）万亿资产、横跨基金、证券、投资和保险多个领域的金融老将，正式加入中国资本市场的核心监管层。
+
+2016年起，刘浩凌出任中央汇金综合部/银行二部主任，并于次年兼任新华人寿保险股份有限公司董事长。
+
+2020年12月，他升任中投公司党委委员、副总经理兼首席风险官。
+
+2024年1月，刘浩凌出任中投公司党委副书记，同年2月经国务院任命为副董事长、总经理兼首席投资官。
+
+在当时的人事任命中，中投公司对前任居伟民在战略发展、全面风险管理、投资管理体系建设、结构性投资能力拓展等方面作出的贡献给予高度评价，同时刘浩凌的接任也被市场视为中投公司推动投资管理体系持续深化的关键一步。
 
 ## 相关推荐
 
-- 2026-06-30 06:12 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 06:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 06:24 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 06:20 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 06:17 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 06:25 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 06:13 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-30 06:19 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 06:25 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 06:21 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 06:31 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 06:25 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 06:27 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 06:39 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 06:26 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 06:25 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 06:15 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 06:36 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 06:38 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 06:24 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 06:39 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 06:24 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 06:31 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 06:25 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:35 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/74533.shtml)
-- 2026-06-30 06:33 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/58157708.shtml)
-- 2026-06-30 06:06 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/40111.shtml)
-- 2026-06-30 06:19 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/5267216129.shtml)
-- 2026-06-30 06:15 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/4439456839.shtml)
-- 2026-06-30 06:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/869345.shtml)
-- 2026-06-30 06:18 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/61264574.shtml)
-- 2026-06-30 06:13 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/34925350.shtml)
-- 2026-06-30 06:33 - [金刚川](http://www.share.kurohicncr.top/Article/details/56529519.shtml)
-- 2026-06-30 06:34 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/39236798.shtml)
-- 2026-06-30 06:30 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/1772751.shtml)
-- 2026-06-30 06:30 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/6418311.shtml)
-- 2026-06-30 06:30 - [美人鱼](https://www.share.minike.top/Article/details/5913248.shtml)
-- 2026-06-30 06:15 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/25609603.shtml)
-- 2026-06-30 06:06 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/837034845191.shtml)
+- 2026-06-30 06:23 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/850986348846.shtml)
+- 2026-06-30 06:18 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/108360.shtml)
+- 2026-06-30 06:36 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/70621.shtml)
+- 2026-06-30 06:38 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/0286287690.shtml)
+- 2026-06-30 06:33 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/54159.shtml)
+- 2026-06-30 06:40 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/559470463.shtml)
+- 2026-06-30 06:41 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/96963.shtml)
+- 2026-06-30 06:30 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/977514787741.shtml)
+- 2026-06-30 06:29 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/8903355136.shtml)
+- 2026-06-30 06:12 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/22154329.shtml)
+- 2026-06-30 06:13 - [绘画区你赢了](https://www.blog.minike.top/Article/details/835814018.shtml)
+- 2026-06-30 06:17 - [请回答王牌2019](http://www.share.minike.top/Article/details/4225550465.shtml)
+- 2026-06-30 06:19 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/755350044447.shtml)
+- 2026-06-30 06:36 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/548662.shtml)
+- 2026-06-30 06:31 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/815941068.shtml)

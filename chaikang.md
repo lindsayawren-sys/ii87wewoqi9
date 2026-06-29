@@ -1,58 +1,58 @@
-# 成都街头繁花似锦 市民打卡“绿野仙踪”景观
+# 金梅尔“寡妇梗”激怒白宫，迪士尼新掌门迎来首场“压力测试”
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？太阳今日爆
+美国广播公司（ABC）脱口秀主持人吉米·金梅尔在上周的一则笑话，因周末发生针对特朗普的枪击事件而引发巨大风波。面对白宫高层的公开施压，刚上任六周的迪士尼新CEO乔什·达马罗迎来了其执掌媒体帝国的首次重大考验。 “寡妇梗”遭枪击事件“变味” 上周四，金梅尔在模仿白宫记者晚宴的节目中调侃美国第一夫人梅拉尼娅·特朗普，称其“散发着一种像待嫁寡妇般的光芒”。当时这被普遍视为调侃特朗普夫
 
 ## 正文
 
-推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？
+美国广播公司（ABC）脱口秀主持人吉米·金梅尔在上周的一则笑话，因周末发生针对特朗普的枪击事件而引发巨大风波。
 
-义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？
+面对白宫高层的公开施压，刚上任六周的迪士尼新CEO乔什·达马罗迎来了其执掌媒体帝国的首次重大考验。
 
-太阳今日爆发X2.4级耀斑，有何影响？
+“寡妇梗”遭枪击事件“变味” 上周四，金梅尔在模仿白宫记者晚宴的节目中调侃美国第一夫人梅拉尼娅·特朗普，称其“散发着一种像待嫁寡妇般的光芒”。
 
-为何说中国全面推广普及国家通用语言文字和保护少数民族语言文化并行不悖？
+当时这被普遍视为调侃特朗普夫妇近30岁年龄差的玩笑，白宫方面最初并未置评。
 
-企业玩“心机商标”，但口碑不会陪你演作家蒋胜男：真正的“大女主”不是玛丽苏式“等人来救”孙悟空是“男主人设天花板”？
+然而，上周六白宫记者晚宴现场发生枪击事件，总统夫妇被迫紧急撤离。
 
-六小龄童回应台湾退役舰长“打卡”人民海军舰艇 挥笔留言“两岸一家亲”大熊猫“平平”和“福双”将赴美开启10年旅居生活华谊兄弟沉浮录：曾是“中国影视第一股”罪恶神社的“招魂”闹剧12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
+周一，特朗普夫妇相继发声，将这一玩笑重新定性为“卑鄙的暴力煽动”和“暗号”，要求ABC及母公司迪士尼立即解雇金梅尔。
 
-台胞小可的拜祖初体验沈阳塔台迎接志愿军忠烈回家西藏樟木口岸全面复通后出入境人员突破100万人次中国海军以最高礼仪迎接烈士遗骸回国深圳市非血缘造血干细胞捐献达1000例宿迁：在“项王故里”邂逅水韵柔情沈阳全城披红 迎第十三批志愿军烈士遗骸归国实拍西汉王后的“硬核”文具惊险！
+面对指控，金梅尔在周一晚间的节目中正面回击，称该笑话完全是在调侃79岁的特朗普与56岁梅拉尼娅的年龄差，“绝不是暗杀令”。
 
-买馕忘拉手刹，爱车溜坡撞上绿化带5.2米高！
+他引用宪法第一修正案为自己辩护，并讽刺道：“要消除仇恨言论，不妨先跟你丈夫谈谈。
 
 ## 相关推荐
 
-- 2026-06-30 06:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 06:29 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 06:33 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 06:26 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 06:35 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 06:13 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 06:15 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 06:18 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 06:07 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 06:19 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 06:14 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 06:23 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 06:23 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 06:38 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 06:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 06:23 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 06:24 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 06:25 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 06:30 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-30 06:18 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 06:32 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 06:22 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 06:13 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 06:38 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:31 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/294445223359.shtml)
-- 2026-06-30 06:12 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/35328.shtml)
-- 2026-06-30 06:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/12262863.shtml)
-- 2026-06-30 06:08 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/677689.shtml)
-- 2026-06-30 06:35 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/245058134215.shtml)
-- 2026-06-30 06:18 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/68642.shtml)
-- 2026-06-30 06:26 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/652182.shtml)
-- 2026-06-30 06:20 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/8636007158.shtml)
-- 2026-06-30 06:13 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/548992.shtml)
-- 2026-06-30 06:08 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/068755423.shtml)
-- 2026-06-30 06:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/79302581.shtml)
-- 2026-06-30 06:23 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/0681895721.shtml)
-- 2026-06-30 06:14 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/6649196583.shtml)
-- 2026-06-30 06:22 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/35132.shtml)
-- 2026-06-30 06:06 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/38398396.shtml)
+- 2026-06-30 06:32 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/75708064507.shtml)
+- 2026-06-30 06:15 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/72350273.shtml)
+- 2026-06-30 06:37 - [金刚川](https://www.share.kurohicncr.top/Article/details/386419746798.shtml)
+- 2026-06-30 06:29 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/925939.shtml)
+- 2026-06-30 06:17 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/62765380.shtml)
+- 2026-06-30 06:33 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/44405.shtml)
+- 2026-06-30 06:36 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/6296277933.shtml)
+- 2026-06-30 06:23 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/313437.shtml)
+- 2026-06-30 06:33 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/19444.shtml)
+- 2026-06-30 06:17 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/935816.shtml)
+- 2026-06-30 06:27 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/32676285.shtml)
+- 2026-06-30 06:13 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/67401561.shtml)
+- 2026-06-30 06:14 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/8644874.shtml)
+- 2026-06-30 06:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/8174405.shtml)
+- 2026-06-30 06:15 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/44378529163.shtml)

@@ -1,61 +1,59 @@
-# 标的连续三年亏损却仅提供首年业绩承诺 高科桥7800万“接盘”富通光电背后的关联交易疑云
+# 以城市思维经营乡村 浙江湖州青年入乡2.0的探路先行
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-2026年4月13日，港股上市公司高科桥光导科技股份有限公司（09963.HK）发布一则公告，拟以7800万元人民币的代价收购豪民投资控股有限公司全部股权，从而间接控股富通光电技术（杭州）有限公司51%权益。 然而，这起收购案中的每一个细节都透露出不同寻常的信号：标的公司富通光电已连续三年亏损，而收购方高科桥自身同样在2025年交出了一份净亏损近亿港元的成绩单。尽管交易设置了截
+中新网湖州4月29日电(胡丰盛)从上海的水泥森林走进浙江的绿水青山，90后海归张羽泽把无人机研发团队安在湖州市安吉县杭垓镇的山野间。在这里，代码迭代、实地测试同步完成……他创办的探诺科技，凭14项发明专利成为美国联邦快递、约旦政府的技术供应商。 废弃矿坑变身青年策展公园，传统鱼塘升级为数字渔仓，千年古村在艺术乡建中重生……4月29日，在“世界乡村旅游小镇”潞村，浙江湖州举办青年
 
 ## 正文
 
-2026年4月13日，港股上市公司高科桥光导科技股份有限公司（09963.HK）发布一则公告，拟以7800万元人民币的代价收购豪民投资控股有限公司全部股权，从而间接控股富通光电技术（杭州）有限公司51%权益。
+中新网湖州4月29日电(胡丰盛)从上海的水泥森林走进浙江的绿水青山，90后海归张羽泽把无人机研发团队安在湖州市安吉县杭垓镇的山野间。
 
-然而，这起收购案中的每一个细节都透露出不同寻常的信号：标的公司富通光电已连续三年亏损，而收购方高科桥自身同样在2025年交出了一份净亏损近亿港元的成绩单。
+在这里，代码迭代、实地测试同步完成……他创办的探诺科技，凭14项发明专利成为美国联邦快递、约旦政府的技术供应商。
 
-尽管交易设置了截至2026年底的5000万元利润保证，但此后的年度并未安排任何业绩对赌条款。
+废弃矿坑变身青年策展公园，传统鱼塘升级为数字渔仓，千年古村在艺术乡建中重生……4月29日，在“世界乡村旅游小镇”潞村，浙江湖州举办青年入乡发展大会，以青年入乡2.0开启系统性变革，以“像经营城市一样经营乡村、像布局城市一样布局乡村”为理念，重构产业赛道、补齐公共服务、完善制度保障，让乡村既有田园诗意，更拥有城市般的创业土壤、生活质感与成长未来。
 
-更令人关注的是，收购资金将通过向卖方定向发行折价约20.6%的代价股份完成支付，叠加关联交易背景，市场对小股东权益的保护力度提出了尖锐质疑。
+这场社会实践，正在绿水青山间，为城乡融合与共同富裕写下新的答案。
 
-收购表面逻辑：富通系的内外双循环 从业务层面看，富通光电主要从事光纤预制棒及光纤的生产与销售，2025年光纤预制棒实际产能约104万芯公里，光纤实际产能约85万芯公里。
+乡村振兴2.0“升级版” 湖州是全国最早系统推进青年入乡的城市，也是这项工作的首创之地。
 
-收购完成后，富通光电将与高科桥控股股东富通中国签订总销售协议，向其销售光纤，2026年至2028年三个年度的年度上限分别为1.4亿元、1.66亿元及1.69亿元人民币。
+过去几年，数十万青年带着创意与热情涌入乡村，民宿、露营、乡村咖啡馆遍地开花，乡土中国焕发出久违的活力。
 
-卖方还提供利润保证，富通光电截至2026年底的财年保证利润不少于5000万元人民币，按此计算收购市盈率约3.06倍。
+但热闹背后，隐忧悄然浮现。
 
-若从纸面数字来看，这笔交易的估值似乎并不昂贵。
+早期青年入乡多以农文旅为主，创意容易复制，产业深度不足。
 
 ## 相关推荐
 
-- 2026-06-30 06:27 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 06:18 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 06:31 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 06:31 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 06:25 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 06:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 06:22 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 06:26 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 06:18 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 06:18 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 06:11 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 06:29 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 06:10 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 06:27 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 06:13 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 06:13 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 06:21 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 06:30 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 06:35 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 06:12 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 06:30 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 06:21 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 06:37 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 06:21 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 06:12 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 06:30 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 06:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 06:33 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/4163054886.shtml)
-- 2026-06-30 06:25 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/2970807718.shtml)
-- 2026-06-30 06:16 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/263196487.shtml)
-- 2026-06-30 06:32 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/434879376.shtml)
-- 2026-06-30 06:12 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/5921713.shtml)
-- 2026-06-30 06:27 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/43104697602.shtml)
-- 2026-06-30 06:12 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/31358341973.shtml)
-- 2026-06-30 06:11 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/58029.shtml)
-- 2026-06-30 06:33 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/372117.shtml)
-- 2026-06-30 06:09 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/31607369.shtml)
-- 2026-06-30 06:27 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/905602681369.shtml)
-- 2026-06-30 06:07 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/27409226.shtml)
-- 2026-06-30 06:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/9875100246.shtml)
-- 2026-06-30 06:09 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/701422012.shtml)
-- 2026-06-30 06:27 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/12932616008.shtml)
+- 2026-06-30 06:40 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/342680126.shtml)
+- 2026-06-30 06:37 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/77411784.shtml)
+- 2026-06-30 06:36 - [千与千寻](https://www.share.minike.top/Article/details/4775425587.shtml)
+- 2026-06-30 06:15 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/117139227923.shtml)
+- 2026-06-30 06:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/1165332674.shtml)
+- 2026-06-30 06:28 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/607089271.shtml)
+- 2026-06-30 06:23 - [青春环游记第三季](http://www.blog.minike.top/Article/details/79591175.shtml)
+- 2026-06-30 06:39 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/628555.shtml)
+- 2026-06-30 06:32 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/419136874803.shtml)
+- 2026-06-30 06:39 - [爱很美味](http://www.share.kurohicncr.top/Article/details/6500487.shtml)
+- 2026-06-30 06:32 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/26933797.shtml)
+- 2026-06-30 06:26 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/677470458.shtml)
+- 2026-06-30 06:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/455198465.shtml)
+- 2026-06-30 06:40 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/68751736129.shtml)
+- 2026-06-30 06:30 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/171287.shtml)

@@ -1,45 +1,58 @@
-# 马士基称霍尔木兹海峡仍处于“紧紧关闭”状态
+# 中肯政商界人士认为零关税举措将为两国合作带来新机遇
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-丹麦航运和物流公司马士基在致客户的最新通告中称，中东局势持续紧张，本周已有三艘集装箱船遭伊朗军队袭击，霍尔木兹海峡目前仍处于“紧紧关闭”状态。 这意味着受战争影响、位于海峡内的货物“将继续滞留在海上”及杰贝阿里（Jebel Ali）码头责任编辑：李安桐
+新华社内罗毕4月27日电(记者由荟圆)由中国驻肯尼亚大使馆和肯尼亚外交和侨务部共同主办的“零关税，共享无限机遇”研讨会27日在肯尼亚首都内罗毕举行。中国将于5月1日起对53个非洲建交国全面实施零关税举措，与会中肯政商界代表认为，该举措将为中肯两国合作带来新机遇。肯尼亚外交和侨务部政治与外交事务总司长乔斯法特·马伊卡拉在研讨会上致辞说，肯尼亚将提供更多投资机遇，推动制造业发展、产
 
 ## 正文
 
-丹麦航运和物流公司马士基在致客户的最新通告中称，中东局势持续紧张，本周已有三艘集装箱船遭伊朗军队袭击，霍尔木兹海峡目前仍处于“紧紧关闭”状态。
+新华社内罗毕4月27日电(记者由荟圆)由中国驻肯尼亚大使馆和肯尼亚外交和侨务部共同主办的“零关税，共享无限机遇”研讨会27日在肯尼亚首都内罗毕举行。
 
-这意味着受战争影响、位于海峡内的货物“将继续滞留在海上”及杰贝阿里（Jebel Ali）码头责任编辑：李安桐
+中国将于5月1日起对53个非洲建交国全面实施零关税举措，与会中肯政商界代表认为，该举措将为中肯两国合作带来新机遇。
+
+肯尼亚外交和侨务部政治与外交事务总司长乔斯法特·马伊卡拉在研讨会上致辞说，肯尼亚将提供更多投资机遇，推动制造业发展、产业链延伸及资源增值加工，提升肯尼亚产品对接中国市场的能力，并进一步扩大市场准入。
+
+中国驻肯尼亚大使郭海燕表示，零关税举措是中肯经贸合作提质升级的重要里程碑。
+
+在贸易层面，零关税政策通过减少制度成本，有力增强肯尼亚产品在中国市场的竞争力，为肯尼亚扩大对华出口、优化贸易结构提供了重要机遇。
+
+在发展层面，该举措是中国支持非洲工业化、农业现代化和区域一体化的实际行动，有助于带动产业发展和就业增长，增强肯尼亚的自主发展能力。
+
+肯尼亚特色产品行业协会代表及在肯侨资企业代表表示，零关税政策为肯尼亚特色产品进入中国市场提供了重要机遇，期待进一步完善市场对接及相关配套机制，实现互利共赢。
+
+当天，中肯两国政商界代表约80人出席研讨会。
 
 ## 相关推荐
 
-- 2026-06-30 06:14 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 06:22 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 06:30 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 06:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 06:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 06:13 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 06:16 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 06:19 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 06:29 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 06:07 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 06:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 06:17 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-30 06:32 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 06:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 06:33 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 06:34 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 06:31 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 06:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 06:32 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 06:15 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 06:30 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 06:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 06:32 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:14 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/90388.shtml)
-- 2026-06-30 06:21 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/92858.shtml)
-- 2026-06-30 06:31 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/0910503467.shtml)
-- 2026-06-30 06:14 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/0283119.shtml)
-- 2026-06-30 06:18 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/251945832.shtml)
-- 2026-06-30 06:06 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/1416774.shtml)
-- 2026-06-30 06:21 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/775750877.shtml)
-- 2026-06-30 06:21 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/734333339481.shtml)
-- 2026-06-30 06:23 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/07742.shtml)
-- 2026-06-30 06:20 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/32038.shtml)
-- 2026-06-30 06:25 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/4977883994.shtml)
-- 2026-06-30 06:11 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/34459.shtml)
-- 2026-06-30 06:28 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/75123400910.shtml)
-- 2026-06-30 06:08 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/497282.shtml)
-- 2026-06-30 06:23 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/81465.shtml)
+- 2026-06-30 06:26 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/16080.shtml)
+- 2026-06-30 06:12 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/72078307.shtml)
+- 2026-06-30 06:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/5512903744.shtml)
+- 2026-06-30 06:39 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/9593216.shtml)
+- 2026-06-30 06:35 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/09805252.shtml)
+- 2026-06-30 06:36 - [乔家的儿女](https://www.share.minike.top/Article/details/32659.shtml)
+- 2026-06-30 06:14 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/4543837.shtml)
+- 2026-06-30 06:26 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/536481044.shtml)
+- 2026-06-30 06:36 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/727888.shtml)
+- 2026-06-30 06:38 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/66243.shtml)
+- 2026-06-30 06:16 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/305730771535.shtml)
+- 2026-06-30 06:17 - [爱很美味](http://www.share.kurohicncr.top/Article/details/5096772.shtml)
+- 2026-06-30 06:35 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/69469.shtml)
+- 2026-06-30 06:35 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/348976.shtml)
+- 2026-06-30 06:41 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/8188003690.shtml)

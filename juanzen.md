@@ -1,56 +1,56 @@
-# 课堂连田野，他们这样成长为“乡村CEO”
+# 美国债市：短期和中期国债下跌 7年期国债中标收益率略高于发行前水平
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-职教视野 课堂连田野，他们这样成长为“乡村CEO” “一纸邀约，愿你以初心为炬，照亮田间阡陌，激活乡村沃土，在产业运营中淬炼本领，在基层实践中增长才干，以青春之名，赴乡村之约，未来将与你携手，共同勾勒首都乡村振兴壮美新图景！” 今年年初，丁杰歆收到来自团北京市委的一纸录取通知书，祝贺他成功入选“北京市青年乡村CEO培养计划”，并配有以上这段文采飞扬的文字。据了解，“北京市青年乡
+美国盘中短期到中期国债承压走低，油价延续本周涨势，交易员密切关注霍尔木兹海峡局势。美国7年期国债中标收益率较发行前交易水平高约0.5个基点，推动中期国债收益率在午后晚些时候迈向当日高点。 纽约时间下午3点刚过，美国短期国债收益率走高多达4个基点，长债收益率基本持平，2年期-10年期国债收益率之差回落至51个基点左右，扭转了周一的趋陡势头。美国10年期国债收益率报4.35%左右，
 
 ## 正文
 
-职教视野 课堂连田野，他们这样成长为“乡村CEO” “一纸邀约，愿你以初心为炬，照亮田间阡陌，激活乡村沃土，在产业运营中淬炼本领，在基层实践中增长才干，以青春之名，赴乡村之约，未来将与你携手，共同勾勒首都乡村振兴壮美新图景！
+美国盘中短期到中期国债承压走低，油价延续本周涨势，交易员密切关注霍尔木兹海峡局势。
 
-” 今年年初，丁杰歆收到来自团北京市委的一纸录取通知书，祝贺他成功入选“北京市青年乡村CEO培养计划”，并配有以上这段文采飞扬的文字。
+美国7年期国债中标收益率较发行前交易水平高约0.5个基点，推动中期国债收益率在午后晚些时候迈向当日高点。
 
-据了解，“北京市青年乡村CEO培养计划”于2025年12月正式发布，是在北京市乡村旅游高质量发展工作专班指导下，由共青团北京市委、市委组织部、市人才局、市农业农村局共同推出的人才培育项目。
+纽约时间下午3点刚过，美国短期国债收益率走高多达4个基点，长债收益率基本持平，2年期-10年期国债收益率之差回落至51个基点左右，扭转了周一的趋陡势头。
 
-今年年初，经过层层筛选，首批123名学员从1000余名报名者中脱颖而出。
+美国10年期国债收益率报4.35%左右，日间上涨约1个基点，而欧洲债券在伦敦交易时段跑输。
 
-其中，高校组共有20人入选，北京农业职业学院的丁杰歆、张凡、张贺、石家林4名学生跻身其中。
+短债的下跌伴随着市场对美联储的政策预期转鹰，OIS合约消化的年底前降息幅度约为5个基点，而周一收盘时为8个基点；同时，掉期市场也排除了明年进行一次完整降息的可能性。
 
-“他们一边在田间地头摸爬滚打，一边在课堂里充电蓄能，带着村里的难题来，揣着解决方案回。
+美国7年期国债中标收益率较发行前交易水平高约0.5个基点，标售后中期国债维持跌势。
 
-”北京农业职业学院团委副书记栗广社介绍说，当职业教育与乡村振兴相遇，一场知识与实践的双向奔赴正在发生。
+不过，标售指标表现稳健，一级交易商获配11.6%，低于之前一次；直接投标人获配增至30%，间接投标人获配降至58.4%。
 
-从“摸爬滚打”到“点对点破题” “以前我是纯靠‘摸爬滚打’总结出经验来。
+在国债期货市场，早盘2年期和5年期国债合约的大宗卖盘加剧了走弱势头。
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 06:09 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 06:34 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 06:26 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 06:35 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 06:14 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 06:20 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 06:12 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 06:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 06:20 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 06:13 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 06:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 06:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 06:27 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 06:21 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 06:13 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 06:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 06:18 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 06:26 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 06:36 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:11 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/159352.shtml)
-- 2026-06-30 06:30 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/927459.shtml)
-- 2026-06-30 06:24 - [森保一 保守](http://www.share.minike.top/Article/details/1488450303.shtml)
-- 2026-06-30 06:14 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/97699906.shtml)
-- 2026-06-30 06:16 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/0154344.shtml)
-- 2026-06-30 06:19 - [月亮](https://www.share.minike.top/Article/details/4183089169.shtml)
-- 2026-06-30 06:15 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/44995.shtml)
-- 2026-06-30 06:08 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/963633.shtml)
-- 2026-06-30 06:33 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/79209134.shtml)
-- 2026-06-30 06:21 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/568881037469.shtml)
-- 2026-06-30 06:06 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/9584370116.shtml)
-- 2026-06-30 06:22 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/775942902986.shtml)
-- 2026-06-30 06:12 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/11328.shtml)
-- 2026-06-30 06:18 - [我们的少年时代2](http://www.share.minike.top/Article/details/659186650.shtml)
-- 2026-06-30 06:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/6696925143.shtml)
+- 2026-06-30 06:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/481628453.shtml)
+- 2026-06-30 06:20 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/34810248080.shtml)
+- 2026-06-30 06:30 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/7458296.shtml)
+- 2026-06-30 06:36 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/497524.shtml)
+- 2026-06-30 06:16 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/157807844586.shtml)
+- 2026-06-30 06:14 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/903111.shtml)
+- 2026-06-30 06:40 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/461550.shtml)
+- 2026-06-30 06:25 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/49856133.shtml)
+- 2026-06-30 06:27 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/712098.shtml)
+- 2026-06-30 06:29 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/03537.shtml)
+- 2026-06-30 06:36 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/938071.shtml)
+- 2026-06-30 06:41 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/650424.shtml)
+- 2026-06-30 06:41 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/41141979571.shtml)
+- 2026-06-30 06:34 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/05745.shtml)
+- 2026-06-30 06:25 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/51100215.shtml)

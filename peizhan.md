@@ -1,43 +1,48 @@
-# 视频|现场画面！白宫晚宴传出“巨大声响” 特朗普在安保人员护送下离开
+# 伊朗军方：当前局势仍定性为战争状态
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-责任编辑：杨赐
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰4月28日电伊朗军方发言人28日说，战事并未结束，当前局势仍定性为战争状态，伊朗武装部队已完成目标清单与作战装备的全面更新。（完）责任编辑：宋雅芳
 
 ## 正文
 
-责任编辑：杨赐
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+新华社德黑兰4月28日电伊朗军方发言人28日说，战事并未结束，当前局势仍定性为战争状态，伊朗武装部队已完成目标清单与作战装备的全面更新。
+
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 06:06 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 06:28 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 06:33 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 06:09 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 06:07 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 06:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 06:15 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 06:29 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 06:10 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 06:35 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 06:20 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 06:12 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 06:22 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 06:28 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 06:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 06:30 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 06:32 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 06:38 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 06:35 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 06:33 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 06:37 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 06:17 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 06:28 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:09 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/858599681288.shtml)
-- 2026-06-30 06:16 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/17533944773.shtml)
-- 2026-06-30 06:06 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/8751461.shtml)
-- 2026-06-30 06:08 - [85花告别古偶](http://www.blog.minike.top/Article/details/440646315.shtml)
-- 2026-06-30 06:18 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/4875586620.shtml)
-- 2026-06-30 06:21 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/948892.shtml)
-- 2026-06-30 06:12 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/147306.shtml)
-- 2026-06-30 06:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/97178432641.shtml)
-- 2026-06-30 06:21 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/176067304923.shtml)
-- 2026-06-30 06:24 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/6212446249.shtml)
-- 2026-06-30 06:25 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/65799360.shtml)
-- 2026-06-30 06:24 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/382350.shtml)
-- 2026-06-30 06:24 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/577271791680.shtml)
-- 2026-06-30 06:12 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/00236985.shtml)
-- 2026-06-30 06:35 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/61500.shtml)
+- 2026-06-30 06:12 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/559739.shtml)
+- 2026-06-30 06:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/69440092.shtml)
+- 2026-06-30 06:18 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/394512503820.shtml)
+- 2026-06-30 06:24 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/8838283148.shtml)
+- 2026-06-30 06:38 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/4186519.shtml)
+- 2026-06-30 06:12 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/88724611.shtml)
+- 2026-06-30 06:38 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/7538626108.shtml)
+- 2026-06-30 06:15 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/0023338.shtml)
+- 2026-06-30 06:34 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/5164832.shtml)
+- 2026-06-30 06:22 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/4721876.shtml)
+- 2026-06-30 06:26 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/0595387058.shtml)
+- 2026-06-30 06:27 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/07053.shtml)
+- 2026-06-30 06:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/692403.shtml)
+- 2026-06-30 06:30 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/875094749.shtml)
+- 2026-06-30 06:21 - [沙丘](https://www.blog.kurohicncr.top/Article/details/2869443.shtml)

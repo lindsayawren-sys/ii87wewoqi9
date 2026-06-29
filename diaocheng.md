@@ -1,60 +1,59 @@
-# 辽宁通报8起违反中央八项规定精神问题
+# 山东省累计发放民营企业再贷款403亿元
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网4月25日电 据中央纪委国家监委网站消息，“五一”将至，为坚守节点、寸步不让落实中央八项规定精神，一严到底纠治“四风”，推动党员干部严守纪律要求、筑牢廉洁防线，辽宁省纪委监委现将近期查处的8起违反中央八项规定精神典型问题通报如下。1.营口市鲅鱼圈区委原书记孟鑫接受可能影响公正执行公务的宴请，违规收受礼品、礼金，违规接受管理和服务对象接送服务等问题。2013年至2025年，
+中新网济南4月28日电 (记者 沙见龙)4月28日，中国人民银行山东省分行在济南举行2026年一季度山东省金融统计数据新闻发布会，发布解读山东省金融数据情况及该分行重点工作举措及成效。 中国人民银行山东省分行调查统计处副处长胡杰在介绍中提到，截至今年3月末，该省累计发放民营企业再贷款403亿元(人民币，下同)，带动该省地方法人金融机构一季度新增民营中小微企业贷款507亿元，其中
 
 ## 正文
 
-中新网4月25日电 据中央纪委国家监委网站消息，“五一”将至，为坚守节点、寸步不让落实中央八项规定精神，一严到底纠治“四风”，推动党员干部严守纪律要求、筑牢廉洁防线，辽宁省纪委监委现将近期查处的8起违反中央八项规定精神典型问题通报如下。
+中新网济南4月28日电 (记者 沙见龙)4月28日，中国人民银行山东省分行在济南举行2026年一季度山东省金融统计数据新闻发布会，发布解读山东省金融数据情况及该分行重点工作举措及成效。
 
-1.营口市鲅鱼圈区委原书记孟鑫接受可能影响公正执行公务的宴请，违规收受礼品、礼金，违规接受管理和服务对象接送服务等问题。
+中国人民银行山东省分行调查统计处副处长胡杰在介绍中提到，截至今年3月末，该省累计发放民营企业再贷款403亿元(人民币，下同)，带动该省地方法人金融机构一季度新增民营中小微企业贷款507亿元，其中近八成投向制造业、批发零售业。
 
-2013年至2025年，孟鑫多次接受管理和服务对象在公司食堂及高档酒店安排的宴请，相关费用由管理和服务对象支付；借年节之机，多次收受管理和服务对象所送礼金和烟酒、海鲜等礼品；多次接受管理和服务对象为其子提供的上下学接送服务，相关费用由管理和服务对象支付。
+今年1月中旬，中国人民银行推出一批货币金融政策，其中设立民营企业再贷款额度1万亿元。
 
-孟鑫还存在其他严重违纪违法问题。
+就此，山东建立民营企业再贷款落地工作机制，有效引导金融机构提升民营中小微企业金融服务质效。
 
-2025年12月，孟鑫被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
+据中国人民银行山东省分行货币政策处副处长刘春波介绍，2026年以来，该行深入推进金融支持民营企业发展各项工作。
 
-2.大连市中山区委原副书记、区政府原区长王厚海接受可能影响公正执行公务的宴请，违规收受礼品、礼金等问题。
+民营企业再贷款政策出台以来，该行积极抓好政策落地，建规则、强宣传、优流程、聚合力，引导地方法人金融机构增强对民营中小微企业的支持力度。
 
-2014年至2025年，王厚海先后2次接受管理和服务对象在私人农场等地安排的宴请，相关费用由管理和服务对象支付；多次收受管理和服务对象所送礼金和烟酒等礼品。
+刘春波说，该行制定山东省民营企业再贷款实施细则，建立基于地方法人金融机构民营中小微企业贷款规模、增速等信贷投放效果的额度分配机制，发挥好政策激励引导作用。
 
-王厚海还存在其他严重违纪违法问题。
+同时，指导地方法人金融机构建立健全内部管理制度，优化对民营中小微企业信贷投放的内部激励。
 
 ## 相关推荐
 
-- 2026-06-30 06:31 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 06:08 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 06:07 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 06:19 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 06:34 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 06:17 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 06:30 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 06:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 06:20 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 06:30 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 06:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 06:08 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 06:34 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 06:32 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 06:16 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 06:25 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 06:22 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 06:13 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 06:28 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 06:40 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 06:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 06:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 06:38 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 06:29 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 06:27 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 06:27 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 06:13 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:29 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/510893873.shtml)
-- 2026-06-30 06:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/626748239.shtml)
-- 2026-06-30 06:35 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/692622.shtml)
-- 2026-06-30 06:32 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/337381447.shtml)
-- 2026-06-30 06:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/04425574.shtml)
-- 2026-06-30 06:23 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/82267317962.shtml)
-- 2026-06-30 06:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/51581751.shtml)
-- 2026-06-30 06:35 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/0276988.shtml)
-- 2026-06-30 06:34 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/47421.shtml)
-- 2026-06-30 06:14 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/406809.shtml)
-- 2026-06-30 06:08 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/25554640.shtml)
-- 2026-06-30 06:19 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/27589769010.shtml)
-- 2026-06-30 06:06 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/050656180.shtml)
-- 2026-06-30 06:14 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/71312990168.shtml)
-- 2026-06-30 06:17 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/229931.shtml)
+- 2026-06-30 06:21 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/103613747021.shtml)
+- 2026-06-30 06:25 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/434368352217.shtml)
+- 2026-06-30 06:14 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/43324679.shtml)
+- 2026-06-30 06:35 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/96147.shtml)
+- 2026-06-30 06:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/614440553.shtml)
+- 2026-06-30 06:29 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/386061986809.shtml)
+- 2026-06-30 06:16 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/11765.shtml)
+- 2026-06-30 06:18 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/27868083.shtml)
+- 2026-06-30 06:17 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/9902970637.shtml)
+- 2026-06-30 06:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/97100160.shtml)
+- 2026-06-30 06:26 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/651240446.shtml)
+- 2026-06-30 06:32 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/481428202487.shtml)
+- 2026-06-30 06:35 - [周生如故](https://www.share.kurohicncr.top/Article/details/7544429.shtml)
+- 2026-06-30 06:26 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/76214.shtml)
+- 2026-06-30 06:12 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/711635.shtml)

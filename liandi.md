@@ -1,58 +1,59 @@
-# 一粒沙的高标准！智能机器人组团护航亚沙赛场
+# 宇树科技王兴兴：机器人未来2到3个月将超越人类短跑纪录
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月25日 19:22 来源：中国新闻网 4月22日至30日，第六届亚洲沙滩运动会(以下简称“三亚亚沙会”)在海南三亚举办。赛事期间，沙滩赛场的洁净度与沙质标准，是决定赛事品质、保障运动员安全的关键。 记者了解到，三亚亚沙会沙滩赛事对沙层质量有着严苛要求，部分体育项目要求沙层厚度需达40厘米，并对沙粒粒径分布有严格要求，沙层必须纯净无尖锐杂质、具备优良缓冲
+中新网福州4月29日电 (叶艺琳)以“加快数智技术创新发展，深入推进数字中国建设”为主题的第九届数字中国建设峰会29日在福州开幕。宇树科技创始人、CEO王兴兴在开幕式主论坛上发表主旨演讲时表示，有多少高质量数据，就有多少AI能力；数据质量越好，AI能力就越强。“目前公司机器人的运动能力已实现重大突破，速度突破了10米/秒。我相信在未来2到3个月，机器人短跑纪录就可以超越人类短跑
 
 ## 正文
 
-发布时间：2026年04月25日 19:22 来源：中国新闻网 4月22日至30日，第六届亚洲沙滩运动会(以下简称“三亚亚沙会”)在海南三亚举办。
+中新网福州4月29日电 (叶艺琳)以“加快数智技术创新发展，深入推进数字中国建设”为主题的第九届数字中国建设峰会29日在福州开幕。
 
-赛事期间，沙滩赛场的洁净度与沙质标准，是决定赛事品质、保障运动员安全的关键。
+宇树科技创始人、CEO王兴兴在开幕式主论坛上发表主旨演讲时表示，有多少高质量数据，就有多少AI能力；数据质量越好，AI能力就越强。
 
-记者了解到，三亚亚沙会沙滩赛事对沙层质量有着严苛要求，部分体育项目要求沙层厚度需达40厘米，并对沙粒粒径分布有严格要求，沙层必须纯净无尖锐杂质、具备优良缓冲与排水性能。
+“目前公司机器人的运动能力已实现重大突破，速度突破了10米/秒。
 
-每一粒沙都是经过严格筛选、清洗、分级的“精致沙”。
+我相信在未来2到3个月，机器人短跑纪录就可以超越人类短跑的纪录。
 
-由于传统人工清理模式劳动强度大、效率偏低、时效性难保证，为了精准匹配赛事要求，给运动员提供安全性更高的比赛场地。
+”王兴兴指出，机器人能力加速突破的核心驱动力是数据。
 
-目前，多款智能洁滩机器人在亚沙会上线，它们分工合作，从预处理、粗筛、深清到细筛、整平，形成闭环作业，与人工配合精心养护沙滩，保障海滩清洁与赛事安全有序进行。
+当前AI发展已经证明了一个关键结论，凡是有足够高质量数据的领域，现有AI技术就有能力解决问题，无需依赖全新技术突破。
 
-(记者 林士杰 部分素材来源 上海交通大学海南研究院、第六届亚洲沙滩运动会组委会) 责任编辑：【叶攀】
+针对当前人形机器人领域数据仍然十分稀缺的现状，王兴兴表示，无论是在工厂里装配关节电机还是进入家庭、医疗等作业场景，机器人都需要海量、高质量的运动数据与任务数据支撑。
+
+为此，宇树科技近期已开源了一套全新的全身运动数据集，覆盖家庭、医疗环境以及简单工业产品等场景的数据采集和落地应用。
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 06:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 06:19 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 06:27 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 06:31 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 06:29 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 06:28 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 06:16 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 06:14 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 06:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 06:11 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 06:29 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 06:29 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 06:26 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 06:41 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 06:22 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 06:25 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 06:23 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 06:40 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 06:24 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 06:27 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 06:26 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 06:41 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 06:38 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 06:36 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 06:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 06:26 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:29 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/426082397.shtml)
-- 2026-06-30 06:29 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/4164165.shtml)
-- 2026-06-30 06:30 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/16057249.shtml)
-- 2026-06-30 06:14 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/49627.shtml)
-- 2026-06-30 06:11 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/85191812.shtml)
-- 2026-06-30 06:07 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/93071937829.shtml)
-- 2026-06-30 06:25 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/476930812108.shtml)
-- 2026-06-30 06:31 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/476643850428.shtml)
-- 2026-06-30 06:33 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/1842266.shtml)
-- 2026-06-30 06:25 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/52246770931.shtml)
-- 2026-06-30 06:24 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/062125.shtml)
-- 2026-06-30 06:31 - [小娘惹](https://www.share.minike.top/Article/details/64715.shtml)
-- 2026-06-30 06:07 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/98684287477.shtml)
-- 2026-06-30 06:35 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/3262698.shtml)
-- 2026-06-30 06:16 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.minike.top/Article/details/7203992630.shtml)
+- 2026-06-30 06:33 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/1302539760.shtml)
+- 2026-06-30 06:29 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.kurohicncr.top/Article/details/00335822.shtml)
+- 2026-06-30 06:24 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/1621540.shtml)
+- 2026-06-30 06:18 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/47028.shtml)
+- 2026-06-30 06:39 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/3519069369.shtml)
+- 2026-06-30 06:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/08396560100.shtml)
+- 2026-06-30 06:20 - [85花告别古偶](https://www.blog.minike.top/Article/details/055095350957.shtml)
+- 2026-06-30 06:37 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/501862.shtml)
+- 2026-06-30 06:23 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/310682335.shtml)
+- 2026-06-30 06:25 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/727414245.shtml)
+- 2026-06-30 06:33 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/1268123549.shtml)
+- 2026-06-30 06:23 - [速度与激情9](http://www.blog.minike.top/Article/details/117890609.shtml)
+- 2026-06-30 06:25 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/098271938635.shtml)
+- 2026-06-30 06:27 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/04672243044.shtml)
+- 2026-06-30 06:41 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/1126271479.shtml)

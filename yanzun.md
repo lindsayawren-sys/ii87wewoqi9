@@ -1,59 +1,58 @@
-# 美国航空CEO称与美联航合并“对消费者不利”
+# 大湾区采购商赴广西百色考察 推动优质芒果产销对接
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-核心要点 美国航空首席执行官罗伯特・艾索姆表示，与竞争对手美联航的潜在合并将损害消费者利益，且违背市场竞争原则。 据知情人士透露，今年早些时候，美联航 CEO 斯科特・柯比曾向特朗普政府一名官员提议与美国航空合并，旨在打造全球扩张版图，以抗衡其他国际航空公司。 “将全球两家最大的航空公司合并，这从一开始就毫无可行性，” 艾索姆在公司公布一季度财报后，于周四接受 CNBC 记者菲
+中新网广州4月28日电 (记者 程景伟)据广东区域协作消费帮扶产品交易中心消息，多家粤港澳大湾区重点采购商代表近日深入广西百色革命老区腹地——田东县、田阳区，展开了“农副产品直采直供基地”专项调研考察，重点推动百色优质芒果销往大湾区。 此次调研考察活动由粤桂协作办公室、粤桂协作工作队组织，广东区域协作消费帮扶产品交易中心运营合作方牵头带队，是粤桂协作落实助农增收行动、深化消费帮
 
 ## 正文
 
-核心要点 美国航空首席执行官罗伯特・艾索姆表示，与竞争对手美联航的潜在合并将损害消费者利益，且违背市场竞争原则。
+中新网广州4月28日电 (记者 程景伟)据广东区域协作消费帮扶产品交易中心消息，多家粤港澳大湾区重点采购商代表近日深入广西百色革命老区腹地——田东县、田阳区，展开了“农副产品直采直供基地”专项调研考察，重点推动百色优质芒果销往大湾区。
 
-据知情人士透露，今年早些时候，美联航 CEO 斯科特・柯比曾向特朗普政府一名官员提议与美国航空合并，旨在打造全球扩张版图，以抗衡其他国际航空公司。
+此次调研考察活动由粤桂协作办公室、粤桂协作工作队组织，广东区域协作消费帮扶产品交易中心运营合作方牵头带队，是粤桂协作落实助农增收行动、深化消费帮扶的重要举措。
 
-“将全球两家最大的航空公司合并，这从一开始就毫无可行性，” 艾索姆在公司公布一季度财报后，于周四接受 CNBC 记者菲尔・勒博采访时表示，“归根结底，这桩合并只会被视为违背竞争原则、损害消费者利益，最终也对美国航空、对我们的团队不利。
+粤桂协作工作队以打造“订单农业+机械化生产+冷链加工+全渠道销售”高标准直采直供基地为抓手，把大湾区市场需求“送”到田间地头，推动生产端提质升级，降低中间流通成本，切实解决农产品“丰收滞销、淡季缺货”痛点。
 
-” 艾索姆拒绝透露美联航是否向美国航空正式提出过合并问询。
+在百色田东县，年产量40.42万吨的“田东香芒”不仅是中国-欧盟互认地理标志农产品，更是三十余万亩土地上农户们的“金饭碗”。
 
-“我不会谈论细节，” 他说。
+在田东县林逢镇福兰村，2万亩芒果林蔚为壮观。
 
-上周五，美国航空发表声明称，“公司未就与美联航合并事宜开展任何磋商，亦对此毫无兴趣。
+“这正是大湾区市场渴求的高品质产品源头。
 
-” 本周早些时候，唐纳德・特朗普总统表示反对该合并计划。
+”广东中荔农业集团代表称，将导入成熟的品牌运营与线上销售网络，让百色好芒果卖出应有的价格。
 
-“我不希望它们合并，” 他周二上午在 CNBC《 Squawk Box》节目中表示。
+在林锋镇公靖村的3665亩高标准香芒种植基地，水肥一体化灌溉、山顶产业路等配套设施齐全。
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 06:11 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 06:20 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 06:10 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 06:31 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 06:07 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 06:26 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 06:31 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 06:35 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 06:29 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 06:11 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 06:28 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 06:14 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 06:32 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 06:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 06:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 06:31 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 06:39 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 06:18 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 06:32 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 06:40 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 06:34 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 06:14 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 06:34 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 06:36 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:26 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/004554492000.shtml)
-- 2026-06-30 06:31 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/18366316489.shtml)
-- 2026-06-30 06:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/569265750588.shtml)
-- 2026-06-30 06:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/48609412.shtml)
-- 2026-06-30 06:13 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/633464183.shtml)
-- 2026-06-30 06:15 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/10573.shtml)
-- 2026-06-30 06:25 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/553529408202.shtml)
-- 2026-06-30 06:24 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/11358132693.shtml)
-- 2026-06-30 06:10 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/43549559.shtml)
-- 2026-06-30 06:24 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/6200156.shtml)
-- 2026-06-30 06:31 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/2812758.shtml)
-- 2026-06-30 06:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/601234.shtml)
-- 2026-06-30 06:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/688265.shtml)
-- 2026-06-30 06:21 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/990188.shtml)
-- 2026-06-30 06:25 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/762599049690.shtml)
+- 2026-06-30 06:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/189283535.shtml)
+- 2026-06-30 06:34 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/419171473668.shtml)
+- 2026-06-30 06:38 - [《共患难》](http://www.share.kurohicncr.top/Article/details/703398.shtml)
+- 2026-06-30 06:33 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/586532242.shtml)
+- 2026-06-30 06:27 - [蔚来车主罚站](http://www.share.minike.top/Article/details/12842666467.shtml)
+- 2026-06-30 06:25 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/02028.shtml)
+- 2026-06-30 06:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/89297.shtml)
+- 2026-06-30 06:37 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/5102011214.shtml)
+- 2026-06-30 06:40 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/9514508105.shtml)
+- 2026-06-30 06:26 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/096688436614.shtml)
+- 2026-06-30 06:26 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/6122224594.shtml)
+- 2026-06-30 06:12 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/07507.shtml)
+- 2026-06-30 06:21 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/272964821.shtml)
+- 2026-06-30 06:38 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/4744559.shtml)
+- 2026-06-30 06:38 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/99017.shtml)

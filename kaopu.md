@@ -1,57 +1,58 @@
-# 农业农村部：我国农用无人机保有量超过30万架 数量居全球首位
+# 西安通报5起违反中央八项规定精神问题
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网4月23日电 国务院新闻办公室23日上午举行新闻发布会，介绍2026年一季度农业农村经济运行情况，并答记者问。会上，农业农村部副部长麦尔丹·木盖提介绍，“十四五”时期，我国农业科技创新整体效能进一步提升，农业科技进步贡献率超过64%，农作物良种覆盖率超过96%，农作物耕种收综合机械化率达到76.7%，主要粮食作物基本实现全程机械化。同时，农业智能化、数字化转型加快推进，各
+中新网4月28日电 据中央纪委国家监委网站消息，“五一”将至，为进一步严明纪律规矩，强化警示教育，营造风清气正的节日氛围，西安市纪委监委公开通报5起违反中央八项规定精神问题。 1.未央区医疗保障局原一级调研员弓春梅违规收受礼品、礼金问题。2012年至2021年，弓春梅任未央区卫生局党委委员、局长，区卫生和计划生育局党委书记、局长以及区医疗保障局党组书记、局长期间，借春节、中秋等
 
 ## 正文
 
-中新网4月23日电 国务院新闻办公室23日上午举行新闻发布会，介绍2026年一季度农业农村经济运行情况，并答记者问。
+中新网4月28日电 据中央纪委国家监委网站消息，“五一”将至，为进一步严明纪律规矩，强化警示教育，营造风清气正的节日氛围，西安市纪委监委公开通报5起违反中央八项规定精神问题。
 
-会上，农业农村部副部长麦尔丹·木盖提介绍，“十四五”时期，我国农业科技创新整体效能进一步提升，农业科技进步贡献率超过64%，农作物良种覆盖率超过96%，农作物耕种收综合机械化率达到76.7%，主要粮食作物基本实现全程机械化。
+1.未央区医疗保障局原一级调研员弓春梅违规收受礼品、礼金问题。
 
-同时，农业智能化、数字化转型加快推进，各种智能装备在农业生产中大显身手。
+2012年至2021年，弓春梅任未央区卫生局党委委员、局长，区卫生和计划生育局党委书记、局长以及区医疗保障局党组书记、局长期间，借春节、中秋等节日之机，多次违规收受管理和服务对象所送的礼品、礼金。
 
-我国农用无人机保有量超过30万架，数量居全球首位。
+弓春梅还存在其他严重违纪违法问题，被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
 
-麦尔丹·木盖提表示，“十五五”时期，农业农村部将坚持“四个面向”，推动科技创新和产业创新深度融合，充分发挥新型举国体制优势，不断提升农业科技创新体系整体效能，加快实现高水平农业科技自立自强。
+2.西安市奉正塬殡仪馆党支部原书记、主任许增元违规设立并使用“小金库”问题。
 
-一是抓好关键核心技术攻关。
+2016年底至2019年1月，许增元在奉正塬殡仪馆任职期间，采取虚列公车维修费、劳务费的方式套取公款设立“小金库”，其中部分资金用于支付违规接待、个人宴请等费用。
 
-强化有组织、体系化科研，紧紧围绕粮食安全等国家战略需求，梳理重大科技任务清单，把高校、科研院所、企业等各方创新力量组织起来，全链条发力推动原始创新和关键核心技术攻关，锻长板、补短板，产出更多标志性重大成果。
+许增元还存在其他严重违纪违法问题，被开除党籍、调整退休待遇，涉嫌犯罪问题被移送检察机关依法审查起诉。
 
-二是统筹强化创新力量布局。
+3.蓝田县市场监管局汤峪市场监管所原所长刘军锋违规操办婚丧喜庆事宜并收受礼金问题。
 
 ## 相关推荐
 
-- 2026-06-30 06:14 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 06:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 06:36 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 06:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 06:30 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 06:08 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 06:29 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 06:06 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 06:19 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 06:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 06:09 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 06:23 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 06:41 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 06:16 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 06:34 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 06:18 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 06:35 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 06:31 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 06:21 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 06:26 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 06:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 06:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 06:14 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:12 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/9247980.shtml)
-- 2026-06-30 06:08 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/18194.shtml)
-- 2026-06-30 06:22 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/944241.shtml)
-- 2026-06-30 06:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/3273781585.shtml)
-- 2026-06-30 06:33 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/9094134.shtml)
-- 2026-06-30 06:17 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/393205.shtml)
-- 2026-06-30 06:30 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/217854568.shtml)
-- 2026-06-30 06:26 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/90993004.shtml)
-- 2026-06-30 06:14 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/7471391193.shtml)
-- 2026-06-30 06:10 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/652441637395.shtml)
-- 2026-06-30 06:13 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/4068643445.shtml)
-- 2026-06-30 06:21 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/29508749623.shtml)
-- 2026-06-30 06:21 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/223424.shtml)
-- 2026-06-30 06:25 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/908099387.shtml)
-- 2026-06-30 06:19 - [恋与深空 巧合](http://www.share.minike.top/Article/details/9900478236.shtml)
+- 2026-06-30 06:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/1645283607.shtml)
+- 2026-06-30 06:38 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/71320126338.shtml)
+- 2026-06-30 06:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/67037.shtml)
+- 2026-06-30 06:39 - [明星大侦探第四季](http://www.share.minike.top/Article/details/67614.shtml)
+- 2026-06-30 06:35 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/718771270.shtml)
+- 2026-06-30 06:17 - [斛珠夫人](http://www.blog.minike.top/Article/details/99830495.shtml)
+- 2026-06-30 06:29 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/7795818474.shtml)
+- 2026-06-30 06:12 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/395645.shtml)
+- 2026-06-30 06:37 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/33943831.shtml)
+- 2026-06-30 06:29 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/986997.shtml)
+- 2026-06-30 06:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/6560095336.shtml)
+- 2026-06-30 06:19 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/07367.shtml)
+- 2026-06-30 06:20 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/66280.shtml)
+- 2026-06-30 06:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/68739828666.shtml)
+- 2026-06-30 06:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/098929008.shtml)

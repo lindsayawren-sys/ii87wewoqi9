@@ -1,59 +1,52 @@
-# 法国雷恩艺术家在济南开展艺术交流活动
+# 中国人寿绩后涨超5% 第一季度新业务价值同比增长75.5%
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？太阳今日爆发X2.4级耀斑，有何影响？为何说中国全面推广普及国家通用语言文字和保护少
+中国人寿（02628）绩后涨超5%，截至发稿，股价上涨5.18%，现报28.82港元，成交额6.27亿港元。 中国人寿发布一季度业绩，营业收入为932.91亿元，同比减少15.3%；归属于母公司股东的净利润为195.05亿元，同比减少32.3%。 中金指出，公司一季度业绩好于预期，主要由于投资端表现好于预期；新业务价值（NBV）同比增长75.5%，大幅好于该行和市场预期；归母净
 
 ## 正文
 
-从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？
+中国人寿（02628）绩后涨超5%，截至发稿，股价上涨5.18%，现报28.82港元，成交额6.27亿港元。
 
-义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？
+中国人寿发布一季度业绩，营业收入为932.91亿元，同比减少15.3%；归属于母公司股东的净利润为195.05亿元，同比减少32.3%。
 
-太阳今日爆发X2.4级耀斑，有何影响？
+中金指出，公司一季度业绩好于预期，主要由于投资端表现好于预期；新业务价值（NBV）同比增长75.5%，大幅好于该行和市场预期；归母净资产较年初+0.5%。
 
-为何说中国全面推广普及国家通用语言文字和保护少数民族语言文化并行不悖？
+该行指出，投资端承压拖累净利润，实际表现好于预期。
 
-企业玩“心机商标”，但口碑不会陪你演作家蒋胜男：真正的“大女主”不是玛丽苏式“等人来救”孙悟空是“男主人设天花板”？
+受一季度资本市场波动及去年同期基数较高影响，第一季度国寿总投资收益率同比下降0.5ppt至2.21%，导致净利润同比承压，但公司实际投资表现好于我们和市场预期，支撑净利润水平好于预期。
 
-六小龄童回应台湾退役舰长“打卡”人民海军舰艇 挥笔留言“两岸一家亲”大熊猫“平平”和“福双”将赴美开启10年旅居生活华谊兄弟沉浮录：曾是“中国影视第一股”罪恶神社的“招魂”闹剧罪大恶极：日本又上演“招魂”闹剧今天，致敬中国航天！
-
-12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
-
-台胞小可的拜祖初体验沈阳塔台迎接志愿军忠烈回家西藏樟木口岸全面复通后出入境人员突破100万人次中国海军以最高礼仪迎接烈士遗骸回国深圳市非血缘造血干细胞捐献达1000例宿迁：在“项王故里”邂逅水韵柔情沈阳全城披红 迎第十三批志愿军烈士遗骸归国实拍西汉王后的“硬核”文具惊险！
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:28 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 06:12 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 06:21 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 06:22 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 06:20 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 06:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 06:30 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 06:06 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 06:21 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 06:16 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 06:21 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 06:31 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 06:29 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 06:23 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 06:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 06:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 06:19 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 06:26 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 06:34 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 06:28 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 06:15 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 06:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 06:23 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:10 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/4025789708.shtml)
-- 2026-06-30 06:25 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/191987545.shtml)
-- 2026-06-30 06:16 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/7037094709.shtml)
-- 2026-06-30 06:10 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/6907857835.shtml)
-- 2026-06-30 06:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/2845475903.shtml)
-- 2026-06-30 06:27 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/140054472840.shtml)
-- 2026-06-30 06:24 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/872279.shtml)
-- 2026-06-30 06:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/916793786.shtml)
-- 2026-06-30 06:23 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/202551671.shtml)
-- 2026-06-30 06:09 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/0774361.shtml)
-- 2026-06-30 06:09 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/2521996.shtml)
-- 2026-06-30 06:25 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/798710700232.shtml)
-- 2026-06-30 06:07 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/795172.shtml)
-- 2026-06-30 06:12 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/3706836.shtml)
-- 2026-06-30 06:33 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/12822871652.shtml)
+- 2026-06-30 06:19 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/885960463543.shtml)
+- 2026-06-30 06:32 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/4360281.shtml)
+- 2026-06-30 06:41 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/26835.shtml)
+- 2026-06-30 06:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/51074.shtml)
+- 2026-06-30 06:38 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/1247202174.shtml)
+- 2026-06-30 06:20 - [一生一世](http://www.blog.kurohicncr.top/Article/details/90808727.shtml)
+- 2026-06-30 06:20 - [张凌赫 客串](http://www.share.minike.top/Article/details/23599932898.shtml)
+- 2026-06-30 06:32 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/92943380012.shtml)
+- 2026-06-30 06:27 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/08516284974.shtml)
+- 2026-06-30 06:21 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/59360.shtml)
+- 2026-06-30 06:13 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/16765611020.shtml)
+- 2026-06-30 06:36 - [《贺子珍》](http://www.share.minike.top/Article/details/7181356.shtml)
+- 2026-06-30 06:25 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/8978346.shtml)
+- 2026-06-30 06:23 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/340846455937.shtml)
+- 2026-06-30 06:19 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/95322826228.shtml)

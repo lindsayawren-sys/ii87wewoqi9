@@ -1,57 +1,57 @@
-# 拍视频、做直播……探寻实体书店的社交媒体“破局”之路
+# 逐“智”而上破局生长 解码浙江制造“创新方程式”
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-拍视频、做直播、发书单……不少实体书店选择从社交媒体“破局” 【全民阅读新图景③】线上引流，寻找属于这个时代的表达方式 阅读提示 当线上购书冲击实体零售，不少实体书店主理人选择“转战”社交媒体，拍视频、做直播、发书单、卖盲盒……社交媒体账号正成为实体书店的线上“门面”。流量能否转化为真实客流？屏幕那头热闹，屏幕这头还能否守住书页间的温度？记者走访多家书店，探寻实体书店的社交媒体
+中新网嘉兴4月29日电(黄彦君)AGV小车穿梭自如，AI质检员“眼光如炬”，“工业大脑”在云端实时调度……走进浙江的一处处现代化工厂车间，机器轰鸣、人声鼎沸的传统场景正悄然退场。 依托数字经济先发优势与雄厚制造业基础，浙江先行布局智能制造，推动各地产业链“错位发展”、协同共进。 一场以革新为驱动、以人工智能为引擎的深刻变革，正在重塑该省制造业底层逻辑与未来面貌。 攻坚突围 培育
 
 ## 正文
 
-拍视频、做直播、发书单……不少实体书店选择从社交媒体“破局” 【全民阅读新图景③】线上引流，寻找属于这个时代的表达方式 阅读提示 当线上购书冲击实体零售，不少实体书店主理人选择“转战”社交媒体，拍视频、做直播、发书单、卖盲盒……社交媒体账号正成为实体书店的线上“门面”。
+中新网嘉兴4月29日电(黄彦君)AGV小车穿梭自如，AI质检员“眼光如炬”，“工业大脑”在云端实时调度……走进浙江的一处处现代化工厂车间，机器轰鸣、人声鼎沸的传统场景正悄然退场。
 
-流量能否转化为真实客流？
+依托数字经济先发优势与雄厚制造业基础，浙江先行布局智能制造，推动各地产业链“错位发展”、协同共进。
 
-屏幕那头热闹，屏幕这头还能否守住书页间的温度？
+一场以革新为驱动、以人工智能为引擎的深刻变革，正在重塑该省制造业底层逻辑与未来面貌。
 
-记者走访多家书店，探寻实体书店的社交媒体“破局”之路。
+攻坚突围 培育“破壁者” 在华芯(嘉兴)智能装备有限公司研发测试实验室，抬头望去，天花板上的轨道纵横交错，一辆辆银白色的“天车”穿梭其间，精准地将晶圆盒送达各个工艺设备。
 
-晚上8点，北京亦庄的爱尚有间书店，店门已经关上。
+“在这个领域深耕近十年，经历了一次次失败，坚持从底层架构开始搭建，一步步攻克技术壁垒，才让这样的场景变为现实。
 
-书店主理人贺霞却还在对着电脑，剪辑白天店里举办的“亦庄雅集”活动视频。
+”该公司负责人感慨道。
 
-这是包括贺霞在内的不少实体书店主理人的日常。
+据介绍，该公司是专注于集成电路AMHS(自动化物料传送系统)国产替代的智能制造解决方案服务商。
 
-当线上购书的价格优势持续冲击线下零售，数字阅读逐渐成为大众日常，实体书店一度被贴上“夕阳产业”的标签，客流稀少、盈利艰难成为行业常态。
+AMHS是半导体生产制造领域最为关键的厂务设施，眼前“天车”实际上是一款高精密工业机器人。
 
 ## 相关推荐
 
-- 2026-06-30 06:31 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 06:26 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 06:24 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 06:22 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 06:34 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 06:30 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 06:11 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 06:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 06:09 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 06:16 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 06:14 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 06:30 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 06:33 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 06:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 06:31 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 06:30 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 06:32 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 06:35 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 06:18 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 06:26 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 06:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 06:40 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:20 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/76381478.shtml)
-- 2026-06-30 06:29 - [日本淘汰](https://www.blog.minike.top/Article/details/75167842572.shtml)
-- 2026-06-30 06:17 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/3230666.shtml)
-- 2026-06-30 06:31 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/38135.shtml)
-- 2026-06-30 06:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/649469928210.shtml)
-- 2026-06-30 06:10 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/329623671.shtml)
-- 2026-06-30 06:20 - [青春环游记第三季](https://www.share.minike.top/Article/details/71080868364.shtml)
-- 2026-06-30 06:26 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/9624943272.shtml)
-- 2026-06-30 06:33 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/1706010520.shtml)
-- 2026-06-30 06:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/5035361931.shtml)
-- 2026-06-30 06:19 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/68753031754.shtml)
-- 2026-06-30 06:19 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/584421736.shtml)
-- 2026-06-30 06:14 - [金牌调解](http://www.share.kurohicncr.top/Article/details/3833561.shtml)
-- 2026-06-30 06:28 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/76957553.shtml)
-- 2026-06-30 06:27 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/22552.shtml)
+- 2026-06-30 06:16 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/312610221901.shtml)
+- 2026-06-30 06:21 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/23695791453.shtml)
+- 2026-06-30 06:41 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/06585869.shtml)
+- 2026-06-30 06:19 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/848840669724.shtml)
+- 2026-06-30 06:37 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/0046674857.shtml)
+- 2026-06-30 06:18 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/030052125.shtml)
+- 2026-06-30 06:13 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/6821034.shtml)
+- 2026-06-30 06:41 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/27431995119.shtml)
+- 2026-06-30 06:18 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/656489776193.shtml)
+- 2026-06-30 06:28 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/2072338.shtml)
+- 2026-06-30 06:13 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/63400924.shtml)
+- 2026-06-30 06:24 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/013535.shtml)
+- 2026-06-30 06:14 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/182112.shtml)
+- 2026-06-30 06:37 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/010655519518.shtml)
+- 2026-06-30 06:38 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/945882.shtml)

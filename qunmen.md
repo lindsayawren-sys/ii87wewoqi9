@@ -1,54 +1,61 @@
-# 刚果(布)公布新政府成员名单
+# 南方航空联手厦门航空斥资214亿美元订购137架空客A320neo
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-新华社布拉柴维尔4月25日电(记者郑扬子)刚果(布)总统府24日晚在国家电视台发布公告，宣布新一届政府成员名单。 根据公告，除此前再次获得总统萨苏任命的总理马科索外，新政府还包括1名副总理、3名国务部长和37名部长。其中，前领土整治和大型工程国务部长让-雅克·布亚被任命为副总理，负责协调、发展基础设施和领土整治事务；前矿业和地质国务部长皮埃尔·奥巴被任命为总统府国务部长，负责政
+南方航空及其控股子公司厦门航空与空客公司签订协议，共购买137架A320neo系列飞机，目录价约213.78亿美元，以加速机队更新换代。 百亿级大单详情，交付期排至2032年 根据南方航空4月29日晚间发布的公告，南方航空将购买102架A320neo系列飞机，厦门航空将购买35架，合计目录价格约213.78亿美元。该金额为含机身和发动机的目录价格，实际交易中空客公司给予较大优惠
 
 ## 正文
 
-新华社布拉柴维尔4月25日电(记者郑扬子)刚果(布)总统府24日晚在国家电视台发布公告，宣布新一届政府成员名单。
+南方航空及其控股子公司厦门航空与空客公司签订协议，共购买137架A320neo系列飞机，目录价约213.78亿美元，以加速机队更新换代。
 
-根据公告，除此前再次获得总统萨苏任命的总理马科索外，新政府还包括1名副总理、3名国务部长和37名部长。
+百亿级大单详情，交付期排至2032年 根据南方航空4月29日晚间发布的公告，南方航空将购买102架A320neo系列飞机，厦门航空将购买35架，合计目录价格约213.78亿美元。
 
-其中，前领土整治和大型工程国务部长让-雅克·布亚被任命为副总理，负责协调、发展基础设施和领土整治事务；前矿业和地质国务部长皮埃尔·奥巴被任命为总统府国务部长，负责政务；前贸易、供应和消费国务部长克洛德·阿方斯·恩西卢被任命为建设、城市规划和住房国务部长；前土地事务和公产管理国务部长皮埃尔·马比亚拉为公职、劳动和社会对话国务部长。
+该金额为含机身和发动机的目录价格，实际交易中空客公司给予较大优惠，最终成交价将更低。
 
-在3月15日举行的总统选举中，萨苏以94.9%的得票率获胜，再次当选刚果(布)总统。
+这批飞机的交付时间跨度较长：南方航空的102架计划于2028年至2032年分批交付，厦门航空的35架则安排在2029年至2032年之间，这将为公司未来数年的运力增长提供明确规划。
 
-根据宪法，萨苏应任命新总理进行组阁，前总理马科索及其政府17日递交辞呈并获总统批准。
+疫情后需求复苏，一季度业绩强劲反弹 受疫情影响，中国航司一度放缓了扩张步伐，但近期开始密集补充运力。
 
-刚果(布)总统府23日宣布马科索被再度任命为总理，负责组建新政府。
+值得注意的是，南方航空同日还披露了定增预案，拟向包括控股股东南航集团在内的特定投资者募集不超过150亿元资金，用于购买46架飞机及补充流动资金。
+
+在民航市场快速回暖的背景下，南航财务表现已大幅改善。
+
+南航发布的业绩报告显示，2026年第一季度净利润达14.81亿元，较去年同期7.47亿元的亏损实现强势扭亏，为此次大规模采购提供了坚实的资金保障。
 
 ## 相关推荐
 
-- 2026-06-30 06:22 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 06:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 06:33 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 06:18 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 06:33 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 06:25 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 06:06 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 06:13 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 06:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 06:09 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 06:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 06:11 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 06:23 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 06:15 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 06:16 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 06:17 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 06:41 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 06:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 06:29 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 06:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 06:35 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 06:37 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 06:20 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 06:23 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 06:35 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 06:26 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 06:18 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:12 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/9773996.shtml)
-- 2026-06-30 06:22 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/13728.shtml)
-- 2026-06-30 06:15 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/0990022676.shtml)
-- 2026-06-30 06:25 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/87954396.shtml)
-- 2026-06-30 06:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/64885.shtml)
-- 2026-06-30 06:35 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/08636.shtml)
-- 2026-06-30 06:10 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/16568685899.shtml)
-- 2026-06-30 06:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/9102718296.shtml)
-- 2026-06-30 06:31 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/977561.shtml)
-- 2026-06-30 06:26 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/737079.shtml)
-- 2026-06-30 06:23 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/496249444.shtml)
-- 2026-06-30 06:29 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/446650788688.shtml)
-- 2026-06-30 06:10 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/321266.shtml)
-- 2026-06-30 06:21 - [明星大侦探第一季](https://www.share.minike.top/Article/details/266598830.shtml)
-- 2026-06-30 06:10 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/48667.shtml)
+- 2026-06-30 06:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/133295.shtml)
+- 2026-06-30 06:29 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/1106835333.shtml)
+- 2026-06-30 06:29 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/277935890.shtml)
+- 2026-06-30 06:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/49920.shtml)
+- 2026-06-30 06:15 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/918885916118.shtml)
+- 2026-06-30 06:35 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/0416390510.shtml)
+- 2026-06-30 06:21 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/1614918.shtml)
+- 2026-06-30 06:20 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/7762983.shtml)
+- 2026-06-30 06:27 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/38637.shtml)
+- 2026-06-30 06:12 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/28541202804.shtml)
+- 2026-06-30 06:36 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/759723336.shtml)
+- 2026-06-30 06:19 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/289681.shtml)
+- 2026-06-30 06:17 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/67753659774.shtml)
+- 2026-06-30 06:34 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/614505172.shtml)
+- 2026-06-30 06:16 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/94543529.shtml)

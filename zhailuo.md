@@ -1,49 +1,59 @@
-# 何立峰会见美国黑石集团董事长兼首席执行官苏世民
+# 【理响中国】思想如春，润物有声
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-新华社北京4月23日电(记者冯歆然)中共中央政治局委员、国务院副总理何立峰23日在人民大会堂会见美国黑石集团董事长兼首席执行官苏世民时表示，今年一季度中国经济实现良好开局，发展韧性和活力进一步彰显。中国将坚定不移扩大高水平对外开放，推动高质量发展，中国超大规模市场将为世界提供更大机遇和更多选择。欢迎包括黑石集团在内的更多外资企业继续深化对华合作，实现互利共赢。 苏世民表示，黑石
+思想的光芒该如何穿越信息的雾霭，如何浸润渴望甘霖的心灵，又如何化作照亮前行道路的温暖炬火？这已成为时代赋予理论传播的全新课题。4月27日上午，2026“理响中国”党的创新理论网络传播精品分享会在江苏南京举行，该品牌多年来的持续深耕，正是对这一课题的创造性探索。把“国家大事”翻译成“自家日子”，让党的创新理论与民心同频共振——本次分享会发布的八项“理响中国”系列重点品牌项目与六项
 
 ## 正文
 
-新华社北京4月23日电(记者冯歆然)中共中央政治局委员、国务院副总理何立峰23日在人民大会堂会见美国黑石集团董事长兼首席执行官苏世民时表示，今年一季度中国经济实现良好开局，发展韧性和活力进一步彰显。
+思想的光芒该如何穿越信息的雾霭，如何浸润渴望甘霖的心灵，又如何化作照亮前行道路的温暖炬火？
 
-中国将坚定不移扩大高水平对外开放，推动高质量发展，中国超大规模市场将为世界提供更大机遇和更多选择。
+这已成为时代赋予理论传播的全新课题。
 
-欢迎包括黑石集团在内的更多外资企业继续深化对华合作，实现互利共赢。
+4月27日上午，2026“理响中国”党的创新理论网络传播精品分享会在江苏南京举行，该品牌多年来的持续深耕，正是对这一课题的创造性探索。
 
-苏世民表示，黑石集团珍视与中国的合作关系，愿继续拓展在华业务，为推动美中经贸合作贡献力量。
+把“国家大事”翻译成“自家日子”，让党的创新理论与民心同频共振——本次分享会发布的八项“理响中国”系列重点品牌项目与六项江苏重点理论网宣项目，共同绘制了新一年网上理论传播的“活力地图”。
+
+“党校微讲堂”是清澈的泉眼，将理论的江河化作可掬饮的清冽；“文献中的党史密码”是时光的钥匙，开启尘封岁月里依然跳动的脉搏；“梧桐论语”自江南的烟雨中走来，带着泥土的芬芳与文脉的温润；“大道之行”则如远行的航船，驶向民族复兴的广阔蓝海……它们共同宣告，理论传播正在告别刻板的说教，拥抱一个更轻盈、更灵动、更具交互感的“悦读”时代。
+
+让理论“活”起来的，还有那些有血有肉的传播者。
+
+分享会的现场，便是一个多元声音和谐共鸣的场域。
+
+光明网联合社科院学者，与奔忙的快递员展开对话，共同诠释“脚下有泥土，理论才有温度”的朴素真理；中央广播电视总台的创作者分享如何用镜头语言雕刻时代精神；新华网的探索聚焦如何让理论报道浸润人性的温度；中国日报社的外籍记者与浙江安吉的村支书并肩而坐，探讨如何让“中国方案”跨越文化的藩篱……这些鲜活的场景本身，就是最有力的理论实践，它证明有效的传播绝非居高临下的灌输，而是平等真诚的交流与共情。
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 06:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 06:12 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 06:32 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 06:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 06:30 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 06:19 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 06:34 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 06:31 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 06:28 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 06:19 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 06:12 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 06:32 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 06:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 06:13 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 06:22 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 06:33 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 06:38 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 06:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 06:13 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 06:32 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 06:41 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 06:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 06:31 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/4602569111.shtml)
-- 2026-06-30 06:12 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/69932112873.shtml)
-- 2026-06-30 06:28 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/0395945880.shtml)
-- 2026-06-30 06:16 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/856437.shtml)
-- 2026-06-30 06:22 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/1545177.shtml)
-- 2026-06-30 06:13 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/0434596.shtml)
-- 2026-06-30 06:26 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/0974230.shtml)
-- 2026-06-30 06:20 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/003095870.shtml)
-- 2026-06-30 06:30 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/29250204.shtml)
-- 2026-06-30 06:16 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/5473281.shtml)
-- 2026-06-30 06:17 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/6905819.shtml)
-- 2026-06-30 06:34 - [天道](https://www.share.minike.top/Article/details/94709637486.shtml)
-- 2026-06-30 06:32 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/56971297.shtml)
-- 2026-06-30 06:27 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/9929220323.shtml)
-- 2026-06-30 06:21 - [金牌调解](http://www.blog.minike.top/Article/details/92087948211.shtml)
+- 2026-06-30 06:41 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/55180760.shtml)
+- 2026-06-30 06:23 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/58600569.shtml)
+- 2026-06-30 06:23 - [沉睡花园](http://www.blog.minike.top/Article/details/49658579.shtml)
+- 2026-06-30 06:41 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/595433675583.shtml)
+- 2026-06-30 06:32 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/323098.shtml)
+- 2026-06-30 06:22 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/801831595.shtml)
+- 2026-06-30 06:38 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/3033633057.shtml)
+- 2026-06-30 06:15 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/523063949579.shtml)
+- 2026-06-30 06:12 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/5623854798.shtml)
+- 2026-06-30 06:28 - [TOP Prada](https://www.share.minike.top/Article/details/75715375.shtml)
+- 2026-06-30 06:37 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/555494381.shtml)
+- 2026-06-30 06:29 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/39312342402.shtml)
+- 2026-06-30 06:17 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/0654513.shtml)
+- 2026-06-30 06:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/00381068709.shtml)
+- 2026-06-30 06:21 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/329622549660.shtml)

@@ -1,61 +1,50 @@
-# 联播+｜“鸡毛飞上天”的时代启示
+# 预计伊朗很快将提交修订后的和平提议
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-|联播+|义乌被誉为“世界超市”，在全球贸易版图上有着举足轻重的地位。 近日，习近平总书记作出重要指示强调，要把“义乌发展经验”进一步总结好、运用好，探索走出符合各自实际的高质量发展之路。 早在20多年前，时任浙江省委书记的习近平就曾作出批示，要求省委办公厅会同有关部门成立调研组，好好总结推广“义乌发展经验”。在一次接受采访中，他这样阐释为什么要学习推广义乌发展经验——“既有独
+CNN援引接近调解进程的消息人士报道称，巴基斯坦的调解方预计将在未来几天收到伊朗为结束战争而提出的修订版方案。 伊朗外长阿巴斯·阿拉格齐在访问俄罗斯后定于今日返回德黑兰，预计将与政权高层进行磋商。 由于与行踪保密的最高领袖穆杰塔巴·哈梅内伊沟通存在困难，磋商进展缓慢。责任编辑：李桐
 
 ## 正文
 
-|联播+|义乌被誉为“世界超市”，在全球贸易版图上有着举足轻重的地位。
+CNN援引接近调解进程的消息人士报道称，巴基斯坦的调解方预计将在未来几天收到伊朗为结束战争而提出的修订版方案。
 
-近日，习近平总书记作出重要指示强调，要把“义乌发展经验”进一步总结好、运用好，探索走出符合各自实际的高质量发展之路。
+伊朗外长阿巴斯·阿拉格齐在访问俄罗斯后定于今日返回德黑兰，预计将与政权高层进行磋商。
 
-早在20多年前，时任浙江省委书记的习近平就曾作出批示，要求省委办公厅会同有关部门成立调研组，好好总结推广“义乌发展经验”。
+由于与行踪保密的最高领袖穆杰塔巴·哈梅内伊沟通存在困难，磋商进展缓慢。
 
-在一次接受采访中，他这样阐释为什么要学习推广义乌发展经验——“既有独特之处，也具普遍意义”。
-
-独特是立足资源禀赋的实践根基，普遍是升华发展规律的价值内核，二者相辅相成。
-
-独特与普遍，既成就了义乌“小商品闯出大市场”的传奇，也为全国县域高质量发展提供了深刻启示。
-
-首先，义乌的独特性，体现在其不可复制的发展历程，以及因地制宜的实践探索。
-
-1982年春，一位农村妇女因摆摊被查处。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 06:19 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 06:34 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 06:23 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 06:29 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 06:25 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 06:34 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 06:23 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 06:09 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 06:22 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 06:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 06:17 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 06:32 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 06:16 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 06:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 06:34 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 06:22 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 06:12 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 06:14 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 06:37 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 06:24 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 06:39 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 06:19 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 06:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 06:41 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 06:22 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 06:13 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/8871474.shtml)
-- 2026-06-30 06:34 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/326396.shtml)
-- 2026-06-30 06:06 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/69818.shtml)
-- 2026-06-30 06:28 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/47313448327.shtml)
-- 2026-06-30 06:18 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/917106332647.shtml)
-- 2026-06-30 06:34 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/55995.shtml)
-- 2026-06-30 06:06 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/808594.shtml)
-- 2026-06-30 06:19 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/0253449791.shtml)
-- 2026-06-30 06:24 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/50749526.shtml)
-- 2026-06-30 06:31 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/24172070.shtml)
-- 2026-06-30 06:34 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/18156748435.shtml)
-- 2026-06-30 06:34 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/033463609.shtml)
-- 2026-06-30 06:25 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/298662635.shtml)
-- 2026-06-30 06:30 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.kurohicncr.top/Article/details/3070192.shtml)
-- 2026-06-30 06:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/141286.shtml)
+- 2026-06-30 06:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/6787462123.shtml)
+- 2026-06-30 06:41 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/91910.shtml)
+- 2026-06-30 06:12 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/5988556530.shtml)
+- 2026-06-30 06:40 - [沉睡花园](https://www.share.minike.top/Article/details/822521408.shtml)
+- 2026-06-30 06:22 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/21746468.shtml)
+- 2026-06-30 06:25 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/0639485622.shtml)
+- 2026-06-30 06:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/966726.shtml)
+- 2026-06-30 06:39 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/872854669.shtml)
+- 2026-06-30 06:18 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/3896403617.shtml)
+- 2026-06-30 06:27 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/59655.shtml)
+- 2026-06-30 06:38 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/097825050982.shtml)
+- 2026-06-30 06:20 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/351503679482.shtml)
+- 2026-06-30 06:38 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/793222163118.shtml)
+- 2026-06-30 06:31 - [我们的少年时代2](https://www.blog.minike.top/Article/details/112427.shtml)
+- 2026-06-30 06:17 - [沙丘](http://www.blog.kurohicncr.top/Article/details/979631854260.shtml)

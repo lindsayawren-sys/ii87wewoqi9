@@ -1,43 +1,56 @@
-# 中国科学院科技创新发展中心党委副书记、主任伍浩被查
+# 百傲化学2024年报虚增4093万营收被立案！ 4月28日前买入的投资者或可索赔
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网4月25日电 据中央纪委国家监委网站消息，中国科学院科技创新发展中心党委副书记、主任伍浩涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
+登录新浪财经APP 搜索【信披】查看更多考评等级 公司二十年来公司专注于工业杀菌剂的生产、研发和销售，产品系列覆盖了异噻唑啉酮杀菌剂的所有品种，包括CMIT/MIT、MIT、OIT、DCOIT、BIT等几大系列产品，是世界唯一异噻唑啉酮类产品生产全覆盖的生产型企业。 按照申万行业分类（2021），百傲化学（维权）属于基础化工-农化制品-农药。 2026 年 4 月 27 日，公
 
 ## 正文
 
-中新网4月25日电 据中央纪委国家监委网站消息，中国科学院科技创新发展中心党委副书记、主任伍浩涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
+登录新浪财经APP 搜索【信披】查看更多考评等级 公司二十年来公司专注于工业杀菌剂的生产、研发和销售，产品系列覆盖了异噻唑啉酮杀菌剂的所有品种，包括CMIT/MIT、MIT、OIT、DCOIT、BIT等几大系列产品，是世界唯一异噻唑啉酮类产品生产全覆盖的生产型企业。
+
+按照申万行业分类（2021），百傲化学（维权）属于基础化工-农化制品-农药。
+
+2026 年 4 月 27 日，公司披露了《关于前期会计差错更正及追溯调整的公告》，公司对 2024 年度涉及 4，093.60 万元营业收入会计差 错事项进行更正。
+
+对2024 年年度报告、2025 年第一季度报告、2025 年半年度报告及 2025 年第三季度报告相关财务数据及披露信息进行追溯调整。
+
+同日，公司披露了中国证券监督管理委员会出具的《立案告知书》（编 号：证监立案字 0212026001 号）。
+
+因公司涉嫌信息披露违法违规被立案调查。
+
+自2025年4月25日截止今日，股票的表现如下： 初步判断索赔条件为：2025年4月25日至2026年4月27日之间买入，且2026年4月28日及以后卖出或继续持有的投资者，包括个人投资者和机构投资者。
+
+（百傲化学维权入口） （本文由万商天勤（上海）律师事务所刘彦梅律师供稿，不代表新浪财经的观点。
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 06:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 06:30 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 06:08 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 06:06 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 06:28 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 06:31 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 06:15 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 06:08 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 06:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 06:16 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 06:14 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 06:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 06:20 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 06:32 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 06:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 06:29 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 06:22 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 06:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 06:22 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 06:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:19 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/739054242998.shtml)
-- 2026-06-30 06:19 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/499457811600.shtml)
-- 2026-06-30 06:16 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/7662828.shtml)
-- 2026-06-30 06:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/918766525359.shtml)
-- 2026-06-30 06:08 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/1217043.shtml)
-- 2026-06-30 06:25 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/19295.shtml)
-- 2026-06-30 06:24 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/85679184.shtml)
-- 2026-06-30 06:33 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/446004521465.shtml)
-- 2026-06-30 06:18 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/30444011.shtml)
-- 2026-06-30 06:19 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/03345.shtml)
-- 2026-06-30 06:06 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/9579559.shtml)
-- 2026-06-30 06:33 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/215088227629.shtml)
-- 2026-06-30 06:11 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/93567163.shtml)
-- 2026-06-30 06:20 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/33273.shtml)
-- 2026-06-30 06:09 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/333609.shtml)
+- 2026-06-30 06:33 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/293521359.shtml)
+- 2026-06-30 06:24 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/251344015061.shtml)
+- 2026-06-30 06:34 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/734183.shtml)
+- 2026-06-30 06:33 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/445818538449.shtml)
+- 2026-06-30 06:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/248919.shtml)
+- 2026-06-30 06:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/4875010272.shtml)
+- 2026-06-30 06:31 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/699075.shtml)
+- 2026-06-30 06:39 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/8787940544.shtml)
+- 2026-06-30 06:12 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/661153.shtml)
+- 2026-06-30 06:14 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/71138.shtml)
+- 2026-06-30 06:41 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/33708007831.shtml)
+- 2026-06-30 06:31 - [扫黑风暴](http://www.blog.minike.top/Article/details/869652166.shtml)
+- 2026-06-30 06:28 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/08811834174.shtml)
+- 2026-06-30 06:38 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/639545.shtml)
+- 2026-06-30 06:21 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/204353.shtml)

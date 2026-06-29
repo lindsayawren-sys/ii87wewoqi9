@@ -1,60 +1,57 @@
-# 解锁AI、收纳新技能 多地上线夜间“能量充电站”
+# 康宁一季度利润与核心营收双双增长
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-当夜幕降临，结束了一天忙碌的工作，下班后的夜晚时光，你会如何度过？在宁夏中卫市海原县，越来越多的年轻人给出了一个新的选择——上夜校。吉他、电子琴、瑜伽、摄影剪辑等课程的开办，正成为当地青年“8小时之外”的“能量充电站”。 青年夜校：8小时之外的“能量充电站” 晚上8时，海原县文化馆的电子琴教室里，学员们从零起步，老师手把手教大家认识琴键。几节课下来，大家已经能够弹出一些简单的旋
+专题：聚焦美股2026年第一季度财报 这家特种材料企业表示，AI 数据中心所用光纤产品需求激增，拉动业绩上行 受人工智能数据中心光纤需求暴涨、太阳能新业务持续增长提振，康宁（GLW）一季度利润及核心经营业绩大幅提升。 这家特种材料与玻璃技术企业一季度净利润达3.71 亿美元，折合每股收益 0.43 美元；去年同期净利润 1.57 亿美元、每股 0.18 美元，净利润同比翻倍以上
 
 ## 正文
 
-当夜幕降临，结束了一天忙碌的工作，下班后的夜晚时光，你会如何度过？
+专题：聚焦美股2026年第一季度财报 这家特种材料企业表示，AI 数据中心所用光纤产品需求激增，拉动业绩上行 受人工智能数据中心光纤需求暴涨、太阳能新业务持续增长提振，康宁（GLW）一季度利润及核心经营业绩大幅提升。
 
-在宁夏中卫市海原县，越来越多的年轻人给出了一个新的选择——上夜校。
+这家特种材料与玻璃技术企业一季度净利润达3.71 亿美元，折合每股收益 0.43 美元；去年同期净利润 1.57 亿美元、每股 0.18 美元，净利润同比翻倍以上。
 
-吉他、电子琴、瑜伽、摄影剪辑等课程的开办，正成为当地青年“8小时之外”的“能量充电站”。
+剔除一次性项目后，公司调整后核心每股收益为0.70 美元，触及此前 66–70 美元指引上限，亦高于 FactSet 统计的分析师预期 0.69 美元。
 
-青年夜校：8小时之外的“能量充电站” 晚上8时，海原县文化馆的电子琴教室里，学员们从零起步，老师手把手教大家认识琴键。
+一季度净销售额大涨 20%，至 41.4 亿美元；核心销售额从上年同期 36.8 亿美元增至43.4 亿美元，市场预期核心销售额为 43 亿美元。
 
-几节课下来，大家已经能够弹出一些简单的旋律。
+业绩增长主要由光通信业务及全新太阳能板块驱动，其中太阳能业务单季营收大涨 80%；玻璃创新业务营收微增 1%，达 14.2 亿美元。
 
-隔壁的吉他班同样热闹，弹奏的和弦虽略显生涩，但每个人都弹得很认真。
+全球大型科技企业加速扩建数据中心，AI 基础设施建设热潮持续，康宁成为核心受益厂商之一，光纤业务也跻身公司增速最快的板块。
 
-这些学员来自各行各业，正用这样的方式充实业余生活。
+近期，康宁与 Meta 签订多年长期协议，将为其美国数据中心扩建项目供应最高60 亿美元的高端光纤及布线产品。
 
-共青团海原县委员会副书记 穆晓蝶： 海原青年8小时之外的生活有一定空白，也没有很好的平台可以提升技能，然后我们就在2025年成功开办了第一期青年夜校。
+双方还将在北卡罗来纳州扩大产能，Meta 将作为该生产基地的核心大客户。
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 06:08 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 06:19 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 06:06 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 06:12 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 06:22 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 06:28 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 06:29 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 06:25 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 06:07 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 06:12 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 06:33 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 06:06 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 06:17 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 06:23 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 06:30 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 06:17 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 06:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 06:30 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 06:39 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 06:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 06:29 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 06:23 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 06:19 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 06:13 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:07 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/526851705.shtml)
-- 2026-06-30 06:22 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/7469966.shtml)
-- 2026-06-30 06:33 - [青春环游记第三季](http://www.share.minike.top/Article/details/69007.shtml)
-- 2026-06-30 06:30 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/08934990.shtml)
-- 2026-06-30 06:31 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/577735719.shtml)
-- 2026-06-30 06:34 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/532171.shtml)
-- 2026-06-30 06:19 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/208806475871.shtml)
-- 2026-06-30 06:28 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/615142754277.shtml)
-- 2026-06-30 06:22 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/024395119.shtml)
-- 2026-06-30 06:32 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/724425.shtml)
-- 2026-06-30 06:28 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/301037121.shtml)
-- 2026-06-30 06:29 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/20519.shtml)
-- 2026-06-30 06:10 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/70515150.shtml)
-- 2026-06-30 06:19 - [月亮](https://www.share.minike.top/Article/details/967998725.shtml)
-- 2026-06-30 06:29 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/3410764850.shtml)
+- 2026-06-30 06:38 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/714135342945.shtml)
+- 2026-06-30 06:17 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/0531066.shtml)
+- 2026-06-30 06:12 - [刘宇宁高情商化解谁站C位](https://www.share.minike.top/Article/details/39953.shtml)
+- 2026-06-30 06:24 - [巴西2比1日本](http://www.share.minike.top/Article/details/267617535227.shtml)
+- 2026-06-30 06:35 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/0755482.shtml)
+- 2026-06-30 06:18 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/476984128.shtml)
+- 2026-06-30 06:25 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/63771.shtml)
+- 2026-06-30 06:41 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/39800633.shtml)
+- 2026-06-30 06:38 - [刘宇宁高情商化解谁站C位](https://www.share.minike.top/Article/details/771767540591.shtml)
+- 2026-06-30 06:21 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/64768373.shtml)
+- 2026-06-30 06:28 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/94648313.shtml)
+- 2026-06-30 06:28 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/5351964357.shtml)
+- 2026-06-30 06:25 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/75848275.shtml)
+- 2026-06-30 06:29 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/417728010463.shtml)
+- 2026-06-30 06:35 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/352544669.shtml)

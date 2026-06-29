@@ -1,60 +1,58 @@
-# 首个“全民阅读活动周”遇上世界读书日 上海多所高校书香满校园
+# 广东多地遇强降雨 珠江流域部分河流或有超警洪水
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网上海4月23日电(记者 许婧)4月23日是第31个世界读书日，全国首个“全民阅读活动周”也正火热进行。在生成式人工智能快速迭代的当下，阅读的价值被重新定义与审视。上海多所高校同步开启系列读书活动，以多样形式搭建阅读平台，推动师生爱读书、读好书、善读书，让书香浸润校园，让阅读赋能成长。 当日，上海财经大学以“阅读不止于答案”(Read Beyond Answers)为主题，
+中新社广州4月28日电 (记者 王坚)受强对流云团影响，广东28日开启“倒水模式”，广州、深圳、佛山等地遭遇强降雨。当日下午仅三小时，全省已有27个镇街录得降雨量超50毫米的暴雨、大暴雨。 28日中午，广州乌云压城，暴雨倾盆。由于雨势太大，广州市中心珠江新城相隔仅数百米的高楼大厦都被雨幕遮挡起来，部分街道出现水浸。“这个雨太大了，行车视线很受影响。”网约车司机曹庆仁告诉记者，暴
 
 ## 正文
 
-中新网上海4月23日电(记者 许婧)4月23日是第31个世界读书日，全国首个“全民阅读活动周”也正火热进行。
+中新社广州4月28日电 (记者 王坚)受强对流云团影响，广东28日开启“倒水模式”，广州、深圳、佛山等地遭遇强降雨。
 
-在生成式人工智能快速迭代的当下，阅读的价值被重新定义与审视。
+当日下午仅三小时，全省已有27个镇街录得降雨量超50毫米的暴雨、大暴雨。
 
-上海多所高校同步开启系列读书活动，以多样形式搭建阅读平台，推动师生爱读书、读好书、善读书，让书香浸润校园，让阅读赋能成长。
+28日中午，广州乌云压城，暴雨倾盆。
 
-当日，上海财经大学以“阅读不止于答案”(Read Beyond Answers)为主题，启动2026年书香文化节，系列活动涵盖书记文化沙龙、经典荐读、书香游园会等。
+由于雨势太大，广州市中心珠江新城相隔仅数百米的高楼大厦都被雨幕遮挡起来，部分街道出现水浸。
 
-第四期 “书记文化沙龙” 在匡时书店举行，嘉宾与师生共同探讨数智时代阅读的意义，现场发布2025年校园阅读数据，多位嘉宾结合自身研究领域分享阅读心得。
+“这个雨太大了，行车视线很受影响。
 
-活动同步启动2026年度“通识经典推荐阅读书目”发布暨第五届“阅读之星·悦读达人”评选，获奖学生代表分享阅读感悟，强调阅读对个人成长的重要性。
+”网约车司机曹庆仁告诉记者，暴雨时，他为了行车安全，暂停接单，将车停到了安全区域休息。
 
-此外，书香游园会、书香雅集等活动打破传统阅读局限，“以书易蔬”“换书市集”等特色环节，让阅读成为可互动、可分享的沉浸式体验，“AI伴读·阅见生长”活动则实现科技与阅读的深度融合。
+广东气象部门介绍，据气象监测显示，28日13至16时，全省有7个镇街录得超过100毫米的大暴雨，有20个镇街录得50至100毫米的暴雨，有60个镇街录得25至50毫米的大雨。
 
-上海理工大学以 “文润理工，智创未来” 为主题，策划开展系列阅读推广活动，突破传统阅读固有模式，鼓励学生化身 “阅读主理人”。
+气象专家表示，预计28日夜间到29日白天，广东自西向东还将有大雨到暴雨局部大暴雨，部分市县伴有短时强降水、8至10级雷雨大风和局地冰雹等强对流天气，气温也将小幅下降。
 
 ## 相关推荐
 
-- 2026-06-30 06:25 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 06:31 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 06:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 06:22 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 06:10 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 06:09 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 06:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 06:28 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 06:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 06:23 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 06:32 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 06:35 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 06:12 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 06:11 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 06:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 06:37 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 06:19 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 06:30 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 06:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 06:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 06:41 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 06:37 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 06:20 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 06:13 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 06:29 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 06:13 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:17 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/530884961.shtml)
-- 2026-06-30 06:13 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/321213.shtml)
-- 2026-06-30 06:24 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/09439715.shtml)
-- 2026-06-30 06:11 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/407442.shtml)
-- 2026-06-30 06:24 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/6797788790.shtml)
-- 2026-06-30 06:10 - [明星大侦探第一季](http://www.share.minike.top/Article/details/03220.shtml)
-- 2026-06-30 06:29 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/554147050.shtml)
-- 2026-06-30 06:16 - [苗族银饰](http://www.share.minike.top/Article/details/675701873.shtml)
-- 2026-06-30 06:07 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/3172233875.shtml)
-- 2026-06-30 06:35 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/911659051.shtml)
-- 2026-06-30 06:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/58235055834.shtml)
-- 2026-06-30 06:33 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/82463912182.shtml)
-- 2026-06-30 06:11 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/69711191527.shtml)
-- 2026-06-30 06:22 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/36099720.shtml)
-- 2026-06-30 06:35 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/16706.shtml)
+- 2026-06-30 06:32 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/01246922.shtml)
+- 2026-06-30 06:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/88412247.shtml)
+- 2026-06-30 06:31 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/53975579979.shtml)
+- 2026-06-30 06:21 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/2203840669.shtml)
+- 2026-06-30 06:14 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/5088065915.shtml)
+- 2026-06-30 06:26 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/7182949.shtml)
+- 2026-06-30 06:24 - [一见倾心](http://www.blog.minike.top/Article/details/097932727461.shtml)
+- 2026-06-30 06:29 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/559764.shtml)
+- 2026-06-30 06:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/944942655.shtml)
+- 2026-06-30 06:37 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/16682.shtml)
+- 2026-06-30 06:39 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/3226524.shtml)
+- 2026-06-30 06:32 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/2547444139.shtml)
+- 2026-06-30 06:13 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/97315478500.shtml)
+- 2026-06-30 06:33 - [小娘惹](https://www.share.minike.top/Article/details/9730526599.shtml)
+- 2026-06-30 06:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/73551542.shtml)

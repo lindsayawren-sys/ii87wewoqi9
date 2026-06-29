@@ -1,60 +1,57 @@
-# 《论十大关系》与统一战线发展学习沙龙在复旦大学举行
+# AerCap首席执行官：高油价若持续，将催生行业机遇
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网上海4月25日电(范宇斌)今年是毛泽东同志发表《论十大关系》讲话70周年。24日，“把国内外一切积极因素调动起来——《论十大关系》与统一战线发展”学习沙龙在复旦大学举行。上海市委统战部副部长、上海市统一战线理论研究会会长房剑森出席会议并讲话，复旦大学党委常委、副校长汪源源出席会议并致辞。 会议指出，《论十大关系》是毛泽东同志运用普遍联系观点阐述社会主义建设规律的典范，确立
+全球最大飞机租赁公司AerCap首席执行官安格斯·凯利周三表示，当前高油价对航空公司构成压力，但从长远看，这反而可能为飞机租赁行业带来新的增长机遇。他在公司发布第一季度财报后与分析师的电话会议上阐述了这一观点。 凯利指出，高油价环境将加速老旧、燃油效率较低的飞机退役。随着燃料成本成为航空公司更大的负担，通过更新机队来降低运营成本将成为行业趋势。 “特别是，我们很可能会看到售后回
 
 ## 正文
 
-中新网上海4月25日电(范宇斌)今年是毛泽东同志发表《论十大关系》讲话70周年。
+全球最大飞机租赁公司AerCap首席执行官安格斯·凯利周三表示，当前高油价对航空公司构成压力，但从长远看，这反而可能为飞机租赁行业带来新的增长机遇。
 
-24日，“把国内外一切积极因素调动起来——《论十大关系》与统一战线发展”学习沙龙在复旦大学举行。
+他在公司发布第一季度财报后与分析师的电话会议上阐述了这一观点。
 
-上海市委统战部副部长、上海市统一战线理论研究会会长房剑森出席会议并讲话，复旦大学党委常委、副校长汪源源出席会议并致辞。
+凯利指出，高油价环境将加速老旧、燃油效率较低的飞机退役。
 
-会议指出，《论十大关系》是毛泽东同志运用普遍联系观点阐述社会主义建设规律的典范，确立了“把国内外一切积极因素调动起来，为社会主义事业服务”的基本方针，与统一战线的宗旨一致。
+随着燃料成本成为航空公司更大的负担，通过更新机队来降低运营成本将成为行业趋势。
 
-其蕴含的丰富统战内涵，对做好新时代党的统战工作具有重要的指导意义。
+“特别是，我们很可能会看到售后回租机会的增加，”凯利解释说。
 
-会议强调，上海统一战线要始终坚定“坚持党的领导”这一根本原则，不断彰显“围绕中心、服务大局”的时代价值，深刻理解“一致性和多样性相统一”的本质规律，牢牢把握“又团结又斗争”的辩证策略，持续精通“党的特殊群众工作”的方式方法，注重运用“和而不同、求同存异”的统战智慧。
+在现金流紧张的背景下，航空公司为了在运力扩张和流动性管理之间取得平衡，预计会更积极地寻求外部融资方案。
 
-要深化实施上海统一战线“两项工程”，久久为功做好统战历史研究工作，进一步彰显上海统一战线深厚底蕴、丰厚资源和独特优势，传承弘扬党的百年统战优良传统，激励上海统一战线广大成员守正创新、接续奋斗，在全面推进中国式现代化、实现中华民族伟大复兴的征程中作出统一战线的历史贡献。
+AerCap作为关键的融资合作伙伴，可以在此过程中提供所需的资金支持。
 
-汪源源在致辞中表示，复旦大学作为统一战线理论研究与实践创新的重要阵地，将以此次学习沙龙为契机，充分发挥多学科交叉融合优势，深化对党的统一战线理论发展规律的研究，着力形成一批有深度、有影响、可转化的高质量研究成果，为推动新时代党的统一战线工作高质量发展贡献智慧与力量。
+尽管面临波音和空客供应商发动机短缺及机身交付延迟的持续影响，AerCap业务依然保持韧性。
 
 ## 相关推荐
 
-- 2026-06-30 06:27 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 06:18 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 06:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 06:35 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 06:29 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 06:07 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 06:14 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 06:18 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 06:24 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 06:24 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 06:18 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 06:25 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 06:09 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 06:22 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 06:13 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 06:35 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 06:31 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 06:25 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 06:24 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 06:29 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 06:21 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 06:22 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 06:37 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 06:13 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 06:22 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/31514427.shtml)
-- 2026-06-30 06:09 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/3688601402.shtml)
-- 2026-06-30 06:17 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/4815718380.shtml)
-- 2026-06-30 06:34 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/21665637.shtml)
-- 2026-06-30 06:08 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/912241010.shtml)
-- 2026-06-30 06:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/119872.shtml)
-- 2026-06-30 06:13 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/00711.shtml)
-- 2026-06-30 06:08 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/5297165.shtml)
-- 2026-06-30 06:17 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/634030184.shtml)
-- 2026-06-30 06:13 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/736700913.shtml)
-- 2026-06-30 06:08 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/703369913.shtml)
-- 2026-06-30 06:11 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/21467009.shtml)
-- 2026-06-30 06:08 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/837492910145.shtml)
-- 2026-06-30 06:16 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/38522678.shtml)
-- 2026-06-30 06:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/7549115.shtml)
+- 2026-06-30 06:42 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/006844435.shtml)
+- 2026-06-30 06:35 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/34745947424.shtml)
+- 2026-06-30 06:13 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/1885865539.shtml)
+- 2026-06-30 06:39 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/99087.shtml)
+- 2026-06-30 06:39 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/1540293.shtml)
+- 2026-06-30 06:40 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/799901248.shtml)
+- 2026-06-30 06:18 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/432769189606.shtml)
+- 2026-06-30 06:23 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/42419639404.shtml)
+- 2026-06-30 06:20 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/3172056.shtml)
+- 2026-06-30 06:39 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/283953862.shtml)
+- 2026-06-30 06:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/18242.shtml)
+- 2026-06-30 06:23 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/34024486.shtml)
+- 2026-06-30 06:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/84334049979.shtml)
+- 2026-06-30 06:12 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/064120030.shtml)
+- 2026-06-30 06:31 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/39293217.shtml)

@@ -1,61 +1,60 @@
-# 意法半导体股价大涨，5月4日将召开投资者会议
+# 广交会叠加五一假期 广州口岸出入境客流持续高位增长
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-据媒体4月23日报道，意法半导体（STMicroelectronics）宣布将于5月4日召开投资者电话会议，届时将深入探讨公司在当前市场环境下的机遇与挑战。受此消息提振，该股今日在米兰交易所股价涨幅扩大至13%，表现强劲。 据悉，此次投资者会议将聚焦于半导体行业的最新动态，特别是公司在汽车芯片、物联网及功率半导体等核心领域的战略布局。管理层预计将就全球供应链调整、技术创新以及未
+中新网广州4月28日电 (记者 方伟彬)记者28日从广州出入境边防检查总站(下称广州边检总站)获悉，随着五一假期临近，叠加即将开启的广交会第三期，广州边检总站下辖口岸将迎来新一轮客流高峰。 据统计，4月以来(截至4月28日0时)，广州边检总站所辖口岸出入境客流已超134万人次，同比增长11%，保持高位增长态势。其中，入境外籍人员数量同比大幅攀升25%，超21万名外籍人员通过单方
 
 ## 正文
 
-据媒体4月23日报道，意法半导体（STMicroelectronics）宣布将于5月4日召开投资者电话会议，届时将深入探讨公司在当前市场环境下的机遇与挑战。
+中新网广州4月28日电 (记者 方伟彬)记者28日从广州出入境边防检查总站(下称广州边检总站)获悉，随着五一假期临近，叠加即将开启的广交会第三期，广州边检总站下辖口岸将迎来新一轮客流高峰。
 
-受此消息提振，该股今日在米兰交易所股价涨幅扩大至13%，表现强劲。
+据统计，4月以来(截至4月28日0时)，广州边检总站所辖口岸出入境客流已超134万人次，同比增长11%，保持高位增长态势。
 
-据悉，此次投资者会议将聚焦于半导体行业的最新动态，特别是公司在汽车芯片、物联网及功率半导体等核心领域的战略布局。
+其中，入境外籍人员数量同比大幅攀升25%，超21万名外籍人员通过单方面免签、过境免签政策从白云机场口岸入境，占入境外籍人员总数超五成；持商贸类签证人员占比超三成，商贸往来成为拉动入境客流增长的重要支撑。
 
-管理层预计将就全球供应链调整、技术创新以及未来产能规划等关键议题与投资者进行交流。
+从客流结构看，境外客商来源更趋多元。
 
-作为全球领先的半导体解决方案供应商，意法半导体的动向被视为行业风向标。
+广交会期间，“一带一路”共建国家出入境客流增幅明显，来自东盟、非洲、南美洲等地区的入境人员达18万人次，同比增长22.9%，成为入境参展采购的主力。
 
-在当前全球芯片需求结构性分化的背景下——服务器内存需求强劲，而个人电脑与智能手机芯片略显疲软——市场高度关注该公司如何平衡不同业务板块的增长。
+与此同时，法国、英国等欧洲国家入境人员超5万人次，同比增幅超40%，显示全球采购商入境参展、拓展商机的需求持续旺盛。
 
-分析指出，意法半导体此次主动与市场沟通，旨在增强投资者信心，并明确其在行业周期波动中的竞争优势。
+据预测，五一假期期间，广州白云国际机场、琶洲港澳客运码头等6大客运口岸出入境旅客总流量预计约29.7万人次，日均5.94万人次，较2025年五一假期同比增长约22%。
 
-随着人工智能和电动化趋势的加速，功率半导体和传感器领域的需求持续升温，这或将成为该公司未来业绩增长的主要驱动力。
+其中，白云国际机场口岸是客流高峰承载核心，假期日均客流量预计约5.5万人次；水路口岸客流增幅尤为亮眼，毗邻广交会展馆的琶洲港澳客运码头日均客流增幅达108%，南沙客运港、顺德客运港也分别实现75%、47.7%的同比增长。
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 06:09 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 06:16 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 06:33 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 06:34 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 06:28 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 06:25 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 06:24 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 06:24 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 06:10 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 06:25 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 06:29 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 06:12 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 06:13 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 06:32 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 06:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 06:34 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 06:34 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 06:41 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 06:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 06:18 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 06:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 06:33 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 06:26 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 06:18 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 06:32 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 06:19 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 06:34 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 06:16 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:07 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/55430.shtml)
-- 2026-06-30 06:31 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/54266104.shtml)
-- 2026-06-30 06:08 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/34846144.shtml)
-- 2026-06-30 06:29 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/793510932.shtml)
-- 2026-06-30 06:31 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/084274.shtml)
-- 2026-06-30 06:27 - [房价什么时候能涨](http://www.share.minike.top/Article/details/24750086645.shtml)
-- 2026-06-30 06:27 - [一生一世](http://www.share.minike.top/Article/details/46181745.shtml)
-- 2026-06-30 06:20 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/9971367096.shtml)
-- 2026-06-30 06:09 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/033430096683.shtml)
-- 2026-06-30 06:06 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/410225374.shtml)
-- 2026-06-30 06:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/32105868199.shtml)
-- 2026-06-30 06:35 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/469431397.shtml)
-- 2026-06-30 06:26 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/13717709207.shtml)
-- 2026-06-30 06:08 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/92021.shtml)
-- 2026-06-30 06:21 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/821152073.shtml)
+- 2026-06-30 06:32 - [人类...完蛋了...](https://www.share.minike.top/Article/details/0639554.shtml)
+- 2026-06-30 06:31 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/491215.shtml)
+- 2026-06-30 06:38 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/63674926054.shtml)
+- 2026-06-30 06:12 - [世界杯](https://www.share.kurohicncr.top/Article/details/674301126434.shtml)
+- 2026-06-30 06:15 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/849110731365.shtml)
+- 2026-06-30 06:17 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/785769.shtml)
+- 2026-06-30 06:19 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/719010216525.shtml)
+- 2026-06-30 06:21 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/78247.shtml)
+- 2026-06-30 06:15 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/7846707877.shtml)
+- 2026-06-30 06:38 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/8412178325.shtml)
+- 2026-06-30 06:23 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/2406744963.shtml)
+- 2026-06-30 06:13 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/515764799525.shtml)
+- 2026-06-30 06:35 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/239256483747.shtml)
+- 2026-06-30 06:32 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/83999370066.shtml)
+- 2026-06-30 06:34 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/90058570.shtml)

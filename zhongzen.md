@@ -1,61 +1,48 @@
-# 午盘：标普500创盘中新高后转跌
+# 外媒：消息人士称伊朗将很快发动“前所未有的军事行动”
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-北京时间4月24日凌晨，美股周四午盘小幅下滑，标普指数一度创盘中历史新高。市场继续关注美伊关系发展与美股财报。特朗普声称已完全掌控霍尔木兹海峡。受中东地区紧张局势持续发酵影响，投资者避险情绪升温。 道指跌98.37点，跌幅为0.20%，报49391.66点；纳指跌93.14点，跌幅为0.38%，报24564.42点；标普500指数跌7.72点，跌幅为0.11%，报7130.18
+中新网4月29日电 据伊朗新闻电视台当地时间29日援引一名高级安全官员的话称，伊朗将很快以“前所未有的军事行动”回应美国“持续不断的海盗行为”。 报道称，美国近期在霍尔木兹海峡附近拦截并扣押了伊朗船只，伊方指责这是“海盗行为”。 此前伊朗军队发言人曾表示，伊朗空军已对地区美军基地实施了“前所未有的打击”。
 
 ## 正文
 
-北京时间4月24日凌晨，美股周四午盘小幅下滑，标普指数一度创盘中历史新高。
+中新网4月29日电 据伊朗新闻电视台当地时间29日援引一名高级安全官员的话称，伊朗将很快以“前所未有的军事行动”回应美国“持续不断的海盗行为”。
 
-市场继续关注美伊关系发展与美股财报。
+报道称，美国近期在霍尔木兹海峡附近拦截并扣押了伊朗船只，伊方指责这是“海盗行为”。
 
-特朗普声称已完全掌控霍尔木兹海峡。
-
-受中东地区紧张局势持续发酵影响，投资者避险情绪升温。
-
-道指跌98.37点，跌幅为0.20%，报49391.66点；纳指跌93.14点，跌幅为0.38%，报24564.42点；标普500指数跌7.72点，跌幅为0.11%，报7130.18点。
-
-周四早盘，标普500指数最高上涨至7147.78点，创盘中历史新高。
-
-市场焦点集中在霍尔木兹海峡的地缘政治风险上。
-
-美国总统特朗普在社交媒体上声称，美国已完全掌控该海峡，并将对过往船只实施严格管控。
+此前伊朗军队发言人曾表示，伊朗空军已对地区美军基地实施了“前所未有的打击”。
 
 ## 相关推荐
 
-- 2026-06-30 06:16 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 06:35 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 06:23 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 06:35 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 06:21 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 06:32 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 06:29 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 06:16 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 06:26 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 06:28 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 06:18 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 06:26 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 06:10 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 06:14 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 06:12 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 06:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 06:23 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 06:30 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 06:20 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 06:16 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 06:13 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 06:38 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 06:33 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 06:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 06:26 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 06:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 06:31 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:20 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/86728.shtml)
-- 2026-06-30 06:13 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/70572761.shtml)
-- 2026-06-30 06:14 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/613879.shtml)
-- 2026-06-30 06:10 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/694326.shtml)
-- 2026-06-30 06:24 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/63666164.shtml)
-- 2026-06-30 06:24 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/98751624620.shtml)
-- 2026-06-30 06:13 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/20083857.shtml)
-- 2026-06-30 06:29 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/249269.shtml)
-- 2026-06-30 06:31 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/59502981383.shtml)
-- 2026-06-30 06:23 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/167499553.shtml)
-- 2026-06-30 06:27 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/548781098996.shtml)
-- 2026-06-30 06:29 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/290293379625.shtml)
-- 2026-06-30 06:22 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/25838.shtml)
-- 2026-06-30 06:21 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/25643383.shtml)
-- 2026-06-30 06:31 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/14775.shtml)
+- 2026-06-30 06:37 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/244990045522.shtml)
+- 2026-06-30 06:14 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/887839866376.shtml)
+- 2026-06-30 06:40 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/1317543455.shtml)
+- 2026-06-30 06:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/306007127.shtml)
+- 2026-06-30 06:39 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/875422.shtml)
+- 2026-06-30 06:16 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/21349976653.shtml)
+- 2026-06-30 06:39 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/180691719.shtml)
+- 2026-06-30 06:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/398193994447.shtml)
+- 2026-06-30 06:19 - [世界杯](http://www.blog.kurohicncr.top/Article/details/628292112958.shtml)
+- 2026-06-30 06:41 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/4958752.shtml)
+- 2026-06-30 06:12 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/911804.shtml)
+- 2026-06-30 06:38 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/60739057.shtml)
+- 2026-06-30 06:13 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/25286995456.shtml)
+- 2026-06-30 06:20 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/96125241006.shtml)
+- 2026-06-30 06:38 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/950746035.shtml)

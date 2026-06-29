@@ -1,59 +1,57 @@
-# 欢瑞世纪会计差错引发立案，这些股民可以索赔
+# 里昂：招商银行首季业绩好坏参半 财管收入及净息差胜预期
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、立案公告直指会计差错 2026年4月22日晚，欢瑞世纪（维权）公告称，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。本次被立案或指向公司2022年计提增值税加计抵减额并确认为其他收益的相关事项。 增值税加计抵减额应在实际缴税时确认收益，但公司在实际抵减额
+里昂发布研报称，招商银行（03968）第一季业绩好坏参半，财富管理收入及净息差胜于预期，但手续费及资本表现疲弱。期内，经营收入同比增长3.5%，拨备前营运利润增长4.2%，净利润升1.5%，略逊预期。 该行提到，招行的“金葵花”级别或以上的客户数目按季增长4.8%，高于整体零售客户1.3%的增幅，对未来手续费收入属正面讯号。另外，招行的信用卡手续费收入同比下跌12%，拖累整体净
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、立案公告直指会计差错 2026年4月22日晚，欢瑞世纪（维权）公告称，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。
+里昂发布研报称，招商银行（03968）第一季业绩好坏参半，财富管理收入及净息差胜于预期，但手续费及资本表现疲弱。
 
-本次被立案或指向公司2022年计提增值税加计抵减额并确认为其他收益的相关事项。
+期内，经营收入同比增长3.5%，拨备前营运利润增长4.2%，净利润升1.5%，略逊预期。
 
-增值税加计抵减额应在实际缴税时确认收益，但公司在实际抵减额为零时就计提并计入其他收益。
+该行提到，招行的“金葵花”级别或以上的客户数目按季增长4.8%，高于整体零售客户1.3%的增幅，对未来手续费收入属正面讯号。
 
-这导致财务报表失真，未真实反映经营状况，构成信息披露违规。
+另外，招行的信用卡手续费收入同比下跌12%，拖累整体净手续费收入增长。
 
-投资者基于虚假财务信息做出决策，面临股价下跌和投资损失风险。
+零售信贷需求仍然疲弱，零售贷款余额按季收缩1%，但整体贷款按季增长2.8%，该行认为其今年全年贷款增长6%至7%的指引相当可行。
 
-目前暂定于符合以下区间的投资者即可参与索赔：于2026年4月22日（含当日）之前买入，并在2026年4月23日之后卖出或仍持有而亏损。
-
-（欢瑞世纪维权入口） 二、过去曾有信披违规 公司同日发布的前期会计差错更正公告显示，此次调减2022年度其他收益1548.15万元，归母净利润相应调减1288万元，调减金额超过当年净利润总额的70%，对财务数据影响较为显著。
-
-值得注意的是，公司曾在2017年因2013年至2016年连续财务造假被证监会立案调查，涉及通过提前确认收入、虚构应收款项回收、推迟计提坏账等手段虚增利润，累计涉案金额达2.25亿元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 06:14 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 06:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 06:12 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 06:32 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 06:34 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 06:09 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 06:09 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 06:08 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 06:06 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 06:31 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 06:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 06:10 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 06:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 06:25 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 06:22 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 06:36 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 06:23 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 06:37 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 06:14 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 06:28 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 06:34 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 06:16 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 06:34 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 06:20 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 06:22 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 06:33 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 06:25 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:35 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/44653.shtml)
-- 2026-06-30 06:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/9331757.shtml)
-- 2026-06-30 06:10 - [世界杯](http://www.share.kurohicncr.top/Article/details/198856999.shtml)
-- 2026-06-30 06:09 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/0401424.shtml)
-- 2026-06-30 06:26 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/2317530741.shtml)
-- 2026-06-30 06:06 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/906702330785.shtml)
-- 2026-06-30 06:23 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/252155423.shtml)
-- 2026-06-30 06:34 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/90764554647.shtml)
-- 2026-06-30 06:07 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/97630921.shtml)
-- 2026-06-30 06:06 - [刘念回应](https://www.share.minike.top/Article/details/68193034470.shtml)
-- 2026-06-30 06:32 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/76778.shtml)
-- 2026-06-30 06:20 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/24480989.shtml)
-- 2026-06-30 06:06 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/55886.shtml)
-- 2026-06-30 06:07 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/37160422.shtml)
-- 2026-06-30 06:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/191979413.shtml)
+- 2026-06-30 06:36 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/45371.shtml)
+- 2026-06-30 06:13 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/879865932.shtml)
+- 2026-06-30 06:20 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/1732055.shtml)
+- 2026-06-30 06:13 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/40721350696.shtml)
+- 2026-06-30 06:39 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/63723.shtml)
+- 2026-06-30 06:13 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/069883999192.shtml)
+- 2026-06-30 06:41 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/8565936545.shtml)
+- 2026-06-30 06:32 - [起风了](https://www.share.kurohicncr.top/Article/details/15643.shtml)
+- 2026-06-30 06:41 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/19738000.shtml)
+- 2026-06-30 06:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/9865261527.shtml)
+- 2026-06-30 06:15 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/387608128.shtml)
+- 2026-06-30 06:31 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/862503.shtml)
+- 2026-06-30 06:39 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/5996608994.shtml)
+- 2026-06-30 06:19 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/332571.shtml)
+- 2026-06-30 06:38 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/81990260.shtml)

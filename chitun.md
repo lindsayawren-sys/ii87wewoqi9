@@ -1,59 +1,60 @@
-# 绝味鸭脖上市9年首亏！连续5年隐匿营收，补税3.4亿，现金流萎缩，过去近2年平均每天关店约6家
+# 花旗英国区首席执行官：市场韧性“极强”，暂时遏制衰退风险
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！红星资本局4月23日消息，“鸭脖大王”绝味食品（603517.SH，简称：ST绝味（维权））出现上市9年以来的首次亏损。 绝味食品的亏损，一方面是由于财务管理失控导致的补缴税款及滞纳金超3.42亿元；另一方面则是因为占绝味食品收入超八成的“卤制食品销售”业务出现了业绩下滑。 据窄门餐眼数据，截至4月23日，
+核心要点 花旗英国区首席执行官蒂娜・李预计，今年全球经济增长将保持韧性，并向美国消费者新闻与商业频道（CNBC）明确表示，衰退局面不在基准预判之内。 李指出，伊朗冲突已于周二进入第 60 天，虽引发经济与地缘政治动荡，但市场整体运行秩序良好。 她看好人工智能、数据基建、能源领域的成熟投资机会，同时提到，今年一季度全球并购交易规模创下历史新高。 不过，李周二在做客 CNBC《欧洲
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+核心要点 花旗英国区首席执行官蒂娜・李预计，今年全球经济增长将保持韧性，并向美国消费者新闻与商业频道（CNBC）明确表示，衰退局面不在基准预判之内。
 
-红星资本局4月23日消息，“鸭脖大王”绝味食品（603517.SH，简称：ST绝味（维权））出现上市9年以来的首次亏损。
+李指出，伊朗冲突已于周二进入第 60 天，虽引发经济与地缘政治动荡，但市场整体运行秩序良好。
 
-绝味食品的亏损，一方面是由于财务管理失控导致的补缴税款及滞纳金超3.42亿元；另一方面则是因为占绝味食品收入超八成的“卤制食品销售”业务出现了业绩下滑。
+她看好人工智能、数据基建、能源领域的成熟投资机会，同时提到，今年一季度全球并购交易规模创下历史新高。
 
-据窄门餐眼数据，截至4月23日，绝味鸭脖全国在营门店数量约为10272家，相比2024年6月底的14969家，已减少了超过4500家。
+不过，李周二在做客 CNBC《欧洲财经早间秀》时承认，冲突持续升级、时间拉长，仍是威胁市场与全球经济的现实风险。
 
-红星资本局注意到，在卤味行业整体承压的背景下，从2025年开始，绝味食品陆续推出了主打社区全时段鲜食的“鲜卤超市”、售卖热煲快餐的“绝味煲煲”，以及包含炸卤、烤串的“绝味plus”等门店。
+受战事推动，布伦特原油价格从 2 月约 70 美元 / 桶，突破 100 美元大关。
 
-图据视觉中国 主业下滑叠加补税3.42亿元 绝味上市9年来首亏 4月22日晚间，绝味食品发布了2025年财报。
+若敌对行动延续至今年年底甚至 2027 年，油价或飙升至 120 至 150 美元。
 
-2025年，公司实现营业收入54.67亿元，同比下降12.62%；归母净利润由上年的盈利2.27亿元转为亏损1.91亿元，同比下跌184.11%；归母扣非净利润为0.75亿元，与上年同期相比下降62.82%，公司经营承压。
+她表示：“届时形势将截然不同。
 
-分行业来看，占比超八成的“卤制食品销售”业务2025年实现营收44.9亿元，同比下滑14.04%，毛利率降低0.76个百分点至33.2%。
+” 周二早盘，国际原油基准布伦特原油价格已攀升至 111 美元 / 桶。
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 06:06 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 06:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 06:12 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 06:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 06:27 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 06:18 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 06:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 06:29 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 06:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 06:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 06:11 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 06:22 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 06:40 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 06:30 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 06:20 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 06:36 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 06:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 06:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 06:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 06:41 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 06:14 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 06:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 06:23 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 06:40 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 06:39 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 06:25 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:26 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/349683858208.shtml)
-- 2026-06-30 06:11 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/67364.shtml)
-- 2026-06-30 06:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/28586468.shtml)
-- 2026-06-30 06:33 - [《共患难》](https://www.blog.minike.top/Article/details/3891481.shtml)
-- 2026-06-30 06:09 - [《共患难》](https://www.share.minike.top/Article/details/95240050.shtml)
-- 2026-06-30 06:09 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/8548994414.shtml)
-- 2026-06-30 06:27 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/019302.shtml)
-- 2026-06-30 06:08 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/35739705.shtml)
-- 2026-06-30 06:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/8344474.shtml)
-- 2026-06-30 06:14 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/2879036184.shtml)
-- 2026-06-30 06:30 - [扬名立万](http://www.share.minike.top/Article/details/12926.shtml)
-- 2026-06-30 06:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/075122.shtml)
-- 2026-06-30 06:06 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/7242454029.shtml)
-- 2026-06-30 06:06 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/39638.shtml)
-- 2026-06-30 06:35 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/55440.shtml)
+- 2026-06-30 06:31 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/6336886039.shtml)
+- 2026-06-30 06:19 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/318951866545.shtml)
+- 2026-06-30 06:26 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/8486021643.shtml)
+- 2026-06-30 06:23 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/2108474.shtml)
+- 2026-06-30 06:28 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/41689445.shtml)
+- 2026-06-30 06:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/83596574485.shtml)
+- 2026-06-30 06:29 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/779421631.shtml)
+- 2026-06-30 06:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/46042.shtml)
+- 2026-06-30 06:18 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/01812.shtml)
+- 2026-06-30 06:14 - [扬名立万](http://www.share.kurohicncr.top/Article/details/2371204.shtml)
+- 2026-06-30 06:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/165774925126.shtml)
+- 2026-06-30 06:13 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/90027188.shtml)
+- 2026-06-30 06:24 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/19684978844.shtml)
+- 2026-06-30 06:15 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/343724.shtml)
+- 2026-06-30 06:20 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/086259335.shtml)

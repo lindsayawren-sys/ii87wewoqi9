@@ -1,58 +1,59 @@
-# 重庆永川：双胞胎老虎迎2岁生日 定制鲜肉蛋糕拉满仪式感
+# 索尼在英国胜诉：法院裁定历史协议有效
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 18:46 来源：中国新闻网 近日，重庆永川乐和乐都动物世界里双胞胎老虎——金虎“没头脑”和白虎“不高兴”迎来两周岁生日。饲养员送上专属惊喜，精心制作高颜值鲜肉蛋糕，为这对人气虎兄妹庆生。 这对双胞胎老虎凭借反差萌性格圈粉无数，成为园区超人气明星。本次生日大餐贴合老虎饮食习性，以牛肉、鸡翅为主食，搭配苹果、香蕉、火龙果等鲜果，再以浪漫玫瑰花点缀
+伦敦高等法院周二作出裁决，索尼音乐娱乐公司在与吉米·亨德里克斯体验乐队已故成员遗产管理方的版权诉讼中获胜。这场备受瞩目的官司围绕《Are You Experienced》等三张经典1960年代专辑的表演者权展开，如果原告胜诉，可能为音乐产业带来连锁反应。 核心争议：历史协议是否涵盖流媒体 吉他手诺埃尔·雷丁和鼓手米奇·米切尔于1966年与亨德里克斯共同组建乐队，三人合作推出了《
 
 ## 正文
 
-发布时间：2026年04月26日 18:46 来源：中国新闻网 近日，重庆永川乐和乐都动物世界里双胞胎老虎——金虎“没头脑”和白虎“不高兴”迎来两周岁生日。
+伦敦高等法院周二作出裁决，索尼音乐娱乐公司在与吉米·亨德里克斯体验乐队已故成员遗产管理方的版权诉讼中获胜。
 
-饲养员送上专属惊喜，精心制作高颜值鲜肉蛋糕，为这对人气虎兄妹庆生。
+这场备受瞩目的官司围绕《Are You Experienced》等三张经典1960年代专辑的表演者权展开，如果原告胜诉，可能为音乐产业带来连锁反应。
 
-这对双胞胎老虎凭借反差萌性格圈粉无数，成为园区超人气明星。
+核心争议：历史协议是否涵盖流媒体 吉他手诺埃尔·雷丁和鼓手米奇·米切尔于1966年与亨德里克斯共同组建乐队，三人合作推出了《Are You Experienced》、《Axis： Bold As Love》和《Electric Ladyland》三张录音室专辑。
 
-本次生日大餐贴合老虎饮食习性，以牛肉、鸡翅为主食，搭配苹果、香蕉、火龙果等鲜果，再以浪漫玫瑰花点缀，荤素搭配、色彩精致，仪式感十足。
+这些作品不仅开创了迷幻摇滚时代，也让亨德里克斯在1970年去世前成为摇滚巨星。
 
-美食投放后，金虎哥哥“没头脑”率先叼走一大块牛肉，迫不及待埋头干饭，呆萌十足；妹妹“不高兴”则高冷慢热，先选取小块牛肉，优雅风度拉满。
+雷丁于2003年去世，米切尔于2008年去世。
 
-待两位寿星优先享用牛肉主食后，饲养员放出同区域另外两只老虎，一同分享生日美食。
+两人的遗产管理方将可能拥有的权利转让给两家公司，后者于2022年起诉索尼，主张对这三张专辑的音像版权和表演者权拥有份额。
 
-据介绍，此次庆生活动既彰显了园区优质的动物福利，也让游客近距离感受到双胞胎萌虎的可爱与治愈力。
+他们声称，乐队成员在1967年左右达成口头协议，收益按亨德里克斯50%、雷丁和米切尔各25%的比例分配。
 
-(贾楠 王成杰） 责任编辑：【周驰】
+原告律师指出，1960年代和1970年代签署的协议“发生在互联网彻底改变音乐产业之前”，不能自动延伸到流媒体等“根本不同”的数字利用方式。
 
 ## 相关推荐
 
-- 2026-06-30 06:33 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 06:27 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 06:34 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 06:32 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 06:08 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 06:08 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 06:23 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 06:07 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 06:30 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 06:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 06:20 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 06:32 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 06:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 06:29 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 06:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 06:20 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 06:14 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 06:15 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 06:16 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 06:28 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 06:35 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 06:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 06:34 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 06:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 06:35 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:26 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/20333955.shtml)
-- 2026-06-30 06:35 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/57497.shtml)
-- 2026-06-30 06:14 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/893841979551.shtml)
-- 2026-06-30 06:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/524848272.shtml)
-- 2026-06-30 06:28 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/55434.shtml)
-- 2026-06-30 06:06 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/375390753441.shtml)
-- 2026-06-30 06:14 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/566549382.shtml)
-- 2026-06-30 06:11 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/59242874795.shtml)
-- 2026-06-30 06:07 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/82547549.shtml)
-- 2026-06-30 06:22 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/991812758387.shtml)
-- 2026-06-30 06:24 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/45331.shtml)
-- 2026-06-30 06:09 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/99206410.shtml)
-- 2026-06-30 06:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/15944433.shtml)
-- 2026-06-30 06:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/6618603616.shtml)
-- 2026-06-30 06:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/124752107.shtml)
+- 2026-06-30 06:37 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/942794430601.shtml)
+- 2026-06-30 06:41 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/307161945915.shtml)
+- 2026-06-30 06:16 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/487286076.shtml)
+- 2026-06-30 06:20 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/35512500.shtml)
+- 2026-06-30 06:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/242413.shtml)
+- 2026-06-30 06:18 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/3585502.shtml)
+- 2026-06-30 06:28 - [天道](http://www.blog.minike.top/Article/details/0741410.shtml)
+- 2026-06-30 06:33 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/24542245683.shtml)
+- 2026-06-30 06:31 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/623499522.shtml)
+- 2026-06-30 06:26 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/28651604.shtml)
+- 2026-06-30 06:24 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/546668.shtml)
+- 2026-06-30 06:15 - [世界杯](https://www.blog.minike.top/Article/details/80010138204.shtml)
+- 2026-06-30 06:16 - [时光音乐会](https://www.blog.minike.top/Article/details/30264.shtml)
+- 2026-06-30 06:33 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/924910258.shtml)
+- 2026-06-30 06:34 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/983337090113.shtml)

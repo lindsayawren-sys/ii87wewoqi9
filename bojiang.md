@@ -1,57 +1,56 @@
-# 小食堂托起晚年大幸福
+# 2025年资产证券化发展报告
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中午时分，四川省成都金牛区荷花池街道城隍庙社区的大院食堂内，饭菜飘香。便宜实惠的两荤两素套餐，让家门口的老年人吃得舒心、踏实。 食堂老板告诉三里河，“大院食堂由原来的地矿局食堂改造而来，为60岁以上的社区老人提供优惠。同时，食堂还提供送餐服务，让老年人足不出户就能享用到餐食。” 一顿饭的温暖，看似小事，却直击老年人最迫切的日常需求。从吃饭、休憩，到出行、就医，老年人的生活需求具
+◇ 作者：中央结算公司中债研发中心李劼杜通 ◇ 本文原载《债券》2026年3月刊 摘 要 我国“十五五”规划将资产证券化（ABS）写入其中，提出要稳步发展ABS。本文梳理了2025年我国ABS市场的监管动态、运行情况，分析了业务发展动向，针对市场发展现状和面临的问题，建议认真落实“十五五”规划要求，围绕金融“五篇大文章”做优增量，积极服务实体经济，精准支持重点领域，充分发挥AB
 
 ## 正文
 
-中午时分，四川省成都金牛区荷花池街道城隍庙社区的大院食堂内，饭菜飘香。
+◇ 作者：中央结算公司中债研发中心李劼杜通 ◇ 本文原载《债券》2026年3月刊 摘 要 我国“十五五”规划将资产证券化（ABS）写入其中，提出要稳步发展ABS。
 
-便宜实惠的两荤两素套餐，让家门口的老年人吃得舒心、踏实。
+本文梳理了2025年我国ABS市场的监管动态、运行情况，分析了业务发展动向，针对市场发展现状和面临的问题，建议认真落实“十五五”规划要求，围绕金融“五篇大文章”做优增量，积极服务实体经济，精准支持重点领域，充分发挥ABS市场功能。
 
-食堂老板告诉三里河，“大院食堂由原来的地矿局食堂改造而来，为60岁以上的社区老人提供优惠。
+关键词 资产证券化信贷ABS绿色ABS金融“五篇大文章” 2025年，我国资产证券化（ABS）市场全年发行各类产品（不含不动产投资信托基金）约为2.28万亿元，年末存量规模约为4.01万亿元；不动产投资信托基金（REITs）全年发行473.28亿元，年末市场存量为2151.03亿元1。
 
-同时，食堂还提供送餐服务，让老年人足不出户就能享用到餐食。
+市场运行平稳，发行规模有所上升，产品继续呈现创新和多元化发展。
 
-” 一顿饭的温暖，看似小事，却直击老年人最迫切的日常需求。
+融资租赁债权ABS发行规模领跑，不良贷款ABS发行增速较快，绿色ABS产品创新不断深化。
 
-从吃饭、休憩，到出行、就医，老年人的生活需求具体而微，而这些细微之处，正是养老服务最该发力的地方。
+ABS市场发挥自身优势，对服务实体经济、盘活存量资产、优化资源配置起到了积极作用。
 
-传统公共服务多以设施为中心，难以精准触达家门口的具体需求，养老服务也面临同样困境。
+监管动态 （一）支持金融“五篇大文章”领域信贷ABS业务 2025年3月，国务院办公厅印发《关于做好金融“五篇大文章”的指导意见》，要求到2027年，金融“五篇大文章”发展取得显著成效，重大战略、重点领域和薄弱环节的融资可得性和金融产品服务供需适配度持续提升。
 
-城隍庙社区居委会主任张月对此深有感触，“之前社区没有菜市场，居民需要往返两三公里买菜，甚至有老人骑自行车买菜时不慎摔跤。
+其中第十一条“充分发挥债券市场融资功能”提出，“支持金融机构开展金融‘五篇大文章’领域信贷ABS业务”。
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 06:13 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 06:11 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 06:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 06:14 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 06:16 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 06:17 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 06:10 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 06:19 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 06:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 06:33 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 06:18 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 06:33 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 06:13 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 06:25 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 06:16 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 06:28 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 06:12 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 06:40 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 06:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 06:16 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/08962032.shtml)
-- 2026-06-30 06:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/666290600.shtml)
-- 2026-06-30 06:13 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/44789737.shtml)
-- 2026-06-30 06:06 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/02436863303.shtml)
-- 2026-06-30 06:26 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/70433804.shtml)
-- 2026-06-30 06:30 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/3865034.shtml)
-- 2026-06-30 06:35 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/866830738.shtml)
-- 2026-06-30 06:23 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/517800.shtml)
-- 2026-06-30 06:12 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/37087560981.shtml)
-- 2026-06-30 06:19 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/522108.shtml)
-- 2026-06-30 06:32 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/39221485352.shtml)
-- 2026-06-30 06:35 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/35595934.shtml)
-- 2026-06-30 06:19 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/5904127026.shtml)
-- 2026-06-30 06:18 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/1817156809.shtml)
-- 2026-06-30 06:08 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/525062.shtml)
+- 2026-06-30 06:28 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/04904470472.shtml)
+- 2026-06-30 06:15 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/45272.shtml)
+- 2026-06-30 06:32 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/20536.shtml)
+- 2026-06-30 06:34 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/58068571711.shtml)
+- 2026-06-30 06:18 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/60952268.shtml)
+- 2026-06-30 06:20 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/633574686.shtml)
+- 2026-06-30 06:32 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/06782791.shtml)
+- 2026-06-30 06:25 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/798692725626.shtml)
+- 2026-06-30 06:20 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/730673380.shtml)
+- 2026-06-30 06:32 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/6568152592.shtml)
+- 2026-06-30 06:35 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/8322135.shtml)
+- 2026-06-30 06:32 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/26370430371.shtml)
+- 2026-06-30 06:22 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/973603.shtml)
+- 2026-06-30 06:25 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/32465695065.shtml)
+- 2026-06-30 06:14 - [速度与激情9](http://www.share.minike.top/Article/details/982001094293.shtml)

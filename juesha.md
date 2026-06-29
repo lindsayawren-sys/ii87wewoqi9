@@ -1,56 +1,57 @@
-# 广州互联网法院成立以来受理网络不正当竞争纠纷案超千件
+# 重庆法院发布首例承认欧洲仲裁机构裁决案件
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网广州4月23日电 (记者 方伟彬)广州互联网法院23日召开新闻发布会，通报了近年来该院审理涉网络不正当竞争纠纷案件的情况，并发布了12件典型案例。 自2018年成立以来，广州互联网法院累计受理涉网络不正当竞争纠纷案件1006件，其中95%为著作权侵权与不正当竞争复合案由案件。 通报称，案件审理情况反映出数字市场竞争的鲜明特征：一是案涉主体高度集中于网络游戏、电商平台及短视
+中新网重庆4月28日电 (梁钦卿)4月29日是重庆国际商事法庭成立一周年。该法庭28日发布一批典型案例，其中包括重庆隆某机车公司申请承认外国仲裁裁决案。该案件是重庆法院审理的首例承认欧洲仲裁机构所作仲裁裁决的案件。2019年7月25日，重庆隆某机车公司与意大利奥某摩托车公司签订《350供应协议》《800供应协议》《800许可协议》，约定重庆隆某机车公司将其350cc型号的发动机
 
 ## 正文
 
-中新网广州4月23日电 (记者 方伟彬)广州互联网法院23日召开新闻发布会，通报了近年来该院审理涉网络不正当竞争纠纷案件的情况，并发布了12件典型案例。
+中新网重庆4月28日电 (梁钦卿)4月29日是重庆国际商事法庭成立一周年。
 
-自2018年成立以来，广州互联网法院累计受理涉网络不正当竞争纠纷案件1006件，其中95%为著作权侵权与不正当竞争复合案由案件。
+该法庭28日发布一批典型案例，其中包括重庆隆某机车公司申请承认外国仲裁裁决案。
 
-通报称，案件审理情况反映出数字市场竞争的鲜明特征：一是案涉主体高度集中于网络游戏、电商平台及短视频平台等新兴产业；二是诉争利益前沿且复合，涉及平台数据等具有鲜明网络特征的客体；三是竞争关系范围广泛，涉间接竞争关系案件占比达66%；四是竞争行为形态多样，主要涉及混淆仿冒、虚假宣传、不正当引流等。
+该案件是重庆法院审理的首例承认欧洲仲裁机构所作仲裁裁决的案件。
 
-本次发布的12件典型案例，系统回应了网络新业态发展下对竞争秩序司法治理的迫切需求。
+2019年7月25日，重庆隆某机车公司与意大利奥某摩托车公司签订《350供应协议》《800供应协议》《800许可协议》，约定重庆隆某机车公司将其350cc型号的发动机及主梁系统提供给意大利奥某摩托车公司使用，意大利奥某摩托车公司独家向重庆隆某机车公司采购800cc型号发动机及相关备件，并将其800cc型号发动机及车架独家授权给重庆隆某机车公司使用。
 
-法院构建了以数据要素为核心、审慎包容为原则、业态治理为锚点、平等保护为导向的“四位一体”数字产业市场竞争司法治理新模式。
+此三份协议均约定争议由瑞士仲裁中心仲裁，仲裁语言为英语。
 
-具体包括：明确搬运电商数据、抓取用户游戏数据等行为的正当性边界；依法认定合理限度内的跨行业搭便车行为不构成不正当竞争；确立平台不得为涉违法虚拟财产提供交易服务的裁判规则；认定涉外商业标识影响力以境内实际使用为准等。
+后来，意大利奥某摩托车公司认为重庆隆某机车公司的350cc摩托车涉嫌侵犯第三方知识产权，单方面终止上述协议。
 
-华南师范大学法学院院长张永忠认为，这些案例体现了数字时代司法实践的前瞻性探索与规则创新，为构建产权有保障、竞争有秩序的数字市场环境贡献了“广州样本”。
+意大利奥某摩托车公司根据《350供应协议》的仲裁条款，向瑞士仲裁中心提起仲裁，请求确认《350供应协议》无效或因重庆隆某机车公司违约而终止，并要求重庆隆某机车公司赔偿损失。
 
-广州市人大代表李学锋表示，发布会为数据权益归属、新型流量争夺等难题提供了有益参考，并倡议市场“合规先行、尊重创新、依法维权”。
+重庆隆某机车公司依据《800供应协议》及《800许可协议》的仲裁条款，向瑞士仲裁中心提起仲裁，请求确认意大利奥某摩托车公司违约，并要求意大利奥某摩托车公司赔偿损失。
 
 ## 相关推荐
 
-- 2026-06-30 06:22 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 06:32 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 06:35 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 06:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 06:18 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 06:21 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 06:23 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 06:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 06:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 06:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 06:28 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 06:36 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 06:19 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 06:15 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 06:18 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 06:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 06:16 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 06:30 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 06:13 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 06:26 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 06:34 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/42531629.shtml)
-- 2026-06-30 06:27 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/60602071.shtml)
-- 2026-06-30 06:35 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/30669022227.shtml)
-- 2026-06-30 06:09 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/233308322.shtml)
-- 2026-06-30 06:27 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/16264422496.shtml)
-- 2026-06-30 06:17 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/5046837.shtml)
-- 2026-06-30 06:15 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/1322110072.shtml)
-- 2026-06-30 06:12 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/6528262851.shtml)
-- 2026-06-30 06:34 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/934206626199.shtml)
-- 2026-06-30 06:23 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/012342769.shtml)
-- 2026-06-30 06:28 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/214298.shtml)
-- 2026-06-30 06:10 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/19836811.shtml)
-- 2026-06-30 06:29 - [斛珠夫人](http://www.blog.minike.top/Article/details/86819.shtml)
-- 2026-06-30 06:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/14385092256.shtml)
-- 2026-06-30 06:27 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/20052171.shtml)
+- 2026-06-30 06:29 - [天道](http://www.blog.kurohicncr.top/Article/details/249533449.shtml)
+- 2026-06-30 06:35 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/19928329.shtml)
+- 2026-06-30 06:33 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/98894043.shtml)
+- 2026-06-30 06:16 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/284062179806.shtml)
+- 2026-06-30 06:27 - [日本 高位逼抢](http://www.share.minike.top/Article/details/39698.shtml)
+- 2026-06-30 06:21 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/58533602654.shtml)
+- 2026-06-30 06:23 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/7186885359.shtml)
+- 2026-06-30 06:15 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/582257.shtml)
+- 2026-06-30 06:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/306896.shtml)
+- 2026-06-30 06:13 - [巴西绝杀日本](https://www.share.minike.top/Article/details/719573218.shtml)
+- 2026-06-30 06:28 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/8681509.shtml)
+- 2026-06-30 06:16 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/83217599793.shtml)
+- 2026-06-30 06:38 - [日本淘汰](http://www.share.minike.top/Article/details/274787.shtml)
+- 2026-06-30 06:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/009695478.shtml)
+- 2026-06-30 06:12 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/51736.shtml)

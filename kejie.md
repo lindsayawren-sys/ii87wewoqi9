@@ -1,59 +1,58 @@
-# AI编程企业Cognition洽谈新一轮融资 估值达250亿美元
+# 通用汽车上调全年盈利指引，最高法院关税裁决带来5亿美元利好
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，AI编程企业Cognition AI Inc．已就新一轮融资展开初步洽谈，本轮融资完成后其估值将翻一倍以上，达到250亿美元。当前市场对深谙如何将人工智能应用于软件开发领域的企业需求持续走高，该公司正借此风口寻求融资。 一位不愿透露姓名的知情人士表示，这家人工智能编程初创企业计划筹集数亿美元乃至更多资金。目前相关洽谈仍在进行中，融资条款仍存在变动可能。 本周早些
+通用汽车周二公布第一季度财报，得益于核心市场对皮卡和SUV车型的强劲需求以及美国最高法院关税裁决带来的5亿美元利好，公司净利润超预期并随即上调全年业绩指引。 关税裁决带来5亿美元“意外之财” 今年2月，美国最高法院以6比3的投票结果裁定，特朗普政府援引《国际紧急经济权力法》实施的大规模关税政策违法。根据这一裁决，通用汽车预计将获得约5亿美元的关税退款。 公司首席财务官表示，这笔
 
 ## 正文
 
-据知情人士透露，AI编程企业Cognition AI Inc．已就新一轮融资展开初步洽谈，本轮融资完成后其估值将翻一倍以上，达到250亿美元。
+通用汽车周二公布第一季度财报，得益于核心市场对皮卡和SUV车型的强劲需求以及美国最高法院关税裁决带来的5亿美元利好，公司净利润超预期并随即上调全年业绩指引。
 
-当前市场对深谙如何将人工智能应用于软件开发领域的企业需求持续走高，该公司正借此风口寻求融资。
+关税裁决带来5亿美元“意外之财” 今年2月，美国最高法院以6比3的投票结果裁定，特朗普政府援引《国际紧急经济权力法》实施的大规模关税政策违法。
 
-一位不愿透露姓名的知情人士表示，这家人工智能编程初创企业计划筹集数亿美元乃至更多资金。
+根据这一裁决，通用汽车预计将获得约5亿美元的关税退款。
 
-目前相关洽谈仍在进行中，融资条款仍存在变动可能。
+公司首席财务官表示，这笔预期退款是一个“有利调整”。
 
-本周早些时候，埃隆・马斯克旗下太空探索技术公司（SpaceX）宣布达成协议，将有权以600亿美元收购同行业编程企业Cursor。
+虽然公司尚未实际收到退款，但已将其计入一季度业绩并据此上调全年指引。
 
-知情人士称，尽管CognitionAI的融资洽谈早于该消息启动，但在这笔收购交易公布后，其再度获得了投资方新一轮的追捧。
+通用汽车目前预计全年总关税成本将从此前的30亿至40亿美元降至25亿至35亿美元。
 
-截至目前，CognitionAI相关发言人尚未回应置评请求。
+核心业务保持强劲 财报显示，通用汽车一季度营收436.2亿美元，净利润26亿美元，调整后每股收益3.70美元，远超市场预期的2.62美元。
 
-Cursor收购消息公布后，该公司总裁拉塞尔・卡普兰在社交平台X发文称，公司近期迎来了更多客户与潜在求职者。
+强劲表现得益于北美核心业务的稳固增长——公司在北美全尺寸皮卡市场占有42%的份额，调整后息税前利润率从上年同期的8.8%提升至10.1%。
 
 ## 相关推荐
 
-- 2026-06-30 06:33 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 06:14 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 06:11 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 06:26 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 06:07 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 06:16 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 06:31 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 06:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 06:26 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 06:16 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 06:35 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 06:34 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 06:17 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 06:22 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 06:39 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 06:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 06:36 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 06:17 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 06:19 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 06:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 06:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 06:31 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 06:30 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 06:30 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 06:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/1405389.shtml)
-- 2026-06-30 06:32 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/404146261.shtml)
-- 2026-06-30 06:13 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/707587932.shtml)
-- 2026-06-30 06:30 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/49373574452.shtml)
-- 2026-06-30 06:31 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/246465.shtml)
-- 2026-06-30 06:23 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/3026604.shtml)
-- 2026-06-30 06:31 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/813259278952.shtml)
-- 2026-06-30 06:18 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/224496881.shtml)
-- 2026-06-30 06:22 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/094629621.shtml)
-- 2026-06-30 06:24 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/86628290213.shtml)
-- 2026-06-30 06:30 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/94161670840.shtml)
-- 2026-06-30 06:27 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/80082170.shtml)
-- 2026-06-30 06:07 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/106112634.shtml)
-- 2026-06-30 06:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/54237.shtml)
-- 2026-06-30 06:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/0208668.shtml)
+- 2026-06-30 06:21 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/112402215874.shtml)
+- 2026-06-30 06:41 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/533098920.shtml)
+- 2026-06-30 06:28 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/279184728820.shtml)
+- 2026-06-30 06:18 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/42784582.shtml)
+- 2026-06-30 06:22 - [金刚川](https://www.blog.kurohicncr.top/Article/details/265494.shtml)
+- 2026-06-30 06:21 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/0253643853.shtml)
+- 2026-06-30 06:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/9123168081.shtml)
+- 2026-06-30 06:17 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/72334.shtml)
+- 2026-06-30 06:13 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/479252526.shtml)
+- 2026-06-30 06:16 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/86071515023.shtml)
+- 2026-06-30 06:14 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/33767.shtml)
+- 2026-06-30 06:40 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/532624.shtml)
+- 2026-06-30 06:22 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/78390373.shtml)
+- 2026-06-30 06:40 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/148702255453.shtml)
+- 2026-06-30 06:18 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/351117408.shtml)

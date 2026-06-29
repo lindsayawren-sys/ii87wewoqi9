@@ -1,61 +1,54 @@
-# 中国铝业一季度净利润同比增超56%，市值同比接近翻番
+# 凯投宏观：泰国央行维持利率不变，但降息之门似乎已经打开
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-4月23日晚间，有色金属央企上市龙头中国铝业股份有限公司（下称“中国铝业”，601600.SH/02600.HK）发布2026年第一季度报告，公司今年一季度营收为584.94亿元，和上年同期相比（同比）增加4.85%；归属于上市公司股东的净利润为55.27亿元，同比增加56.35%。 公司经营活动产生的现金流量净额为108.81亿元，同比增加73.84%；资产负债率43.27%
+泰国央行在早些时候的会议上暗示其不急于降息，但凯投宏观仍认为该央行将在今年晚些时候恢复宽松政策。经济学家Gareth Leather表示，泰国央行追随菲律宾和新加坡的脚步收紧政策的可能性很小。 虽然泰国不提供能源补贴，这意味着成本会直接传导为更高的价格，但在经历了长期的通缩之后，基本通胀压力依然疲弱。 即使未来几个月CPI料将上涨，也不太可能超出泰国央行的目标区间。决策者似乎也
 
 ## 正文
 
-4月23日晚间，有色金属央企上市龙头中国铝业股份有限公司（下称“中国铝业”，601600.SH/02600.HK）发布2026年第一季度报告，公司今年一季度营收为584.94亿元，和上年同期相比（同比）增加4.85%；归属于上市公司股东的净利润为55.27亿元，同比增加56.35%。
+泰国央行在早些时候的会议上暗示其不急于降息，但凯投宏观仍认为该央行将在今年晚些时候恢复宽松政策。
 
-公司经营活动产生的现金流量净额为108.81亿元，同比增加73.84%；资产负债率43.27%，较期初下降2.74个百分点，财务结构持续优化。
+经济学家Gareth Leather表示，泰国央行追随菲律宾和新加坡的脚步收紧政策的可能性很小。
 
-中国铝业方面表示，一季度公司充分发挥全产业链优势，以极致经营理念深挖降本增效潜力，各项生产经营指标持续优化，实现首季“开门红”，经营业绩再创历史同期最好水平。
+虽然泰国不提供能源补贴，这意味着成本会直接传导为更高的价格，但在经历了长期的通缩之后，基本通胀压力依然疲弱。
 
-从主要产品产销来看，中国铝业一季度冶金级氧化铝产量为405万吨，同比减少9.60%；自产冶金氧化铝外销量为142万吨，同比减少15.48%；原铝产量为201万吨，同比增加3.61%；自产原铝外销量为197万吨，同比增加3.68%；煤炭产量为287万吨，同比减少10.87%；外售电厂销售量为45亿kWh。
+即使未来几个月CPI料将上涨，也不太可能超出泰国央行的目标区间。
 
-中国铝业提到，一季度公司主营产品产能保持稳产满产，资源端自采矿比率进一步提高，矿石、氧化铝、电解铝内部配套率更趋优化，供应链韧性持续增强；深化铝产品集中销售改革，“两金”占用稳步下降，存货管理进一步优化，市场竞争力显著提升。
+决策者似乎也担心能源价格上涨对经济活动造成的拖累。
 
-值得关注的是，得益于供应端的刚性约束和需求端的结构性增长。
+鉴于此，凯投宏观坚持其今年至少再降息一次的看法，这与市场普遍认为到2026年底都将维持利率不变的看法相反。
 
-全球铝价目前处于上行通道中。
-
-去年，中国铝业已创下历史最优业绩，归属于上市公司股东的净利润为126.74亿元，同比增长2.25%。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 06:34 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 06:12 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 06:35 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 06:06 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 06:11 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 06:19 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 06:31 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 06:32 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 06:23 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 06:12 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 06:17 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 06:18 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 06:16 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 06:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 06:09 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 06:21 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 06:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 06:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 06:34 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 06:26 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 06:17 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 06:36 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 06:31 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 06:25 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 06:27 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:20 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/098623.shtml)
-- 2026-06-30 06:06 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/4500603.shtml)
-- 2026-06-30 06:08 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/4689633.shtml)
-- 2026-06-30 06:28 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/610811551.shtml)
-- 2026-06-30 06:22 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/7847058414.shtml)
-- 2026-06-30 06:07 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/65423880738.shtml)
-- 2026-06-30 06:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/601497606136.shtml)
-- 2026-06-30 06:21 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/447680.shtml)
-- 2026-06-30 06:20 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/798368.shtml)
-- 2026-06-30 06:13 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/3069290.shtml)
-- 2026-06-30 06:17 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/051836711621.shtml)
-- 2026-06-30 06:32 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/21860.shtml)
-- 2026-06-30 06:21 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/42288057336.shtml)
-- 2026-06-30 06:32 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/278136284.shtml)
-- 2026-06-30 06:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/640918.shtml)
+- 2026-06-30 06:21 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/74523283174.shtml)
+- 2026-06-30 06:30 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/85046721274.shtml)
+- 2026-06-30 06:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/4061704.shtml)
+- 2026-06-30 06:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/8353556304.shtml)
+- 2026-06-30 06:39 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/1782879.shtml)
+- 2026-06-30 06:31 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/1207140760.shtml)
+- 2026-06-30 06:39 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/092374403653.shtml)
+- 2026-06-30 06:20 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/301137.shtml)
+- 2026-06-30 06:15 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/79830321.shtml)
+- 2026-06-30 06:34 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/75960.shtml)
+- 2026-06-30 06:20 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/7940070117.shtml)
+- 2026-06-30 06:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/82206.shtml)
+- 2026-06-30 06:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/1096059025.shtml)
+- 2026-06-30 06:41 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/82488725884.shtml)
+- 2026-06-30 06:38 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/04235.shtml)

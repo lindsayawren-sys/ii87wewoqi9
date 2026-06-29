@@ -1,60 +1,60 @@
-# “稀引未来 创赢鹿城”稀土未来产业创新创业大赛宁波启幕
+# 智能座舱凭什么先吃到AI上车的红利
 
-> 更新时间：2026-06-30 06:36:03 UTC+8
+> 更新时间：2026-06-30 06:42:02 UTC+8
 
 ## 摘要
 
-中新网宁波4月23日电 (记者 李爱平)由内蒙古自治区包头市政府主办的“稀引未来 创赢鹿城”稀土未来产业创新创业大赛，23日在浙江省宁波市启幕。该赛事借力宁波科创产业优势，助力包头精准链接长三角高端资源，推动两地共建稀土未来产业创新共同体。 本次大赛分为产业调研、项目征集、城市分站赛、创业训练营、总决赛及落地跟踪六个阶段。包头市政府在全国设置了宁波、南京、杭州、厦门4场城市分站
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！AI上车的大潮中，智能座舱的进度要领先智驾；理解车里的人，比理解车外无法穷尽的物理世界更容易 文|《财经》研究员 尹路 编辑|黄凯茜 2026年4月的北京车展，“AI上车”大潮空前，技术发布密集，汽车行业已从“软件定义汽车”全面步入“AI定义汽车”的阶段。 然而，AI能力上车在智能座舱和智能驾驶两个领域出现
 
 ## 正文
 
-中新网宁波4月23日电 (记者 李爱平)由内蒙古自治区包头市政府主办的“稀引未来 创赢鹿城”稀土未来产业创新创业大赛，23日在浙江省宁波市启幕。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该赛事借力宁波科创产业优势，助力包头精准链接长三角高端资源，推动两地共建稀土未来产业创新共同体。
+AI上车的大潮中，智能座舱的进度要领先智驾；理解车里的人，比理解车外无法穷尽的物理世界更容易 文|《财经》研究员 尹路 编辑|黄凯茜 2026年4月的北京车展，“AI上车”大潮空前，技术发布密集，汽车行业已从“软件定义汽车”全面步入“AI定义汽车”的阶段。
 
-本次大赛分为产业调研、项目征集、城市分站赛、创业训练营、总决赛及落地跟踪六个阶段。
+然而，AI能力上车在智能座舱和智能驾驶两个领域出现了差异性分化，座舱推出的AI新功能、新服务及其带来的用户感知度，比智能驾驶领域更加立竿见影。
 
-包头市政府在全国设置了宁波、南京、杭州、厦门4场城市分站赛，形成“多点联动、全域覆盖”的赛事布局。
+在智能驾驶端，几年前行业从基于规则，向基于数据驱动的技术跃升时，曾显著改善用户体验，可理解为是一次从50分到80分的质变，相比之下，本轮AI大模型上车尚未带来同等幅度的质变。
 
-总决赛定于6月下旬在包头举办，届时将决出一等奖1名、二等奖2名、三等奖8名，设置总奖金100万元。
+引入云端多智能体博弈机制与超高算力，使智驾系统在数据表现上再次取得了长足进步，在处理复杂博弈、避让等场景时更加丝滑且“拟人”。
 
-包头市副市长金永丽表示，包头是“世界稀土之都”，全市已探明公布稀土储量4350万吨，占全球的37.8%、全国的83.7%，拥有全国唯一以稀土命名的国家级高新技术产业开发区。
+但对于终端消费者而言，由底层百亿、千亿参数量增长带来的能力，体验层面改进的边际效益正在递减。
 
-当前，包头正以“十五五”规划为指引，加快稀土资源由“世界级储量”向“世界级产业”迈进。
+智驾的体验提升更像是从80分到90分，而攻克这10分或实现另一个30分的跨越要耗费更多资源。
 
-宁波地处长三角核心腹地，是科技创新与产业融合的沃土。
+此外，在面对不可预知的长尾场景时，AI体验的提升仍然需要长期的打磨与积淀。
 
 ## 相关推荐
 
-- 2026-06-30 06:21 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 06:32 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 06:10 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 06:23 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 06:11 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 06:09 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 06:24 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 06:18 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 06:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 06:14 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 06:31 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 06:20 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 06:28 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 06:34 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 06:33 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 06:16 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 06:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 06:41 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 06:30 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 06:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 06:34 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 06:20 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 06:33 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 06:36 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 06:22 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 06:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 06:26 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 06:27 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:16 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/02741501.shtml)
-- 2026-06-30 06:08 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/4402090.shtml)
-- 2026-06-30 06:24 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/496233259507.shtml)
-- 2026-06-30 06:08 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/292843678730.shtml)
-- 2026-06-30 06:25 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/7881040.shtml)
-- 2026-06-30 06:18 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/69528.shtml)
-- 2026-06-30 06:14 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/442898824024.shtml)
-- 2026-06-30 06:27 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/759035.shtml)
-- 2026-06-30 06:25 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/3740274208.shtml)
-- 2026-06-30 06:26 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/94543887.shtml)
-- 2026-06-30 06:13 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/419498810309.shtml)
-- 2026-06-30 06:22 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/5605643362.shtml)
-- 2026-06-30 06:30 - [乔家的儿女](http://www.blog.minike.top/Article/details/92465258561.shtml)
-- 2026-06-30 06:26 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/2940611.shtml)
-- 2026-06-30 06:18 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/4884331589.shtml)
+- 2026-06-30 06:19 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/634753.shtml)
+- 2026-06-30 06:23 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/07901318.shtml)
+- 2026-06-30 06:37 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/377216236743.shtml)
+- 2026-06-30 06:14 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/3524058213.shtml)
+- 2026-06-30 06:21 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/0339359.shtml)
+- 2026-06-30 06:38 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/8994914.shtml)
+- 2026-06-30 06:34 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/974411117605.shtml)
+- 2026-06-30 06:22 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/67370983.shtml)
+- 2026-06-30 06:21 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.kurohicncr.top/Article/details/72793.shtml)
+- 2026-06-30 06:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/25242059929.shtml)
+- 2026-06-30 06:37 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/0816873805.shtml)
+- 2026-06-30 06:18 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/161528314657.shtml)
+- 2026-06-30 06:31 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/1162485031.shtml)
+- 2026-06-30 06:26 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/246249248.shtml)
+- 2026-06-30 06:27 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/364536.shtml)
