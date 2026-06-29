@@ -1,57 +1,59 @@
-# 迈阿密愈发富庶，人口却持续缩减
+# “中国式现代化离不开农业农村现代化”（总书记的人民情怀）
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-财富热潮拉动这座都市圈核心经济增长，当地人口规模反而不断缩水 内容概要 富豪持续涌入推高当地财富水平，迈阿密人口却不断减少，逐渐演变为一座体量缩小、消费水平偏高、主打高端宜居的城市。 迈阿密正迎来发展热潮，近些年大批富裕人群纷纷涌入这座都市圈。但与此同时，当地也出现反向趋势：人口总量持续下降。 如今的迈阿密已然蜕变，成为一座财富聚集、规模收缩、主打高端生活方式的繁华都市。曾经破
+本报记者 朱 隽 郁静娴 当前正是春季农忙时节。春耕生产进展顺利，冬小麦长势进程基本赶上常年，冬油菜面积稳定，长势较好。今年一季度，农业生产形势较好，第一产业固定资产投资同比增长15.9%，农业发展和农村基础设施投资力度持续加大。 “2026年是‘十五五’开局之年，做好‘三农’工作至关重要。”去年底，习近平总书记对做好“三农”工作作出重要指示，要求“锚定农业农村现代化，扎实推进
 
 ## 正文
 
-财富热潮拉动这座都市圈核心经济增长，当地人口规模反而不断缩水 内容概要 富豪持续涌入推高当地财富水平，迈阿密人口却不断减少，逐渐演变为一座体量缩小、消费水平偏高、主打高端宜居的城市。
+本报记者 朱 隽 郁静娴 当前正是春季农忙时节。
 
-迈阿密正迎来发展热潮，近些年大批富裕人群纷纷涌入这座都市圈。
+春耕生产进展顺利，冬小麦长势进程基本赶上常年，冬油菜面积稳定，长势较好。
 
-但与此同时，当地也出现反向趋势：人口总量持续下降。
+今年一季度，农业生产形势较好，第一产业固定资产投资同比增长15.9%，农业发展和农村基础设施投资力度持续加大。
 
-如今的迈阿密已然蜕变，成为一座财富聚集、规模收缩、主打高端生活方式的繁华都市。
+“2026年是‘十五五’开局之年，做好‘三农’工作至关重要。
 
-曾经破败的仓储片区、市中心夜晚的冷清景象，以及南海滩朴素随性的风情早已不复存在。
+”去年底，习近平总书记对做好“三农”工作作出重要指示，要求“锚定农业农村现代化，扎实推进乡村全面振兴，推动城乡融合发展”。
 
-这里如今已然蜕变为精致国际化都市，卡地亚奢侈品门店林立，前卫艺术装置随处可见，高端商圈内遍布米其林星级餐厅。
+着眼新征程上如何加快建设农业强国，习近平总书记在实践中不断思考并擘画着中国特色农业农村现代化之路。
 
-全新的经济格局正在挤压中产群体的生存空间。
+“如果在现代化进程中把农村4亿多人落下，到头来‘一边是繁荣的城市、一边是凋敝的农村’，这不符合我们党的执政宗旨，也不符合社会主义的本质要求。
 
-不断壮大的高收入群体凭借旺盛消费力拉动区域经济，也让地方财政税收愈发充裕。
+” 2025年9月，在第八个“中国农民丰收节”到来之际，习近平总书记向全国广大农民和工作在“三农”战线上的同志们致以节日祝贺和诚挚问候，强调“中国式现代化离不开农业农村现代化”。
 
 ## 相关推荐
 
-- 2026-06-29 12:02 - [从“决断”到“转折”：2026轩辕汽车蓝皮书论坛在广州闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:00 - [【市场聚焦】黑色：回落压力较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:56 - [“中国哲学社会科学自主知识体系丛书”首批成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:54 - [“白色石油”再掀波澜 碳酸锂刚上20万元／吨就急跌 业内称跌幅有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:19 - [亚行行长神田真人称准备向菲律宾提供高达17.5亿美元的融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:04 - [Slate Grocery REIT宣布派发5月每单位0.072美元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:58 - [大和：腾讯控股目标价降至700港元 重申“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:21 - [证监会重击107起案件罚没33亿，近200只股票或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:21 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:22 - [第十届中俄博览会开幕 46个国家和地区1500余家企业参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:14 - [天玑开发者大会MDDC 2026：MediaTek AI开发套件下载量升至440%，发布多项重磅技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:12 - [受贿9220万余元 江西省人大常委会原副主任洪礼和一审获刑20年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:10 - [消失的欧亚水獭重回成都 “公园城市”迎“动物邻居”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:13 - [吴征铠院士铜像在复旦大学揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:17 - [宁德时代获大摩增持约77.82万股 每股均价约708.25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:18 - [我国太空金属增材制造技术取得突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:27 - [中国银联董事长董俊峰出席APEC工商咨询理事会会议 参加与墨西哥政府高层双边会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:04 - [凯莱英午前涨超8% 第一季度经调整归母净利润增近28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:04 - [新华时评丨借尸还魂的“大将”“大佐”们](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:08 - [北美与欧洲增长放缓，Spotify Q2利润指引不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:01 - [城堡证券高管称伊朗冲突风险消退 股债市场有望同步上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:10 - [酒价内参4月29日价格发布：五粮液1618保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:25 - [爱奇艺的“AI赌局”：当降本逻辑撞上内容本质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:12 - [中国国家文化产业拟向周星驰等认购方发行合共4680万份认股权证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:10 - [珠江流域持续暴雨 广东多地停课](http://www.blog.minike.top/Article/details/63244542914.shtml)
-- 2026-06-29 12:02 - [【小新的Vlog】侠客视角探文博 吉林特色展览解锁古韵风华](http://www.share.minike.top/Article/details/221657956.shtml)
-- 2026-06-29 12:12 - [“全球治理 青年新思·2026北京国际模拟联合国大会”在北京开幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](http://www.share.minike.top/Article/details/09672832.shtml)
-- 2026-06-29 12:21 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](http://www.share.kurohicncr.top/Article/details/380646499.shtml)
-- 2026-06-29 12:09 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](http://www.blog.kurohicncr.top/Article/details/387536.shtml)
-- 2026-06-29 12:18 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](http://www.share.kurohicncr.top/Article/details/43677.shtml)
-- 2026-06-29 12:14 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](http://www.share.kurohicncr.top/Article/details/0482528.shtml)
-- 2026-06-29 12:18 - [特朗普说“伊斯兰国”二号头目被“清除”](http://www.blog.kurohicncr.top/Article/details/4190132546.shtml)
-- 2026-06-29 11:58 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](http://www.share.minike.top/Article/details/70552.shtml)
-- 2026-06-29 12:01 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](http://www.share.kurohicncr.top/Article/details/90790.shtml)
-- 2026-06-29 11:59 - [芭蕾舞演员、医学专家带民众走出减重“误区”](http://www.blog.minike.top/Article/details/691418092.shtml)
-- 2026-06-29 12:21 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](http://www.blog.kurohicncr.top/Article/details/7742827.shtml)
+- 2026-06-29 12:12 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](http://www.share.kurohicncr.top/Article/details/82404067886.shtml)
+- 2026-06-29 12:05 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](http://www.share.kurohicncr.top/Article/details/7187340886.shtml)
+- 2026-06-29 12:15 - [一季度生态成绩单亮眼，高质量发展绿意盎然](http://www.share.kurohicncr.top/Article/details/848677303.shtml)
+- 2026-06-29 12:27 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](http://www.blog.kurohicncr.top/Article/details/37021856.shtml)
+- 2026-06-29 12:19 - [普京称西方正将领导地位让位于全球南方国家](http://www.blog.kurohicncr.top/Article/details/530057870864.shtml)
+- 2026-06-29 12:04 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](http://www.share.minike.top/Article/details/7906886.shtml)
+- 2026-06-29 12:28 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](http://www.blog.kurohicncr.top/Article/details/33691695.shtml)
+- 2026-06-29 12:13 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](http://www.blog.kurohicncr.top/Article/details/44975056451.shtml)
+- 2026-06-29 12:05 - [破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用](http://www.share.kurohicncr.top/Article/details/524177.shtml)
+- 2026-06-29 12:29 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](http://www.blog.minike.top/Article/details/417848.shtml)

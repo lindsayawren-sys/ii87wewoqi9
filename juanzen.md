@@ -1,57 +1,50 @@
-# 泰尔茂一季度营收8315亿日元，GAAP每股收益74.25日元
+# 金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-核心财务数据 泰尔茂公布2026财年第一季度财报。公司报告期内营收为8315亿日元，GAAP每股收益为74.25日元。此前公布的截至2025年12月31日的九个月业绩显示，归属于母公司股东的净利润增至1095.5亿日元，高于上年同期的986.2亿日元；每股收益74.25日元，上年同期为66.51日元；营业利润升至1448.7亿日元；营收增至8315.6亿日元。 业绩增长驱动因素
+金力永磁（06680）早盘涨近5%，截至发稿，股价上涨4.87%，现报19.59港元，成交额1.40亿港元。 金力永磁发布2026年第一季度业绩，营业收入约20.36亿元，同比增长16.05%；归属于上市公司股东的净利润约1.93亿元，同比增长20.09%；归属于上市公司股东的扣除非经常性损益的净利润1.76亿元，同比增长65.95%。报告期内，公司实现综合毛利率21.83%，
 
 ## 正文
 
-核心财务数据 泰尔茂公布2026财年第一季度财报。
+金力永磁（06680）早盘涨近5%，截至发稿，股价上涨4.87%，现报19.59港元，成交额1.40亿港元。
 
-公司报告期内营收为8315亿日元，GAAP每股收益为74.25日元。
+金力永磁发布2026年第一季度业绩，营业收入约20.36亿元，同比增长16.05%；归属于上市公司股东的净利润约1.93亿元，同比增长20.09%；归属于上市公司股东的扣除非经常性损益的净利润1.76亿元，同比增长65.95%。
 
-此前公布的截至2025年12月31日的九个月业绩显示，归属于母公司股东的净利润增至1095.5亿日元，高于上年同期的986.2亿日元；每股收益74.25日元，上年同期为66.51日元；营业利润升至1448.7亿日元；营收增至8315.6亿日元。
+报告期内，公司实现综合毛利率21.83%，较上年同期增加6.13个百分点；经营活动产生的现金流量净额为3.58亿元，较上年同期的-3.5亿元有明显改善，经营性现金流整体保持健康。
 
-业绩增长驱动因素 公司本季度业绩创下历史新高，主要得益于美国市场的强劲需求，尤其是心血管及血液与细胞技术业务板块的表现。
-
-定价策略的有效实施和全球范围内的成本控制，使利润增速超过营收增速。
-
-剔除汇率影响后，总营收增长6%。
-
-三大业务板块表现 心血管公司营收在本地货币基础上增长7%，主要由美国市场的TIS和神经业务带动，营业利润率提升5个百分点至29%。
-
-血液与细胞技术板块在血浆创新领域实现显著增长，细胞和基因治疗领域需求增加。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:15 - [5名意大利公民在马尔代夫潜水时身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:05 - [爱沙尼亚国防部长：军备采购价格涨50% 欧洲军工行业陷入恶性循环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:21 - [重庆忠县实景演艺《烽烟三国》 美国游客称赞体验令人震撼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:08 - [三星电子会长李在镕呼吁公司内部保持团结，并向公众致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:15 - [天润工业：公司与银轮股份没有业务往来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:56 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:12 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:12 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:58 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:59 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:20 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:04 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:05 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:14 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:11 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:14 - [“五一”假期预计约600万人次进出香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:20 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:26 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:09 - [央行今日开展259亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:10 - [传递“乌尔朵”的守边人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:23 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:09 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:10 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:55 - [连连数字于5月15日斥资134.75万港元回购23.55万股](http://www.share.minike.top/Article/details/284084624790.shtml)
-- 2026-06-29 12:04 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](http://www.share.minike.top/Article/details/77530844.shtml)
-- 2026-06-29 11:58 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [兰州新区全链赋能丝路“甘味”香飘海内外](http://www.share.minike.top/Article/details/884671.shtml)
-- 2026-06-29 12:03 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](http://www.share.minike.top/Article/details/44424.shtml)
-- 2026-06-29 12:15 - [“超级食物”真有那么神奇吗？专家揭秘真相](http://www.share.minike.top/Article/details/506816704.shtml)
-- 2026-06-29 12:01 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.blog.minike.top/Article/details/24130.shtml)
-- 2026-06-29 12:22 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](http://www.share.minike.top/Article/details/515570466.shtml)
-- 2026-06-29 12:14 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [土耳其理工名校掀起中国热](http://www.share.kurohicncr.top/Article/details/18930.shtml)
-- 2026-06-29 12:23 - [中美元首会谈是否讨论人工智能合作？中方回应](http://www.share.minike.top/Article/details/906241504613.shtml)
-- 2026-06-29 12:23 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](http://www.share.minike.top/Article/details/61663.shtml)
-- 2026-06-29 11:58 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](http://www.blog.kurohicncr.top/Article/details/62667396452.shtml)
-- 2026-06-29 12:12 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](http://www.share.kurohicncr.top/Article/details/605218515.shtml)
-- 2026-06-29 12:17 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](http://www.share.kurohicncr.top/Article/details/7385668150.shtml)
+- 2026-06-29 12:05 - [春到桑干河](http://www.blog.minike.top/Article/details/754472599180.shtml)
+- 2026-06-29 12:06 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [重庆国际消费节启幕 打造全域消费新场景](http://www.share.minike.top/Article/details/32014064.shtml)
+- 2026-06-29 12:22 - [中国选手赵一程打破男子速度攀岩世界纪录](http://www.blog.minike.top/Article/details/745141259.shtml)
+- 2026-06-29 12:27 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](http://www.blog.kurohicncr.top/Article/details/097766226.shtml)
+- 2026-06-29 12:29 - [“华住会”App崩了？客服回应](http://www.blog.minike.top/Article/details/4326467.shtml)
+- 2026-06-29 12:16 - [“五一”假期小型客车继续施行免收通行费政策](http://www.share.kurohicncr.top/Article/details/70724.shtml)
+- 2026-06-29 12:10 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.blog.kurohicncr.top/Article/details/028008186.shtml)
+- 2026-06-29 12:18 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.blog.minike.top/Article/details/137910020.shtml)
+- 2026-06-29 12:29 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](http://www.blog.kurohicncr.top/Article/details/46993661.shtml)
+- 2026-06-29 12:06 - [“十四五”期间中国新发现大中型油气田225处](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](http://www.blog.kurohicncr.top/Article/details/728886.shtml)

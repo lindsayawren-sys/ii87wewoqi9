@@ -1,58 +1,54 @@
-# 日本央行理事称投资基金活动对金融体系构成潜在风险
+# 加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-日本央行理事神山一成在周五在该行网站发布的讲话中表示，投资基金在提供风险资本方面发挥着关键作用，但也可能对一个国家的金融体系构成潜在风险。 神山一成指出，尽管非银行金融中介机构（NBFI）在日本金融资产总额中仅占30%，低于全球50%的平均水平，但外国对冲基金和私募股权基金在日本的投资却不断增加。 他补充说，近年来，私募股权基金在日本的企业重组和并购中发挥了越来越重要的作用。
+根据电动汽车分析师索耶·梅瑞特在X上分享的消息，美国加州海岸委员会已向加州海岸委员会已向埃隆·马斯克和 SpaceX公司正式道歉，并承诺未来在监管决策中不会考虑政治观点或言论。马斯克转发了梅瑞特的这篇帖子。 该机构在一份声明中表示：“委员会同意，在履行职责时不得考虑无关因素，并特别同意，在考虑任何与SpaceX相关的监管行动时，不会考虑SpaceX或其高管的政治信仰、政治言论或
 
 ## 正文
 
-日本央行理事神山一成在周五在该行网站发布的讲话中表示，投资基金在提供风险资本方面发挥着关键作用，但也可能对一个国家的金融体系构成潜在风险。
+根据电动汽车分析师索耶·梅瑞特在X上分享的消息，美国加州海岸委员会已向加州海岸委员会已向埃隆·马斯克和 SpaceX公司正式道歉，并承诺未来在监管决策中不会考虑政治观点或言论。
 
-神山一成指出，尽管非银行金融中介机构（NBFI）在日本金融资产总额中仅占30%，低于全球50%的平均水平，但外国对冲基金和私募股权基金在日本的投资却不断增加。
+马斯克转发了梅瑞特的这篇帖子。
 
-他补充说，近年来，私募股权基金在日本的企业重组和并购中发挥了越来越重要的作用。
+该机构在一份声明中表示：“委员会同意，在履行职责时不得考虑无关因素，并特别同意，在考虑任何与SpaceX相关的监管行动时，不会考虑SpaceX或其高管的政治信仰、政治言论或劳动实践。
 
-神山在周四的研讨会上发表讲话时指出，虽然非银行金融机构通过提供风险资本在促进经济增长方面发挥着作用，但它们也可能“对整个金融体系构成潜在风险”。
+委员会承认，委员们曾发表过一些言论，包括在2024年10月10日就SpaceX基地猎鹰9号发射计划举行的听证会上发表的言论，这些言论显示出对SpaceX及其首席执行官的政治偏见，且属不当言论。
 
-他表示：“全球对冲基金资本流动的突然转变可能会加剧债券和股票市场的价格波动。
+委员会就这些言论致歉。
 
-” 神山表示，随着日本金融机构增加对外国投资基金的贷款，外部冲击可能瞬间蔓延至国内市场的风险依然存在。
-
-他指出：“随着非银行金融机构拓展其全球业务，各国央行和监管机构之间的合作变得日益重要。
+” 梅瑞特评论称：“这份文件意味着 SpaceX和加州海岸委员会已就其联邦诉讼达成和解，并为SpaceX未来的猎鹰9号火箭发射提供了长期的监管清晰度。
 
 ”责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 12:06 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:00 - [王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:23 - [助力“东北超”歌曲《绿茵逐梦》上线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:17 - [泰尔茂一季度营收8315亿日元，GAAP每股收益74.25日元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:00 - [广西首批村集体持有林票线上竞价交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:57 - [马斯克诉 OpenAI案阶段性收官！奥特曼被曝内幕交易，昔日兄弟为何反目？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:11 - [一粒红芸豆改写边境乡镇产业轨迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:04 - [“莫斯科—哈尔滨”研讨会举行 共拓中俄地方合作新空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:10 - [宁德时代孟永健：V2G最难的不在反向放电，而是千万级车辆如何有序安全调度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:01 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:09 - [5名意大利公民在马尔代夫潜水时身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:14 - [爱沙尼亚国防部长：军备采购价格涨50% 欧洲军工行业陷入恶性循环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:05 - [银行业首个行业级“数据分类分级”大模型发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:13 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:15 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:09 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:04 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:27 - [新西兰央行行长：已准备好应对持续的价格压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:08 - [重庆罗斯福图书馆旧址将焕新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:20 - [北京首都机场“五一”假期预计运送旅客超100万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:14 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:02 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [文脉华章丨一个博物院就是一所大学校](http://www.share.minike.top/Article/details/97177470059.shtml)
-- 2026-06-29 12:17 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](http://www.blog.minike.top/Article/details/0771657372.shtml)
-- 2026-06-29 12:06 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](http://www.share.kurohicncr.top/Article/details/1731405569.shtml)
-- 2026-06-29 11:55 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [日本国债收益率飙升 投资者押注日资从美债回流本土](http://www.blog.minike.top/Article/details/731693804910.shtml)
-- 2026-06-29 11:54 - [首届中国新文创市集满场“黑科技” 观众：超出预期](http://www.share.kurohicncr.top/Article/details/8714566.shtml)
-- 2026-06-29 12:03 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](http://www.blog.kurohicncr.top/Article/details/902007424.shtml)
-- 2026-06-29 11:55 - [广西柳州成立具身智能机器人技术应用中心](http://www.blog.minike.top/Article/details/198652.shtml)
-- 2026-06-29 12:16 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](http://www.blog.minike.top/Article/details/1794336.shtml)
-- 2026-06-29 12:12 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](http://www.blog.kurohicncr.top/Article/details/509470351007.shtml)
-- 2026-06-29 12:02 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](http://www.share.minike.top/Article/details/663003.shtml)
-- 2026-06-29 12:06 - [兰州新区全链赋能丝路“甘味”香飘海内外](http://www.blog.minike.top/Article/details/0676344.shtml)
-- 2026-06-29 12:23 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](http://www.blog.minike.top/Article/details/65939.shtml)
+- 2026-06-29 12:25 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](http://www.blog.kurohicncr.top/Article/details/19668832.shtml)
+- 2026-06-29 12:12 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](http://www.share.minike.top/Article/details/355456.shtml)
+- 2026-06-29 12:08 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [指数级增长 2025年我国词元调用量约21100万亿](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](http://www.share.kurohicncr.top/Article/details/94841193.shtml)
+- 2026-06-29 12:14 - [中共中央政治局会议要点对比及解读](http://www.blog.minike.top/Article/details/979424273594.shtml)
+- 2026-06-29 12:11 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](http://www.share.minike.top/Article/details/694651.shtml)
+- 2026-06-29 12:17 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.share.kurohicncr.top/Article/details/76797.shtml)
+- 2026-06-29 12:28 - [谷歌员工反对将AI用于机密任务](http://www.share.kurohicncr.top/Article/details/83135755.shtml)
+- 2026-06-29 12:11 - [春到桑干河](http://www.share.minike.top/Article/details/78671688338.shtml)
+- 2026-06-29 12:13 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](http://www.blog.minike.top/Article/details/36225608644.shtml)
+- 2026-06-29 12:23 - [阿联酋能源部长：退出欧佩克对市场影响有限](http://www.share.minike.top/Article/details/23498179.shtml)
+- 2026-06-29 12:11 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [中国选手赵一程打破男子速度攀岩世界纪录](http://www.share.minike.top/Article/details/9960804.shtml)

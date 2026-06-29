@@ -1,61 +1,59 @@
-# 哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作
+# 竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新网重庆5月17日电 (张旭)“重庆在畜牧业现代化及农村科技创新等领域，取得了令人瞩目的成就。”哥伦比亚驻华大使塞尔希奥·卡夫雷拉在重庆市荣昌区表示，参加的此次交流活动，应成为哥伦比亚与重庆挖掘真实合作机会、推动联合项目发展的平台。 5月14日至16日，塞尔希奥·卡夫雷拉率哥伦比亚驻华大使馆、哥伦比亚全国牧场主联合会、哥伦比亚猪肉协会、哥伦比亚全国家禽养殖协会等机构代表组成的
+芬兰航空正从北欧航空的战略收缩和中东危机中获益。这家芬兰国有航空公司周一表示，竞争对手削减航线正在刺激其亚洲航线的中转需求增长。 北欧航空调整航线网络，芬兰航空获益 北欧航空在2024年经历破产重组后，将哥本哈根作为其主要枢纽，减少了从斯德哥尔摩阿兰达机场直飞的长途航班数量。这一调整迫使更多瑞典和挪威旅客选择经由芬兰航空的赫尔辛基枢纽中转。 芬兰航空首席商务官表示，随着北欧航空
 
 ## 正文
 
-中新网重庆5月17日电 (张旭)“重庆在畜牧业现代化及农村科技创新等领域，取得了令人瞩目的成就。
+芬兰航空正从北欧航空的战略收缩和中东危机中获益。
 
-”哥伦比亚驻华大使塞尔希奥·卡夫雷拉在重庆市荣昌区表示，参加的此次交流活动，应成为哥伦比亚与重庆挖掘真实合作机会、推动联合项目发展的平台。
+这家芬兰国有航空公司周一表示，竞争对手削减航线正在刺激其亚洲航线的中转需求增长。
 
-5月14日至16日，塞尔希奥·卡夫雷拉率哥伦比亚驻华大使馆、哥伦比亚全国牧场主联合会、哥伦比亚猪肉协会、哥伦比亚全国家禽养殖协会等机构代表组成的代表团，到访荣昌，走进重庆市畜牧科学院，共话畜牧科技合作，开启了一场“畜牧科技”主题的深度探访之旅。
+北欧航空调整航线网络，芬兰航空获益 北欧航空在2024年经历破产重组后，将哥本哈根作为其主要枢纽，减少了从斯德哥尔摩阿兰达机场直飞的长途航班数量。
 
-5月14日，代表团一行实地参观了澳龙生物、畜禽用抗菌肽研究中心、众信农牧等荣昌区科技企业和基地，实地考察重庆畜牧科技研发及特色畜禽养殖发展现状。
+这一调整迫使更多瑞典和挪威旅客选择经由芬兰航空的赫尔辛基枢纽中转。
 
-5月15日，代表团一行深入重庆市畜牧科学院，并实地参观了国家生猪技术创新中心公共实验室，与科研人员亲切交流。
+芬兰航空首席商务官表示，随着北欧航空调整航班布局，确实看到部分旅客转移到了芬兰航空的网络上。
 
-在重庆市畜牧科学院，代表团一行详细了解了该院的发展历程、科研布局等情况。
+数据显示，芬兰航空今年从赫尔辛基出发有19个长途目的地，而北欧航空从斯德哥尔摩出发仅剩11个。
 
-据了解，作为重庆公益一类畜牧科研机构，该院拥有14个研究所，聚焦猪、家禽、草食动物等多个物种，在畜禽遗传育种、绿色高效养殖、疫病防控等领域形成鲜明优势，尤其在荣昌猪开发利用、生物饲料创制、猪源生物材料开发等方面，取得了系列标志性成果。
+中东危机催生“意外红利” 与此同时，中东地区的军事冲突也意外地为这家北欧航空公司带来了利好。
 
-参访过程中，各方在荣昌区人民政府举行座谈会，围绕生猪、牛、禽三大领域技术需求与合作等关键议题展开深入交流。
+由于海湾地区遭到封锁，传统经海湾国家中转的亚欧航线严重受阻，部分旅客及企业转向更靠北的航线。
 
 ## 相关推荐
 
-- 2026-06-29 11:55 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:56 - [相向而行，共同开启中美关系新篇章（钟声）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:55 - [股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:11 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:04 - [日本央行警示：投资基金活动暗藏金融体系风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:23 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:20 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:02 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:03 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:08 - [高盛：中国移动目标价升至94港元 维持“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:21 - [以“生活”叙事陕味浓郁 《主角》热播引关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:12 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:09 - [光大证券：整固蓄势 积极看多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:19 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:09 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:28 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:16 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:06 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:13 - [如何看待中方叫停Manus并购案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:06 - [南京银行董事长谢宁解读“好银行”发展理念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:05 - [“漂流书包”十年：一份民主党派的阅读答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:03 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:19 - [康宁一季度利润与核心营收双双增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:12 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:01 - [五一机票又“跳水”了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:10 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:09 - [日本公然宣称为“长期战争”做准备 中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:05 - [金石为开——西安·沈阳名碑拓片特展开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:09 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](http://www.blog.minike.top/Article/details/65677235673.shtml)
-- 2026-06-29 12:21 - [尾盘：国债收益率大涨 美股继续下滑](http://www.blog.kurohicncr.top/Article/details/830733.shtml)
-- 2026-06-29 12:04 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](http://www.share.minike.top/Article/details/019092611.shtml)
-- 2026-06-29 12:08 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](http://www.share.kurohicncr.top/Article/details/64603.shtml)
-- 2026-06-29 12:13 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](http://www.blog.minike.top/Article/details/48280374.shtml)
-- 2026-06-29 12:03 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [日本央行理事称投资基金活动对金融体系构成潜在风险](http://www.share.kurohicncr.top/Article/details/60726664450.shtml)
-- 2026-06-29 12:05 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](http://www.blog.kurohicncr.top/Article/details/51230379.shtml)
-- 2026-06-29 12:20 - [沃尔玛希望Flipkart放慢节奏并实现盈利](http://www.share.kurohicncr.top/Article/details/9693409.shtml)
-- 2026-06-29 12:02 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](http://www.share.kurohicncr.top/Article/details/1175968.shtml)
-- 2026-06-29 12:01 - [CBA观察：我们需要一支怎样的山西男篮](http://www.share.minike.top/Article/details/49169.shtml)
-- 2026-06-29 12:17 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](http://www.blog.kurohicncr.top/Article/details/806392.shtml)
-- 2026-06-29 12:14 - [全国广电民生节目在渝交流创新经验](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [华盛顿发生两起枪击事件](http://www.share.kurohicncr.top/Article/details/78938196.shtml)
+- 2026-06-29 12:16 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](http://www.blog.kurohicncr.top/Article/details/0823693.shtml)
+- 2026-06-29 12:27 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](http://www.share.kurohicncr.top/Article/details/76343961935.shtml)
+- 2026-06-29 12:10 - [国务院任免国家工作人员](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](http://www.blog.kurohicncr.top/Article/details/1058844599.shtml)
+- 2026-06-29 12:09 - [第139届广交会二期闭幕](http://www.blog.kurohicncr.top/Article/details/582455325.shtml)
+- 2026-06-29 12:04 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](http://www.blog.kurohicncr.top/Article/details/892128853.shtml)
+- 2026-06-29 12:06 - [2026年盈江海关部门预算公开](http://www.share.kurohicncr.top/Article/details/904917730.shtml)
+- 2026-06-29 12:02 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](http://www.share.minike.top/Article/details/52173319274.shtml)
+- 2026-06-29 12:21 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](http://www.blog.kurohicncr.top/Article/details/187883.shtml)
+- 2026-06-29 12:02 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](http://www.share.minike.top/Article/details/1545334472.shtml)
+- 2026-06-29 12:21 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](http://www.share.minike.top/Article/details/22238015.shtml)
+- 2026-06-29 12:16 - [银行业首个行业级“数据分类分级”大模型发布](http://www.blog.kurohicncr.top/Article/details/93437.shtml)

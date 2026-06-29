@@ -1,51 +1,61 @@
-# 美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心
+# 欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月16日 19:20 来源：中国新闻网 5月15日下午，美国总统特朗普结束对中国的国事访问，乘专机离开北京。访问期间，中美双方就构建“中美建设性战略稳定关系”这一新定位达成共识，为未来三年乃至更长时间的中美关系提供了战略指引。谈及此次中美高层沟通带来的积极信号，美企负责人纷纷表示，两国关系的稳定为商业合作注入了宝贵信心，也有利于全球商界形成稳定预期。 记
+随着欧盟准备制定2028-2034年的七年财政框架，一场围绕约1.8万亿欧元巨资的“预算争夺战”已悄然打响。在资金需求与财政纪律之间，欧盟各国领导人正面临艰难的抉择。 资金规模与南北分歧 欧盟委员会最初提出的七年预算约为1.8万亿欧元。欧洲议会更进一步，主张将预算提升至1.78万亿欧元，较委员会提案增加约1750亿欧元。 然而，以荷兰、德国为首的“节俭派”国家坚决反对扩大预算规
 
 ## 正文
 
-发布时间：2026年05月16日 19:20 来源：中国新闻网 5月15日下午，美国总统特朗普结束对中国的国事访问，乘专机离开北京。
+随着欧盟准备制定2028-2034年的七年财政框架，一场围绕约1.8万亿欧元巨资的“预算争夺战”已悄然打响。
 
-访问期间，中美双方就构建“中美建设性战略稳定关系”这一新定位达成共识，为未来三年乃至更长时间的中美关系提供了战略指引。
+在资金需求与财政纪律之间，欧盟各国领导人正面临艰难的抉择。
 
-谈及此次中美高层沟通带来的积极信号，美企负责人纷纷表示，两国关系的稳定为商业合作注入了宝贵信心，也有利于全球商界形成稳定预期。
+资金规模与南北分歧 欧盟委员会最初提出的七年预算约为1.8万亿欧元。
 
-记者 迟瀚宇 北京报道 责任编辑：【吉翔】
+欧洲议会更进一步，主张将预算提升至1.78万亿欧元，较委员会提案增加约1750亿欧元。
+
+然而，以荷兰、德国为首的“节俭派”国家坚决反对扩大预算规模。
+
+他们主张预算应更加精简，这与希望增加支出的南欧和东欧国家形成了鲜明对立。
+
+德国因其净贡献国地位，在此次预算调整中可能成为“最大输家”之一。
+
+新旧优先事项的博弈 新版预算的核心矛盾在于新旧开支项目的角力。
 
 ## 相关推荐
 
-- 2026-06-29 12:05 - [债券承销违规！国都证券又被点名，一项目负责人被禁业1年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:10 - [英国国债大跌 投资者为伯纳姆挑战斯塔默做准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:21 - [2027澳网亚太区外卡赛将落地成都](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:17 - [何小鹏谈自动驾驶：2028年实现L4概率极高，2030年或见L5雏形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:16 - [国际人士：中美元首外交意义重大 推动世界和平发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:21 - [三星会长李在镕就劳资纠纷向公众致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:15 - [海南自贸港封关运作成绩单：实现高标准开局 红利加快释放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:11 - [中国大陆学者首获英国皇家经济学会终身院士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:10 - [Lifeward Q1营收不及预期，战略转型费用拖累盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:09 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:17 - [002342，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:09 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:06 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:01 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:07 - [中天策略:4月28日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:02 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:01 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:02 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:00 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:22 - [商务部：2026年1-3月我国电子商务持续平稳发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:21 - [民政部：着力推进普惠性、基础性、兜底性民生建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:12 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:07 - [2026年度丽江海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:07 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:01 - [重庆秀山：烟雨“边城” 古韵映春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:29 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:20 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:24 - [韩国宣布与Google DeepMind建立合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:23 - [“莫斯科—哈尔滨”研讨会举行 共拓中俄地方合作新空间](http://www.share.minike.top/Article/details/545093.shtml)
-- 2026-06-29 12:23 - [宁德时代孟永健：V2G最难的不在反向放电，而是千万级车辆如何有序安全调度](http://www.blog.minike.top/Article/details/00200092173.shtml)
-- 2026-06-29 12:17 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](http://www.blog.minike.top/Article/details/54730.shtml)
-- 2026-06-29 12:05 - [5名意大利公民在马尔代夫潜水时身亡](http://www.blog.minike.top/Article/details/1634251.shtml)
-- 2026-06-29 12:08 - [爱沙尼亚国防部长：军备采购价格涨50% 欧洲军工行业陷入恶性循环](http://www.blog.kurohicncr.top/Article/details/496887.shtml)
-- 2026-06-29 12:14 - [重庆忠县实景演艺《烽烟三国》 美国游客称赞体验令人震撼](http://www.share.minike.top/Article/details/391592884.shtml)
-- 2026-06-29 12:11 - [三星电子会长李在镕呼吁公司内部保持团结，并向公众致歉](http://www.share.minike.top/Article/details/306341004569.shtml)
-- 2026-06-29 12:02 - [天润工业：公司与银轮股份没有业务往来](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](http://www.blog.minike.top/Article/details/479888.shtml)
-- 2026-06-29 12:17 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.blog.minike.top/Article/details/70591683.shtml)
-- 2026-06-29 12:01 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](http://www.blog.kurohicncr.top/Article/details/2623629.shtml)
-- 2026-06-29 12:14 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](http://www.share.kurohicncr.top/Article/details/5206577617.shtml)
-- 2026-06-29 12:00 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](http://www.blog.kurohicncr.top/Article/details/264825.shtml)
-- 2026-06-29 12:03 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](http://www.share.kurohicncr.top/Article/details/62885728838.shtml)
-- 2026-06-29 12:05 - [总书记引领强国之路｜聚天下英才而用之](http://www.blog.minike.top/Article/details/887983965834.shtml)
+- 2026-06-29 12:05 - [北京首都机场“五一”假期预计运送旅客超100万人次](http://www.blog.minike.top/Article/details/39190.shtml)
+- 2026-06-29 12:06 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [【理响中国】指尖传新声，理论宣讲有声有色](http://www.share.minike.top/Article/details/6961376.shtml)
+- 2026-06-29 12:00 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](http://www.share.minike.top/Article/details/13784766.shtml)
+- 2026-06-29 12:10 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](http://www.blog.minike.top/Article/details/960496297076.shtml)
+- 2026-06-29 12:06 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](http://www.share.minike.top/Article/details/512745572.shtml)
+- 2026-06-29 12:04 - [“五一”假期预计约600万人次进出香港](http://www.share.kurohicncr.top/Article/details/232360629386.shtml)
+- 2026-06-29 12:14 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](http://www.share.minike.top/Article/details/7749159368.shtml)
+- 2026-06-29 12:01 - [央行今日开展259亿元7天期逆回购操作](http://www.share.kurohicncr.top/Article/details/32777077278.shtml)
+- 2026-06-29 12:21 - [传递“乌尔朵”的守边人](http://www.share.minike.top/Article/details/31629699.shtml)
+- 2026-06-29 12:13 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](http://www.share.kurohicncr.top/Article/details/43807.shtml)
+- 2026-06-29 12:22 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](https://github.com/lisacumin64-arch)

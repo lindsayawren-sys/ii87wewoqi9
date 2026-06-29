@@ -1,61 +1,56 @@
-# 002342，被证监会立案！
+# 361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！巨力索具（维权）（002342）5月15日晚发布公告，公司于当日收到证监会下发的《立案告知书》，因涉嫌信息披露误导性陈述违法违规，证监会已于5月13日决定对公司立案调查。公司表示，目前经营状况正常，调查期间将积极配合监管工作，严格履行信息披露义务。 此前巨力
+361度（01361）发布公告，于2026年4月28日（交易时段前），卖方铭榕国际有限公司、公司与配售代理订立配售及认购协议，据此，配售代理同意按尽力基准，以每股配售股份6.18港元向不少于六名承配人配售由卖方持有的最多1亿股配售股份。1亿股股份占经认购股份配发及发行而扩大的公司已发行股本约4.61%。每股配售股份的价格较最后交易日在联交所所报的收市价每股6.920港元折让约1
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+361度（01361）发布公告，于2026年4月28日（交易时段前），卖方铭榕国际有限公司、公司与配售代理订立配售及认购协议，据此，配售代理同意按尽力基准，以每股配售股份6.18港元向不少于六名承配人配售由卖方持有的最多1亿股配售股份。
 
-巨力索具（维权）（002342）5月15日晚发布公告，公司于当日收到证监会下发的《立案告知书》，因涉嫌信息披露误导性陈述违法违规，证监会已于5月13日决定对公司立案调查。
+1亿股股份占经认购股份配发及发行而扩大的公司已发行股本约4.61%。
 
-公司表示，目前经营状况正常，调查期间将积极配合监管工作，严格履行信息披露义务。
+每股配售股份的价格较最后交易日在联交所所报的收市价每股6.920港元折让约10.69%。
 
-此前巨力索具已多次被监管关注。
+假设配售股份根据配售事项获悉数配售，且认购事项已告完成：认购事项所得款项总额估计约为6.18亿港元；及认购事项所得款项净额估计约为6.11亿港元。
 
-2025年12月，公司及高管因应收账款减值计提不准确、政府补助披露不及时、公司治理不规范等问题，被河北证监局采取责令改正、出具警示函等监管措施。
+拟将所得款项净额按以下方式使用：约80%将用于拓展海外市场网络，包括但不限于：零售店铺的租赁及装修、电子商务平台的搭建、潜在业务目标的收购、营销及品牌推广活动，以及设立海外附属公司；及约20%将用于一般营运资金及其他一般企业用途，包括但不限于：支持集团主要业务的日常运营及持续业务发展，以及拨付设立海外附属公司及办事处的启动资金。
 
-2026年3月，公司和高管因信披事项被深交所通报批评。
-
-巨力索具于2025年12月至2026年2月期间，在互动平台及《投资者关系活动记录表》中宣称“为国内可回收火箭提供关键产品支持”“提供系统性保障”等，但未披露相关业务收入规模极低的事实。
-
-经监管督促，公司于2026年2月12日澄清：2025年商业航天订单累计996.51万元，可确认收入占比低于0.50%；2026年初至披露日新增订单128.65万元，对业绩影响微乎其微。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:06 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:12 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:03 - [尾盘：国债收益率大涨 美股继续下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:06 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:11 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:10 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:13 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:10 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:16 - [日本央行理事称投资基金活动对金融体系构成潜在风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:22 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:07 - [沃尔玛希望Flipkart放慢节奏并实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:58 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:21 - [CBA观察：我们需要一支怎样的山西男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:57 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:10 - [全国广电民生节目在渝交流创新经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:14 - [深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:20 - [华盛顿发生两起枪击事件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:23 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:19 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:05 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:28 - [国务院任免国家工作人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:10 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:23 - [第139届广交会二期闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:07 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:28 - [2026年盈江海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:21 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:15 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:29 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:24 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:15 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [台湾西螺七嵌客家武术流派赴福建诏安交流](http://www.blog.kurohicncr.top/Article/details/682279.shtml)
-- 2026-06-29 11:58 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](http://www.share.minike.top/Article/details/489761028.shtml)
-- 2026-06-29 11:54 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](http://www.share.minike.top/Article/details/538284351.shtml)
-- 2026-06-29 12:23 - [杭州欧美同学会国际文化交流工作委员会成立](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](http://www.blog.minike.top/Article/details/68001529.shtml)
-- 2026-06-29 12:09 - [联播+｜读懂中国的特别窗口](http://www.share.kurohicncr.top/Article/details/733376.shtml)
-- 2026-06-29 12:10 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](http://www.share.kurohicncr.top/Article/details/23187.shtml)
-- 2026-06-29 12:14 - [星网宇达：截至2026年4月20日公司股东人数为40184户](http://www.blog.kurohicncr.top/Article/details/040520145491.shtml)
-- 2026-06-29 12:11 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](http://www.share.kurohicncr.top/Article/details/740508.shtml)
-- 2026-06-29 11:55 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](http://www.share.minike.top/Article/details/64430080462.shtml)
-- 2026-06-29 12:05 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](http://www.share.kurohicncr.top/Article/details/363090.shtml)
-- 2026-06-29 12:05 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](http://www.share.kurohicncr.top/Article/details/686936369.shtml)
-- 2026-06-29 12:01 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](http://www.share.kurohicncr.top/Article/details/777676.shtml)
-- 2026-06-29 12:20 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](http://www.share.kurohicncr.top/Article/details/74295.shtml)
+- 2026-06-29 12:22 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](http://www.share.minike.top/Article/details/946513742891.shtml)
+- 2026-06-29 12:17 - [渝昆高铁川滇段无砟轨道施工全部完成](http://www.blog.minike.top/Article/details/85406685.shtml)
+- 2026-06-29 12:02 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](http://www.share.kurohicncr.top/Article/details/000522052.shtml)
+- 2026-06-29 12:21 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [西安通报5起违反中央八项规定精神问题](http://www.blog.minike.top/Article/details/273116062.shtml)
+- 2026-06-29 12:03 - [GTC泽汇资本:黄金整理静待方向明朗](http://www.blog.kurohicncr.top/Article/details/71488926502.shtml)
+- 2026-06-29 12:06 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [OpenAI称已更新与微软的合作伙伴关系](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](http://www.share.minike.top/Article/details/8916461465.shtml)
+- 2026-06-29 12:21 - [【市场聚焦】棉花：美国主产区干旱持续发酵带动全球棉市价格上行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [“伊斯兰国”袭击尼日利亚东北部 造成至少29人丧生](http://www.blog.kurohicncr.top/Article/details/02626980.shtml)
+- 2026-06-29 12:26 - [中钢协：一季度钢材价格总体走势平稳但处于近年同期最低水平](http://www.share.minike.top/Article/details/170317076.shtml)
+- 2026-06-29 12:14 - [谷歌不顾员工反对，与美国国防部签署机密人工智能合作协议](http://www.share.kurohicncr.top/Article/details/913303863444.shtml)
+- 2026-06-29 12:13 - [穿越机视角领略婺源“江南第一奇谷”飞瀑景观](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](http://www.blog.kurohicncr.top/Article/details/63737.shtml)

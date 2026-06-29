@@ -1,46 +1,60 @@
-# 太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用
+# 受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-5月15日金融一线消息，据国家金融监督管理总局临汾监管分局行政处罚信息公开表显示，中国太平洋财产保险股份有限公司曲沃支公司因利用保险代理人从事以虚构保险中介业务的方式套取费用，被责令改正并罚款9万元；郭磊（时任中国太平洋财产保险股份有限公司曲沃支公司经理）对中国太平洋财产保险股份有限公司曲沃支公司利用保险代理人从事以虚构保险中介业务的方式套取费用负有责任，被警告并罚款3万元 责
+受中东冲突影响，泰国财政部周二将今年经济增长预期从2.0%下调至1.6%，不过该部表示，政府采取的措施将对经济活动提供一定支撑。 泰国财政部财政政策办公室主任Vinit Visessuvanapoom在新闻发布会上表示，作为泰国经济增长关键动力的出口，今年预计将增长6.2%，而1月份的预测为增长1.0%。 他表示，战争推高了能源成本，但无需担心滞胀，因为通胀仍处于目标范围内，且
 
 ## 正文
 
-5月15日金融一线消息，据国家金融监督管理总局临汾监管分局行政处罚信息公开表显示，中国太平洋财产保险股份有限公司曲沃支公司因利用保险代理人从事以虚构保险中介业务的方式套取费用，被责令改正并罚款9万元；郭磊（时任中国太平洋财产保险股份有限公司曲沃支公司经理）对中国太平洋财产保险股份有限公司曲沃支公司利用保险代理人从事以虚构保险中介业务的方式套取费用负有责任，被警告并罚款3万元 责任编辑：王馨茹
+受中东冲突影响，泰国财政部周二将今年经济增长预期从2.0%下调至1.6%，不过该部表示，政府采取的措施将对经济活动提供一定支撑。
+
+泰国财政部财政政策办公室主任Vinit Visessuvanapoom在新闻发布会上表示，作为泰国经济增长关键动力的出口，今年预计将增长6.2%，而1月份的预测为增长1.0%。
+
+他表示，战争推高了能源成本，但无需担心滞胀，因为通胀仍处于目标范围内，且投资持续扩张，并补充说财政部和央行正在密切监测局势。
+
+泰国财政部表示，预计今年整体通胀率将达到3.0%，而此前预测为0.3%。
+
+泰国央行的通胀目标区间为1%至3%。
+
+该部称，预计今年民间投资将增长3.2%，政府投资将增长1.7%，并补充称，预计今年民间消费将增长2.3%。
+
+Vinit表示，增长预测已将政府支持措施纳入考量，其中包括一项消费补贴计划。
+
+政府还计划在10月前借贷最高5000亿泰铢（154.2亿美元）以支持经济。
 
 ## 相关推荐
 
-- 2026-06-29 12:14 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:57 - [CBA观察：我们需要一支怎样的山西男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:10 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:14 - [全国广电民生节目在渝交流创新经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:10 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:12 - [王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:07 - [助力“东北超”歌曲《绿茵逐梦》上线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:02 - [泰尔茂一季度营收8315亿日元，GAAP每股收益74.25日元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:22 - [广西首批村集体持有林票线上竞价交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:03 - [马斯克诉 OpenAI案阶段性收官！奥特曼被曝内幕交易，昔日兄弟为何反目？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:10 - [一粒红芸豆改写边境乡镇产业轨迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:13 - [“莫斯科—哈尔滨”研讨会举行 共拓中俄地方合作新空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:14 - [宁德时代孟永健：V2G最难的不在反向放电，而是千万级车辆如何有序安全调度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:19 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:01 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:07 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:16 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:12 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:18 - [银行业首个行业级“数据分类分级”大模型发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:16 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:23 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:15 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:12 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:07 - [新西兰央行行长：已准备好应对持续的价格压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:29 - [重庆罗斯福图书馆旧址将焕新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:20 - [北京首都机场“五一”假期预计运送旅客超100万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:28 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:11 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:20 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](http://www.share.minike.top/Article/details/699314019.shtml)
-- 2026-06-29 12:07 - [文脉华章丨一个博物院就是一所大学校](http://www.blog.minike.top/Article/details/40301.shtml)
-- 2026-06-29 12:10 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](http://www.share.minike.top/Article/details/619488.shtml)
-- 2026-06-29 12:13 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](http://www.blog.minike.top/Article/details/807360.shtml)
-- 2026-06-29 12:20 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](http://www.blog.kurohicncr.top/Article/details/25712.shtml)
-- 2026-06-29 12:04 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](http://www.share.kurohicncr.top/Article/details/14643.shtml)
-- 2026-06-29 12:13 - [日本国债收益率飙升 投资者押注日资从美债回流本土](http://www.share.kurohicncr.top/Article/details/85073528538.shtml)
-- 2026-06-29 12:09 - [首届中国新文创市集满场“黑科技” 观众：超出预期](http://www.share.minike.top/Article/details/4086867987.shtml)
-- 2026-06-29 12:15 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](http://www.share.kurohicncr.top/Article/details/27210017.shtml)
-- 2026-06-29 12:17 - [广西柳州成立具身智能机器人技术应用中心](http://www.share.minike.top/Article/details/466822329042.shtml)
-- 2026-06-29 12:18 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](http://www.blog.minike.top/Article/details/04175568610.shtml)
-- 2026-06-29 11:55 - [连连数字于5月15日斥资134.75万港元回购23.55万股](http://www.share.minike.top/Article/details/1962685.shtml)
+- 2026-06-29 12:06 - [中钢协：一季度钢材价格总体走势平稳但处于近年同期最低水平](http://www.blog.kurohicncr.top/Article/details/72862728747.shtml)
+- 2026-06-29 12:00 - [谷歌不顾员工反对，与美国国防部签署机密人工智能合作协议](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [穿越机视角领略婺源“江南第一奇谷”飞瀑景观](http://www.share.minike.top/Article/details/42523095.shtml)
+- 2026-06-29 12:10 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](http://www.share.minike.top/Article/details/26045844.shtml)
+- 2026-06-29 12:07 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](http://www.share.minike.top/Article/details/936018.shtml)
+- 2026-06-29 12:02 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](http://www.blog.kurohicncr.top/Article/details/436970986.shtml)
+- 2026-06-29 12:17 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](http://www.blog.kurohicncr.top/Article/details/748205897.shtml)
+- 2026-06-29 12:11 - [指数级增长 2025年我国词元调用量约21100万亿](http://www.blog.kurohicncr.top/Article/details/77189007.shtml)
+- 2026-06-29 12:22 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](http://www.share.minike.top/Article/details/9388693189.shtml)
+- 2026-06-29 12:08 - [中共中央政治局会议要点对比及解读](http://www.blog.minike.top/Article/details/645592.shtml)
+- 2026-06-29 12:12 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](http://www.blog.minike.top/Article/details/25193.shtml)
+- 2026-06-29 12:04 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.blog.minike.top/Article/details/487519.shtml)
+- 2026-06-29 12:07 - [谷歌员工反对将AI用于机密任务](http://www.blog.kurohicncr.top/Article/details/233864140671.shtml)
+- 2026-06-29 12:28 - [春到桑干河](http://www.blog.kurohicncr.top/Article/details/9244611694.shtml)

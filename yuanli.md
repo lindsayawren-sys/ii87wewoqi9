@@ -1,59 +1,60 @@
-# Whale Rock一季度大幅调仓：建仓苹果微软，减持英伟达
+# 马斯克在对OpenAI的诉讼案中首日出庭作证
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-科技股仓位重大调整 波士顿对冲基金Whale Rock Capital Management近日向美国证券交易委员会提交了13F文件，披露了其2026年第一季度末的持仓变化。文件显示，该基金在一季度进行了显著的科技股仓位调整：新建仓苹果和微软，同时大幅减持了近年来炙手可热的英伟达股票。 建仓逻辑：从硬件转向软件生态 虽然苹果近期因iPhone销量疲软和AI布局迟缓面临市场压力，
+当地时间周二，美国科技亿万富翁埃隆·马斯克在其对OpenAI的诉讼案中首日出庭作证。据报道，这位全球首富告诉由九人组成的陪审团，人工智能“可能会毁灭我们所有人”，并提到了詹姆斯·卡梅隆的《终结者》（人工智能的糟糕后果）和《星际迷航》（人工智能的美好结果）。 他还把 OpenAI 的整个故事归咎于谷歌联合创始人拉里·佩奇曾经对他说过的一句侮辱：“物种歧视者”。 这场预计将持续四周
 
 ## 正文
 
-科技股仓位重大调整 波士顿对冲基金Whale Rock Capital Management近日向美国证券交易委员会提交了13F文件，披露了其2026年第一季度末的持仓变化。
+当地时间周二，美国科技亿万富翁埃隆·马斯克在其对OpenAI的诉讼案中首日出庭作证。
 
-文件显示，该基金在一季度进行了显著的科技股仓位调整：新建仓苹果和微软，同时大幅减持了近年来炙手可热的英伟达股票。
+据报道，这位全球首富告诉由九人组成的陪审团，人工智能“可能会毁灭我们所有人”，并提到了詹姆斯·卡梅隆的《终结者》（人工智能的糟糕后果）和《星际迷航》（人工智能的美好结果）。
 
-建仓逻辑：从硬件转向软件生态 虽然苹果近期因iPhone销量疲软和AI布局迟缓面临市场压力，但Whale Rock建仓苹果的举动可能意味着其看好苹果在服务收入和边缘AI领域的长期潜力。
+他还把 OpenAI 的整个故事归咎于谷歌联合创始人拉里·佩奇曾经对他说过的一句侮辱：“物种歧视者”。
 
-苹果当前拥有超过20亿台活跃设备，服务业务毛利率持续维持在70%以上的高位，成为稳定利润来源。
+这场预计将持续四周的审判，核心是马斯克在2024年提起的诉讼，指控OpenAI背叛了其作为非营利组织“造福全人类”的创立宗旨。
 
-与此同时，Whale Rock将微软作为另一重点建仓对象。
+2015年，马斯克与萨姆·奥特曼共同创立了OpenAI实验室。
 
-微软凭借与OpenAI的深度合作，已成为企业AI软件和应用层的领导者。
+此前，两人曾花费数周时间讨论他们对人工智能落入以盈利为目的的巨型企业（尤其是谷歌）手中的担忧。
 
-Azure云业务增速重新加速，叠加Microsoft 365 Copilot等AI生产力工具的逐步落地，市场预期微软将在AI商业化进程中率先受益。
+然而，到了2017年，他们意识到，构建先进的人工智能所需的资金远超非营利组织所能筹集的范围，于是他们开始讨论将OpenAI转变为营利性机构。
 
-Whale Rock此轮调仓反映出从硬件基础设施向软件应用和服务迁移的布局思路。
+马斯克曾向OpenAI捐赠至少3800万美元，他希望担任首席执行官并获得控股权，但在与奥特曼就此职位展开权力斗争后，他感到自己受到了欺骗。
 
 ## 相关推荐
 
-- 2026-06-29 11:54 - [亚行行长神田真人称准备向菲律宾提供高达17.5亿美元的融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:04 - [Slate Grocery REIT宣布派发5月每单位0.072美元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:03 - [大和：腾讯控股目标价降至700港元 重申“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:02 - [证监会重击107起案件罚没33亿，近200只股票或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:19 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:14 - [第十届中俄博览会开幕 46个国家和地区1500余家企业参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:13 - [天玑开发者大会MDDC 2026：MediaTek AI开发套件下载量升至440%，发布多项重磅技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:14 - [郑丽文：反对“台独”是稳定台海关键](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:05 - [在霍尔木兹海峡或长期关闭之际 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:18 - [高德专车上线静音服务，用户可一键定制“静音专车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:07 - [世界超级摩托车锦标赛捷克站：“张雪机车”位列超级杆位赛第三名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:09 - [内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:12 - [拉动文旅消费过亿 一场“村跑”何来如此大的能量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:05 - [我国太空金属增材制造技术取得突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:17 - [中国银联董事长董俊峰出席APEC工商咨询理事会会议 参加与墨西哥政府高层双边会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:11 - [凯莱英午前涨超8% 第一季度经调整归母净利润增近28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:14 - [新华时评丨借尸还魂的“大将”“大佐”们](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:02 - [北美与欧洲增长放缓，Spotify Q2利润指引不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:26 - [城堡证券高管称伊朗冲突风险消退 股债市场有望同步上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:21 - [酒价内参4月29日价格发布：五粮液1618保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:10 - [爱奇艺的“AI赌局”：当降本逻辑撞上内容本质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:06 - [中国国家文化产业拟向周星驰等认购方发行合共4680万份认股权证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:12 - [银行理财子加速“扫货”权益市场，打新报价量两月激增近九成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:00 - [【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:15 - [转让底价6573万元，华泰保险集团880万股股份再度挂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:16 - [翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:27 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](http://www.share.kurohicncr.top/Article/details/075558257.shtml)
-- 2026-06-29 12:13 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](http://www.share.kurohicncr.top/Article/details/271991630877.shtml)
-- 2026-06-29 12:08 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](http://www.blog.kurohicncr.top/Article/details/994247215.shtml)
-- 2026-06-29 11:55 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](http://www.share.minike.top/Article/details/06472709165.shtml)
-- 2026-06-29 11:57 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](http://www.blog.minike.top/Article/details/19762270809.shtml)
-- 2026-06-29 12:03 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](http://www.blog.kurohicncr.top/Article/details/89204631236.shtml)
-- 2026-06-29 11:59 - [特朗普说“伊斯兰国”二号头目被“清除”](http://www.share.kurohicncr.top/Article/details/5338339061.shtml)
-- 2026-06-29 12:01 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](http://www.blog.kurohicncr.top/Article/details/42602884973.shtml)
-- 2026-06-29 12:02 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](http://www.share.kurohicncr.top/Article/details/026890.shtml)
-- 2026-06-29 12:14 - [芭蕾舞演员、医学专家带民众走出减重“误区”](http://www.blog.kurohicncr.top/Article/details/974965.shtml)
-- 2026-06-29 12:16 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](http://www.blog.kurohicncr.top/Article/details/3168035.shtml)
-- 2026-06-29 12:15 - [倒车接人？科创芯片震荡两连阴，原因找到](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [能源危机叠加日元贬值，日本实体经济正为中东战火埋单](http://www.blog.kurohicncr.top/Article/details/677354478.shtml)
-- 2026-06-29 12:17 - [外交部：中美双方就两国元首年内互动安排保持着沟通](http://www.share.minike.top/Article/details/840863282.shtml)
-- 2026-06-29 12:16 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [一季度生态成绩单亮眼，高质量发展绿意盎然](http://www.share.minike.top/Article/details/2514714219.shtml)
+- 2026-06-29 12:13 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](http://www.share.minike.top/Article/details/3307611.shtml)
+- 2026-06-29 12:02 - [普京称西方正将领导地位让位于全球南方国家](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](http://www.share.minike.top/Article/details/8064725.shtml)
+- 2026-06-29 12:19 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](http://www.share.minike.top/Article/details/86764446034.shtml)
+- 2026-06-29 12:24 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用](http://www.blog.minike.top/Article/details/9805432.shtml)
+- 2026-06-29 12:05 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](http://www.blog.minike.top/Article/details/120350848.shtml)
+- 2026-06-29 12:04 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](http://www.share.kurohicncr.top/Article/details/41691121.shtml)
+- 2026-06-29 12:26 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](http://www.share.minike.top/Article/details/04508.shtml)
+- 2026-06-29 12:15 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](http://www.share.kurohicncr.top/Article/details/31866069.shtml)
+- 2026-06-29 12:04 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](http://www.share.kurohicncr.top/Article/details/87098439563.shtml)
+- 2026-06-29 12:01 - [泰国央行维持关键利率不变 以抵御油价对经济的冲击](http://www.blog.minike.top/Article/details/65181.shtml)
+- 2026-06-29 12:26 - [全国首单银行间市场消费类定向资产支持票据发行](http://www.share.kurohicncr.top/Article/details/3602547628.shtml)
+- 2026-06-29 12:10 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](http://www.blog.minike.top/Article/details/65213547.shtml)

@@ -1,61 +1,60 @@
-# 多家银行关停独立信用卡App，有何影响？
+# *ST岩石退市尘埃落定？上海贵酒5月6日收盘后或将“告别”A股舞台
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:04 UTC+8
 
 ## 摘要
 
-中国银行本周发布公告，信用卡专属手机应用程序“缤纷生活”将从7月1日起停止服务，此前，多家银行也陆续宣布关停信用卡手机应用程序。那么，银行是不是在收缩信用卡服务，对我们持卡人有什么影响？ 记者第一时间联系了中国银行，中行表示，关停信用卡手机应用程序，不会影响客户的使用和体验，他们将原有的服务全部整合进了中国银行手机应用里。部分同样宣布关停信用卡手机应用的银行也表示，他们只是将手
+记者|刘明涛 编辑|叶峰 终究没有奇迹发生！ 随着4月29日一字跌停收盘，*ST岩石（600969）已经连续18个交易日市值低于5亿元，由于其市值无法在接下来两个交易日回到5亿元以上，至此，*ST岩石退市似乎板上钉钉。那么，5月6日收盘后，上海贵酒或将因连续20个交易日市值未达5亿元而“告别”A股舞台（注：最终要以交易所公告为准）。 或面临交易类强制退市 4月29日，*ST岩石
 
 ## 正文
 
-中国银行本周发布公告，信用卡专属手机应用程序“缤纷生活”将从7月1日起停止服务，此前，多家银行也陆续宣布关停信用卡手机应用程序。
+记者|刘明涛 编辑|叶峰 终究没有奇迹发生！
 
-那么，银行是不是在收缩信用卡服务，对我们持卡人有什么影响？
+随着4月29日一字跌停收盘，*ST岩石（600969）已经连续18个交易日市值低于5亿元，由于其市值无法在接下来两个交易日回到5亿元以上，至此，*ST岩石退市似乎板上钉钉。
 
-记者第一时间联系了中国银行，中行表示，关停信用卡手机应用程序，不会影响客户的使用和体验，他们将原有的服务全部整合进了中国银行手机应用里。
+那么，5月6日收盘后，上海贵酒或将因连续20个交易日市值未达5亿元而“告别”A股舞台（注：最终要以交易所公告为准）。
 
-部分同样宣布关停信用卡手机应用的银行也表示，他们只是将手机端的应用程序进行了整合，让用户更方便地通过一个入口进入，目标是让用户更方便，不会因此降低信用卡的服务标准。
+或面临交易类强制退市 4月29日，*ST岩石以1.31元/股收盘，总市值仅剩4.375亿元，连续18个交易日市值低于5亿元“红线”。
 
-此前，部分银行还停发了一些联名信用卡、主题信用卡等。
+由于ST股涨跌幅仅5%的限制，即便*ST岩石随后连续两日涨停，其市值也无法再回到5亿元以上。
 
-那么，银行是不是在调整信用卡业务？
+根据《股票上市规则》的规定，上市公司出现连续20个交易日在上交所的每日股票收盘总市值均低于5亿元情形的，上交所将决定终止公司股票上市，属于交易类强制退市。
 
-上海金融与发展实验室副主任 董希淼：从信用卡业务来看，它正从原来的“跑马圈地”阶段进入到一个“精耕细作”的阶段，银行业的竞争已经从增量竞争转向存量博弈，银行可能会更多服务好存量客户群体，而不是继续扩张。
+因此，*ST岩石退市或已尘埃落定。
 
-信用卡不只是一个金融工具，它会成为一个综合的生活的助手，融入你生活的各类场景。
+《每日经济新闻·将进酒》记者注意到，4月17日，市场资金曾博弈*ST岩石市值退市，*ST岩石在当日实现地天板涨停，成交金额显著放大，随后其股价连续6个交易日涨停，一度涨至1.45元/股，市值回到4.84亿元，然而4月28日和29日连续两日一字跌停，彻底击碎*ST岩石保壳希望。
 
 ## 相关推荐
 
-- 2026-06-29 11:58 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:55 - [自强不息追光逐梦 五名残疾人代表共话奋斗故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:09 - [金融监管总局发布2026年一季度银行业保险业主要监管指标数据情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:22 - [厦门港新增一条直航印度尼西亚货运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:01 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:56 - [和远气体5天3板引关注，公司称六氟化钨产品暂未贡献业绩，尚处于试生产阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:56 - [山西太原：老人心跳骤停 急诊护士70秒抢救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:56 - [薛定谔方程发表百年 “中二所的奇‘喵’冒险” 全面呈现科学魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:14 - [6连板！澄清与英伟达关系后，蒙娜丽莎继续涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:00 - [三星工会称仍计划于下周举行罢工，谈判要到罢工结束后进行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:09 - [邦达亚洲:市场的避险情绪挥之不去 澳元承压下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:05 - [浙江北仑灵峰工业社区：打造“家门口”的红色精神家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:57 - [“活力乡村”重庆援尼畜牧和水产支持项目在尼泊尔启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:54 - [俄梁赞州州长：乌无人机袭击首府致3死12伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:11 - [蓝皮书：“十五五”时期中国机器人产业将现两大新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:15 - [机器人产业爆发前夜，机器人ETF华夏（562500）或许是布局这一轮科技革命的最优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:19 - [末局逆转！成都AG夺得2026PEL春季赛总决赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:15 - [韩国综合股价指数开盘下跌0.3% 日股休市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:00 - [招股书曾写错毛利，微脉二闯港交所：AI医疗故事背后，三年亏超6亿 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:13 - [东方甄选股权激励！300名员工人均获授市值141万元股份，俞敏洪超4400万元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:07 - [美国流行音乐天后“霉霉”申请注册其声音和肖像商标，以抵御AI深度伪造技术侵害](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:06 - [磷石膏废弃物还能建房子？九三学社调研带你看从废渣到宝藏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:02 - [梁文锋增持DeepSeek 持股比例大幅上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:25 - [A股极致分化，创业板失守3600点，医疗等板块走强| 华宝基金3A日报（2026.4.28）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:09 - [美国7年期国债中标收益率略高于发行前交易水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:13 - [OpenAI增长失速冲击AI板块：超大规模资本支出模式遭遇“信任危机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:20 - [第二届西南农资骨干流通走廊建设推进大会在重庆涪陵举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:14 - [英伟达股价下跌，公司正继续在美国以外增加产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:04 - [美国能源部长：霍尔木兹海峡无需清除所有水雷也可以开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:20 - [高德专车上线静音服务，用户可一键定制“静音专车”](http://www.blog.kurohicncr.top/Article/details/660759024836.shtml)
-- 2026-06-29 12:02 - [世界超级摩托车锦标赛捷克站：“张雪机车”位列超级杆位赛第三名](http://www.blog.minike.top/Article/details/743840.shtml)
-- 2026-06-29 12:19 - [内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法被开除党籍](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [拉动文旅消费过亿 一场“村跑”何来如此大的能量？](http://www.blog.minike.top/Article/details/626226037482.shtml)
-- 2026-06-29 11:55 - [时令水果批量上市 专家提示当心糖分超标](http://www.blog.minike.top/Article/details/6522847.shtml)
-- 2026-06-29 11:57 - [交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？](http://www.blog.minike.top/Article/details/97509181.shtml)
-- 2026-06-29 12:11 - [主力资金，“盯上”这些股票](http://www.share.minike.top/Article/details/111309841.shtml)
-- 2026-06-29 12:12 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](http://www.blog.minike.top/Article/details/591354261.shtml)
-- 2026-06-29 12:10 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [中东部有大范围降水 黄海海域有大雾](http://www.blog.kurohicncr.top/Article/details/8538114978.shtml)
-- 2026-06-29 12:10 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](http://www.share.kurohicncr.top/Article/details/622118.shtml)
-- 2026-06-29 12:03 - [重庆对8个区县启动地质灾害四级应急响应](http://www.share.minike.top/Article/details/519488929930.shtml)
-- 2026-06-29 12:19 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [香港特区政府新一批基建及绿色债券在港发行](http://www.blog.minike.top/Article/details/732206258.shtml)
-- 2026-06-29 12:08 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](http://www.share.kurohicncr.top/Article/details/631577514.shtml)
+- 2026-06-29 12:15 - [银行理财子加速“扫货”权益市场，打新报价量两月激增近九成](http://www.blog.minike.top/Article/details/426057666.shtml)
+- 2026-06-29 12:18 - [【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料](http://www.share.minike.top/Article/details/83541.shtml)
+- 2026-06-29 12:06 - [转让底价6573万元，华泰保险集团880万股股份再度挂牌](http://www.blog.minike.top/Article/details/9001105.shtml)
+- 2026-06-29 12:18 - [翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局](http://www.share.minike.top/Article/details/346983448.shtml)
+- 2026-06-29 12:12 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](http://www.share.kurohicncr.top/Article/details/81288.shtml)
+- 2026-06-29 12:29 - [深化中国—东盟经贸合作 专家提十大建议](http://www.share.minike.top/Article/details/38065356035.shtml)
+- 2026-06-29 12:06 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](http://www.blog.kurohicncr.top/Article/details/39427.shtml)
+- 2026-06-29 12:11 - [千年晋祠难老泉高位复流 带动周边产业焕新生](http://www.blog.kurohicncr.top/Article/details/86100278303.shtml)
+- 2026-06-29 12:17 - [一江清水向东流——凝心聚力共绘长江发展新画卷](http://www.share.minike.top/Article/details/745463.shtml)
+- 2026-06-29 12:03 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](http://www.share.kurohicncr.top/Article/details/6933665.shtml)
+- 2026-06-29 12:28 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](http://www.blog.minike.top/Article/details/3961999820.shtml)
+- 2026-06-29 12:09 - [四川蓝莓首次出口](http://www.blog.minike.top/Article/details/64598248.shtml)
+- 2026-06-29 12:29 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](http://www.blog.kurohicncr.top/Article/details/974398.shtml)
+- 2026-06-29 12:15 - [中钢协：积极开展产能治理、产量调控、行业自律](http://www.share.kurohicncr.top/Article/details/78610.shtml)
+- 2026-06-29 12:10 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](http://www.blog.minike.top/Article/details/0813746131.shtml)

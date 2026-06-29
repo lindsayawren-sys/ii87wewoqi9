@@ -1,52 +1,56 @@
-# 外交部：中美双方就两国元首年内互动安排保持着沟通
+# 全国首单银行间市场消费类定向资产支持票据发行
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新网北京5月15日电(记者 曾玥)中国外交部发言人郭嘉昆15日在例行记者会上答问时表示，元首外交对中美关系具有不可替代的战略引领作用。两国元首保持良好的沟通互动，有利于引领中美关系稳定、健康、可持续发展。中美双方就两国元首年内互动安排保持着沟通。(完)
+中新网广州4月28日电 (记者 方伟彬)广州城投集团与中国建设银行28日共同敲响铜锣，宣告全国首单银行间市场消费类定向资产支持票据——“城发基金2026年度第一期定向资产支持票据(类REITs)”成功发行。 据广州城投集团介绍，该产品以广州城投集团旗下天河新天地购物中心为底层资产，发行规模11.77亿元，期限18年，票面利率低至2.38%，并获得1.67倍超额认购。此次发行一举
 
 ## 正文
 
-中新网北京5月15日电(记者 曾玥)中国外交部发言人郭嘉昆15日在例行记者会上答问时表示，元首外交对中美关系具有不可替代的战略引领作用。
+中新网广州4月28日电 (记者 方伟彬)广州城投集团与中国建设银行28日共同敲响铜锣，宣告全国首单银行间市场消费类定向资产支持票据——“城发基金2026年度第一期定向资产支持票据(类REITs)”成功发行。
 
-两国元首保持良好的沟通互动，有利于引领中美关系稳定、健康、可持续发展。
+据广州城投集团介绍，该产品以广州城投集团旗下天河新天地购物中心为底层资产，发行规模11.77亿元，期限18年，票面利率低至2.38%，并获得1.67倍超额认购。
 
-中美双方就两国元首年内互动安排保持着沟通。
+此次发行一举创下三项历史纪录：全国市属国企子公司银行间类REITs、18年期银行间类REITs及广东省城投系类REITs的最低票面利率。
 
-(完)
+广州城投集团董事长郑洪伟表示，此举与广州市不动产资产管理平台所强调的资产盘活、资本运作和生态构建高度契合。
+
+未来，将进一步强化资产整合、价值提升与资本对接能力，不断创新证券化产品，与各类金融机构、市场伙伴深化合作，共同构建“健康、开放、共赢”的不动产资管生态，助力打造粤港澳大湾区不动产战略高地。
+
+据了解，该集团依托覆盖城市基础设施、商业综合体等多类型优质资产池，通过市场化运作，已累计盘活存量资产规模近百亿元，打通了“存量优化—资金循环—增量投资”的良性路径。
+
+作为具体执行机构，集团下属城发基金凭借专业能力成为项目增信主体，依托AAA评级实现了公开市场权益类融资的新突破。
+
+中国建设银行总行投行部副总经理马宁表示，建设银行作为牵头主承销商，充分发挥“商行+投行”“融资+融智”“表内+表外”“资产+资金”“场景+生态”优势，整合集团多牌照资源为项目提供全生命周期综合金融服务。
 
 ## 相关推荐
 
-- 2026-06-29 12:13 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:58 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:08 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:56 - [高盛：中国移动目标价升至94港元 维持“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:56 - [以“生活”叙事陕味浓郁 《主角》热播引关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:58 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:12 - [光大证券：整固蓄势 积极看多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:12 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:16 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:10 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:03 - [广西南宁首批10个人工智能OPC创业社区集中开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:20 - [中方回应中美是否达成农业方面协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:12 - [沪港文化交流再升级：从“经典展演”到“多元共创”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:10 - [日本不断加速扩军修宪图谋：日本抛修宪构想 拟设紧急政令扩内阁权限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:29 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:01 - [康宁一季度利润与核心营收双双增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:13 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:11 - [五一机票又“跳水”了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:12 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:18 - [日本公然宣称为“长期战争”做准备 中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:16 - [金石为开——西安·沈阳名碑拓片特展开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:18 - [铁路文旅创新融合绘就发展新图景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:13 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:28 - [AI赋能“一人公司” 个体创新潜力持续激活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:02 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](http://www.share.kurohicncr.top/Article/details/8590804.shtml)
-- 2026-06-29 12:00 - [日本央行理事称投资基金活动对金融体系构成潜在风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](http://www.blog.minike.top/Article/details/67567396166.shtml)
-- 2026-06-29 12:23 - [沃尔玛希望Flipkart放慢节奏并实现盈利](http://www.share.kurohicncr.top/Article/details/08194036751.shtml)
-- 2026-06-29 11:59 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [CBA观察：我们需要一支怎样的山西男篮](http://www.share.kurohicncr.top/Article/details/728863.shtml)
-- 2026-06-29 12:14 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](http://www.blog.minike.top/Article/details/76451.shtml)
-- 2026-06-29 12:22 - [全国广电民生节目在渝交流创新经验](http://www.share.kurohicncr.top/Article/details/765140.shtml)
-- 2026-06-29 12:08 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](http://www.blog.kurohicncr.top/Article/details/83040033.shtml)
-- 2026-06-29 12:03 - [王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”](http://www.blog.kurohicncr.top/Article/details/45140.shtml)
-- 2026-06-29 11:58 - [助力“东北超”歌曲《绿茵逐梦》上线](http://www.share.kurohicncr.top/Article/details/908856.shtml)
-- 2026-06-29 12:23 - [泰尔茂一季度营收8315亿日元，GAAP每股收益74.25日元](http://www.blog.minike.top/Article/details/24209710.shtml)
-- 2026-06-29 12:01 - [广西首批村集体持有林票线上竞价交易](http://www.share.kurohicncr.top/Article/details/272066481.shtml)
-- 2026-06-29 11:58 - [马斯克诉 OpenAI案阶段性收官！奥特曼被曝内幕交易，昔日兄弟为何反目？](http://www.blog.kurohicncr.top/Article/details/00360452143.shtml)
-- 2026-06-29 12:03 - [一粒红芸豆改写边境乡镇产业轨迹](http://www.blog.minike.top/Article/details/13554769.shtml)
+- 2026-06-29 12:21 - [第139届广交会二期闭幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](http://www.blog.kurohicncr.top/Article/details/5981699018.shtml)
+- 2026-06-29 12:15 - [2026年盈江海关部门预算公开](http://www.blog.minike.top/Article/details/358842.shtml)
+- 2026-06-29 12:21 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](http://www.share.kurohicncr.top/Article/details/52788463.shtml)
+- 2026-06-29 12:00 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](http://www.share.minike.top/Article/details/820393.shtml)
+- 2026-06-29 12:19 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](http://www.blog.kurohicncr.top/Article/details/25561613.shtml)
+- 2026-06-29 12:29 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](http://www.blog.kurohicncr.top/Article/details/6192540264.shtml)
+- 2026-06-29 12:04 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](http://www.blog.kurohicncr.top/Article/details/70167659.shtml)
+- 2026-06-29 12:16 - [银行业首个行业级“数据分类分级”大模型发布](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](http://www.share.minike.top/Article/details/57644.shtml)
+- 2026-06-29 12:07 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](http://www.blog.kurohicncr.top/Article/details/85902.shtml)
+- 2026-06-29 12:24 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](http://www.blog.kurohicncr.top/Article/details/3265963178.shtml)
+- 2026-06-29 12:11 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](http://www.share.kurohicncr.top/Article/details/548647173438.shtml)
+- 2026-06-29 12:23 - [新西兰央行行长：已准备好应对持续的价格压力](http://www.blog.kurohicncr.top/Article/details/43432378595.shtml)
+- 2026-06-29 12:10 - [重庆罗斯福图书馆旧址将焕新开放](http://www.share.kurohicncr.top/Article/details/247844684.shtml)

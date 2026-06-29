@@ -1,60 +1,56 @@
-# 郑丽文：反对“台独”是稳定台海关键
+# 爱奇艺的“AI赌局”：当降本逻辑撞上内容本质
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新社台北5月15日电 中国国民党主席郑丽文15日在节目《KMT直球对决》上表示，中美元首会晤有可能重新定义大国关系与世界秩序，也将直接牵动台湾处境；其中，新红线的确立带来中美关系新时代的定位，这条红线的核心则是“‘台独’与台海和平水火不容”。郑丽文说，中美若能确定“维护台海和平稳定是中美双方最大公约数”，对台湾就是好事。台湾不应期待中美冲突，更不应被推向战火第一线；中美若能建
+2026年4月20日，爱奇艺世界大会上，陈哲远、丞磊、曾舜晞等100多位艺人的名字被打上AI艺人库的标签，宣告着一个大胆而充满争议的产业实验正式启幕。然而，短短数小时后，张若昀、于和伟、王楚然等艺人纷纷通过工作室发声否认签约AI授权，舆论瞬间翻转，“爱奇艺穷疯了也得有底线”等词条登上微博热搜。凌晨紧急发布的澄清说明中，爱奇艺表示入驻仅代表合作意愿，具体项目需单独商谈授权，流程与
 
 ## 正文
 
-中新社台北5月15日电 中国国民党主席郑丽文15日在节目《KMT直球对决》上表示，中美元首会晤有可能重新定义大国关系与世界秩序，也将直接牵动台湾处境；其中，新红线的确立带来中美关系新时代的定位，这条红线的核心则是“‘台独’与台海和平水火不容”。
+2026年4月20日，爱奇艺世界大会上，陈哲远、丞磊、曾舜晞等100多位艺人的名字被打上AI艺人库的标签，宣告着一个大胆而充满争议的产业实验正式启幕。
 
-郑丽文说，中美若能确定“维护台海和平稳定是中美双方最大公约数”，对台湾就是好事。
+然而，短短数小时后，张若昀、于和伟、王楚然等艺人纷纷通过工作室发声否认签约AI授权，舆论瞬间翻转，“爱奇艺穷疯了也得有底线”等词条登上微博热搜。
 
-台湾不应期待中美冲突，更不应被推向战火第一线；中美若能建立健康、友好的交流与贸易关系，台湾可能成为最大受益者。
+凌晨紧急发布的澄清说明中，爱奇艺表示入驻仅代表合作意愿，具体项目需单独商谈授权，流程与真人影视合作一致。
 
-台湾真正需要的是和平、稳定与繁荣，不是战争、封锁与自我孤立。
+一夜之间，一场技术创新的高调发布，演变成关乎行业伦理、艺人权益与平台战略的全民辩论。
 
-她表示，乐见中美友谊与合作。
+这场辩论折射出的，远不止一次公关危机的应对得失。
 
-中美合作会带给全世界多赢局面，期待中美建立深厚的友谊和互信关系。
+它像一个多棱镜，从不同侧面折射出长视频平台在存量时代的生存焦虑、资本对技术降本的本能追逐，以及艺术创作与技术效率之间恒久存在的张力。
 
-郑丽文称，中美元首会晤所传达的讯息，与国民党近来主张完全符合。
+降本困局与数据困境：AI艺人库的双重驱动 要理解爱奇艺为何如此急切地推出AI艺人库，必须先看清其面临的财务与竞争双重压力。
 
-无论是希望中美合作、避免冲突，或是透过风险管理避免战争，核心都在于排除最危险的导火线。
+财务上，增收不增利的尴尬持续加剧。
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:01 - [主力资金，“盯上”这些股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:19 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:20 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:57 - [中东部有大范围降水 黄海海域有大雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:17 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:55 - [重庆对8个区县启动地质灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:14 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:56 - [香港特区政府新一批基建及绿色债券在港发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:16 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:57 - [中国外交部发言人就美国总统特朗普访华情况答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:13 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:01 - [中国第12批援埃塞俄比亚军医专家组出征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:20 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:23 - [深化中国—东盟经贸合作 专家提十大建议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:19 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:24 - [千年晋祠难老泉高位复流 带动周边产业焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:28 - [一江清水向东流——凝心聚力共绘长江发展新画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:18 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:22 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:05 - [四川蓝莓首次出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:25 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:13 - [中钢协：积极开展产能治理、产量调控、行业自律](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:05 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:06 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](http://www.share.minike.top/Article/details/8773027.shtml)
-- 2026-06-29 12:15 - [相向而行，共同开启中美关系新篇章（钟声）](http://www.share.kurohicncr.top/Article/details/24864433268.shtml)
-- 2026-06-29 12:23 - [股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%](http://www.blog.kurohicncr.top/Article/details/6590555.shtml)
-- 2026-06-29 11:59 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](http://www.blog.kurohicncr.top/Article/details/245304.shtml)
-- 2026-06-29 12:22 - [日本央行警示：投资基金活动暗藏金融体系风险](http://www.blog.minike.top/Article/details/08636.shtml)
-- 2026-06-29 12:12 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](http://www.blog.kurohicncr.top/Article/details/96248874.shtml)
-- 2026-06-29 12:12 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](http://www.blog.kurohicncr.top/Article/details/082742709.shtml)
-- 2026-06-29 12:19 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [高盛：中国移动目标价升至94港元 维持“中性”评级](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [以“生活”叙事陕味浓郁 《主角》热播引关注](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [光大证券：整固蓄势 积极看多](http://www.blog.kurohicncr.top/Article/details/73784047474.shtml)
-- 2026-06-29 12:16 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](http://www.share.kurohicncr.top/Article/details/6089732.shtml)
+- 2026-06-29 12:17 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](http://www.blog.minike.top/Article/details/1750080.shtml)
+- 2026-06-29 12:10 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](http://www.share.kurohicncr.top/Article/details/779553.shtml)
+- 2026-06-29 12:02 - [如何看待中方叫停Manus并购案？](http://www.blog.kurohicncr.top/Article/details/4276716518.shtml)
+- 2026-06-29 12:05 - [南京银行董事长谢宁解读“好银行”发展理念](http://www.share.kurohicncr.top/Article/details/708445.shtml)
+- 2026-06-29 12:23 - [“漂流书包”十年：一份民主党派的阅读答卷](http://www.share.kurohicncr.top/Article/details/03509436.shtml)
+- 2026-06-29 12:26 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](http://www.blog.minike.top/Article/details/307955754.shtml)
+- 2026-06-29 12:29 - [康宁一季度利润与核心营收双双增长](http://www.share.minike.top/Article/details/6943529590.shtml)
+- 2026-06-29 12:08 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](http://www.blog.kurohicncr.top/Article/details/163302138795.shtml)
+- 2026-06-29 12:19 - [五一机票又“跳水”了？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](http://www.share.kurohicncr.top/Article/details/02908.shtml)
+- 2026-06-29 12:07 - [日本公然宣称为“长期战争”做准备 中方回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [金石为开——西安·沈阳名碑拓片特展开幕](http://www.share.kurohicncr.top/Article/details/68772.shtml)
+- 2026-06-29 12:16 - [铁路文旅创新融合绘就发展新图景](http://www.share.minike.top/Article/details/178902.shtml)
+- 2026-06-29 12:21 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](http://www.blog.minike.top/Article/details/1395895.shtml)

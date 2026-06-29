@@ -1,56 +1,61 @@
-# 总书记引领强国之路｜聚天下英才而用之
+# 机器人产业爆发前夜，机器人ETF华夏（562500）或许是布局这一轮科技革命的最优解
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-原标题：学习新语·总书记引领强国之路｜聚天下英才而用之 视频：总书记引领强国之路｜聚天下英才而用之来源：新华社 “尊重劳动、尊重知识、尊重人才、尊重创造”“聚天下英才而用之”“让事业激励人才，让人才成就事业”⋯⋯党的十八大以来，习近平总书记引领推进新时代人才强国战略，推动人才工作取得历史性成就、发生历史性变革。 翻开“十五五”规划纲要，“人才”一词出现50余次。规划纲要提出一体
+4月27日，机器人板块集体走强，其中，机器人ETF华夏最新成交额达8.47亿元，涨幅2.68%，显示资金大幅流入。有分析指出，机器人板块走强可能与特斯拉量产传闻有关。但相比于短期消息刺激，机器人板块的投资机会更来自于产业重要拐点的出现。 产业拐点已至：从“0-1”验证迈向“1-10”放量 2026年，人形机器人产业正站在历史性的转折点上。这个曾经被视为“未来科技”的赛道，如今已
 
 ## 正文
 
-原标题：学习新语·总书记引领强国之路｜聚天下英才而用之 视频：总书记引领强国之路｜聚天下英才而用之来源：新华社 “尊重劳动、尊重知识、尊重人才、尊重创造”“聚天下英才而用之”“让事业激励人才，让人才成就事业”⋯⋯党的十八大以来，习近平总书记引领推进新时代人才强国战略，推动人才工作取得历史性成就、发生历史性变革。
+4月27日，机器人板块集体走强，其中，机器人ETF华夏最新成交额达8.47亿元，涨幅2.68%，显示资金大幅流入。
 
-翻开“十五五”规划纲要，“人才”一词出现50余次。
+有分析指出，机器人板块走强可能与特斯拉量产传闻有关。
 
-规划纲要提出一体推进教育科技人才发展，对建设人才强国作出一系列部署。
+但相比于短期消息刺激，机器人板块的投资机会更来自于产业重要拐点的出现。
 
-千秋基业，人才为本。
+产业拐点已至：从“0-1”验证迈向“1-10”放量 2026年，人形机器人产业正站在历史性的转折点上。
 
-新征程上，深入实施新时代人才强国战略，下大气力全方位培养、引进、用好人才，我们就一定能让各类人才的创造活力竞相迸发、聪明才智充分涌流，为推进强国建设、民族复兴伟业汇聚磅礴力量。
+这个曾经被视为“未来科技”的赛道，如今已清晰呈现出从技术验证向规模化商用跨越的轨迹。
 
-策划：石锋 吴丹 统筹：黄庆华 周年钧 编导：李丽洋 新华社新媒体中心制作 新华社出品
+政策层面，国家将“具身智能”和“智能机器人”首次纳入国家战略，工信部发布《人形机器人与具身智能标准体系（2026版）》，为产业规模化发展扫清制度障碍。
+
+地方政府积极跟进，北京、上海等地出台专项支持政策，通过贷款贴息、税收优惠等方式降低企业应用成本。
+
+产业层面，2026年被定义为“量产元年”。
 
 ## 相关推荐
 
-- 2026-06-29 12:15 - [薛定谔方程发表百年 “中二所的奇‘喵’冒险” 全面呈现科学魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:08 - [6连板！澄清与英伟达关系后，蒙娜丽莎继续涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:55 - [三星工会称仍计划于下周举行罢工，谈判要到罢工结束后进行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:12 - [邦达亚洲:市场的避险情绪挥之不去 澳元承压下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:18 - [浙江北仑灵峰工业社区：打造“家门口”的红色精神家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:08 - [“活力乡村”重庆援尼畜牧和水产支持项目在尼泊尔启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:19 - [俄梁赞州州长：乌无人机袭击首府致3死12伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:01 - [蓝皮书：“十五五”时期中国机器人产业将现两大新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:58 - [越秀交通基建3月广州北二环高速路费收入8487.3万元 同比下降7.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:02 - [诸多对手虎视眈眈！英国首相斯塔默面临“生死之战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:02 - [（乡村行·看振兴）江苏扬州：沙头头茬西瓜开卖 “小西瓜”带动村集体增收逾百万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:12 - [515投资者保护|上银基金"涨了鸭的投资旅途"系列投教漫画及视频：语言轻松幽默 降低了金融知识的理解门槛化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:01 - [迈阿密愈发富庶，人口却持续缩减](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:00 - [武汉推行河湖长制十年 构筑人水和谐共生优美画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:20 - [梁文锋增持DeepSeek 持股比例大幅上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:08 - [A股极致分化，创业板失守3600点，医疗等板块走强| 华宝基金3A日报（2026.4.28）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:13 - [美国7年期国债中标收益率略高于发行前交易水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:19 - [OpenAI增长失速冲击AI板块：超大规模资本支出模式遭遇“信任危机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:09 - [第二届西南农资骨干流通走廊建设推进大会在重庆涪陵举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:01 - [英伟达股价下跌，公司正继续在美国以外增加产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:23 - [美国能源部长：霍尔木兹海峡无需清除所有水雷也可以开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:05 - [消费者信心疲软致达美乐披萨销量增长停滞，股价承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:10 - [中国首个脑机接口本科专业在天津大学设立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:21 - [司机月收入跌破2000元、聚合平台流量费连涨 T3出行难破网约车港股“破发魔咒”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:01 - [五粮液开盘最高跌超3%，股价跌破100元，创6年新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:21 - [中天期货:焦煤持续震荡 橡胶震荡上行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:06 - [“中国式现代化离不开农业农村现代化”（总书记的人民情怀）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:02 - [两部门启动2026年“模数共振”行动 依托重点城市打造智能体工厂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:17 - [4月28日外盘头条：特朗普与幕僚讨论伊朗最新提议 欧盟向谷歌发布AI竞争合规指南 美光与闪迪股价持续走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](http://www.blog.minike.top/Article/details/003560866.shtml)
-- 2026-06-29 12:05 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](http://www.blog.minike.top/Article/details/72869372.shtml)
-- 2026-06-29 11:57 - [中东部有大范围降水 黄海海域有大雾](http://www.share.minike.top/Article/details/1375883.shtml)
-- 2026-06-29 11:58 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](http://www.share.kurohicncr.top/Article/details/0542753742.shtml)
-- 2026-06-29 12:12 - [重庆对8个区县启动地质灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/980233529.shtml)
-- 2026-06-29 12:21 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](http://www.blog.minike.top/Article/details/844898.shtml)
-- 2026-06-29 12:08 - [香港特区政府新一批基建及绿色债券在港发行](http://www.share.minike.top/Article/details/70254.shtml)
-- 2026-06-29 12:12 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](http://www.blog.kurohicncr.top/Article/details/86530356.shtml)
-- 2026-06-29 12:11 - [中国外交部发言人就美国总统特朗普访华情况答记者问](http://www.share.kurohicncr.top/Article/details/3065373803.shtml)
-- 2026-06-29 12:19 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [中国第12批援埃塞俄比亚军医专家组出征](http://www.blog.kurohicncr.top/Article/details/924780334208.shtml)
-- 2026-06-29 12:18 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](http://www.blog.minike.top/Article/details/7470361821.shtml)
-- 2026-06-29 12:22 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](http://www.blog.kurohicncr.top/Article/details/8428536357.shtml)
-- 2026-06-29 12:01 - [受降雨影响 国铁广州局今明两天部分列车停运](http://www.blog.kurohicncr.top/Article/details/5355825701.shtml)
-- 2026-06-29 12:05 - [宁波银行回应拨备覆盖率下降：整体上符合行业趋势](http://www.blog.kurohicncr.top/Article/details/664312640.shtml)
+- 2026-06-29 12:29 - [千年晋祠难老泉高位复流 带动周边产业焕新生](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [一江清水向东流——凝心聚力共绘长江发展新画卷](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](http://www.blog.minike.top/Article/details/406180858408.shtml)
+- 2026-06-29 12:00 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](http://www.blog.minike.top/Article/details/921415355889.shtml)
+- 2026-06-29 12:10 - [四川蓝莓首次出口](http://www.share.minike.top/Article/details/05140012.shtml)
+- 2026-06-29 12:28 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](http://www.blog.kurohicncr.top/Article/details/0245671670.shtml)
+- 2026-06-29 12:29 - [中钢协：积极开展产能治理、产量调控、行业自律](http://www.share.minike.top/Article/details/86440806715.shtml)
+- 2026-06-29 12:22 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](http://www.share.kurohicncr.top/Article/details/751043791988.shtml)
+- 2026-06-29 12:20 - [快乐出行不“掉坑”，这份网络安全指南请查收！](http://www.share.kurohicncr.top/Article/details/827022.shtml)
+- 2026-06-29 12:19 - [企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并](http://www.blog.kurohicncr.top/Article/details/9487121.shtml)
+- 2026-06-29 12:01 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](http://www.share.kurohicncr.top/Article/details/671685574.shtml)
+- 2026-06-29 12:16 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](http://www.share.minike.top/Article/details/42685480.shtml)
+- 2026-06-29 12:24 - [晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考](http://www.share.minike.top/Article/details/22084.shtml)
+- 2026-06-29 12:28 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](http://www.share.minike.top/Article/details/4080045939.shtml)
+- 2026-06-29 12:18 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](http://www.blog.kurohicncr.top/Article/details/3276402035.shtml)

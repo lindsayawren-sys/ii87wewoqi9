@@ -1,54 +1,55 @@
-# 文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”
+# 深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。针对Robotaxi规模化上量的时间，文远知行创始人兼CEO韩旭表示，就在一两年内。 但韩旭也坦言，不想刻意回避或掩盖一些事情。他指出，“百度无人车集体瘫痪”事件，对整个行业的发展产生了影响，“至少是变慢了”。 借此机会，韩旭呼吁到，“中国的无人驾驶要发展，一定要
+新华社北京4月28日电 4月28日，深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行。全国人大常委会副委员长、中华全国总工会主席王东明出席会议并讲话。 王东明指出，习近平总书记的重要讲话，是指引新时代新征程工会工作高质量发展的强大思想武器和行动纲领。各级工会要采取更加有力举措，深入学习贯彻习近平总书记
 
 ## 正文
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
+新华社北京4月28日电 4月28日，深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行。
 
-针对Robotaxi规模化上量的时间，文远知行创始人兼CEO韩旭表示，就在一两年内。
+全国人大常委会副委员长、中华全国总工会主席王东明出席会议并讲话。
 
-但韩旭也坦言，不想刻意回避或掩盖一些事情。
+王东明指出，习近平总书记的重要讲话，是指引新时代新征程工会工作高质量发展的强大思想武器和行动纲领。
 
-他指出，“百度无人车集体瘫痪”事件，对整个行业的发展产生了影响，“至少是变慢了”。
+各级工会要采取更加有力举措，深入学习贯彻习近平总书记重要讲话精神，结合开展树立和践行正确政绩观学习教育，主动担当作为，忠诚履职尽责，推动讲话精神落地生根，形成生动实践，团结动员职工群众为实现“十五五”良好开局发挥主力军作用。
 
-借此机会，韩旭呼吁到，“中国的无人驾驶要发展，一定要注意避免‘一个人生病，全班同学陪着吃药，全行业吃药’的情况。
-
-”新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
-
-责任编辑：李昂
+中央政策研究室有关同志，部分省级总工会、全国产业工会、企业工会负责同志和职工代表交流学习体会。
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:20 - [日本央行理事称投资基金活动对金融体系构成潜在风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:10 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:16 - [沃尔玛希望Flipkart放慢节奏并实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:08 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:56 - [CBA观察：我们需要一支怎样的山西男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:01 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:56 - [全国广电民生节目在渝交流创新经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:20 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:19 - [王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:11 - [第139届广交会二期闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:00 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:25 - [2026年盈江海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:14 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:16 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:18 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:18 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:20 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:10 - [银行业首个行业级“数据分类分级”大模型发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:01 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:23 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:02 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:02 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:17 - [新西兰央行行长：已准备好应对持续的价格压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:29 - [重庆罗斯福图书馆旧址将焕新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:22 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](http://www.blog.minike.top/Article/details/658856229446.shtml)
-- 2026-06-29 12:05 - [星网宇达：截至2026年4月20日公司股东人数为40184户](http://www.share.minike.top/Article/details/16471.shtml)
-- 2026-06-29 11:54 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](http://www.share.kurohicncr.top/Article/details/9958150.shtml)
-- 2026-06-29 12:21 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](http://www.blog.minike.top/Article/details/152393613298.shtml)
-- 2026-06-29 11:55 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](http://www.blog.kurohicncr.top/Article/details/71145.shtml)
-- 2026-06-29 11:57 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](http://www.share.minike.top/Article/details/266812047885.shtml)
-- 2026-06-29 11:56 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](http://www.blog.minike.top/Article/details/71134.shtml)
-- 2026-06-29 11:56 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](http://www.blog.minike.top/Article/details/212060600.shtml)
-- 2026-06-29 12:09 - [文脉华章丨一个博物院就是一所大学校](http://www.share.minike.top/Article/details/110480381440.shtml)
-- 2026-06-29 12:22 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](http://www.blog.minike.top/Article/details/078653694.shtml)
-- 2026-06-29 11:58 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](http://www.share.minike.top/Article/details/8204536061.shtml)
-- 2026-06-29 11:56 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](http://www.blog.kurohicncr.top/Article/details/27206.shtml)
-- 2026-06-29 12:15 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](http://www.share.kurohicncr.top/Article/details/583233899.shtml)
-- 2026-06-29 12:09 - [日本国债收益率飙升 投资者押注日资从美债回流本土](http://www.share.minike.top/Article/details/33526616895.shtml)
-- 2026-06-29 12:23 - [首届中国新文创市集满场“黑科技” 观众：超出预期](http://www.share.minike.top/Article/details/9585469.shtml)
+- 2026-06-29 12:10 - [OpenAI称已更新与微软的合作伙伴关系](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [【市场聚焦】棉花：美国主产区干旱持续发酵带动全球棉市价格上行](http://www.share.minike.top/Article/details/7964214415.shtml)
+- 2026-06-29 12:19 - [“伊斯兰国”袭击尼日利亚东北部 造成至少29人丧生](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [中钢协：一季度钢材价格总体走势平稳但处于近年同期最低水平](http://www.share.minike.top/Article/details/758704659.shtml)
+- 2026-06-29 12:16 - [谷歌不顾员工反对，与美国国防部签署机密人工智能合作协议](http://www.blog.minike.top/Article/details/92399620495.shtml)
+- 2026-06-29 12:10 - [穿越机视角领略婺源“江南第一奇谷”飞瀑景观](http://www.share.kurohicncr.top/Article/details/26033456.shtml)
+- 2026-06-29 12:20 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](http://www.share.minike.top/Article/details/71967646454.shtml)
+- 2026-06-29 12:09 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](http://www.share.minike.top/Article/details/12128.shtml)
+- 2026-06-29 12:11 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](http://www.share.kurohicncr.top/Article/details/864000.shtml)
+- 2026-06-29 12:24 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [指数级增长 2025年我国词元调用量约21100万亿](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](http://www.blog.minike.top/Article/details/40172758.shtml)
+- 2026-06-29 12:30 - [中共中央政治局会议要点对比及解读](http://www.share.kurohicncr.top/Article/details/264821733103.shtml)

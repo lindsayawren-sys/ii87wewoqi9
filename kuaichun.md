@@ -1,57 +1,60 @@
-# 武汉推行河湖长制十年 构筑人水和谐共生优美画卷
+# 两部门启动2026年“模数共振”行动 依托重点城市打造智能体工厂
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新网武汉5月16日电 (卢琪)长江与汉江交汇处的湖北武汉素有“百湖之市”美誉，166个湖泊、165条河流星罗棋布、点缀其间，不仅坐拥亚洲最大城中湖，水域面积占到全市国土面积四分之一，更是全球唯一人口数量超过千万的“国际湿地城市”，水资源富集，兴于水，也曾忧于水。 今年是全面推行河湖长制十周年、《中华人民共和国长江保护法》实施五周年。十年间，武汉以河湖长制为抓手，统筹官方河湖长
+中新网4月28日电 据“工信微报”微信公众号消息，近日，工业和信息化部、国家数据局联合印发通知，正式启动2026年“模数共振”行动，面向制造业领域20个重点行业，确定一批重点城市，探索场景、模型、智能体、数据集、案例等关键技术成果的产出路径，推动人工智能高水平赋能新型工业化。当前，模型与数据已成为驱动人工智能高质量发展的两大核心要素，数据孤岛、模型泛化不足、场景适配低效等问题日
 
 ## 正文
 
-中新网武汉5月16日电 (卢琪)长江与汉江交汇处的湖北武汉素有“百湖之市”美誉，166个湖泊、165条河流星罗棋布、点缀其间，不仅坐拥亚洲最大城中湖，水域面积占到全市国土面积四分之一，更是全球唯一人口数量超过千万的“国际湿地城市”，水资源富集，兴于水，也曾忧于水。
+中新网4月28日电 据“工信微报”微信公众号消息，近日，工业和信息化部、国家数据局联合印发通知，正式启动2026年“模数共振”行动，面向制造业领域20个重点行业，确定一批重点城市，探索场景、模型、智能体、数据集、案例等关键技术成果的产出路径，推动人工智能高水平赋能新型工业化。
 
-今年是全面推行河湖长制十周年、《中华人民共和国长江保护法》实施五周年。
+当前，模型与数据已成为驱动人工智能高质量发展的两大核心要素，数据孤岛、模型泛化不足、场景适配低效等问题日益凸显。
 
-十年间，武汉以河湖长制为抓手，统筹官方河湖长、民间力量、执法监管与智慧治水，形成全域共治、部门协同、全民参与的河湖管理强大合力。
+前期，工业和信息化部联合7部门共同印发了《“人工智能+制造”专项行动实施意见》，提出实施“模数共振”行动。
 
-流域统筹破“单点”顽疾 清晨，武汉市汉阳区古琴台畔，68岁的朱旺国沿月湖亲水步道缓步行进，时而俯身察看岸线，时而用手机拍摄水鸟掠水的画面。
+本次两部门联合启动2026年“模数共振”行动，进一步细化明确了各地区、各部门推进“AI+制造”的具体操作路径，通过设置重点任务，着力推动模型与数据深度融合，进而形成“行业模型赋能应用实践、应用实践产生场景数据、场景数据优化行业模型”的良性飞轮。
 
-作为武汉市民间河湖长、市民园长，巡湖、看湖的习惯，朱旺国已坚持十余年。
+通知明确，行动重点面向制造业领域中的钢铁、工业母机、汽车、航空航天、信息通信等20个行业，并依托重点城市和省份，推动产出一批推广价值高、技术可行性强的人工智能应用场景，攻关一批蕴含工业和信息化领域技术机理的行业模型、专用模型和特色智能体，构建一批行业通识和行业专识高质量数据集，培育一批攻关联合体，优化人才、标准等产业配套生态。
 
-他脚下水清岸绿的月湖，正是武汉河湖十年蝶变的生动缩影。
+到2026年底，基本形成“数据—模型—场景应用”良性互促的循环，推动人工智能高水平赋能新型工业化。
 
-早在2011年，武汉便率先试行“湖长制”，2015年修订的《武汉市湖泊保护条例》将“湖长制”上升为地方性法规。
+通知部署了七项重点任务，包括构建行业通识数据集和专识数据集、完善模型评测机制、创建“模数共振”空间、打造“模数共振”创新联合体、确定一批重点城市等。
 
-2016年全面推行河湖长制后，武汉不断创新实践：2018年推行官方河湖长主导、民间河湖长监督、数据河湖长支撑的“三长联动”机制；2021年全面实行流域河湖长制，推动河湖长履职从水域向陆域延伸；2022年推动跨市、跨区协同共治，将单个河湖扩大为流域综合治理…… “病在水里，根在岸上。
+通知提出，鼓励“模数共振”空间与国家数据基础设施互联互通，实现多主体数据高效可信流通，赋能模型训练、智能体研发和应用，逐步打造为“智能体工厂”。
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [【市场聚焦】黑色：回落压力较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:09 - [“中国哲学社会科学自主知识体系丛书”首批成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:21 - [“白色石油”再掀波澜 碳酸锂刚上20万元／吨就急跌 业内称跌幅有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:01 - [亚行行长神田真人称准备向菲律宾提供高达17.5亿美元的融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:18 - [Slate Grocery REIT宣布派发5月每单位0.072美元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:19 - [大和：腾讯控股目标价降至700港元 重申“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:55 - [证监会重击107起案件罚没33亿，近200只股票或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:20 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:08 - [第十届中俄博览会开幕 46个国家和地区1500余家企业参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:00 - [天玑开发者大会MDDC 2026：MediaTek AI开发套件下载量升至440%，发布多项重磅技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:04 - [郑丽文：反对“台独”是稳定台海关键](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:04 - [消失的欧亚水獭重回成都 “公园城市”迎“动物邻居”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:22 - [吴征铠院士铜像在复旦大学揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:09 - [宁德时代获大摩增持约77.82万股 每股均价约708.25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:19 - [我国太空金属增材制造技术取得突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:17 - [中国银联董事长董俊峰出席APEC工商咨询理事会会议 参加与墨西哥政府高层双边会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:01 - [凯莱英午前涨超8% 第一季度经调整归母净利润增近28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:13 - [新华时评丨借尸还魂的“大将”“大佐”们](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:11 - [北美与欧洲增长放缓，Spotify Q2利润指引不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:01 - [城堡证券高管称伊朗冲突风险消退 股债市场有望同步上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:17 - [酒价内参4月29日价格发布：五粮液1618保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:14 - [爱奇艺的“AI赌局”：当降本逻辑撞上内容本质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:00 - [中国国家文化产业拟向周星驰等认购方发行合共4680万份认股权证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:04 - [银行理财子加速“扫货”权益市场，打新报价量两月激增近九成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:20 - [【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:15 - [【小新的Vlog】侠客视角探文博 吉林特色展览解锁古韵风华](http://www.share.minike.top/Article/details/546497293947.shtml)
-- 2026-06-29 12:06 - [“全球治理 青年新思·2026北京国际模拟联合国大会”在北京开幕](http://www.share.kurohicncr.top/Article/details/07432289011.shtml)
-- 2026-06-29 12:12 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](http://www.share.kurohicncr.top/Article/details/9644473078.shtml)
-- 2026-06-29 12:04 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](http://www.blog.minike.top/Article/details/661930063875.shtml)
-- 2026-06-29 12:13 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](http://www.share.minike.top/Article/details/850896198339.shtml)
-- 2026-06-29 11:55 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](http://www.blog.minike.top/Article/details/5682567671.shtml)
-- 2026-06-29 12:02 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](http://www.share.minike.top/Article/details/591608350373.shtml)
-- 2026-06-29 11:58 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](http://www.share.kurohicncr.top/Article/details/7378681.shtml)
-- 2026-06-29 12:19 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](http://www.share.minike.top/Article/details/579529.shtml)
-- 2026-06-29 11:57 - [特朗普说“伊斯兰国”二号头目被“清除”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](http://www.blog.kurohicncr.top/Article/details/34635109.shtml)
-- 2026-06-29 12:14 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](http://www.share.minike.top/Article/details/770519.shtml)
-- 2026-06-29 12:08 - [芭蕾舞演员、医学专家带民众走出减重“误区”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](http://www.blog.kurohicncr.top/Article/details/370282040283.shtml)
-- 2026-06-29 12:22 - [倒车接人？科创芯片震荡两连阴，原因找到](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](http://www.share.minike.top/Article/details/59685.shtml)
+- 2026-06-29 12:30 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](http://www.blog.kurohicncr.top/Article/details/55329411054.shtml)
+- 2026-06-29 12:19 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [一季度生态成绩单亮眼，高质量发展绿意盎然](http://www.share.minike.top/Article/details/27798665.shtml)
+- 2026-06-29 12:16 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](http://www.share.kurohicncr.top/Article/details/80941.shtml)
+- 2026-06-29 12:06 - [普京称西方正将领导地位让位于全球南方国家](http://www.share.minike.top/Article/details/574901424483.shtml)
+- 2026-06-29 12:29 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](http://www.share.minike.top/Article/details/78262632.shtml)
+- 2026-06-29 12:16 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](http://www.share.kurohicncr.top/Article/details/356421024116.shtml)
+- 2026-06-29 12:07 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](http://www.blog.kurohicncr.top/Article/details/820479.shtml)
+- 2026-06-29 12:27 - [破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](http://www.blog.kurohicncr.top/Article/details/788893.shtml)
+- 2026-06-29 12:00 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](http://www.blog.kurohicncr.top/Article/details/12325921.shtml)
+- 2026-06-29 12:15 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](http://www.share.minike.top/Article/details/7175173459.shtml)
+- 2026-06-29 12:15 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](http://www.blog.minike.top/Article/details/078862.shtml)
+- 2026-06-29 12:01 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](http://www.blog.kurohicncr.top/Article/details/258516110.shtml)

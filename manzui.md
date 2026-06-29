@@ -1,61 +1,59 @@
-# 澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制
+# 企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新网澳门5月17日电 (记者 郑嘉伟)澳门特区立法会17日举行2026年开放日活动，立法会大楼面向公众全面开放，吸引逾2200人预约到场参观。 本次开放日时间为当日10时至18时，其间市民可自由参观立法会大堂、全体会议厅、多功能厅以及各委员会会议室等立法会核心区域。活动现场设有展板，详细介绍澳门特区立法会职能、架构和立法程序。立法会议员和工作人员轮值为市民讲解，让公众近距离了
+合并后新公司总部设于田纳西州纳什维尔，欧洲总部落户柏林 内容摘要 贝塔斯曼将旗下音乐业务 BMG 与美国独立唱片公司康科德合并；康科德股东将获得 11.6 亿美元现金，并持有新公司 33% 股份。 企鹅兰登书屋所属的德国传媒巨头贝塔斯曼，宣布将旗下音乐子公司 BMG 与美国独立唱片集团康科德合并，成为该集团近期一系列扩张并购交易的又一重磅举措。 贝塔斯曼于周二公布，将通过现金加
 
 ## 正文
 
-中新网澳门5月17日电 (记者 郑嘉伟)澳门特区立法会17日举行2026年开放日活动，立法会大楼面向公众全面开放，吸引逾2200人预约到场参观。
+合并后新公司总部设于田纳西州纳什维尔，欧洲总部落户柏林 内容摘要 贝塔斯曼将旗下音乐业务 BMG 与美国独立唱片公司康科德合并；康科德股东将获得 11.6 亿美元现金，并持有新公司 33% 股份。
 
-本次开放日时间为当日10时至18时，其间市民可自由参观立法会大堂、全体会议厅、多功能厅以及各委员会会议室等立法会核心区域。
+企鹅兰登书屋所属的德国传媒巨头贝塔斯曼，宣布将旗下音乐子公司 BMG 与美国独立唱片集团康科德合并，成为该集团近期一系列扩张并购交易的又一重磅举措。
 
-活动现场设有展板，详细介绍澳门特区立法会职能、架构和立法程序。
+贝塔斯曼于周二公布，将通过现金加股权的交易形式，完成 BMG 与康科德的业务合并。
 
-立法会议员和工作人员轮值为市民讲解，让公众近距离了解立法会运作机制。
+康科德股东将一次性获得 11.6 亿美元现金，并保留新公司 33% 的股份，该部分股权由资产管理公司大山合伙集团（Great Mountain Partners）代管。
 
-澳门特区立法会主席张永春表示，本次开放日活动吸引众多市民参与，感受到市民对立法会的关心与支持。
+贝塔斯曼持有合资公司剩余 **67%** 股份。
 
-希望通过开放日，让市民深入了解立法会的设施和运作，从而让立法会更好地履行立法和监督的职责，更好地发挥市民与特区政府沟通桥梁作用。
+合并后的新主体沿用BMG品牌名称；按预估口径，2026 年营收可达 22 亿美元，息税折旧摊销前利润 7.3 亿美元。
 
-开放日当天，澳门演艺学院音乐学校、舞蹈学校及培正中学的学生在楼内多个点位带来音乐及舞蹈表演。
+本次交易预计于 2026 年第四季度完成交割。
 
-特区政府行政公职局及法务局在现场设立摊位，宣传宪法、澳门基本法和《维护国家安全法》等法律知识。
+贝塔斯曼旗下还拥有欧洲广播集团 RTL。
 
 ## 相关推荐
 
-- 2026-06-29 12:22 - [九连板之后，002207公告：无注入算力资产的计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:02 - [日本财务大臣片山皋月否认需要编制额外预算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:22 - [美国侨胞：期待新定位领航中美关系行稳致远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:12 - [珠江流域持续暴雨 广东多地停课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:05 - [【小新的Vlog】侠客视角探文博 吉林特色展览解锁古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:03 - [“全球治理 青年新思·2026北京国际模拟联合国大会”在北京开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:59 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:09 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:03 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:11 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:18 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:18 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:57 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:12 - [特朗普说“伊斯兰国”二号头目被“清除”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:20 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:17 - [香港3月进出口货值现两位数增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:08 - [涉嫌严重违纪违法 内蒙古两厅官被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:18 - [港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:07 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:20 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:05 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:07 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:10 - [一季度生态成绩单亮眼，高质量发展绿意盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:07 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:03 - [普京称西方正将领导地位让位于全球南方国家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:17 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:07 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:27 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:01 - [沪港文化交流再升级：从“经典展演”到“多元共创”](http://www.blog.kurohicncr.top/Article/details/692938.shtml)
-- 2026-06-29 12:12 - [日本不断加速扩军修宪图谋：日本抛修宪构想 拟设紧急政令扩内阁权限](http://www.blog.kurohicncr.top/Article/details/1454044.shtml)
-- 2026-06-29 12:01 - [国常会：审议通过《加快农业农村现代化“十五五”规划》](http://www.blog.kurohicncr.top/Article/details/468118371887.shtml)
-- 2026-06-29 12:10 - [债券承销违规！国都证券又被点名，一项目负责人被禁业1年](http://www.share.minike.top/Article/details/097323.shtml)
-- 2026-06-29 12:12 - [英国国债大跌 投资者为伯纳姆挑战斯塔默做准备](http://www.blog.kurohicncr.top/Article/details/870630380.shtml)
-- 2026-06-29 12:06 - [2027澳网亚太区外卡赛将落地成都](http://www.share.minike.top/Article/details/34523480105.shtml)
-- 2026-06-29 12:10 - [何小鹏谈自动驾驶：2028年实现L4概率极高，2030年或见L5雏形](http://www.share.minike.top/Article/details/283082.shtml)
-- 2026-06-29 12:01 - [国际人士：中美元首外交意义重大 推动世界和平发展](http://www.blog.minike.top/Article/details/4204835181.shtml)
-- 2026-06-29 11:56 - [三星会长李在镕就劳资纠纷向公众致歉](http://www.share.minike.top/Article/details/6907553.shtml)
-- 2026-06-29 12:17 - [海南自贸港封关运作成绩单：实现高标准开局 红利加快释放](http://www.share.minike.top/Article/details/1550416102.shtml)
-- 2026-06-29 12:00 - [中国大陆学者首获英国皇家经济学会终身院士](http://www.blog.kurohicncr.top/Article/details/6327383.shtml)
-- 2026-06-29 12:17 - [Lifeward Q1营收不及预期，战略转型费用拖累盈利](http://www.blog.kurohicncr.top/Article/details/1323368.shtml)
-- 2026-06-29 12:14 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](http://www.share.minike.top/Article/details/870011432324.shtml)
-- 2026-06-29 11:59 - [002342，被证监会立案！](http://www.blog.kurohicncr.top/Article/details/9421855898.shtml)
-- 2026-06-29 12:14 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](http://www.share.kurohicncr.top/Article/details/798796231249.shtml)
+- 2026-06-29 12:01 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](http://www.blog.kurohicncr.top/Article/details/859857428210.shtml)
+- 2026-06-29 12:11 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](http://www.blog.minike.top/Article/details/2235191.shtml)
+- 2026-06-29 12:03 - [促进高质量充分就业 多项政策出台](http://www.blog.kurohicncr.top/Article/details/56537665.shtml)
+- 2026-06-29 12:11 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](http://www.share.kurohicncr.top/Article/details/27909.shtml)
+- 2026-06-29 12:17 - [中天策略:4月28日市场分析](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](http://www.share.kurohicncr.top/Article/details/066606584523.shtml)
+- 2026-06-29 12:09 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](http://www.blog.kurohicncr.top/Article/details/8561652706.shtml)
+- 2026-06-29 12:12 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](http://www.share.minike.top/Article/details/00769.shtml)
+- 2026-06-29 12:08 - [商务部：2026年1-3月我国电子商务持续平稳发展](http://www.share.kurohicncr.top/Article/details/73865305624.shtml)
+- 2026-06-29 12:25 - [民政部：着力推进普惠性、基础性、兜底性民生建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](http://www.blog.minike.top/Article/details/78263.shtml)
+- 2026-06-29 12:26 - [2026年度丽江海关部门预算公开](http://www.share.minike.top/Article/details/41448923.shtml)
+- 2026-06-29 12:02 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [重庆秀山：烟雨“边城” 古韵映春](http://www.share.minike.top/Article/details/49397870.shtml)

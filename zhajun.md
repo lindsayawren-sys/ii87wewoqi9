@@ -1,60 +1,57 @@
-# 何小鹏谈自动驾驶：2028年实现L4概率极高，2030年或见L5雏形
+# 北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。小鹏集团董事长、CEO何小鹏在对话中谈及AI与自动驾驶研发时坦言，自己去年才真正理解“数据作为燃料”所带来的飞轮效应。他表示，在重构AI研发范式之后，自动驾驶的进化速度呈现出“6倍”的显著提升。 以此为基础，他对高阶自动驾驶的时间表作出了更为乐观的修正。何小鹏称，
+2025年北京市首创发布股权信托财产登记试点政策以来，运行平稳，成效良好，反响热烈。该试点政策聚焦信托领域财产确权难题，通过“信托产品预登记、签订信托文件、信托财产登记”三步走模式，以在营业执照“经营范围”标注的形式，完成相关股权财产登记，使财产关系更加清晰，资产隔离更为有效，财产安全更有保障。试点政策不仅填补了《信托法》关于信托财产登记“有法可依、无处可登”的空白，助力北京市
 
 ## 正文
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
+2025年北京市首创发布股权信托财产登记试点政策以来，运行平稳，成效良好，反响热烈。
 
-小鹏集团董事长、CEO何小鹏在对话中谈及AI与自动驾驶研发时坦言，自己去年才真正理解“数据作为燃料”所带来的飞轮效应。
+该试点政策聚焦信托领域财产确权难题，通过“信托产品预登记、签订信托文件、信托财产登记”三步走模式，以在营业执照“经营范围”标注的形式，完成相关股权财产登记，使财产关系更加清晰，资产隔离更为有效，财产安全更有保障。
 
-他表示，在重构AI研发范式之后，自动驾驶的进化速度呈现出“6倍”的显著提升。
+试点政策不仅填补了《信托法》关于信托财产登记“有法可依、无处可登”的空白，助力北京市经济社会高质量发展，也为我国全面建立信托财产登记制度积累了宝贵经验。
 
-以此为基础，他对高阶自动驾驶的时间表作出了更为乐观的修正。
+截至目前，辖内已落地试点登记案例7单，涉及信托业务规模330亿元，惠及企业破产重整、家族传承及财富管理等多个领域。
 
-何小鹏称，过去他认为L5级自动驾驶在自己有生之年难以实现，但现在判断，2028年实现L4级软件能力的概率已经极高，而L5级自动驾驶的雏形也有望在2030年左右出现。
+为持续深入推进股权信托财产登记试点工作，进一步提质扩面、优化升级，北京金融监管局联合北京市市场监管局将北京市股权信托财产登记试点有效期延长三年，并扩大股权试点范围，将合伙企业财产份额纳入登记，允许在北京市设有异地部门的辖外信托公司参照适用。
 
-何小鹏还强调，汽车产业正在经历从单纯的新能源化向智能化、机器人化的纵深转型，行业竞争的核心要素正在发生根本性变化。
+通过政策“纵向延伸+横向扩面”，不断推动信托财产登记“北京模式”迭代升级。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
-
-责任编辑：李昂
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [002342，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:03 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:20 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:03 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:55 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:08 - [浙江省欧美同学会金融委员会举行座谈交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:18 - [特朗普结束访华回国途中，与高市早苗通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:20 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:22 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:17 - [尾盘：国债收益率大涨 美股继续下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:03 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:55 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:04 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:00 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:22 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:16 - [重庆秀山：烟雨“边城” 古韵映春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:04 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:27 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:15 - [韩国宣布与Google DeepMind建立合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:24 - [光大期货：4月28日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:03 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:06 - [深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:28 - [华盛顿发生两起枪击事件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:08 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:04 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:12 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:07 - [国务院任免国家工作人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:19 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](http://www.blog.minike.top/Article/details/0240149.shtml)
-- 2026-06-29 12:02 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](http://www.blog.kurohicncr.top/Article/details/92283991858.shtml)
-- 2026-06-29 12:20 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](http://www.share.kurohicncr.top/Article/details/1649299453.shtml)
-- 2026-06-29 12:00 - [总书记引领强国之路｜聚天下英才而用之](http://www.blog.minike.top/Article/details/813894.shtml)
-- 2026-06-29 12:05 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](http://www.blog.kurohicncr.top/Article/details/61659.shtml)
-- 2026-06-29 12:07 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](http://www.share.minike.top/Article/details/46608425.shtml)
-- 2026-06-29 12:23 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](http://www.blog.minike.top/Article/details/5468137.shtml)
-- 2026-06-29 12:23 - [台湾西螺七嵌客家武术流派赴福建诏安交流](http://www.share.minike.top/Article/details/722265671.shtml)
-- 2026-06-29 12:12 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](http://www.share.minike.top/Article/details/229325892842.shtml)
-- 2026-06-29 12:10 - [杭州欧美同学会国际文化交流工作委员会成立](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [联播+｜读懂中国的特别窗口](http://www.blog.minike.top/Article/details/803253143.shtml)
-- 2026-06-29 12:17 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](http://www.blog.kurohicncr.top/Article/details/1212945949.shtml)
+- 2026-06-29 12:22 - [央行今日开展259亿元7天期逆回购操作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [传递“乌尔朵”的守边人](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](http://www.share.kurohicncr.top/Article/details/900439.shtml)
+- 2026-06-29 12:08 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](http://www.share.minike.top/Article/details/55435231165.shtml)
+- 2026-06-29 12:17 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](http://www.blog.kurohicncr.top/Article/details/982846455377.shtml)
+- 2026-06-29 12:03 - [渝昆高铁川滇段无砟轨道施工全部完成](http://www.blog.minike.top/Article/details/0415879265.shtml)
+- 2026-06-29 12:14 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](http://www.share.kurohicncr.top/Article/details/884149814649.shtml)
+- 2026-06-29 12:11 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](http://www.share.minike.top/Article/details/80304.shtml)
+- 2026-06-29 12:07 - [西安通报5起违反中央八项规定精神问题](http://www.blog.minike.top/Article/details/000282857.shtml)
+- 2026-06-29 12:00 - [GTC泽汇资本:黄金整理静待方向明朗](http://www.blog.kurohicncr.top/Article/details/40127.shtml)
+- 2026-06-29 12:08 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](http://www.blog.kurohicncr.top/Article/details/3807631182.shtml)
+- 2026-06-29 12:21 - [OpenAI称已更新与微软的合作伙伴关系](http://www.blog.minike.top/Article/details/292918960.shtml)

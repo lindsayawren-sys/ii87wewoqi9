@@ -1,51 +1,57 @@
-# 拾光纪·着眼中美关系新定位，期待两国元首再相会
+# 日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-视频：拾光纪·着眼中美关系新定位，期待两国元首再相会来源：人民日报客户端 在结束对中国的国事访问后，美国总统特朗普乘专机离开北京。两国元首赞同将构建“中美建设性战略稳定关系”作为中美关系新定位。在继往开来的2026年，中美关系值得期待。
+中新网北京4月28日电 (记者 黄钰钦)中国外交部发言人林剑28日主持例行记者会。 有记者提问：28日，日本自民党保守派团体“保守团结会”成员及参政党的166名国会地方议员参拜靖国神社，中方对此有何评论？ 林剑：所谓靖国神社是日本军国主义发动侵略战争的精神工具和象征，是事实上的“战犯神社”。日方涉所谓靖国神社一系列的消极动向，公然严重践踏历史正义和人类良知，挑战二战胜利成果与战
 
 ## 正文
 
-视频：拾光纪·着眼中美关系新定位，期待两国元首再相会来源：人民日报客户端 在结束对中国的国事访问后，美国总统特朗普乘专机离开北京。
+中新网北京4月28日电 (记者 黄钰钦)中国外交部发言人林剑28日主持例行记者会。
 
-两国元首赞同将构建“中美建设性战略稳定关系”作为中美关系新定位。
+有记者提问：28日，日本自民党保守派团体“保守团结会”成员及参政党的166名国会地方议员参拜靖国神社，中方对此有何评论？
 
-在继往开来的2026年，中美关系值得期待。
+林剑：所谓靖国神社是日本军国主义发动侵略战争的精神工具和象征，是事实上的“战犯神社”。
+
+日方涉所谓靖国神社一系列的消极动向，公然严重践踏历史正义和人类良知，挑战二战胜利成果与战后国际秩序。
+
+中方对此强烈愤慨，严厉谴责。
+
+今年是东京审判开庭80周年，几天后的5月3日是审判开庭的纪念日。
+
+80年前，国际社会以如山的铁证对日本侵略罪行盖棺定论，依法裁决日本甲级战犯，捍卫了世界反法西斯战争胜利成果和国际公义。
+
+80年后的今天，日方的某些政客和右翼势力不仅不思悔改，反而变本加厉，频频参拜供有甲级战犯的靖国神社，妄图为侵略历史翻案，为战争罪行洗白，为军国主义招魂。
 
 ## 相关推荐
 
-- 2026-06-29 12:12 - [沃尔玛希望Flipkart放慢节奏并实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:54 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:17 - [CBA观察：我们需要一支怎样的山西男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:10 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:21 - [全国广电民生节目在渝交流创新经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:21 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:11 - [王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:15 - [助力“东北超”歌曲《绿茵逐梦》上线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:18 - [泰尔茂一季度营收8315亿日元，GAAP每股收益74.25日元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:54 - [广西首批村集体持有林票线上竞价交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:18 - [马斯克诉 OpenAI案阶段性收官！奥特曼被曝内幕交易，昔日兄弟为何反目？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:22 - [一粒红芸豆改写边境乡镇产业轨迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:19 - [“莫斯科—哈尔滨”研讨会举行 共拓中俄地方合作新空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:08 - [宁德时代孟永健：V2G最难的不在反向放电，而是千万级车辆如何有序安全调度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:10 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:28 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:26 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:08 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:14 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:18 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:02 - [银行业首个行业级“数据分类分级”大模型发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:09 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:06 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:14 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:03 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:15 - [新西兰央行行长：已准备好应对持续的价格压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:06 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](http://www.blog.kurohicncr.top/Article/details/72480634.shtml)
-- 2026-06-29 12:10 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](http://www.blog.kurohicncr.top/Article/details/794259.shtml)
-- 2026-06-29 12:08 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](http://www.share.kurohicncr.top/Article/details/004333793.shtml)
-- 2026-06-29 12:20 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](http://www.share.minike.top/Article/details/56963.shtml)
-- 2026-06-29 11:59 - [文脉华章丨一个博物院就是一所大学校](http://www.share.minike.top/Article/details/158391207079.shtml)
-- 2026-06-29 12:03 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](http://www.share.minike.top/Article/details/887027905340.shtml)
-- 2026-06-29 12:13 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](http://www.blog.kurohicncr.top/Article/details/87618616020.shtml)
-- 2026-06-29 12:22 - [日本国债收益率飙升 投资者押注日资从美债回流本土](http://www.share.kurohicncr.top/Article/details/193887.shtml)
-- 2026-06-29 11:59 - [首届中国新文创市集满场“黑科技” 观众：超出预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](http://www.blog.minike.top/Article/details/35522343.shtml)
-- 2026-06-29 12:20 - [广西柳州成立具身智能机器人技术应用中心](http://www.blog.kurohicncr.top/Article/details/7624262945.shtml)
-- 2026-06-29 12:04 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](http://www.blog.kurohicncr.top/Article/details/4330169.shtml)
+- 2026-06-29 12:25 - [“伊斯兰国”袭击尼日利亚东北部 造成至少29人丧生](http://www.blog.minike.top/Article/details/6230076.shtml)
+- 2026-06-29 12:02 - [中钢协：一季度钢材价格总体走势平稳但处于近年同期最低水平](http://www.share.kurohicncr.top/Article/details/662151.shtml)
+- 2026-06-29 12:15 - [谷歌不顾员工反对，与美国国防部签署机密人工智能合作协议](http://www.share.kurohicncr.top/Article/details/53410479.shtml)
+- 2026-06-29 12:03 - [穿越机视角领略婺源“江南第一奇谷”飞瀑景观](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](http://www.blog.kurohicncr.top/Article/details/20119543653.shtml)
+- 2026-06-29 12:00 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](http://www.share.minike.top/Article/details/7449343225.shtml)
+- 2026-06-29 12:19 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](http://www.blog.kurohicncr.top/Article/details/569337658.shtml)
+- 2026-06-29 12:21 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](http://www.blog.kurohicncr.top/Article/details/768188.shtml)
+- 2026-06-29 12:25 - [指数级增长 2025年我国词元调用量约21100万亿](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](http://www.share.minike.top/Article/details/84711590.shtml)
+- 2026-06-29 12:19 - [中共中央政治局会议要点对比及解读](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](http://www.share.kurohicncr.top/Article/details/51605415873.shtml)
+- 2026-06-29 12:23 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.share.kurohicncr.top/Article/details/793627686.shtml)
+- 2026-06-29 12:16 - [谷歌员工反对将AI用于机密任务](http://www.blog.minike.top/Article/details/4038259.shtml)

@@ -1,57 +1,57 @@
-# 华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线
+# 【市场聚焦】棉花：美国主产区干旱持续发酵带动全球棉市价格上行
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-今天，本轮大范围降雨依旧在线，不过南北方降雨特征差异明显。北方总体以层云降雨也就是稳定性降雨为主，雨势柔和，绵绵细雨居多；南方降雨则对流特征突出，局地骤雨急促、雨量大。今天白天，四川盆地、陕西、山西、京津冀一带出现成片降雨，不少地方6小时累计雨量超过40毫米。 明天，随着冷空气东移南下，主雨带将南落并转为西南-东北走向；后天强降雨范围缩减，降雨重心进一步东移南压。需要注意的是，
+一、本轮美国棉花主产区干旱现状与成因 根据美国干旱监测中心（USDM）与USDA最新发布的数据，截至2026年4月中旬，全美约94%的棉花种植区遭受不同程度的干旱侵袭，较2025年同期的34%大幅提升60个百分点。核心产区德克萨斯州的旱情更为严峻，全州98%的植棉区处于中度及以上干旱状态，其中极度干旱与特大干旱区域占比显著提升，干旱指数已逼近2022年极端干旱时期的峰值水平。
 
 ## 正文
 
-今天，本轮大范围降雨依旧在线，不过南北方降雨特征差异明显。
+一、本轮美国棉花主产区干旱现状与成因 根据美国干旱监测中心（USDM）与USDA最新发布的数据，截至2026年4月中旬，全美约94%的棉花种植区遭受不同程度的干旱侵袭，较2025年同期的34%大幅提升60个百分点。
 
-北方总体以层云降雨也就是稳定性降雨为主，雨势柔和，绵绵细雨居多；南方降雨则对流特征突出，局地骤雨急促、雨量大。
+核心产区德克萨斯州的旱情更为严峻，全州98%的植棉区处于中度及以上干旱状态，其中极度干旱与特大干旱区域占比显著提升，干旱指数已逼近2022年极端干旱时期的峰值水平。
 
-今天白天，四川盆地、陕西、山西、京津冀一带出现成片降雨，不少地方6小时累计雨量超过40毫米。
+从土壤墒情来看，截至4月上旬，全美棉区表层土壤缺水区域面积占比达41%，较2025年同期增加10个百分点，核心旱区土壤墒情已无法满足棉花播种出苗的基本需求。
 
-明天，随着冷空气东移南下，主雨带将南落并转为西南-东北走向；后天强降雨范围缩减，降雨重心进一步东移南压。
+与此同时，全美棉花播种进度11%，虽与五年同期均值基本持平，但受土壤墒情不足影响，已播种区域出苗率显著低于常年同期，这给2026/27年度美棉种植面积落地带来显著不确定性。
 
-需要注意的是，此次过程华北部分地区降雨存在一定极端性，与常年同期相比，降水明显偏多，其中河北中南部、东部和天津一带降雨强度可能挑战同期纪录。
+本轮美国棉区极端干旱的形成，是短期气候异常与中长期气候模式共振的结果。
 
-中央气象台预计，今夜至后天中东部大范围降雨过程持续，西南地区东部、江汉、江淮、江南中西部和北部、华南中西部沿海、华北大部、黄淮等地部分地区有大雨或暴雨，局地大暴雨，局地伴有雷暴大风、短时强降水等强对流天气。
+短期来看，2026年春季以来，美国南部与西南部棉区受副热带高压持续控制，暖干气团长期盘踞，导致区域内降水量较常年同期偏少60%以上，同时气温较常年同期偏高2-4℃，蒸发量显著提升，土壤水分收支严重失衡，旱情快速蔓延加剧。
 
-随着阴雨天气席卷，北方多地褪去燥热，凉意扑面而来。
+从中长期气候背景来看，厄尔尼诺现象的发展预期进一步放大了旱情的持续性风险。
 
-今天下午，西安、太原、北京等地气温低迷不到20℃，体感清凉。
+根据美国国家海洋和大气管理局（NOAA）气候预测中心数据，2026年6-8月厄尔尼诺现象形成概率已突破62%，10-12月发生概率接近90%。
 
 ## 相关推荐
 
-- 2026-06-29 12:20 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:00 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:06 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:06 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:03 - [日本国债收益率飙升 投资者押注日资从美债回流本土](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:11 - [首届中国新文创市集满场“黑科技” 观众：超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:12 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:21 - [广西柳州成立具身智能机器人技术应用中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:08 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:57 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:57 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:26 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:23 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:28 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:26 - [指数级增长 2025年我国词元调用量约21100万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:25 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:00 - [中共中央政治局会议要点对比及解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:18 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:20 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:10 - [谷歌员工反对将AI用于机密任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:14 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:25 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:57 - [知情人士：SpaceX股东批准普通股1拆5拆分方案](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [美证券交易委员会已与印度富豪阿达尼就一项民事欺诈诉讼达成和解](http://www.share.kurohicncr.top/Article/details/33559940.shtml)
-- 2026-06-29 12:11 - [阿联酋加速建设第二条东西向石油管道，绕道避开霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/58390.shtml)
-- 2026-06-29 11:58 - [北方炎热持续升级南方强降雨频发](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [新疆于田县第九届玫瑰风情文化旅游活动开幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [住房城乡建设部：地级及以上城市、县级市全面开展城市体检](http://www.blog.kurohicncr.top/Article/details/8261016.shtml)
-- 2026-06-29 12:16 - [ST迪瑞的警示：内控失控、业绩变脸、治理动荡三重困局](http://www.share.minike.top/Article/details/7413774.shtml)
-- 2026-06-29 12:03 - [三星电子CEO与最大工会领导层会面 表达继续谈判意愿](http://www.share.minike.top/Article/details/968386381291.shtml)
-- 2026-06-29 11:55 - [生长周期缩短近半 “太空种子”在内蒙古大漠成功开花](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [长岛铁路工人或于今夜举行罢工](http://www.share.kurohicncr.top/Article/details/338633659498.shtml)
-- 2026-06-29 12:14 - [688549突发利好，股价短期已翻倍](http://www.blog.kurohicncr.top/Article/details/14777.shtml)
-- 2026-06-29 12:05 - [交响组曲《想你——永远的焦裕禄》在兰考上演](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [中视金桥于5月15日斥资147.4万港元回购72.6万股](http://www.blog.minike.top/Article/details/55911.shtml)
-- 2026-06-29 11:56 - [蚊子藏隐患？乙脑怎么防？这套“防护攻略”快收好|科普时间](http://www.share.kurohicncr.top/Article/details/801054081.shtml)
-- 2026-06-29 12:15 - [2026重庆六一缤纷跑欢乐起跑 3500余组亲子家庭乐享运动时光](http://www.share.kurohicncr.top/Article/details/893421.shtml)
+- 2026-06-29 12:25 - [光大期货：4月28日能源化工日报](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [中国国内首个Pre6G试验网在南京投运 6G商用进入提速通道](http://www.blog.kurohicncr.top/Article/details/968719.shtml)
+- 2026-06-29 12:07 - [大摩：宁德时代维持“与大市同步”评级 目标价上调至695港元](http://www.blog.minike.top/Article/details/4812543184.shtml)
+- 2026-06-29 12:27 - [战争催生非洲能源新前沿：投资者竞相填补燃料缺口](http://www.blog.kurohicncr.top/Article/details/022349266.shtml)
+- 2026-06-29 12:12 - [河南两项目入选2025年度全国十大考古新发现](http://www.blog.minike.top/Article/details/45771.shtml)
+- 2026-06-29 12:02 - [ATF:美国消费者信心今晚登场 美元黄金与美股或迎来方向测试](http://www.blog.kurohicncr.top/Article/details/6911659.shtml)
+- 2026-06-29 12:07 - [2026本科专业“上新”，“新”在何处？](http://www.share.minike.top/Article/details/068971.shtml)
+- 2026-06-29 12:29 - [外媒：阿富汗遭巴基斯坦导弹袭击，造成3人死亡、45人受伤](http://www.blog.minike.top/Article/details/0143403.shtml)
+- 2026-06-29 12:30 - [亿缕阳光｜治愈的瞬间](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [2026年孟连海关部门预算公开](http://www.blog.minike.top/Article/details/04564139.shtml)
+- 2026-06-29 12:02 - [东珠生态（603359）投资者索赔分析](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [香港引入首辆飞机专用重型电拖车](http://www.share.kurohicncr.top/Article/details/0368523.shtml)
+- 2026-06-29 12:28 - [瑞银：华润置地目标价36港元 维持“买入”评级](http://www.share.minike.top/Article/details/18884011749.shtml)
+- 2026-06-29 12:28 - [《习近平谈治国理政》第五卷英文版中印尼推介会在雅加达举行](http://www.blog.kurohicncr.top/Article/details/908641551.shtml)
+- 2026-06-29 12:00 - [江西省省长：加快让人形机器人等未来产业形成新经济增长点](http://www.share.kurohicncr.top/Article/details/11781695.shtml)

@@ -1,58 +1,52 @@
-# 商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问
+# OpenAI称已更新与微软的合作伙伴关系
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新网5月16日电 据商务部网站消息，商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问。 问：5月15日，司法部发布公告称，欧盟利用《外国补贴条例》对中国实体采取的相关跨境调查做法，构成“不当域外管辖措施”，请问商务部对此有何评论？ 答：中方一贯反对欧方滥用《外国补贴条例》(FSR)等单边工具打压中国企业。近期，欧方不仅针对中国企业增加调查频次，扩大调
+OpenAI首席执行官萨姆·奥特曼在社交平台上发帖称：“我们已更新与微软的合作伙伴关系。微软仍将是我们的主要云合作伙伴，但我们现在能够将我们的产品和服务推广到所有云平台。我们将继续向微软提供产品和模型，直至2032年，并与其分享收入直至2030 年。” 责任编辑：于健 SF069
 
 ## 正文
 
-中新网5月16日电 据商务部网站消息，商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问。
+OpenAI首席执行官萨姆·奥特曼在社交平台上发帖称：“我们已更新与微软的合作伙伴关系。
 
-问：5月15日，司法部发布公告称，欧盟利用《外国补贴条例》对中国实体采取的相关跨境调查做法，构成“不当域外管辖措施”，请问商务部对此有何评论？
+微软仍将是我们的主要云合作伙伴，但我们现在能够将我们的产品和服务推广到所有云平台。
 
-答：中方一贯反对欧方滥用《外国补贴条例》(FSR)等单边工具打压中国企业。
+我们将继续向微软提供产品和模型，直至2032年，并与其分享收入直至2030 年。
 
-近期，欧方不仅针对中国企业增加调查频次，扩大调查范围，还将对同方威视等企业的调查升级为深入调查，并强制中国的银行机构配合调查，不合理索要广泛的、与调查无关的大量中国境内信息。
-
-多家中国企业和银行机构在欧正常投资经营受到严重负面影响。
-
-商务部早在2025年1月就通过调查认定，欧方FSR相关做法构成贸易投资壁垒，并要求欧方纠正相关做法，主张通过对话妥善管控分歧。
-
-但欧方一意孤行，在错误的道路上越走越远。
-
-对此，司法部会同商务部在充分调查的基础上，依据《中华人民共和国反外国不当域外管辖条例》，认定欧方在对同方威视的FSR调查中，对有关中国实体采取的相关跨境调查做法构成不当域外管辖措施，要求任何组织、个人不得执行或者协助执行该措施。
+” 责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 12:06 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:13 - [文脉华章丨一个博物院就是一所大学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:21 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:22 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:58 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:04 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:13 - [日本国债收益率飙升 投资者押注日资从美债回流本土](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:54 - [首届中国新文创市集满场“黑科技” 观众：超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:22 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:19 - [广西柳州成立具身智能机器人技术应用中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:21 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:06 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:11 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:22 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:03 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:16 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:26 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:28 - [指数级增长 2025年我国词元调用量约21100万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:02 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:17 - [中共中央政治局会议要点对比及解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:01 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:19 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:23 - [谷歌员工反对将AI用于机密任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:15 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:18 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:23 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:09 - [浙商策略：双创冲高回落大盘调整 短线或震荡、中线暂无忧](http://www.blog.minike.top/Article/details/594427096.shtml)
-- 2026-06-29 12:01 - [广州银行，罚单接二连三](http://www.blog.kurohicncr.top/Article/details/9519380.shtml)
-- 2026-06-29 12:06 - [知情人士：SpaceX股东批准普通股1拆5拆分方案](http://www.share.kurohicncr.top/Article/details/8765417344.shtml)
-- 2026-06-29 12:16 - [美证券交易委员会已与印度富豪阿达尼就一项民事欺诈诉讼达成和解](http://www.blog.minike.top/Article/details/7265155565.shtml)
-- 2026-06-29 12:13 - [阿联酋加速建设第二条东西向石油管道，绕道避开霍尔木兹海峡](http://www.share.minike.top/Article/details/03410722819.shtml)
-- 2026-06-29 12:14 - [北方炎热持续升级南方强降雨频发](http://www.blog.minike.top/Article/details/058609.shtml)
-- 2026-06-29 11:58 - [新疆于田县第九届玫瑰风情文化旅游活动开幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [住房城乡建设部：地级及以上城市、县级市全面开展城市体检](http://www.blog.kurohicncr.top/Article/details/5186654.shtml)
-- 2026-06-29 12:04 - [ST迪瑞的警示：内控失控、业绩变脸、治理动荡三重困局](http://www.blog.kurohicncr.top/Article/details/90540.shtml)
-- 2026-06-29 12:21 - [三星电子CEO与最大工会领导层会面 表达继续谈判意愿](http://www.share.kurohicncr.top/Article/details/697213128.shtml)
-- 2026-06-29 12:03 - [生长周期缩短近半 “太空种子”在内蒙古大漠成功开花](http://www.share.minike.top/Article/details/562230724.shtml)
-- 2026-06-29 12:00 - [长岛铁路工人或于今夜举行罢工](http://www.blog.kurohicncr.top/Article/details/024545.shtml)
-- 2026-06-29 12:11 - [688549突发利好，股价短期已翻倍](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [交响组曲《想你——永远的焦裕禄》在兰考上演](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [中视金桥于5月15日斥资147.4万港元回购72.6万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [蒋某某故意杀人、强奸案一审宣判](http://www.blog.kurohicncr.top/Article/details/2431543.shtml)
+- 2026-06-29 12:03 - [助力打造内陆开放高地 重庆涉外律所已达81家](http://www.blog.minike.top/Article/details/320522130990.shtml)
+- 2026-06-29 12:15 - [光大期货：4月28日能源化工日报](http://www.blog.minike.top/Article/details/032528.shtml)
+- 2026-06-29 12:24 - [中国国内首个Pre6G试验网在南京投运 6G商用进入提速通道](http://www.share.minike.top/Article/details/085004.shtml)
+- 2026-06-29 12:29 - [大摩：宁德时代维持“与大市同步”评级 目标价上调至695港元](http://www.share.kurohicncr.top/Article/details/95456.shtml)
+- 2026-06-29 12:05 - [战争催生非洲能源新前沿：投资者竞相填补燃料缺口](http://www.blog.kurohicncr.top/Article/details/9965048533.shtml)
+- 2026-06-29 12:18 - [河南两项目入选2025年度全国十大考古新发现](http://www.blog.minike.top/Article/details/27099573.shtml)
+- 2026-06-29 12:13 - [ATF:美国消费者信心今晚登场 美元黄金与美股或迎来方向测试](http://www.share.kurohicncr.top/Article/details/728418821889.shtml)
+- 2026-06-29 12:24 - [2026本科专业“上新”，“新”在何处？](http://www.share.kurohicncr.top/Article/details/54216.shtml)
+- 2026-06-29 12:04 - [外媒：阿富汗遭巴基斯坦导弹袭击，造成3人死亡、45人受伤](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [亿缕阳光｜治愈的瞬间](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [2026年孟连海关部门预算公开](http://www.blog.minike.top/Article/details/1346528.shtml)
+- 2026-06-29 12:26 - [东珠生态（603359）投资者索赔分析](http://www.share.kurohicncr.top/Article/details/654420.shtml)
+- 2026-06-29 12:20 - [香港引入首辆飞机专用重型电拖车](http://www.share.kurohicncr.top/Article/details/495481363277.shtml)
+- 2026-06-29 12:22 - [瑞银：华润置地目标价36港元 维持“买入”评级](http://www.blog.minike.top/Article/details/90825.shtml)

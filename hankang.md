@@ -1,53 +1,57 @@
-# 中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情
+# 拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月17日 18:15 来源：中国新闻网 2026年是中国闽台缘博物馆正式开馆的第二十个年头。近日，以“博物馆：联结世界的桥梁”为主题，2026年“5·18国际博物馆日”福建主会场系列活动在泉州举行，集中展现福建文博事业成果与闽台文化交融特色。 据了解，中国闽台缘博物馆开馆二十年来，累计接待观众超1770万人次，其中台胞逾103.8万人次。截至目前，博物馆
+有业内人士认为，IP联名能帮助厨电行业局部破局，但不能扭转行业基本面。 拉布布冰箱预售火爆，定价是同类产品的超30倍，二手市场有的报价已溢价近50%。与此形成鲜明对比的是，厨卫电器上市公司2025年及2026年一季度业绩普遍承压。IP联名能否成为厨卫电器行业走出低迷的“救生圈”，引发行业热议。 分析人士认为，家电产品正走向“软化”，结合IP可以增加情绪价值。也有人认为，IP联名
 
 ## 正文
 
-发布时间：2026年05月17日 18:15 来源：中国新闻网 2026年是中国闽台缘博物馆正式开馆的第二十个年头。
+有业内人士认为，IP联名能帮助厨电行业局部破局，但不能扭转行业基本面。
 
-近日，以“博物馆：联结世界的桥梁”为主题，2026年“5·18国际博物馆日”福建主会场系列活动在泉州举行，集中展现福建文博事业成果与闽台文化交融特色。
+拉布布冰箱预售火爆，定价是同类产品的超30倍，二手市场有的报价已溢价近50%。
 
-据了解，中国闽台缘博物馆开馆二十年来，累计接待观众超1770万人次，其中台胞逾103.8万人次。
+与此形成鲜明对比的是，厨卫电器上市公司2025年及2026年一季度业绩普遍承压。
 
-截至目前，博物馆已协助360多对两岸宗亲成功查谱寻根。
+IP联名能否成为厨卫电器行业走出低迷的“救生圈”，引发行业热议。
 
-依托闽台寻根溯源服务交流中心，中国闽台缘博物馆接下来将举办各类丰富的活动，持续推动两岸宗亲交流交往。
+分析人士认为，家电产品正走向“软化”，结合IP可以增加情绪价值。
 
-(柯宁） 责任编辑：【刘湃】
+也有人认为，IP联名家电只是迎合特定的年轻人群，提供一个用户心智入口，要成功离不开成熟产品的支撑。
+
+IP联名能助厨电业局部破局，但扭转不了基本面。
+
+拉布布冰箱预售的热与冷 泡泡玛特首款跨界家电THE MONSTERS生活家系列两款121升冷藏箱，近日开始预售，各限量999台，官方定价5999元，4月30日22点将在京东开售。
 
 ## 相关推荐
 
-- 2026-06-29 12:18 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:22 - [“超级食物”真有那么神奇吗？专家揭秘真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:58 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:11 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:00 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:12 - [土耳其理工名校掀起中国热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:02 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:18 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:23 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:07 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:06 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:17 - [中国选手赵一程打破男子速度攀岩世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:13 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:23 - [“华住会”App崩了？客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:10 - [“五一”假期小型客车继续施行免收通行费政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:28 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:10 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:06 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:28 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:00 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:06 - [“十四五”期间中国新发现大中型油气田225处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:17 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [蚊子藏隐患？乙脑怎么防？这套“防护攻略”快收好|科普时间](http://www.blog.kurohicncr.top/Article/details/62462072.shtml)
-- 2026-06-29 12:08 - [2026重庆六一缤纷跑欢乐起跑 3500余组亲子家庭乐享运动时光](http://www.blog.minike.top/Article/details/672253971162.shtml)
-- 2026-06-29 12:21 - [吉林打造长白山环山骑行品牌](http://www.blog.kurohicncr.top/Article/details/2612113.shtml)
-- 2026-06-29 12:17 - [超5000名小勇士挑战2026斯巴达勇士儿童赛杭州站](http://www.blog.minike.top/Article/details/21789966.shtml)
-- 2026-06-29 12:02 - [保障灾区基本通信 国家应急通信融合接入平台启动全国应用](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [王毅向媒体介绍中美元首会晤情况和共识](http://www.share.minike.top/Article/details/73324.shtml)
-- 2026-06-29 12:04 - [中资企业持续助力柬埔寨教育发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [华泰 | A股策略：均衡配置应对内外风险](http://www.share.kurohicncr.top/Article/details/218253.shtml)
-- 2026-06-29 12:23 - [首次，首项，首个！本周我国多领域实现突破 创新实力亮眼](http://www.blog.minike.top/Article/details/9506960.shtml)
-- 2026-06-29 11:54 - [广发证券：这是一场EPS上调速度和利率上行速度的较量](http://www.blog.minike.top/Article/details/2400687.shtml)
-- 2026-06-29 12:10 - [诗承千年风起庐陵 第二届“迦陵杯”中华诗教大会江西吉安举行](http://www.share.kurohicncr.top/Article/details/913162533637.shtml)
-- 2026-06-29 12:07 - [从增量扩张到存量提质 建设现代化人民城市](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [日本宫城县附近海域发生6.3级地震 震源深度50公里](http://www.blog.minike.top/Article/details/8440473.shtml)
-- 2026-06-29 12:13 - [（侨乡新貌）南宁侨场成食品产业新城 侨企入驻占商机](http://www.share.minike.top/Article/details/099396927.shtml)
-- 2026-06-29 11:55 - [金正恩要求加强守卫南部边境的一线部队](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [《习近平谈治国理政》第五卷英文版中印尼推介会在雅加达举行](http://www.blog.kurohicncr.top/Article/details/75597285805.shtml)
+- 2026-06-29 12:07 - [江西省省长：加快让人形机器人等未来产业形成新经济增长点](http://www.share.kurohicncr.top/Article/details/0714465.shtml)
+- 2026-06-29 12:23 - [国泰君安期货：玻璃跌破前低 下跌趋势延续](http://www.blog.kurohicncr.top/Article/details/84427.shtml)
+- 2026-06-29 12:12 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.minike.top/Article/details/693291.shtml)
+- 2026-06-29 12:16 - [全球首艘10800车汽车运输船在广州命名交付](http://www.blog.minike.top/Article/details/983593730671.shtml)
+- 2026-06-29 12:20 - [截至4月28日，今年全国共发生7次大范围强对流天气过程](http://www.share.kurohicncr.top/Article/details/5276528.shtml)
+- 2026-06-29 12:28 - [中方：巴勒斯坦问题在任何情况下都不应被边缘化](http://www.share.kurohicncr.top/Article/details/868447.shtml)
+- 2026-06-29 12:10 - [广东湛江吴川国际机场首条全货机定期航线开通](http://www.share.minike.top/Article/details/6547202.shtml)
+- 2026-06-29 12:05 - [人社部：一季度全国城镇新增就业299万人](http://www.blog.minike.top/Article/details/2433569735.shtml)
+- 2026-06-29 12:05 - [长安汽车战略协同，阿维塔品牌独立运营不变：协同降本空间打开，港股IPO照常推进](http://www.blog.minike.top/Article/details/068611.shtml)
+- 2026-06-29 12:26 - [丁二烯：一季度进口下滑出口增加，二季度趋势或延续](http://www.blog.kurohicncr.top/Article/details/45834426066.shtml)
+- 2026-06-29 12:17 - [南京银行董事长谢宁：“好银行”至少应具备经营发展好等三大特征](http://www.share.kurohicncr.top/Article/details/33059769.shtml)
+- 2026-06-29 12:04 - [视频|小鹏智驾误判路灯倒影 紧急制动引发追尾事故](http://www.share.kurohicncr.top/Article/details/66424.shtml)
+- 2026-06-29 12:19 - [报道：俄罗斯超级游艇穿越被封锁的霍尔木兹海峡](http://www.share.minike.top/Article/details/3245239.shtml)
+- 2026-06-29 12:23 - [海南规范华侨回国定居办理工作](http://www.share.minike.top/Article/details/66895.shtml)

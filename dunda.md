@@ -1,57 +1,58 @@
-# 王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”
+# 邻里结对、互助帮扶 多地打造农村养老“暖心样本”
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。中央美术学院教授、设计学院研究生部主任王选政表示，在探讨文化主体性时，最应该避免的就是陷入务虚的语境，甚至进行所谓的“忽悠”。 他指出，只要是中国的汽车企业、中国的设计团队在做设计，其作品自然而然就带有文化的主体性，无需刻意去谈或强行贴标签。 他特别指出，在汽车设
+互助性养老服务是指通过邻里或村(社区)居民间的互相帮扶，为老年人提供自愿性、非营利性养老服务的活动。民政部等11部门公布了《关于推进互助性养老服务发展的意见》，这是我国首次在全国层面就如何推进互助性养老服务发展作出系统性、总体性部署。《关于推进互助性养老服务发展的意见》今天公布 《关于推进互助性养老服务发展的意见》明确，要建立完善互助服务模式。根据大多数老年人在家养老的实际，发
 
 ## 正文
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
+互助性养老服务是指通过邻里或村(社区)居民间的互相帮扶，为老年人提供自愿性、非营利性养老服务的活动。
 
-中央美术学院教授、设计学院研究生部主任王选政表示，在探讨文化主体性时，最应该避免的就是陷入务虚的语境，甚至进行所谓的“忽悠”。
+民政部等11部门公布了《关于推进互助性养老服务发展的意见》，这是我国首次在全国层面就如何推进互助性养老服务发展作出系统性、总体性部署。
 
-他指出，只要是中国的汽车企业、中国的设计团队在做设计，其作品自然而然就带有文化的主体性，无需刻意去谈或强行贴标签。
+《关于推进互助性养老服务发展的意见》今天公布 《关于推进互助性养老服务发展的意见》明确，要建立完善互助服务模式。
 
-他特别指出，在汽车设计领域，我们不必刻意去追求所谓的“在地性”或纠结于是否承认别人的优秀。
+根据大多数老年人在家养老的实际，发展社区支持的居家互助服务，支持以村干部、社区工作者、楼门长等为骨干，以低龄健康老年人为主体组建互助服务队伍提供服务。
 
-文化只有在交流中才能形成共鸣，如果试图进行单向的、强行硬性的文化塑造，不仅无法打动全球用户，反而会落入“忽悠”的陷阱。
+根据农村老年人需求和农村地区特点，《意见》提出，要通过邻里互助、多户搭伙、结对帮扶等方式，积极开展农村互助性养老服务。
 
-真正的文化主体性，不是靠堆砌纹样或生硬的概念，而是源于自信与平等的对话。
+有条件的地方可以建立统一的互助服务时间(积分)管理系统；鼓励按规定开发设置农村助老岗位，支持开展互助性养老服务。
 
-他认为，随着汽车从“硬件定义”转向由软件、体验以及情绪价值来定义，设计教育的名称极有可能迎来第四次更迭，甚至可能与传统的“汽车”或“出行”概念完全剥离。
+《意见》明确，到2030年，具备互助服务功能的城乡社区养老服务设施覆盖率不低于70%；到2035年，互助性养老服务组织化程度进一步提高，服务支持体系进一步健全。
 
-而这恰恰是中国汽车设计构建真正文化主体地位、在全球范围内建立审美共鸣的绝佳契机。
+“互助幸福院”解决农村牧区养老难题 在乌兰察布市南店村的互助幸福院里，住着200多位老人。
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [宁德时代孟永健：V2G最难的不在反向放电，而是千万级车辆如何有序安全调度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:06 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:17 - [5名意大利公民在马尔代夫潜水时身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:07 - [爱沙尼亚国防部长：军备采购价格涨50% 欧洲军工行业陷入恶性循环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:08 - [重庆忠县实景演艺《烽烟三国》 美国游客称赞体验令人震撼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:17 - [三星电子会长李在镕呼吁公司内部保持团结，并向公众致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:09 - [天润工业：公司与银轮股份没有业务往来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:55 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:01 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:02 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:03 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:26 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:11 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:28 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:09 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:06 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:04 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:26 - [“五一”假期预计约600万人次进出香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:23 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:25 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:06 - [央行今日开展259亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:28 - [传递“乌尔朵”的守边人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:28 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:57 - [广西柳州成立具身智能机器人技术应用中心](http://www.share.minike.top/Article/details/4179465892.shtml)
-- 2026-06-29 12:14 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](http://www.blog.kurohicncr.top/Article/details/3680665.shtml)
-- 2026-06-29 12:05 - [连连数字于5月15日斥资134.75万港元回购23.55万股](http://www.share.kurohicncr.top/Article/details/66542.shtml)
-- 2026-06-29 12:02 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](http://www.share.minike.top/Article/details/27675.shtml)
-- 2026-06-29 12:23 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [兰州新区全链赋能丝路“甘味”香飘海内外](http://www.blog.minike.top/Article/details/72865.shtml)
-- 2026-06-29 12:11 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [“超级食物”真有那么神奇吗？专家揭秘真相](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.share.kurohicncr.top/Article/details/351333.shtml)
-- 2026-06-29 11:55 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](http://www.share.kurohicncr.top/Article/details/3331352628.shtml)
-- 2026-06-29 12:03 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](http://www.share.minike.top/Article/details/6794925827.shtml)
-- 2026-06-29 12:17 - [土耳其理工名校掀起中国热](http://www.blog.minike.top/Article/details/0462921.shtml)
-- 2026-06-29 12:11 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](http://www.blog.kurohicncr.top/Article/details/198773587329.shtml)
-- 2026-06-29 12:11 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](http://www.share.kurohicncr.top/Article/details/378068.shtml)
+- 2026-06-29 12:01 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.share.kurohicncr.top/Article/details/772899.shtml)
+- 2026-06-29 12:04 - [谷歌员工反对将AI用于机密任务](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [春到桑干河](http://www.blog.minike.top/Article/details/4852172715.shtml)
+- 2026-06-29 12:25 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [中国选手赵一程打破男子速度攀岩世界纪录](http://www.blog.kurohicncr.top/Article/details/8604430688.shtml)
+- 2026-06-29 12:15 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [“华住会”App崩了？客服回应](http://www.blog.kurohicncr.top/Article/details/7821178.shtml)
+- 2026-06-29 12:01 - [“五一”假期小型客车继续施行免收通行费政策](http://www.blog.kurohicncr.top/Article/details/0532918070.shtml)
+- 2026-06-29 12:27 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](http://www.blog.minike.top/Article/details/9910821149.shtml)
+- 2026-06-29 12:20 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.blog.minike.top/Article/details/9171418912.shtml)
+- 2026-06-29 12:01 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.share.kurohicncr.top/Article/details/126792.shtml)
+- 2026-06-29 12:16 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](http://www.blog.minike.top/Article/details/102126759.shtml)
+- 2026-06-29 12:17 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](http://www.share.kurohicncr.top/Article/details/11099473731.shtml)

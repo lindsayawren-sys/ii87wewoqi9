@@ -1,61 +1,56 @@
-# 515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖
+# 银行业首个行业级“数据分类分级”大模型发布
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。景顺长城基金凭借“一司一省一高校”投教新实践：当财报课开进商圈夜校，荣获2026年度“最佳投资者教育创新奖”。 据悉，景顺长城基金积极响应中国证监会号召，持续深化“一司一省一高校”投资者教育活动。公司敏锐洞察到城市青年，特别是都市白领在“碎片化学习”和
+来源：邮储银行+ 近日，“数据分类分级人工智能大模型暨高质量数据集建设成果交流发布会”在京召开，中国人民银行党委委员、副行长邹澜出席会议并讲话。国家发改委、国家数据局，部分国有商业银行、城商行、农商行、外资银行，金融基础设施单位相关负责同志参加会议。中国邮政储蓄银行作为模型训练代表机构做专题分享。 数据分类分级人工智能大模型旨在探索解决金融机构在数据分类分级工作中面临的标准理解
 
 ## 正文
 
-专题：515投资者保护！
+来源：邮储银行+ 近日，“数据分类分级人工智能大模型暨高质量数据集建设成果交流发布会”在京召开，中国人民银行党委委员、副行长邹澜出席会议并讲话。
 
-新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
+国家发改委、国家数据局，部分国有商业银行、城商行、农商行、外资银行，金融基础设施单位相关负责同志参加会议。
 
-景顺长城基金凭借“一司一省一高校”投教新实践：当财报课开进商圈夜校，荣获2026年度“最佳投资者教育创新奖”。
+中国邮政储蓄银行作为模型训练代表机构做专题分享。
 
-据悉，景顺长城基金积极响应中国证监会号召，持续深化“一司一省一高校”投资者教育活动。
+数据分类分级人工智能大模型旨在探索解决金融机构在数据分类分级工作中面临的标准理解不一、执行尺度不齐、自动化水平不足等痛点。
 
-公司敏锐洞察到城市青年，特别是都市白领在“碎片化学习”和“知识付费焦虑”下的真实需求，创新性地将投教阵地延伸至深圳福田CBD的核心商圈。
+邮储银行深度参与数据分类分级人工智能大模型训练工作，在发布会上介绍了模型选型与结构设计、关键超参数优化、模型四轮迭代演进路径、模型与高质量数据集双向提升等重点实践。
 
-我们与福田街道CBD商圈党委合作，在其发起的“商圈夜校·CBD青年探趣营”中，开设系列金融知识公益课程，旨在为年轻职场人提供一个权威、系统、便利的金融知识“夜间充电站”，从源头助力培养理性投资文化。
+中国人民银行组织相关机构按照“共建、共享、共用、共治”原则协同攻关，通过凝练头部机构经验共识，再借助大模型转化为通用、自动化工具供给中小金融机构使用。
 
-该课程目标受众明确为商圈内22-35岁的青年白领。
+数据分类分级人工智能大模型凝聚行业智慧，实现“1+1>2”的聚合放大效应，探索出一套科学规范、可复制的行业大模型协同建设模式和高质量数据集建设工艺，为人工智能在金融领域创新应用提供实践参考。
 
-围绕其“想理财、怕风险、缺知识”的痛点，设计了为期一个月、共四期的系列课程，主题为《读懂财务报表，建立投资思维》。
+近年来，邮储银行全面加速数智化转型落地，将智能技术作为驱动变革的关键抓手和决胜未来的战略高地，构建了大模型能力体系。
 
 ## 相关推荐
 
-- 2026-06-29 12:10 - [“莫斯科—哈尔滨”研讨会举行 共拓中俄地方合作新空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:55 - [宁德时代孟永健：V2G最难的不在反向放电，而是千万级车辆如何有序安全调度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:12 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:57 - [5名意大利公民在马尔代夫潜水时身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:18 - [爱沙尼亚国防部长：军备采购价格涨50% 欧洲军工行业陷入恶性循环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:55 - [重庆忠县实景演艺《烽烟三国》 美国游客称赞体验令人震撼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:56 - [三星电子会长李在镕呼吁公司内部保持团结，并向公众致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:03 - [天润工业：公司与银轮股份没有业务往来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:59 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:13 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:08 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:23 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:12 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:10 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:59 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:25 - [北京首都机场“五一”假期预计运送旅客超100万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:26 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:12 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:18 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:29 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:26 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:15 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:29 - [“五一”假期预计约600万人次进出香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:17 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:18 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](http://www.share.kurohicncr.top/Article/details/2714853234.shtml)
-- 2026-06-29 12:22 - [广西柳州成立具身智能机器人技术应用中心](http://www.share.kurohicncr.top/Article/details/516620.shtml)
-- 2026-06-29 11:58 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](http://www.share.minike.top/Article/details/3171750.shtml)
-- 2026-06-29 12:16 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](http://www.share.kurohicncr.top/Article/details/276255.shtml)
-- 2026-06-29 12:08 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](http://www.share.kurohicncr.top/Article/details/902474670010.shtml)
-- 2026-06-29 11:58 - [兰州新区全链赋能丝路“甘味”香飘海内外](http://www.share.kurohicncr.top/Article/details/56951.shtml)
-- 2026-06-29 11:56 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](http://www.share.minike.top/Article/details/948815.shtml)
-- 2026-06-29 12:20 - [“超级食物”真有那么神奇吗？专家揭秘真相](http://www.share.kurohicncr.top/Article/details/603296.shtml)
-- 2026-06-29 12:15 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.blog.kurohicncr.top/Article/details/54306.shtml)
-- 2026-06-29 12:13 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](http://www.blog.minike.top/Article/details/15659453.shtml)
-- 2026-06-29 11:56 - [土耳其理工名校掀起中国热](http://www.share.kurohicncr.top/Article/details/933265802.shtml)
-- 2026-06-29 11:55 - [中美元首会谈是否讨论人工智能合作？中方回应](http://www.share.minike.top/Article/details/5020201762.shtml)
-- 2026-06-29 12:16 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](http://www.share.minike.top/Article/details/20667110.shtml)
+- 2026-06-29 12:26 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.blog.kurohicncr.top/Article/details/58179007.shtml)
+- 2026-06-29 12:26 - [谷歌员工反对将AI用于机密任务](http://www.blog.kurohicncr.top/Article/details/132264.shtml)
+- 2026-06-29 12:24 - [春到桑干河](http://www.share.kurohicncr.top/Article/details/1433992.shtml)
+- 2026-06-29 12:14 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](http://www.blog.kurohicncr.top/Article/details/21678190014.shtml)
+- 2026-06-29 12:25 - [阿联酋能源部长：退出欧佩克对市场影响有限](http://www.share.kurohicncr.top/Article/details/290197890.shtml)
+- 2026-06-29 12:17 - [重庆国际消费节启幕 打造全域消费新场景](http://www.share.minike.top/Article/details/012856.shtml)
+- 2026-06-29 12:24 - [中国选手赵一程打破男子速度攀岩世界纪录](http://www.share.kurohicncr.top/Article/details/48940495617.shtml)
+- 2026-06-29 12:15 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](http://www.blog.minike.top/Article/details/478856753412.shtml)
+- 2026-06-29 12:11 - [“华住会”App崩了？客服回应](http://www.share.kurohicncr.top/Article/details/2031087178.shtml)
+- 2026-06-29 12:10 - [“五一”假期小型客车继续施行免收通行费政策](http://www.share.kurohicncr.top/Article/details/867193.shtml)
+- 2026-06-29 12:05 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](http://www.blog.kurohicncr.top/Article/details/13526.shtml)
+- 2026-06-29 12:17 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.blog.kurohicncr.top/Article/details/71135323688.shtml)
+- 2026-06-29 12:23 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.blog.kurohicncr.top/Article/details/253421089097.shtml)
+- 2026-06-29 12:26 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](http://www.share.kurohicncr.top/Article/details/07757.shtml)

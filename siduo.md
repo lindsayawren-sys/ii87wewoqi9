@@ -1,59 +1,57 @@
-# 2026长三角国际田径钻石赛收官 产生多项赛会纪录
+# 中方：期待更多志同道合的国家加入“全球治理之友小组”
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新网绍兴5月17日电(肖健)5月16日晚，2026长三角国际田径钻石赛(上海/绍兴柯桥)在浙江绍兴柯桥开赛。该赛事吸引了来自48个国家和地区的运动员参与16个比赛项目的角逐。赛事当日产生了1项钻石联赛纪录(DLR)和8项赛会纪录(MR)，多达37名运动员创造或追平了个人最佳(PB)。另外，有7个项目创造了今年的最好成绩(WL)。 男子撑竿跳世界纪录保持者杜普兰蒂斯虽然三次挑战
+中新网北京4月29日电 (记者 张蔚然)中国外交部发言人林剑29日主持例行记者会。 有记者提问：我们注意到，中国常驻维也纳代表团昨日宣布维也纳“全球治理之友小组”正式成立。发言人能否进一步介绍有关情况？ 林剑：4月28日，中方在维也纳联合国总部成功举办全球治理倡议主题活动暨维也纳“全球治理之友小组”启动仪式，包括小组创始成员国在内的40余国常驻代表，联合国工业发展组织、联合国贸
 
 ## 正文
 
-中新网绍兴5月17日电(肖健)5月16日晚，2026长三角国际田径钻石赛(上海/绍兴柯桥)在浙江绍兴柯桥开赛。
+中新网北京4月29日电 (记者 张蔚然)中国外交部发言人林剑29日主持例行记者会。
 
-该赛事吸引了来自48个国家和地区的运动员参与16个比赛项目的角逐。
+有记者提问：我们注意到，中国常驻维也纳代表团昨日宣布维也纳“全球治理之友小组”正式成立。
 
-赛事当日产生了1项钻石联赛纪录(DLR)和8项赛会纪录(MR)，多达37名运动员创造或追平了个人最佳(PB)。
+发言人能否进一步介绍有关情况？
 
-另外，有7个项目创造了今年的最好成绩(WL)。
+林剑：4月28日，中方在维也纳联合国总部成功举办全球治理倡议主题活动暨维也纳“全球治理之友小组”启动仪式，包括小组创始成员国在内的40余国常驻代表，联合国工业发展组织、联合国贸易法委员会等国际组织代表、国际智库专家等出席活动。
 
-男子撑竿跳世界纪录保持者杜普兰蒂斯虽然三次挑战6.32米世界纪录未果，但仍以6.12米的成绩夺冠，连续三年刷新赛会纪录，展现出在该项目上的绝对统治力。
+活动现场气氛热烈，各方踊跃发言，高度认同和支持习近平主席提出的全球治理倡议，高度赞赏中国在支持联合国事业、倡导多边主义、维护公平正义、改革完善全球治理体系中发挥的重要引领作用，期待通过小组在维也纳多边平台加强沟通协调，凝聚更广泛共识，为维护多边主义、推进全球治理体系建设和改革作出新贡献。
 
-女子100米栏赛场上，美国选手拉塞尔跑出12.25秒，刷新赛会纪录并创造赛季最佳成绩，强势斩获冠军。
+这是继去年12月纽约、今年2月日内瓦之后，中方依托联合国平台成立的又一“全球治理之友小组”。
 
-男子300米栏比赛中，巴西名将多斯桑托斯以33.01秒夺冠，刷新个人最好成绩并跑出今年世界最佳；挪威名将瓦尔霍姆以33.05秒获得亚军。
+在不到五个月的时间里，“全球治理之友小组”从无到有，在纽约、日内瓦、维也纳三地落地生根，小组成员不断壮大，影响力和凝聚力持续提升。
 
-男子110米栏赛场上，布里特以13.07秒追平个人最好成绩并最终夺冠。
+这充分说明，改革完善全球治理、携手应对全球挑战是人心所向、大势所趋。
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:21 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:07 - [台湾西螺七嵌客家武术流派赴福建诏安交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:08 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:57 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:05 - [杭州欧美同学会国际文化交流工作委员会成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:59 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:16 - [联播+｜读懂中国的特别窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:21 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:02 - [星网宇达：截至2026年4月20日公司股东人数为40184户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:08 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:04 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:06 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:13 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:20 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:19 - [渝昆高铁川滇段无砟轨道施工全部完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:29 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:21 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:25 - [西安通报5起违反中央八项规定精神问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:02 - [GTC泽汇资本:黄金整理静待方向明朗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:02 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:22 - [OpenAI称已更新与微软的合作伙伴关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:09 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:19 - [【市场聚焦】棉花：美国主产区干旱持续发酵带动全球棉市价格上行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:09 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](http://www.share.minike.top/Article/details/5834694102.shtml)
-- 2026-06-29 12:19 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](http://www.blog.minike.top/Article/details/15377097691.shtml)
-- 2026-06-29 11:59 - [日本不断加速扩军修宪图谋：日本自民党欲继续提高日本防卫费规模](http://www.share.kurohicncr.top/Article/details/534290664870.shtml)
-- 2026-06-29 12:23 - [Atrium Therapeutics Q1净亏损1660万美元，BMS里程碑付款支撑收入](http://www.share.minike.top/Article/details/67708441.shtml)
-- 2026-06-29 12:05 - [515投资者保护 | 27期漫画36万阅读！银华《投资者避坑宝典》系列投保栏目荣获2026年度投教项目优秀实践奖](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [埃克森美孚昔日高额股息如今大幅缩水，改善方案来了](http://www.blog.kurohicncr.top/Article/details/931606736477.shtml)
-- 2026-06-29 12:04 - [湖南省文化馆数字文旅体验空间开馆](http://www.blog.minike.top/Article/details/297430.shtml)
-- 2026-06-29 12:09 - [Token越来越贵？别慌！算力网已在来的路上](http://www.blog.kurohicncr.top/Article/details/134660.shtml)
-- 2026-06-29 12:05 - [印度与阿联酋将全面深化合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [蔚来李斌：换电从来不是失血点，而是超前投入期](http://www.share.kurohicncr.top/Article/details/70328848.shtml)
-- 2026-06-29 12:14 - [马祖摄影人在福建霞浦共赴光影之约](http://www.share.minike.top/Article/details/66686816.shtml)
-- 2026-06-29 11:58 - [江苏沛县西瓜促农文旅融合 “甜蜜产业” 赋能乡村振兴](http://www.share.minike.top/Article/details/9772895083.shtml)
-- 2026-06-29 12:03 - [（乡村行·看振兴）湖北宜昌：科技助农“慧种田”](http://www.share.kurohicncr.top/Article/details/95575.shtml)
-- 2026-06-29 12:14 - [伊朗，突传大消息！刚刚，集体大跳水！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [国际足联为何服软了](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [“十四五”期间中国新发现大中型油气田225处](http://www.blog.kurohicncr.top/Article/details/23626727706.shtml)
+- 2026-06-29 12:22 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [截至去年12月我国已出台网络领域立法180余部](http://www.blog.kurohicncr.top/Article/details/1784917.shtml)
+- 2026-06-29 12:18 - [美光与闪迪股价持续走高，存储芯片需求有望长期旺盛](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [从新疆到巴黎 艾德莱斯秀出中国职教风采](http://www.blog.minike.top/Article/details/48396.shtml)
+- 2026-06-29 12:12 - [中远海能第一季度归母净利润21.73亿元 同比增长206.74%](http://www.share.kurohicncr.top/Article/details/458499270080.shtml)
+- 2026-06-29 12:27 - [二手时尚交易平台Vinted估值达80亿欧元，挑战eBay市场地位](http://www.share.kurohicncr.top/Article/details/4672947.shtml)
+- 2026-06-29 12:27 - [企业无端扩大适用范围 竞业限制的边界到底在哪里？](http://www.share.kurohicncr.top/Article/details/15538736061.shtml)
+- 2026-06-29 12:28 - [谷歌就专利局“既定预期”规则向美国最高法院提起上诉](http://www.share.minike.top/Article/details/81671823472.shtml)
+- 2026-06-29 12:01 - [阿里平头哥重磅发布，支持万卡AI集群高速互联！港股AI反弹，百亿港股互联网ETF华宝（513770）盘中冲击2%！](http://www.blog.kurohicncr.top/Article/details/100417.shtml)
+- 2026-06-29 12:03 - [美银证券：金风科技重申“买入”评级 目标价升至18.5港元](http://www.blog.minike.top/Article/details/191531229.shtml)
+- 2026-06-29 12:01 - [中国太保(02601)涨超5%：一季度净利润同比增长4.3% 期缴规模与价值实现双升](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [OpenAI终止与微软的独家合作，为与亚马逊谷歌达成协议铺平道路](http://www.blog.minike.top/Article/details/057637.shtml)
+- 2026-06-29 12:26 - [贵州：推荐徐来任茅台集团副总经理、总会计师](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [长护险全国推开后，普惠保险如何补上“保基本”之外的缺口？](http://www.blog.kurohicncr.top/Article/details/75247.shtml)

@@ -1,56 +1,58 @@
-# 文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花
+# 深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新网长春5月17日电 (高龙安 李彦国)“现今存世的好书太多，我们哪怕用一生的时间也不可能全部读完，但人们仍然要坚持读好书、创作好作品。”中国作家协会副主席格非对青年人寄语道。 “名家进校园”第三届全国大学生阅读分享活动17日在长春举行，格非、苏童、范小青等知名作家分别走进多所高校，围绕读书与创作等话题与青年人互动。 在格非看来，无论读书还是创作，核心在于深入思考。他表示，并
+发布时间：2026年04月28日 16:26 来源：中国新闻网 【解说】不算雄峻的深圳大鹏新区观音山海拔只有174.59米，却因一块岩石声名远播——厚3米、长20余米的巨石从山谷蓦然探出，翘首向上如游龙出壑，故得名龙岩。春和景明好时节，观音山景区总是好去处。 【同期】龙岩古寺管委会文化使者 李宏伟 我们来看一下第三进屋顶的这块龙岩，这块龙岩是从山谷中蓦然伸出，翘首向上，犹如出地
 
 ## 正文
 
-中新网长春5月17日电 (高龙安 李彦国)“现今存世的好书太多，我们哪怕用一生的时间也不可能全部读完，但人们仍然要坚持读好书、创作好作品。
+发布时间：2026年04月28日 16:26 来源：中国新闻网 【解说】不算雄峻的深圳大鹏新区观音山海拔只有174.59米，却因一块岩石声名远播——厚3米、长20余米的巨石从山谷蓦然探出，翘首向上如游龙出壑，故得名龙岩。
 
-”中国作家协会副主席格非对青年人寄语道。
+春和景明好时节，观音山景区总是好去处。
 
-“名家进校园”第三届全国大学生阅读分享活动17日在长春举行，格非、苏童、范小青等知名作家分别走进多所高校，围绕读书与创作等话题与青年人互动。
+【同期】龙岩古寺管委会文化使者 李宏伟 我们来看一下第三进屋顶的这块龙岩，这块龙岩是从山谷中蓦然伸出，翘首向上，犹如出地之龙，所以人们称它为龙岩，后人依岩筑寺，故称龙岩古寺，龙岩古寺的这块岩石厚3米多长20余米。
 
-在格非看来，无论读书还是创作，核心在于深入思考。
+【解说】 这座始建于清同治年间的古寺，距今已有160余年历史，早已成为珠三角地区乃至港澳同胞、海外侨胞心中的祈福胜地。
 
-他表示，并非所有的思考都能创造出伟大的思想，重要的是，人们在思考的过程中，伟大的思想会经过头脑，哪怕只是短暂停留，也能潜移默化地提升一个人的素养。
+每逢观音诞辰日，古寺都会举办免费供斋活动，数千名信众游人齐聚于此，共享斋饭、共叙乡情。
 
-范小青也提出相似的观点。
+在这份温润的人文底蕴之外，还镌刻着厚重的红色记忆。
 
-她认为，读书是人们追求本心、塑造人生基础的关键所在。
+【同期】龙岩古寺管委会文化使者 李宏伟 因为龙岩古寺位于观音山的半山腰，周围林木茂密遮天蔽日，隐蔽性比较好，所以在1943年抗战时期中国共产党领导的南粤抗日武装力量东江纵队的战地医院曾设立于此。
 
-在快节奏生活和碎片化阅读已成常态的今天，人们比以往任何时候更需要时间和空间来慢读深耕，让思想得以积累和沉淀。
+我们看一下，当时战地医院在龙岩古寺内以及山上都设立了他们的医院，在山上他们也搭建了一些帐篷用于存放医疗物资，还有晾晒战士们的军服以及绷带纱布等等。
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [首届中国新文创市集满场“黑科技” 观众：超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:16 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:22 - [广西柳州成立具身智能机器人技术应用中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:11 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:20 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:14 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:17 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:04 - [兰州新区全链赋能丝路“甘味”香飘海内外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:16 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:09 - [“超级食物”真有那么神奇吗？专家揭秘真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:00 - [中共中央政治局会议要点对比及解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:21 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:17 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:29 - [谷歌员工反对将AI用于机密任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:04 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:05 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:26 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:14 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:19 - [中国选手赵一程打破男子速度攀岩世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:16 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:26 - [“华住会”App崩了？客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:12 - [“五一”假期小型客车继续施行免收通行费政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:55 - [住房城乡建设部：地级及以上城市、县级市全面开展城市体检](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [ST迪瑞的警示：内控失控、业绩变脸、治理动荡三重困局](http://www.blog.minike.top/Article/details/12511.shtml)
-- 2026-06-29 12:10 - [三星电子CEO与最大工会领导层会面 表达继续谈判意愿](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [生长周期缩短近半 “太空种子”在内蒙古大漠成功开花](http://www.share.kurohicncr.top/Article/details/439544058072.shtml)
-- 2026-06-29 12:01 - [长岛铁路工人或于今夜举行罢工](http://www.blog.kurohicncr.top/Article/details/7543791820.shtml)
-- 2026-06-29 12:15 - [688549突发利好，股价短期已翻倍](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [交响组曲《想你——永远的焦裕禄》在兰考上演](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [中视金桥于5月15日斥资147.4万港元回购72.6万股](http://www.share.minike.top/Article/details/1623536.shtml)
-- 2026-06-29 11:58 - [蚊子藏隐患？乙脑怎么防？这套“防护攻略”快收好|科普时间](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [2026重庆六一缤纷跑欢乐起跑 3500余组亲子家庭乐享运动时光](http://www.blog.minike.top/Article/details/60108010226.shtml)
-- 2026-06-29 11:57 - [吉林打造长白山环山骑行品牌](http://www.blog.minike.top/Article/details/9493604.shtml)
-- 2026-06-29 12:11 - [超5000名小勇士挑战2026斯巴达勇士儿童赛杭州站](http://www.blog.kurohicncr.top/Article/details/6499863699.shtml)
-- 2026-06-29 12:12 - [保障灾区基本通信 国家应急通信融合接入平台启动全国应用](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [王毅向媒体介绍中美元首会晤情况和共识](http://www.share.kurohicncr.top/Article/details/0958207564.shtml)
-- 2026-06-29 12:14 - [中资企业持续助力柬埔寨教育发展](http://www.blog.kurohicncr.top/Article/details/369695790328.shtml)
+- 2026-06-29 12:23 - [ATF:美国消费者信心今晚登场 美元黄金与美股或迎来方向测试](http://www.share.minike.top/Article/details/64335030464.shtml)
+- 2026-06-29 12:01 - [2026本科专业“上新”，“新”在何处？](http://www.blog.minike.top/Article/details/3854991451.shtml)
+- 2026-06-29 12:16 - [外媒：阿富汗遭巴基斯坦导弹袭击，造成3人死亡、45人受伤](http://www.share.minike.top/Article/details/097497404450.shtml)
+- 2026-06-29 12:09 - [亿缕阳光｜治愈的瞬间](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [2026年孟连海关部门预算公开](http://www.share.minike.top/Article/details/171876732842.shtml)
+- 2026-06-29 12:27 - [东珠生态（603359）投资者索赔分析](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [香港引入首辆飞机专用重型电拖车](http://www.share.minike.top/Article/details/99284017144.shtml)
+- 2026-06-29 12:12 - [瑞银：华润置地目标价36港元 维持“买入”评级](http://www.share.kurohicncr.top/Article/details/73247.shtml)
+- 2026-06-29 12:26 - [《习近平谈治国理政》第五卷英文版中印尼推介会在雅加达举行](http://www.blog.kurohicncr.top/Article/details/58231082.shtml)
+- 2026-06-29 12:14 - [江西省省长：加快让人形机器人等未来产业形成新经济增长点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [国泰君安期货：玻璃跌破前低 下跌趋势延续](http://www.blog.kurohicncr.top/Article/details/019357819566.shtml)
+- 2026-06-29 12:23 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.minike.top/Article/details/195673511.shtml)
+- 2026-06-29 12:22 - [全球首艘10800车汽车运输船在广州命名交付](http://www.share.minike.top/Article/details/835978775.shtml)
+- 2026-06-29 12:05 - [截至4月28日，今年全国共发生7次大范围强对流天气过程](http://www.share.minike.top/Article/details/279569.shtml)
+- 2026-06-29 12:05 - [中方：巴勒斯坦问题在任何情况下都不应被边缘化](http://www.share.minike.top/Article/details/7062053082.shtml)

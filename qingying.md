@@ -1,61 +1,58 @@
-# 陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资
+# 确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新社香港5月17日电 香港特区政府财政司司长陈茂波17日发表网志表示，近期不同国际机构对香港的客观认可，反映外界更了解香港的最新发展与未来潜力。这些认可不仅反映香港经济基调良好、前景正面，也有助于吸引更多国际长期资金投资香港。陈茂波称，国际货币基金组织近日发表最新报告，肯定香港作为国际金融中心及“超级联系人”的角色，并认同包括发展北部都会区在内的各项政策措施，有助于香港发展创
+新京报讯（记者张静姝）穆先生的母亲通过手机为他投保医疗保险，穆先生在等待期后被确诊为恶性肿瘤。保险公司以“投保前存在症状未告知”及“属于既往症”为由拒赔。法院经审理认为，保险公司未能证明其已就健康事项进行明确询问，且无法证明投保前症状与确诊疾病存在因果关系。最终，法院判决保险公司赔付医疗保险金9万余元。 2023 年 8 月，穆先生母亲通过手机为穆先生投保了一份医疗保险。投保人
 
 ## 正文
 
-中新社香港5月17日电 香港特区政府财政司司长陈茂波17日发表网志表示，近期不同国际机构对香港的客观认可，反映外界更了解香港的最新发展与未来潜力。
+新京报讯（记者张静姝）穆先生的母亲通过手机为他投保医疗保险，穆先生在等待期后被确诊为恶性肿瘤。
 
-这些认可不仅反映香港经济基调良好、前景正面，也有助于吸引更多国际长期资金投资香港。
+保险公司以“投保前存在症状未告知”及“属于既往症”为由拒赔。
 
-陈茂波称，国际货币基金组织近日发表最新报告，肯定香港作为国际金融中心及“超级联系人”的角色，并认同包括发展北部都会区在内的各项政策措施，有助于香港发展创科与高增值服务，支持经济增长与经济结构转型。
+法院经审理认为，保险公司未能证明其已就健康事项进行明确询问，且无法证明投保前症状与确诊疾病存在因果关系。
 
-国际评级机构穆迪与惠誉亦确认香港的信贷评级和“稳定”展望。
+最终，法院判决保险公司赔付医疗保险金9万余元。
 
-他强调，这些认可不仅反映香港经济基调良好、前景正面、公共财政稳健，更说明持续沟通讲解，能让国际机构更充分地了解香港的现状、发展方向和机遇。
+2023 年 8 月，穆先生母亲通过手机为穆先生投保了一份医疗保险。
 
-它们的评估等资讯能为全球投资者与工商金融界提供参考，有助于吸引更多国际长期资金投资香港。
+投保人和被保险人均为穆先生，该保险包含一般医疗费用补偿和恶性肿瘤医疗费用补偿，等待期为30 天。
 
-近期市场动向亦印证香港营商环境的吸引力和经济前景，不少机构落户或扩大在港投资，增聘人手与扩充办公室，推出更多创新服务与产品。
+2023 年 12 月，穆先生被确诊为精原细胞瘤（恶性肿瘤），随后多次住院进行化疗等。
 
-陈茂波指出，国家正大力发展新质生产力，加快推动人工智能、生物医药等战略性新兴产业发展，前瞻布局未来产业。
+后穆先生向保险公司申请理赔，保险公司以穆先生在等待期或投保时已存在持续反复发热、胸闷等症状，未履行如实告知义务，所患疾病属于“既往症”为由拒绝赔付，并提交投保视频以证明尽到提示告知义务。
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [尾盘：国债收益率大涨 美股继续下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:20 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:55 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:54 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:15 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:14 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:05 - [日本央行理事称投资基金活动对金融体系构成潜在风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:12 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:16 - [沃尔玛希望Flipkart放慢节奏并实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:07 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:07 - [CBA观察：我们需要一支怎样的山西男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:54 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:03 - [全国广电民生节目在渝交流创新经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:04 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:23 - [王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:16 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:09 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:18 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:26 - [国务院任免国家工作人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:05 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:03 - [第139届广交会二期闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:06 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:28 - [2026年盈江海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:18 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:09 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:29 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:12 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:59 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](http://www.blog.kurohicncr.top/Article/details/872379403.shtml)
-- 2026-06-29 12:01 - [杭州欧美同学会国际文化交流工作委员会成立](http://www.blog.minike.top/Article/details/6472864564.shtml)
-- 2026-06-29 11:59 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](http://www.blog.minike.top/Article/details/06968613405.shtml)
-- 2026-06-29 12:17 - [联播+｜读懂中国的特别窗口](http://www.blog.minike.top/Article/details/852797031224.shtml)
-- 2026-06-29 12:23 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [星网宇达：截至2026年4月20日公司股东人数为40184户](http://www.blog.minike.top/Article/details/81098.shtml)
-- 2026-06-29 12:00 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](http://www.share.kurohicncr.top/Article/details/32738.shtml)
-- 2026-06-29 12:21 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](http://www.share.minike.top/Article/details/6680745.shtml)
-- 2026-06-29 12:19 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](http://www.blog.kurohicncr.top/Article/details/75772601.shtml)
-- 2026-06-29 12:08 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](http://www.blog.kurohicncr.top/Article/details/76729.shtml)
-- 2026-06-29 12:13 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](http://www.share.minike.top/Article/details/636746.shtml)
-- 2026-06-29 12:23 - [文脉华章丨一个博物院就是一所大学校](http://www.share.kurohicncr.top/Article/details/32818150992.shtml)
-- 2026-06-29 12:19 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](http://www.share.minike.top/Article/details/26405964019.shtml)
+- 2026-06-29 12:08 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](http://www.share.kurohicncr.top/Article/details/17591083.shtml)
+- 2026-06-29 12:03 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [西安通报5起违反中央八项规定精神问题](http://www.share.kurohicncr.top/Article/details/693936.shtml)
+- 2026-06-29 12:23 - [GTC泽汇资本:黄金整理静待方向明朗](http://www.blog.minike.top/Article/details/74358284.shtml)
+- 2026-06-29 12:02 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [OpenAI称已更新与微软的合作伙伴关系](http://www.blog.minike.top/Article/details/4694593.shtml)
+- 2026-06-29 12:08 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](http://www.blog.minike.top/Article/details/76302.shtml)
+- 2026-06-29 12:28 - [【市场聚焦】棉花：美国主产区干旱持续发酵带动全球棉市价格上行](http://www.blog.minike.top/Article/details/432942843934.shtml)
+- 2026-06-29 12:19 - [“伊斯兰国”袭击尼日利亚东北部 造成至少29人丧生](http://www.share.kurohicncr.top/Article/details/164044799062.shtml)
+- 2026-06-29 12:28 - [中钢协：一季度钢材价格总体走势平稳但处于近年同期最低水平](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [谷歌不顾员工反对，与美国国防部签署机密人工智能合作协议](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [穿越机视角领略婺源“江南第一奇谷”飞瀑景观](http://www.share.minike.top/Article/details/79206482.shtml)
+- 2026-06-29 12:01 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](http://www.blog.minike.top/Article/details/15433355.shtml)
+- 2026-06-29 12:19 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](http://www.blog.kurohicncr.top/Article/details/68930689900.shtml)
+- 2026-06-29 12:14 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](http://www.blog.minike.top/Article/details/9255120589.shtml)

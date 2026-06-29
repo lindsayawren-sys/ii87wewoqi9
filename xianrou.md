@@ -1,60 +1,56 @@
-# 全国广电民生节目在渝交流创新经验
+# 中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新网重庆5月16日电 (梁钦卿)国家广电总局16日在重庆召开广播电视民生节目现场交流会。来自北京、内蒙古、河北、黑龙江、上海、山东、安徽、浙江等地的11家主流广电民生节目在会上进行了经验交流和案例分享。 重庆广电的舆论监督栏目《今日关注》自2024年1月1日开播以来，累计播出540余期，推动解决群众急难愁盼问题400余个，问题整改率保持在92%以上，已成为重庆超大城市治理中破
+中新网北京4月28日电 (记者 孙自法)中国科学院4月28日在北京正式发布“磐石100”模型体系，以“坚如磐石”的科学基础大模型为智能底座，面向数学、物理、材料、天文、环境、空天、地理、生命等重点领域方向，打造八个学科大模型能力集群，形成体系化创新生态，实现人工智能(AI)赋能科研“八仙过海，各显神通”。 磐石模型体系坚持由科学基础大模型聚焦共性科研需求、促进跨学科突破；学科领
 
 ## 正文
 
-中新网重庆5月16日电 (梁钦卿)国家广电总局16日在重庆召开广播电视民生节目现场交流会。
+中新网北京4月28日电 (记者 孙自法)中国科学院4月28日在北京正式发布“磐石100”模型体系，以“坚如磐石”的科学基础大模型为智能底座，面向数学、物理、材料、天文、环境、空天、地理、生命等重点领域方向，打造八个学科大模型能力集群，形成体系化创新生态，实现人工智能(AI)赋能科研“八仙过海，各显神通”。
 
-来自北京、内蒙古、河北、黑龙江、上海、山东、安徽、浙江等地的11家主流广电民生节目在会上进行了经验交流和案例分享。
+磐石模型体系坚持由科学基础大模型聚焦共性科研需求、促进跨学科突破；学科领域大模型专注解决领域基础性问题。
 
-重庆广电的舆论监督栏目《今日关注》自2024年1月1日开播以来，累计播出540余期，推动解决群众急难愁盼问题400余个，问题整改率保持在92%以上，已成为重庆超大城市治理中破解民生难题的重要力量。
+二者协同，形成支撑全领域科研场景攻关的数智能力。
 
-重庆广电集团(总台)党委书记、台长严兵认为，在移动传播时代舆论格局深刻变化、人工智能时代传播技术加速革新的形势下，广电媒体持续面临影响力被稀释、传播渠道被分流、话语方式受到挑战的考验，唯有在系统性变革中不断创新传播内容、方式、手段，不断提高传播力、引导力、影响力、公信力，才能巩固和提升作为主流媒体的主流地位。
+核心功能“三足鼎立”：AI赋能科研创新 “磐石100”模型体系以磐石·科学基础大模型为根基，学科领域大模型集群为骨干，细分科研场景应用模型和智能体为枝叶，构建了全域覆盖、高效联动的数智化科研创新平台，标志着人工智能赋能科学研究(AI for Science)从分散封闭的单点探索迈向协同高效的平台化创新。
 
-民生节目具有贴近群众、连接基层的优势，对于发挥主流媒体价值功能具有重要作用。
+自2025年陆续发布磐石·科学基础大模型1.0版、1.5版以来，研发团队持续攻坚，推出此次升级后的1.5pro版本基于650万条高质量科学推理数据，实现科学知识推理能力、多模态理解生成能力与模型可靠性的跨越式提升。
 
-2018年，北京广播电视台民生节目《向前一步》正式开播，围绕“建设什么样的首都”“怎样建设首都”这一时代课题，积极探索中国式现代化大背景下的城市治理经验。
+作为智能底座，磐石提供文献罗盘、创新评价、智能体工厂三大核心功能，全方位赋能科研创新全流程。
 
-“民生节目是服务人民群众，服务经济社会发展。
+其中，磐石·智能体工厂提供“工具+智能体”一站式服务，初步实现智能体工具链自主闭环与智能化辅助生成，已沉淀超2000个科研工具，支持10余个细分科研领域。
 
-”北京广播电视台卫视频道中心主任张苏表示，就民生节目而言，媒体的职能定位要有三重改变，一是媒体角色从“旁观记录者”转变为“平台搭建者”，二是媒体责任从“舆论监督者”转变为“难题攻坚者”，三是媒体功能从“报道一件事”转变为“影响一类事”。
+此次发布的“磐石100”模型体系，集中展现出中国科学院在科学基础模型、学科领域模型、应用场景协同建设的深厚积累。
 
 ## 相关推荐
 
-- 2026-06-29 12:17 - [一粒红芸豆改写边境乡镇产业轨迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:15 - [“莫斯科—哈尔滨”研讨会举行 共拓中俄地方合作新空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:19 - [宁德时代孟永健：V2G最难的不在反向放电，而是千万级车辆如何有序安全调度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:20 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:06 - [5名意大利公民在马尔代夫潜水时身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:02 - [爱沙尼亚国防部长：军备采购价格涨50% 欧洲军工行业陷入恶性循环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:02 - [重庆忠县实景演艺《烽烟三国》 美国游客称赞体验令人震撼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:16 - [三星电子会长李在镕呼吁公司内部保持团结，并向公众致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:10 - [天润工业：公司与银轮股份没有业务往来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:21 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:01 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:07 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:54 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:23 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:04 - [重庆罗斯福图书馆旧址将焕新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:23 - [北京首都机场“五一”假期预计运送旅客超100万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:12 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:07 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:30 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:10 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:28 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:29 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:07 - [“五一”假期预计约600万人次进出香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:19 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:17 - [首届中国新文创市集满场“黑科技” 观众：超出预期](http://www.share.kurohicncr.top/Article/details/83051.shtml)
-- 2026-06-29 12:09 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](http://www.blog.kurohicncr.top/Article/details/052930123715.shtml)
-- 2026-06-29 12:02 - [广西柳州成立具身智能机器人技术应用中心](http://www.blog.kurohicncr.top/Article/details/39070.shtml)
-- 2026-06-29 12:22 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](http://www.blog.kurohicncr.top/Article/details/741675168.shtml)
-- 2026-06-29 11:56 - [连连数字于5月15日斥资134.75万港元回购23.55万股](http://www.blog.kurohicncr.top/Article/details/07574.shtml)
-- 2026-06-29 12:00 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](http://www.share.kurohicncr.top/Article/details/0802261.shtml)
-- 2026-06-29 12:10 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](http://www.share.minike.top/Article/details/81972371.shtml)
-- 2026-06-29 12:02 - [兰州新区全链赋能丝路“甘味”香飘海内外](http://www.blog.kurohicncr.top/Article/details/15785.shtml)
-- 2026-06-29 12:00 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](http://www.blog.minike.top/Article/details/410741961990.shtml)
-- 2026-06-29 12:02 - [“超级食物”真有那么神奇吗？专家揭秘真相](http://www.share.kurohicncr.top/Article/details/9313544.shtml)
-- 2026-06-29 12:01 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](http://www.share.kurohicncr.top/Article/details/13374.shtml)
-- 2026-06-29 11:56 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](http://www.blog.kurohicncr.top/Article/details/499176226306.shtml)
-- 2026-06-29 12:19 - [土耳其理工名校掀起中国热](http://www.blog.kurohicncr.top/Article/details/6271599279.shtml)
-- 2026-06-29 12:07 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [中共中央政治局会议要点对比及解读](http://www.blog.minike.top/Article/details/149943.shtml)
+- 2026-06-29 12:27 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](http://www.blog.kurohicncr.top/Article/details/54303.shtml)
+- 2026-06-29 12:16 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.share.kurohicncr.top/Article/details/716344.shtml)
+- 2026-06-29 12:06 - [谷歌员工反对将AI用于机密任务](http://www.share.kurohicncr.top/Article/details/88837387.shtml)
+- 2026-06-29 12:05 - [春到桑干河](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [阿联酋能源部长：退出欧佩克对市场影响有限](http://www.blog.minike.top/Article/details/18936870554.shtml)
+- 2026-06-29 12:10 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [中国选手赵一程打破男子速度攀岩世界纪录](http://www.blog.kurohicncr.top/Article/details/017423629.shtml)
+- 2026-06-29 12:09 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](http://www.share.minike.top/Article/details/277534864123.shtml)
+- 2026-06-29 12:16 - [“华住会”App崩了？客服回应](http://www.blog.minike.top/Article/details/862835092504.shtml)
+- 2026-06-29 12:24 - [“五一”假期小型客车继续施行免收通行费政策](http://www.blog.kurohicncr.top/Article/details/837040285769.shtml)
+- 2026-06-29 12:18 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](http://www.blog.kurohicncr.top/Article/details/243914073396.shtml)
+- 2026-06-29 12:05 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.share.kurohicncr.top/Article/details/42529784.shtml)
+- 2026-06-29 12:07 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.blog.kurohicncr.top/Article/details/2948361.shtml)

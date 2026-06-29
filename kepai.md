@@ -1,56 +1,57 @@
-# 国家防办派工作组赴广西协助指导车辆坠河人员搜救工作
+# 保险公司收紧对霍尔木兹海峡过往船只的承保要求
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-5月17日，国家防总办公室、应急管理部继续组织气象、水利、自然资源等部门和广西、湖北、重庆等17个省份，会商研判本轮降雨过程发展趋势，研究部署重点地区防范应对工作。国家防总维持针对贵州、湖北、重庆的防汛四级应急响应。会商指出，5月17日至19日，本轮大范围强降雨过程逐渐东移南压，华北、黄淮、江汉、江南、华南等地部分地区有暴雨，需重点关注上述地区山洪和地质灾害、中小河流洪水、中小
+保险经纪商Marsh称，一些保险公司现在要求，船只若要获得战争险，就必须基本遵循伊朗批准的路线通过霍尔木兹海峡。这一新规反映出这条实际上已被封锁的水道持续存在不确定性，风险也在加剧。 Marsh海事与货运业务全球主管马库斯·贝克表示：“在设定承保条件时，各家承保人都有自己的考量。”他补充说，要求伊朗方面签字放行实属强人所难，因为伊朗正受到制裁，且外界很难证实此类批文的有效性。贝
 
 ## 正文
 
-5月17日，国家防总办公室、应急管理部继续组织气象、水利、自然资源等部门和广西、湖北、重庆等17个省份，会商研判本轮降雨过程发展趋势，研究部署重点地区防范应对工作。
+保险经纪商Marsh称，一些保险公司现在要求，船只若要获得战争险，就必须基本遵循伊朗批准的路线通过霍尔木兹海峡。
 
-国家防总维持针对贵州、湖北、重庆的防汛四级应急响应。
+这一新规反映出这条实际上已被封锁的水道持续存在不确定性，风险也在加剧。
 
-会商指出，5月17日至19日，本轮大范围强降雨过程逐渐东移南压，华北、黄淮、江汉、江南、华南等地部分地区有暴雨，需重点关注上述地区山洪和地质灾害、中小河流洪水、中小水库出险、城市暴雨内涝等灾害风险。
+Marsh海事与货运业务全球主管马库斯·贝克表示：“在设定承保条件时，各家承保人都有自己的考量。
 
-各地各有关部门要牢固树立“人民至上、生命至上”理念，坚决克服麻痹思想和侥幸心理，以“时时放心不下”的责任感和“事事心中有底”的行动力，切实做好强降雨防范应对各项工作，把确保人民生命安全放在第一位落到实处。
+”他补充说，要求伊朗方面签字放行实属强人所难，因为伊朗正受到制裁，且外界很难证实此类批文的有效性。
 
-会商强调，要强化监测预报预警，健全跨区域跨部门信息共享机制，组织气象、水利、自然资源等部门开展综合风险研判，以高效信息共享支撑精准风险防控。
+贝克还说：“你怎么知道从他们那里拿到的批文真的能保证你的船平安无事？
 
-要强化风险隐患排查，坚持关口前移落实安全度汛措施，努力把风险隐患消除在萌芽状态，推动灾害治理模式向事前预防转型。
+” 保险公司对该海峡风险的担忧继续体现在其保费水平上。
 
-要加强安全管控，强化涉水路段和漫水桥梁安全管理，严禁冒险涉水通行，避免发生车辆坠河造成人员伤亡事件。
+贝克说，目前战争险的费率约为船舶价值的3%至8%。
 
-要强化人员转移避险，关注山洪沟口、狭窄行洪河道等重点部位和养老院、医院、学校、旅游景区等人员聚集场所，坚决果断组织危险区群众转移避险，高效开展突发险情救援和人员安置。
+这一费率水平虽低于停火前10%的高点，但仍是和平时期通常0.25%水平的许多倍。
 
 ## 相关推荐
 
-- 2026-06-29 11:56 - [相向而行，共同开启中美关系新篇章（钟声）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:55 - [股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:56 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:05 - [日本央行警示：投资基金活动暗藏金融体系风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:15 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:10 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:56 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:57 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:05 - [高盛：中国移动目标价升至94港元 维持“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:22 - [以“生活”叙事陕味浓郁 《主角》热播引关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:27 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:24 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:10 - [如何看待中方叫停Manus并购案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:12 - [南京银行董事长谢宁解读“好银行”发展理念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:05 - [“漂流书包”十年：一份民主党派的阅读答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:19 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:21 - [康宁一季度利润与核心营收双双增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:29 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:05 - [五一机票又“跳水”了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:08 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:21 - [日本公然宣称为“长期战争”做准备 中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [尾盘：国债收益率大涨 美股继续下滑](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](http://www.blog.kurohicncr.top/Article/details/18693.shtml)
-- 2026-06-29 11:58 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](http://www.share.kurohicncr.top/Article/details/474644109.shtml)
-- 2026-06-29 12:01 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](http://www.share.kurohicncr.top/Article/details/07683.shtml)
-- 2026-06-29 12:06 - [日本央行理事称投资基金活动对金融体系构成潜在风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](http://www.share.minike.top/Article/details/155266335.shtml)
-- 2026-06-29 12:04 - [沃尔玛希望Flipkart放慢节奏并实现盈利](http://www.blog.kurohicncr.top/Article/details/6717404.shtml)
-- 2026-06-29 12:09 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [CBA观察：我们需要一支怎样的山西男篮](http://www.share.kurohicncr.top/Article/details/4206141892.shtml)
-- 2026-06-29 12:17 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](http://www.share.minike.top/Article/details/010538452.shtml)
-- 2026-06-29 12:08 - [全国广电民生节目在渝交流创新经验](http://www.blog.kurohicncr.top/Article/details/3300864401.shtml)
-- 2026-06-29 11:58 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](http://www.blog.minike.top/Article/details/2614543.shtml)
-- 2026-06-29 12:05 - [王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”](http://www.blog.minike.top/Article/details/81183839199.shtml)
+- 2026-06-29 12:22 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](http://www.share.minike.top/Article/details/8424933621.shtml)
+- 2026-06-29 12:02 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](http://www.blog.minike.top/Article/details/25260436.shtml)
+- 2026-06-29 12:27 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](http://www.share.minike.top/Article/details/464823352.shtml)
+- 2026-06-29 12:12 - [国务院任免国家工作人员](http://www.share.minike.top/Article/details/5059231.shtml)
+- 2026-06-29 12:20 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](http://www.blog.kurohicncr.top/Article/details/666738232.shtml)
+- 2026-06-29 12:19 - [第139届广交会二期闭幕](http://www.blog.minike.top/Article/details/583599.shtml)
+- 2026-06-29 12:01 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](http://www.blog.minike.top/Article/details/005269.shtml)
+- 2026-06-29 12:12 - [2026年盈江海关部门预算公开](http://www.share.kurohicncr.top/Article/details/80123970018.shtml)
+- 2026-06-29 12:21 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](http://www.blog.minike.top/Article/details/594891625.shtml)
+- 2026-06-29 12:29 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](http://www.blog.kurohicncr.top/Article/details/5296809.shtml)
+- 2026-06-29 12:27 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](http://www.blog.minike.top/Article/details/795579790.shtml)
+- 2026-06-29 12:05 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](http://www.share.kurohicncr.top/Article/details/76850028488.shtml)
+- 2026-06-29 12:29 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](http://www.share.minike.top/Article/details/771410.shtml)
+- 2026-06-29 12:19 - [银行业首个行业级“数据分类分级”大模型发布](http://www.share.kurohicncr.top/Article/details/56156.shtml)
+- 2026-06-29 12:10 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](http://www.blog.minike.top/Article/details/8181782465.shtml)

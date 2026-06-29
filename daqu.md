@@ -1,61 +1,59 @@
-# 杭州欧美同学会国际文化交流工作委员会成立
+# 西安通报5起违反中央八项规定精神问题
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新网杭州5月15日电 (钱晨菲)15日，“多语种讲好杭州故事”暨杭州欧美同学会国际文化交流工作委员会成立仪式在杭州京杭大运河畔举行，标志着杭州海归群体正式以专业化、体系化、品牌化的姿态，向世界传递杭州声音、讲述中国故事。 作为杭州欧美同学会拓展国际文化交流、服务城市国际化的重要平台，杭州欧美同学会国际文化交流工作委员会当日正式成立，汇聚了一批深耕跨文化传播、文创产业、国际教育
+中新网4月28日电 据中央纪委国家监委网站消息，“五一”将至，为进一步严明纪律规矩，强化警示教育，营造风清气正的节日氛围，西安市纪委监委公开通报5起违反中央八项规定精神问题。 1.未央区医疗保障局原一级调研员弓春梅违规收受礼品、礼金问题。2012年至2021年，弓春梅任未央区卫生局党委委员、局长，区卫生和计划生育局党委书记、局长以及区医疗保障局党组书记、局长期间，借春节、中秋等
 
 ## 正文
 
-中新网杭州5月15日电 (钱晨菲)15日，“多语种讲好杭州故事”暨杭州欧美同学会国际文化交流工作委员会成立仪式在杭州京杭大运河畔举行，标志着杭州海归群体正式以专业化、体系化、品牌化的姿态，向世界传递杭州声音、讲述中国故事。
+中新网4月28日电 据中央纪委国家监委网站消息，“五一”将至，为进一步严明纪律规矩，强化警示教育，营造风清气正的节日氛围，西安市纪委监委公开通报5起违反中央八项规定精神问题。
 
-作为杭州欧美同学会拓展国际文化交流、服务城市国际化的重要平台，杭州欧美同学会国际文化交流工作委员会当日正式成立，汇聚了一批深耕跨文化传播、文创产业、国际教育、文旅品牌等领域的海归精英。
+1.未央区医疗保障局原一级调研员弓春梅违规收受礼品、礼金问题。
 
-他们既有国际视野，又深植杭州本土；既懂国际表达，又怀家国情怀，是连接杭州与世界的桥梁。
+2012年至2021年，弓春梅任未央区卫生局党委委员、局长，区卫生和计划生育局党委书记、局长以及区医疗保障局党组书记、局长期间，借春节、中秋等节日之机，多次违规收受管理和服务对象所送的礼品、礼金。
 
-杭州欧美同学会会长叶鉴铭寄语国际文化交流工作委员会：要坚守初心使命，强化政治引领；要打造交流品牌，服务城市发展；要促进民间外交，当好桥梁纽带；要加强自身建设，激发组织活力。
+弓春梅还存在其他严重违纪违法问题，被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
 
-值得一提的是，杭州市拱墅区京杭大运河博物馆、中欧人才交流与创新合作中心拱墅园区，正式成为杭州欧美同学会国际文化交流工作委员会首批国际文化交流中心。
+2.西安市奉正塬殡仪馆党支部原书记、主任许增元违规设立并使用“小金库”问题。
 
-两大交流中心的落地，让国际文化交流实现“线上＋线下”相融合，从“活动”变成“常态”，为后续沙龙、展览、对话、实训提供实体空间支撑，让国际文化交流有阵地、有载体、有温度。
+2016年底至2019年1月，许增元在奉正塬殡仪馆任职期间，采取虚列公车维修费、劳务费的方式套取公款设立“小金库”，其中部分资金用于支付违规接待、个人宴请等费用。
 
-在项目分享环节，杭州欧美同学会副秘书长薛百川、法国工程师和科学家联合会代表Lallie、海归学长王靖渊依次登台，分享民间外交实践、中法文化交流故事、国际传播经验。
+许增元还存在其他严重违纪违法问题，被开除党籍、调整退休待遇，涉嫌犯罪问题被移送检察机关依法审查起诉。
 
-生动的案例、真实的分享、跨界的碰撞，让与会者感受到跨文化交流的魅力。
+3.蓝田县市场监管局汤峪市场监管所原所长刘军锋违规操办婚丧喜庆事宜并收受礼金问题。
 
 ## 相关推荐
 
-- 2026-06-29 12:03 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:11 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:57 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:00 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:12 - [文脉华章丨一个博物院就是一所大学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:23 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:57 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:54 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:56 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:24 - [日本国债收益率飙升 投资者押注日资从美债回流本土](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:56 - [首届中国新文创市集满场“黑科技” 观众：超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:15 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:04 - [广西柳州成立具身智能机器人技术应用中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:57 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:12 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:07 - [中钢协：一季度钢材价格总体走势平稳但处于近年同期最低水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:20 - [谷歌不顾员工反对，与美国国防部签署机密人工智能合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:22 - [穿越机视角领略婺源“江南第一奇谷”飞瀑景观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:13 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:03 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:02 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:18 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:14 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:16 - [指数级增长 2025年我国词元调用量约21100万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:03 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:04 - [中共中央政治局会议要点对比及解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:18 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:15 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:19 - [（乡村行·看振兴）湖北宜昌：科技助农“慧种田”](http://www.share.minike.top/Article/details/170199801354.shtml)
-- 2026-06-29 12:10 - [伊朗，突传大消息！刚刚，集体大跳水！](http://www.share.minike.top/Article/details/587157753.shtml)
-- 2026-06-29 12:11 - [国际足联为何服软了](http://www.blog.kurohicncr.top/Article/details/330697.shtml)
-- 2026-06-29 11:55 - [浙商策略：双创冲高回落大盘调整 短线或震荡、中线暂无忧](http://www.share.kurohicncr.top/Article/details/00375573.shtml)
-- 2026-06-29 12:15 - [广州银行，罚单接二连三](http://www.share.minike.top/Article/details/20375072602.shtml)
-- 2026-06-29 11:59 - [知情人士：SpaceX股东批准普通股1拆5拆分方案](http://www.share.minike.top/Article/details/978780.shtml)
-- 2026-06-29 12:21 - [美证券交易委员会已与印度富豪阿达尼就一项民事欺诈诉讼达成和解](http://www.share.kurohicncr.top/Article/details/11859075582.shtml)
-- 2026-06-29 12:05 - [阿联酋加速建设第二条东西向石油管道，绕道避开霍尔木兹海峡](http://www.blog.minike.top/Article/details/601304609.shtml)
-- 2026-06-29 12:15 - [北方炎热持续升级南方强降雨频发](http://www.share.kurohicncr.top/Article/details/17111299.shtml)
-- 2026-06-29 12:19 - [新疆于田县第九届玫瑰风情文化旅游活动开幕](http://www.blog.kurohicncr.top/Article/details/80641.shtml)
-- 2026-06-29 12:06 - [住房城乡建设部：地级及以上城市、县级市全面开展城市体检](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [ST迪瑞的警示：内控失控、业绩变脸、治理动荡三重困局](http://www.share.minike.top/Article/details/16840929.shtml)
-- 2026-06-29 12:02 - [三星电子CEO与最大工会领导层会面 表达继续谈判意愿](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [生长周期缩短近半 “太空种子”在内蒙古大漠成功开花](http://www.blog.kurohicncr.top/Article/details/91384108.shtml)
-- 2026-06-29 12:14 - [长岛铁路工人或于今夜举行罢工](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [OpenAI终止与微软的独家合作，为与亚马逊谷歌达成协议铺平道路](http://www.share.kurohicncr.top/Article/details/631767.shtml)
+- 2026-06-29 12:21 - [贵州：推荐徐来任茅台集团副总经理、总会计师](http://www.blog.minike.top/Article/details/78924.shtml)
+- 2026-06-29 12:22 - [长护险全国推开后，普惠保险如何补上“保基本”之外的缺口？](http://www.share.minike.top/Article/details/988130.shtml)
+- 2026-06-29 12:20 - [蒋某某故意杀人、强奸案一审宣判](http://www.blog.minike.top/Article/details/403224.shtml)
+- 2026-06-29 12:27 - [助力打造内陆开放高地 重庆涉外律所已达81家](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [光大期货：4月28日能源化工日报](http://www.blog.kurohicncr.top/Article/details/531697467987.shtml)
+- 2026-06-29 12:00 - [中国国内首个Pre6G试验网在南京投运 6G商用进入提速通道](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [大摩：宁德时代维持“与大市同步”评级 目标价上调至695港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [战争催生非洲能源新前沿：投资者竞相填补燃料缺口](http://www.blog.kurohicncr.top/Article/details/52493842227.shtml)
+- 2026-06-29 12:17 - [河南两项目入选2025年度全国十大考古新发现](http://www.share.kurohicncr.top/Article/details/3193855511.shtml)
+- 2026-06-29 12:24 - [ATF:美国消费者信心今晚登场 美元黄金与美股或迎来方向测试](http://www.blog.kurohicncr.top/Article/details/578549604.shtml)
+- 2026-06-29 12:12 - [2026本科专业“上新”，“新”在何处？](http://www.blog.kurohicncr.top/Article/details/49179.shtml)
+- 2026-06-29 12:19 - [外媒：阿富汗遭巴基斯坦导弹袭击，造成3人死亡、45人受伤](http://www.blog.kurohicncr.top/Article/details/432739103530.shtml)
+- 2026-06-29 12:07 - [亿缕阳光｜治愈的瞬间](http://www.blog.minike.top/Article/details/36448545.shtml)
+- 2026-06-29 12:07 - [2026年孟连海关部门预算公开](http://www.blog.kurohicncr.top/Article/details/98610.shtml)

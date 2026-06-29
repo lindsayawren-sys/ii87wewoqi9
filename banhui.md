@@ -1,60 +1,59 @@
-# 交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？
+# 深化中国—东盟经贸合作 专家提十大建议
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-净息差实现企稳回升的原因2026年5月15日，交通银行部分高管参加2026年上海辖区上市公司年报集体业绩说明会。交通银行副行长周万阜、董事会秘书何兆斌与投资者进行沟通交流。对于投资者普遍关注的股票估值提升问题，他们表示将在战略层面和经营层面高度重视，在有效防控风险的前提下，提升可持续的价值创造能力和水平。在展望二季度业绩走向时，周万阜透露，对公信贷方面，交行目前二季度的项目储备
+中新网北京4月28日电 (记者 刘文文)当前，地缘冲突持续、国际经贸格局深刻调整。作为亚太地区极具活力的增长极，中国与东盟唇齿相依、命运与共，合作潜力巨大、发展前景广阔。RCEP产业合作委员会主席许宁宁近日接受记者采访时指出，面对新形势新挑战，双方应秉持互利共赢理念，建议以务实举措深化合作、拓宽商机、共促发展，携手构建更为紧密的中国—东盟命运共同体。一是深化战略对接，筑牢合作根
 
 ## 正文
 
-净息差实现企稳回升的原因2026年5月15日，交通银行部分高管参加2026年上海辖区上市公司年报集体业绩说明会。
+中新网北京4月28日电 (记者 刘文文)当前，地缘冲突持续、国际经贸格局深刻调整。
 
-交通银行副行长周万阜、董事会秘书何兆斌与投资者进行沟通交流。
+作为亚太地区极具活力的增长极，中国与东盟唇齿相依、命运与共，合作潜力巨大、发展前景广阔。
 
-对于投资者普遍关注的股票估值提升问题，他们表示将在战略层面和经营层面高度重视，在有效防控风险的前提下，提升可持续的价值创造能力和水平。
+RCEP产业合作委员会主席许宁宁近日接受记者采访时指出，面对新形势新挑战，双方应秉持互利共赢理念，建议以务实举措深化合作、拓宽商机、共促发展，携手构建更为紧密的中国—东盟命运共同体。
 
-在展望二季度业绩走向时，周万阜透露，对公信贷方面，交行目前二季度的项目储备总体保持平稳，后续将全力推动信贷投放落地，保持同比多增态势。
+一是深化战略对接，筑牢合作根基。
 
-对于零售信贷方面，他表示，受房地产市场深度调整、债务周期、宏观经济环境等因素叠加影响，零售信贷需求仍处于恢复态势。
+加强政策沟通与战略互信，推动“一带一路”倡议与东盟印太展望深度对接，为各领域合作提供坚实政治引领。
 
-全力推动对公信贷投放落地业绩会上，有投资者提问：公司一季报信贷数据显示对公较强、零售增长相对偏弱。
+二是落实自贸区3.0版，激活贸易增长动能。
 
-在对公信贷方面，二季度及下半年的项目储备是否充足？
+全面实施中国—东盟自贸区3.0版升级议定书，深化数字经济、绿色经济、供应链互联互通等领域合作，推动规则对接与标准互认，降低贸易壁垒，力争双边贸易额持续稳步增长。
 
-在零售信贷方面，除了按揭业务，公司是否有新的战略增长点来对冲下行压力？
+三是强化产业链供应链协同，提升区域经济韧性。
 
 ## 相关推荐
 
-- 2026-06-29 12:02 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:59 - [香港特区政府新一批基建及绿色债券在港发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:20 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:55 - [中国外交部发言人就美国总统特朗普访华情况答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:04 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:54 - [中国第12批援埃塞俄比亚军医专家组出征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:07 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:07 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:07 - [受降雨影响 国铁广州局今明两天部分列车停运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:03 - [宁波银行回应拨备覆盖率下降：整体上符合行业趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:18 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:18 - [九连板之后，002207公告：无注入算力资产的计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:08 - [日本财务大臣片山皋月否认需要编制额外预算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:14 - [美国侨胞：期待新定位领航中美关系行稳致远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:18 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:24 - [中钢协：积极开展产能治理、产量调控、行业自律](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:01 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:19 - [快乐出行不“掉坑”，这份网络安全指南请查收！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:10 - [企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:23 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:01 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:17 - [晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:17 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:27 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:25 - [国铁沈阳局五一小长假预计发送旅客740万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:22 - [香港3月进出口货值现两位数增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:20 - [涉嫌严重违纪违法 内蒙古两厅官被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](http://www.share.kurohicncr.top/Article/details/76303.shtml)
-- 2026-06-29 12:20 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](http://www.share.minike.top/Article/details/4435969561.shtml)
-- 2026-06-29 12:16 - [高盛：中国移动目标价升至94港元 维持“中性”评级](http://www.share.minike.top/Article/details/4538302.shtml)
-- 2026-06-29 11:58 - [以“生活”叙事陕味浓郁 《主角》热播引关注](http://www.blog.kurohicncr.top/Article/details/43731526.shtml)
-- 2026-06-29 12:04 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [光大证券：整固蓄势 积极看多](http://www.share.minike.top/Article/details/92630635.shtml)
-- 2026-06-29 12:02 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](http://www.blog.kurohicncr.top/Article/details/938789032.shtml)
-- 2026-06-29 12:06 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](http://www.blog.minike.top/Article/details/74127354.shtml)
-- 2026-06-29 12:02 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](http://www.blog.minike.top/Article/details/7190907468.shtml)
-- 2026-06-29 12:22 - [广西南宁首批10个人工智能OPC创业社区集中开放](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [中方回应中美是否达成农业方面协议](http://www.blog.kurohicncr.top/Article/details/74419469326.shtml)
-- 2026-06-29 12:09 - [沪港文化交流再升级：从“经典展演”到“多元共创”](http://www.blog.kurohicncr.top/Article/details/397486882478.shtml)
-- 2026-06-29 12:19 - [日本不断加速扩军修宪图谋：日本抛修宪构想 拟设紧急政令扩内阁权限](http://www.share.kurohicncr.top/Article/details/83012977389.shtml)
-- 2026-06-29 12:01 - [国常会：审议通过《加快农业农村现代化“十五五”规划》](http://www.share.minike.top/Article/details/55005922.shtml)
-- 2026-06-29 12:03 - [债券承销违规！国都证券又被点名，一项目负责人被禁业1年](http://www.blog.minike.top/Article/details/219502539.shtml)
+- 2026-06-29 12:08 - [康宁一季度利润与核心营收双双增长](http://www.share.minike.top/Article/details/993487538886.shtml)
+- 2026-06-29 12:22 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](http://www.blog.minike.top/Article/details/167823526.shtml)
+- 2026-06-29 12:21 - [五一机票又“跳水”了？](http://www.blog.minike.top/Article/details/182672325.shtml)
+- 2026-06-29 12:23 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](http://www.share.minike.top/Article/details/129422341.shtml)
+- 2026-06-29 12:02 - [日本公然宣称为“长期战争”做准备 中方回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [金石为开——西安·沈阳名碑拓片特展开幕](http://www.share.minike.top/Article/details/5663545.shtml)
+- 2026-06-29 12:28 - [铁路文旅创新融合绘就发展新图景](http://www.share.minike.top/Article/details/49836200.shtml)
+- 2026-06-29 12:29 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](http://www.share.kurohicncr.top/Article/details/39446894.shtml)
+- 2026-06-29 12:01 - [AI赋能“一人公司” 个体创新潜力持续激活](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%](http://www.blog.minike.top/Article/details/23008140.shtml)
+- 2026-06-29 12:09 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](http://www.blog.minike.top/Article/details/2336912572.shtml)
+- 2026-06-29 12:16 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](http://www.blog.minike.top/Article/details/819648572.shtml)
+- 2026-06-29 12:11 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](http://www.share.minike.top/Article/details/637471452941.shtml)
+- 2026-06-29 12:06 - [促进高质量充分就业 多项政策出台](http://www.share.kurohicncr.top/Article/details/30065.shtml)
+- 2026-06-29 12:18 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](https://github.com/lisacumin64-arch)

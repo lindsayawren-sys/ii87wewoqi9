@@ -1,58 +1,55 @@
-# 2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛
+# 吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-美国记者，在北京看到了怎样的中国？台湾用30余年建成的淡江大桥通车即翻车？律师：女孩盲道被撞摆拍者或构成寻衅滋事罪从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？“超级食物”真有那么神奇吗？专家揭秘真相桥头地瓜，竟是“地瓜界的爱马仕”造假摆拍，无底线博流量！北京警方通报3起典型案例斯塔
+吉利汽车（00175）盘中涨超5%，截至发稿，股价上涨3.40%，现报22.52港元，成交额16.24亿港元。 吉利汽车发布一季度业绩。公司营业总收入838亿元，同比增长15%；核心归母净利润45.6亿元，同比增长31%；当期毛利率17.5%，同比提升11%，整体盈利能力持续向好。 2026年第一季度，集团继续保持稳健的增长势头，取得总销量709，358辆，同比增长1%。受益于
 
 ## 正文
 
-美国记者，在北京看到了怎样的中国？
+吉利汽车（00175）盘中涨超5%，截至发稿，股价上涨3.40%，现报22.52港元，成交额16.24亿港元。
 
-台湾用30余年建成的淡江大桥通车即翻车？
+吉利汽车发布一季度业绩。
 
-律师：女孩盲道被撞摆拍者或构成寻衅滋事罪从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？
+公司营业总收入838亿元，同比增长15%；核心归母净利润45.6亿元，同比增长31%；当期毛利率17.5%，同比提升11%，整体盈利能力持续向好。
 
-对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？
+2026年第一季度，集团继续保持稳健的增长势头，取得总销量709，358辆，同比增长1%。
 
-“超级食物”真有那么神奇吗？
+受益于出口销量的强劲增长及高价值产品销售占比提升，集团期内收入同比增长15%，收入增速高于销量增速。
 
-专家揭秘真相桥头地瓜，竟是“地瓜界的爱马仕”造假摆拍，无底线博流量！
-
-北京警方通报3起典型案例斯塔默政治前途“悬而未决” 潜在竞争者都有谁？
-
-“空军一号”上让特朗普放下汉堡薯条的，是这三道“中餐”中国经济动能转换 融资结构现新变化印尼盾被低估了？
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:59 - [倒车接人？科创芯片震荡两连阴，原因找到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:19 - [能源危机叠加日元贬值，日本实体经济正为中东战火埋单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:14 - [外交部：中美双方就两国元首年内互动安排保持着沟通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:11 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:55 - [相向而行，共同开启中美关系新篇章（钟声）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:12 - [股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:18 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:54 - [日本央行警示：投资基金活动暗藏金融体系风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:22 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:16 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:09 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:15 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:17 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:29 - [泰国央行维持关键利率不变 以抵御油价对经济的冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:19 - [全国首单银行间市场消费类定向资产支持票据发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:10 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:25 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:10 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:07 - [如何看待中方叫停Manus并购案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:01 - [南京银行董事长谢宁解读“好银行”发展理念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:14 - [“漂流书包”十年：一份民主党派的阅读答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:18 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:07 - [康宁一季度利润与核心营收双双增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:10 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](http://www.share.kurohicncr.top/Article/details/56255.shtml)
-- 2026-06-29 12:11 - [浙江省欧美同学会金融委员会举行座谈交流活动](http://www.share.minike.top/Article/details/912685237543.shtml)
-- 2026-06-29 12:11 - [特朗普结束访华回国途中，与高市早苗通电话](http://www.share.minike.top/Article/details/75942735.shtml)
-- 2026-06-29 11:56 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](http://www.blog.minike.top/Article/details/95704229887.shtml)
-- 2026-06-29 12:16 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](http://www.blog.kurohicncr.top/Article/details/23124107.shtml)
-- 2026-06-29 12:23 - [尾盘：国债收益率大涨 美股继续下滑](http://www.share.minike.top/Article/details/34969985270.shtml)
-- 2026-06-29 12:03 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](http://www.blog.minike.top/Article/details/1777383.shtml)
-- 2026-06-29 12:10 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](http://www.share.minike.top/Article/details/074249293.shtml)
-- 2026-06-29 12:02 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](http://www.share.kurohicncr.top/Article/details/38936770.shtml)
-- 2026-06-29 12:09 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](http://www.share.minike.top/Article/details/17412704.shtml)
-- 2026-06-29 12:07 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](http://www.share.minike.top/Article/details/3269819658.shtml)
-- 2026-06-29 12:16 - [日本央行理事称投资基金活动对金融体系构成潜在风险](http://www.blog.minike.top/Article/details/8898074685.shtml)
-- 2026-06-29 12:10 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [沃尔玛希望Flipkart放慢节奏并实现盈利](http://www.share.minike.top/Article/details/201625582568.shtml)
-- 2026-06-29 12:23 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](http://www.share.minike.top/Article/details/063355636804.shtml)
+- 2026-06-29 12:19 - [韩国宣布与Google DeepMind建立合作](http://www.blog.minike.top/Article/details/76435.shtml)
+- 2026-06-29 12:24 - [光大期货：4月28日金融日报](http://www.blog.kurohicncr.top/Article/details/32349.shtml)
+- 2026-06-29 12:02 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](http://www.share.minike.top/Article/details/15953696.shtml)
+- 2026-06-29 12:17 - [深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行](http://www.blog.minike.top/Article/details/119181034949.shtml)
+- 2026-06-29 12:27 - [华盛顿发生两起枪击事件](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](http://www.blog.minike.top/Article/details/323634.shtml)
+- 2026-06-29 12:14 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](http://www.blog.kurohicncr.top/Article/details/018029304070.shtml)
+- 2026-06-29 12:12 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](http://www.share.kurohicncr.top/Article/details/271877013.shtml)
+- 2026-06-29 12:11 - [国务院任免国家工作人员](http://www.share.minike.top/Article/details/2983282596.shtml)
+- 2026-06-29 12:08 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](http://www.share.minike.top/Article/details/681305.shtml)
+- 2026-06-29 12:19 - [第139届广交会二期闭幕](http://www.blog.kurohicncr.top/Article/details/03737003576.shtml)
+- 2026-06-29 12:03 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](http://www.share.kurohicncr.top/Article/details/84515500214.shtml)
+- 2026-06-29 12:16 - [2026年盈江海关部门预算公开](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](http://www.blog.minike.top/Article/details/42587659377.shtml)
+- 2026-06-29 12:03 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](http://www.share.minike.top/Article/details/04496719.shtml)

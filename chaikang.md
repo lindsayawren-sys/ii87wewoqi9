@@ -1,57 +1,60 @@
-# 中国外交部发言人就美国总统特朗普访华情况答记者问
+# 快乐出行不“掉坑”，这份网络安全指南请查收！
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新社北京5月15日电 中国外交部发言人15日就美国总统特朗普访华情况答记者问。 有记者提问，5月14日，中国国家主席习近平为正在访华的美国总统特朗普举行系列国事活动，国内外高度关注。中方能否进一步介绍相关情况？ 发言人说，应习近平主席邀请，美国总统特朗普正在对中国进行国事访问。这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。5月14日，习近平
+五一假期将来临｜快乐出行不“掉坑”，这份网络安全指南请查收！ 盼星星盼月亮， 五一小长假终于要来了！ 有人收拾行囊奔赴诗和远方，有人宅家解锁网购追剧新姿势， 也有人趁着假期兼职赚外快…… 但无论你选择哪种打开方式， 都要警惕： 假期放松不松懈，网络安全记心间！ 节日期间，网络诈骗、信息泄露等风险悄然潜伏，骗子也“放假不打烊”，专盯假期放松警惕的你。 今天，就为大家整理了一份五一
 
 ## 正文
 
-中新社北京5月15日电 中国外交部发言人15日就美国总统特朗普访华情况答记者问。
+五一假期将来临｜快乐出行不“掉坑”，这份网络安全指南请查收！
 
-有记者提问，5月14日，中国国家主席习近平为正在访华的美国总统特朗普举行系列国事活动，国内外高度关注。
+盼星星盼月亮， 五一小长假终于要来了！
 
-中方能否进一步介绍相关情况？
+有人收拾行囊奔赴诗和远方，有人宅家解锁网购追剧新姿势， 也有人趁着假期兼职赚外快…… 但无论你选择哪种打开方式， 都要警惕： 假期放松不松懈，网络安全记心间！
 
-发言人说，应习近平主席邀请，美国总统特朗普正在对中国进行国事访问。
+节日期间，网络诈骗、信息泄露等风险悄然潜伏，骗子也“放假不打烊”，专盯假期放松警惕的你。
 
-这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。
+今天，就为大家整理了一份五一专属网络安全指南，覆盖出行、消费、居家全场景，帮你避开所有网络“陷阱”，安心过假期～ 出行在外： 这些“便利”可能藏陷阱 假期出行，扫码、连WiFi、订酒店租车都是高频操作，而这些看似便捷的举动，往往是骗子的突破口，每一步都要多留个心眼！
 
-5月14日，习近平主席为特朗普总统举行欢迎仪式和欢迎宴会，同特朗普总统举行会谈，并共同参观天坛。
+❌陷阱1：随意可连的公共WiFi“免费的才是最贵的” 高铁站、商场、咖啡店中随意可连的免费公共WiFi，看似能省流量，实则可能是黑客搭建的“钓鱼WiFi”。
 
-两国元首就事关两国和世界的重大问题深入交换意见，达成一系列新共识。
+一旦连接，你的手机银行密码、支付信息、聊天记录都可能被实时监控窃取，甚至被植入木马程序，导致账号被盗、财产受损。
 
-发言人指出，两国元首赞同将构建“中美建设性战略稳定关系”作为中美关系新定位，为未来3年乃至更长时间的中美关系提供战略指引，推动两国关系稳定、健康、可持续发展，为世界带来更多和平、繁荣、进步。
+✅正确做法：非必要不连陌生公共WiFi，优先选择商家官方标注的加密WiFi；连接后绝不进行转账、登录网银、输入支付密码等敏感操作，如需进行支付等敏感操作，建议开启手机4G/5G热点，安全又稳定。
 
 ## 相关推荐
 
-- 2026-06-29 12:22 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:16 - [九连板之后，002207公告：无注入算力资产的计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:15 - [日本财务大臣片山皋月否认需要编制额外预算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:18 - [美国侨胞：期待新定位领航中美关系行稳致远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:09 - [珠江流域持续暴雨 广东多地停课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:06 - [【小新的Vlog】侠客视角探文博 吉林特色展览解锁古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:01 - [“全球治理 青年新思·2026北京国际模拟联合国大会”在北京开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:12 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:19 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:56 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:14 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:15 - [国铁沈阳局五一小长假预计发送旅客740万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:28 - [香港3月进出口货值现两位数增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:18 - [涉嫌严重违纪违法 内蒙古两厅官被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:15 - [港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:20 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:16 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:01 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:26 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:15 - [一季度生态成绩单亮眼，高质量发展绿意盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:27 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:04 - [普京称西方正将领导地位让位于全球南方国家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:26 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:07 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:01 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [中方回应中美是否达成农业方面协议](http://www.share.minike.top/Article/details/930441301575.shtml)
-- 2026-06-29 11:56 - [沪港文化交流再升级：从“经典展演”到“多元共创”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [日本不断加速扩军修宪图谋：日本抛修宪构想 拟设紧急政令扩内阁权限](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [国常会：审议通过《加快农业农村现代化“十五五”规划》](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [债券承销违规！国都证券又被点名，一项目负责人被禁业1年](http://www.blog.minike.top/Article/details/7723633694.shtml)
-- 2026-06-29 11:57 - [英国国债大跌 投资者为伯纳姆挑战斯塔默做准备](http://www.share.minike.top/Article/details/4052130626.shtml)
-- 2026-06-29 12:06 - [2027澳网亚太区外卡赛将落地成都](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [何小鹏谈自动驾驶：2028年实现L4概率极高，2030年或见L5雏形](http://www.blog.minike.top/Article/details/41329.shtml)
-- 2026-06-29 12:12 - [国际人士：中美元首外交意义重大 推动世界和平发展](http://www.share.kurohicncr.top/Article/details/78474070.shtml)
-- 2026-06-29 12:05 - [三星会长李在镕就劳资纠纷向公众致歉](http://www.blog.minike.top/Article/details/090357706.shtml)
-- 2026-06-29 12:11 - [海南自贸港封关运作成绩单：实现高标准开局 红利加快释放](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [中国大陆学者首获英国皇家经济学会终身院士](http://www.blog.minike.top/Article/details/24555597120.shtml)
-- 2026-06-29 12:16 - [Lifeward Q1营收不及预期，战略转型费用拖累盈利](http://www.share.minike.top/Article/details/709506380.shtml)
-- 2026-06-29 11:55 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](http://www.blog.kurohicncr.top/Article/details/6407409.shtml)
-- 2026-06-29 12:02 - [002342，被证监会立案！](http://www.share.kurohicncr.top/Article/details/318880530266.shtml)
+- 2026-06-29 12:22 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](http://www.blog.kurohicncr.top/Article/details/52806134781.shtml)
+- 2026-06-29 12:21 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](http://www.blog.kurohicncr.top/Article/details/292727426.shtml)
+- 2026-06-29 12:16 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](http://www.blog.kurohicncr.top/Article/details/9063412545.shtml)
+- 2026-06-29 12:17 - [促进高质量充分就业 多项政策出台](http://www.share.minike.top/Article/details/869387940040.shtml)
+- 2026-06-29 12:08 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](http://www.share.kurohicncr.top/Article/details/53920581249.shtml)
+- 2026-06-29 12:05 - [中天策略:4月28日市场分析](http://www.blog.kurohicncr.top/Article/details/87995451917.shtml)
+- 2026-06-29 12:12 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](http://www.share.kurohicncr.top/Article/details/62452614.shtml)
+- 2026-06-29 12:20 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](http://www.share.minike.top/Article/details/6899434.shtml)
+- 2026-06-29 12:17 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](http://www.share.minike.top/Article/details/19968865490.shtml)
+- 2026-06-29 12:25 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [商务部：2026年1-3月我国电子商务持续平稳发展](http://www.share.kurohicncr.top/Article/details/386840.shtml)
+- 2026-06-29 12:11 - [民政部：着力推进普惠性、基础性、兜底性民生建设](http://www.share.minike.top/Article/details/176872989807.shtml)
+- 2026-06-29 12:06 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](http://www.blog.minike.top/Article/details/9220161.shtml)
+- 2026-06-29 12:20 - [2026年度丽江海关部门预算公开](http://www.share.minike.top/Article/details/7031240.shtml)
+- 2026-06-29 12:25 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](http://www.share.minike.top/Article/details/55314942.shtml)

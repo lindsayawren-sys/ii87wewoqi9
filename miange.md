@@ -1,56 +1,56 @@
-# 公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例
+# 本科专业再上新，高校专业调整比例首次突破10%
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新网5月15日电 据“中国禁毒”微信公众号消息，近年来，国家禁毒办多次发布通告提醒相关企业和个人谨慎向境外销售可制毒物品及新精神活性物质，防范境外法律风险。然而，国内仍有部分不法分子向境外贩运列管或非列管前体化学品及新精神活性物质等敏感化学品，并逐渐形成化工“黑灰”产业链，造成重大涉毒风险。公安部对此高度重视，多轮次部署开展打击管控专项行动，破获一批重点案件、整治一批问题企业
+中新网北京4月28日电(记者 袁秀月)近日，教育部发布《普通高等学校本科专业目录(2026年)》。目前，本科专业目录共涵盖13个门类、92个专业类、883种专业。与去年的本科专业目录相比，共新增38种普通高校本科新专业。今年，教育部持续推进专业设置调整优化工作，引导和支持高校积极增设服务国家战略和现代产业发展需求的新专业。 其中，精准对接国家战略需求，增设能源科学与工程、深地科
 
 ## 正文
 
-中新网5月15日电 据“中国禁毒”微信公众号消息，近年来，国家禁毒办多次发布通告提醒相关企业和个人谨慎向境外销售可制毒物品及新精神活性物质，防范境外法律风险。
+中新网北京4月28日电(记者 袁秀月)近日，教育部发布《普通高等学校本科专业目录(2026年)》。
 
-然而，国内仍有部分不法分子向境外贩运列管或非列管前体化学品及新精神活性物质等敏感化学品，并逐渐形成化工“黑灰”产业链，造成重大涉毒风险。
+目前，本科专业目录共涵盖13个门类、92个专业类、883种专业。
 
-公安部对此高度重视，多轮次部署开展打击管控专项行动，破获一批重点案件、整治一批问题企业、惩处一批犯罪分子，全力消除涉毒风险隐患，整治网络营商环境，保障我国化工行业健康发展。
+与去年的本科专业目录相比，共新增38种普通高校本科新专业。
 
-2025年以来，共破获相关刑事案件29起，抓获犯罪嫌疑人157名，缴获毒品720公斤、新精神活性物质1.3吨、兴奋剂0.9公斤，查扣非列管前体化学品27.7吨。
+今年，教育部持续推进专业设置调整优化工作，引导和支持高校积极增设服务国家战略和现代产业发展需求的新专业。
 
-为充分发挥警示教育作用，公安部15日公布近年来公安机关侦办的典型案例。
+其中，精准对接国家战略需求，增设能源科学与工程、深地科学与工程等专业；服务传统产业优化升级，增设交通能源融合工程、农业机器人等专业；推动新兴产业和未来产业创新发展，增设生物制造、脑机科学与技术等专业；立足服务业扩能提质，增设数字文旅、商业人工智能等专业；聚焦打造智能经济新形态，增设数字贸易、数字金融等专业。
 
-一、汤某某等走私制贩新精神活性物质案 2025年12月，公安机关侦破汤某某走私制贩新精神活性物质案，抓获犯罪嫌疑人21名，缴获毒品31.89公斤、新精神活性物质1.01吨，查扣各类制毒原料15.4吨，捣毁制毒窝点和前体生产窝点各1处，冻结涉案资金692万元，行政处罚化工企业3家。
+同时，进一步完善战略急需专业超常设置机制，支持哈尔滨工业大学、北京航空航天大学等9所高校增设具身智能新专业，推动新一代人工智能与实体经济深度融合，赋能经济社会高质量发展。
 
-经查，汤某某通过搭建2个网站向境外发布化学品广告，待境外客户下单后，在国内多地委托研制客户订购化学品，通过国际货代公司向境外国家走私贩运，收取境外买家虚拟货币货款。
+为加强学科专业目录协同联动，推动本科专业目录与研究生教育学科专业目录有机衔接、上下贯通，更好适应新兴交叉学科发展和复合型人才培养需求，2026年本科专业目录在“交叉学科”门类中首批列入未来机器人、交叉工程等11种目录内已有专业和具身智能、脑机科学与技术等4种本次列入目录的新专业。
 
-2026年1月，汤某某、陈某某因涉嫌走私、贩卖、运输、制造毒品罪，被依法批准逮捕；于某某、张某某因涉嫌非法生产、买卖、运输制毒物品罪，被依法批准逮捕；另有8名涉案人员因涉嫌污染环境罪，被公安机关依法采取刑事强制措施。
+据统计，“十四五”期间，全国高校新增本科专业布点1.02万个、撤销或停招1.22万个。
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:22 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:02 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:04 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:08 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:21 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:01 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:18 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:03 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:07 - [台湾西螺七嵌客家武术流派赴福建诏安交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:09 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:14 - [央行今日开展259亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:04 - [传递“乌尔朵”的守边人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:17 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:19 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:13 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:16 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:27 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:10 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:05 - [渝昆高铁川滇段无砟轨道施工全部完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:57 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.blog.kurohicncr.top/Article/details/33473.shtml)
-- 2026-06-29 12:07 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](http://www.blog.kurohicncr.top/Article/details/0452504.shtml)
-- 2026-06-29 12:09 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](http://www.blog.kurohicncr.top/Article/details/51267.shtml)
-- 2026-06-29 12:06 - [土耳其理工名校掀起中国热](http://www.share.minike.top/Article/details/120187169.shtml)
-- 2026-06-29 12:11 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](http://www.blog.minike.top/Article/details/0139819835.shtml)
-- 2026-06-29 11:59 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](http://www.blog.kurohicncr.top/Article/details/658828.shtml)
-- 2026-06-29 12:07 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](http://www.share.minike.top/Article/details/545568387.shtml)
-- 2026-06-29 12:12 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](http://www.share.kurohicncr.top/Article/details/11140586.shtml)
-- 2026-06-29 12:24 - [日本不断加速扩军修宪图谋：日本自民党欲继续提高日本防卫费规模](http://www.share.kurohicncr.top/Article/details/349532.shtml)
-- 2026-06-29 12:19 - [Atrium Therapeutics Q1净亏损1660万美元，BMS里程碑付款支撑收入](http://www.blog.minike.top/Article/details/6982727.shtml)
-- 2026-06-29 12:07 - [515投资者保护 | 27期漫画36万阅读！银华《投资者避坑宝典》系列投保栏目荣获2026年度投教项目优秀实践奖](http://www.blog.minike.top/Article/details/383377388.shtml)
-- 2026-06-29 12:08 - [埃克森美孚昔日高额股息如今大幅缩水，改善方案来了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [湖南省文化馆数字文旅体验空间开馆](http://www.blog.kurohicncr.top/Article/details/806783.shtml)
-- 2026-06-29 12:03 - [Token越来越贵？别慌！算力网已在来的路上](http://www.share.minike.top/Article/details/123703585945.shtml)
+- 2026-06-29 12:14 - [“华住会”App崩了？客服回应](http://www.blog.kurohicncr.top/Article/details/69777.shtml)
+- 2026-06-29 12:25 - [“五一”假期小型客车继续施行免收通行费政策](http://www.blog.kurohicncr.top/Article/details/5224315760.shtml)
+- 2026-06-29 12:28 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.share.kurohicncr.top/Article/details/205669.shtml)
+- 2026-06-29 12:01 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.share.minike.top/Article/details/2037619800.shtml)
+- 2026-06-29 12:20 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](http://www.blog.kurohicncr.top/Article/details/9358641662.shtml)
+- 2026-06-29 12:11 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](http://www.share.kurohicncr.top/Article/details/4455413595.shtml)
+- 2026-06-29 12:16 - [“十四五”期间中国新发现大中型油气田225处](http://www.share.kurohicncr.top/Article/details/6254677644.shtml)
+- 2026-06-29 12:01 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](http://www.blog.minike.top/Article/details/4213398.shtml)
+- 2026-06-29 12:29 - [截至去年12月我国已出台网络领域立法180余部](http://www.share.minike.top/Article/details/83862092.shtml)
+- 2026-06-29 12:21 - [美光与闪迪股价持续走高，存储芯片需求有望长期旺盛](http://www.share.kurohicncr.top/Article/details/6765309.shtml)
+- 2026-06-29 12:27 - [从新疆到巴黎 艾德莱斯秀出中国职教风采](http://www.blog.kurohicncr.top/Article/details/5145177058.shtml)
+- 2026-06-29 12:00 - [中远海能第一季度归母净利润21.73亿元 同比增长206.74%](http://www.share.minike.top/Article/details/999258259.shtml)
+- 2026-06-29 12:15 - [二手时尚交易平台Vinted估值达80亿欧元，挑战eBay市场地位](http://www.blog.minike.top/Article/details/57816.shtml)
+- 2026-06-29 12:20 - [企业无端扩大适用范围 竞业限制的边界到底在哪里？](https://github.com/lisacumin64-arch)

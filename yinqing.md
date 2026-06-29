@@ -1,60 +1,60 @@
-# 小鹏汽车王谭：电动化与智能化正在从根本上重塑汽车设计
+# 利欧股份（002131）涉嫌信披违规 受损股民可索赔
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。小鹏汽车造型中心总经理王谭出席并演讲。 王谭指出，电动化与智能化正在从根本上重塑汽车的“骨相”与“皮相”。他认为，当前汽车设计面临的“转折”并非简单的迭代，而是一场彻底的革命。这一转折的核心驱动力正是汽车的电动化与智能化。 王谭认为，智能化对设计的影响同样深远。但
+登录新浪财经APP 搜索【信披】查看更多考评等级 据悉，利欧集团股份有限公司（简称：利欧股份（维权），股票代码：002131）因业绩大幅缩水，涉嫌信息披露违法违规。具体立案公告内容及公司自查说明尚未披露，投资者可关注公司后续公告。 上海百悦律师事务所牛彬律师表示，利欧股份遭证监会立案，投资者或可索赔。暂定：在2026年1月31日至2026年4月23日期间买入利欧股份股票，且在2
 
 ## 正文
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 据悉，利欧集团股份有限公司（简称：利欧股份（维权），股票代码：002131）因业绩大幅缩水，涉嫌信息披露违法违规。
 
-小鹏汽车造型中心总经理王谭出席并演讲。
+具体立案公告内容及公司自查说明尚未披露，投资者可关注公司后续公告。
 
-王谭指出，电动化与智能化正在从根本上重塑汽车的“骨相”与“皮相”。
+上海百悦律师事务所牛彬律师表示，利欧股份遭证监会立案，投资者或可索赔。
 
-他认为，当前汽车设计面临的“转折”并非简单的迭代，而是一场彻底的革命。
+暂定：在2026年1月31日至2026年4月23日期间买入利欧股份股票，且在2026年4月23日收盘时仍持有该股票的亏损投资者符合索赔条件。
 
-这一转折的核心驱动力正是汽车的电动化与智能化。
+（最终以法院认定为准）（利欧股份维权入口） 索赔材料： 一、买卖利欧股份（002131）股票的对账单原件 （1）对账单原件需要加盖证券公司营业部印章； （2）对账单从第一次笔买入利欧股份股票开始打到打印日当天，所有该股票的交易记录，目前仍持有该股票的投资者还须显示剩余持股总数。
 
-王谭认为，智能化对设计的影响同样深远。
+二、投资者身份证正反面复印件； 三、证券公司营业部出具的证券账户查询单。
 
-但他也强调，设计是一个轮回，在追求极致语音交互的同时，保留部分高效、直观的物理按键依然是必要的交互补充。
+牛彬律师声明（牛彬律师专栏） 上述预登记条件仅供参考，不涉及任何投资决策和证券买卖建议。
 
-此外，高阶辅助驾驶系统的快速迭代正在重新定义车内空间。
+索赔条件将根据证监会调查结论进一步调整，最终以法院认定为准。
 
 ## 相关推荐
 
-- 2026-06-29 12:07 - [山西太原：老人心跳骤停 急诊护士70秒抢救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:15 - [薛定谔方程发表百年 “中二所的奇‘喵’冒险” 全面呈现科学魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:14 - [6连板！澄清与英伟达关系后，蒙娜丽莎继续涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:22 - [三星工会称仍计划于下周举行罢工，谈判要到罢工结束后进行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:13 - [邦达亚洲:市场的避险情绪挥之不去 澳元承压下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:21 - [浙江北仑灵峰工业社区：打造“家门口”的红色精神家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:13 - [“活力乡村”重庆援尼畜牧和水产支持项目在尼泊尔启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:14 - [俄梁赞州州长：乌无人机袭击首府致3死12伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:05 - [蓝皮书：“十五五”时期中国机器人产业将现两大新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:59 - [越秀交通基建3月广州北二环高速路费收入8487.3万元 同比下降7.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:23 - [诸多对手虎视眈眈！英国首相斯塔默面临“生死之战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:01 - [（乡村行·看振兴）江苏扬州：沙头头茬西瓜开卖 “小西瓜”带动村集体增收逾百万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:14 - [515投资者保护|上银基金"涨了鸭的投资旅途"系列投教漫画及视频：语言轻松幽默 降低了金融知识的理解门槛化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:23 - [迈阿密愈发富庶，人口却持续缩减](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:23 - [磷石膏废弃物还能建房子？九三学社调研带你看从废渣到宝藏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:16 - [梁文锋增持DeepSeek 持股比例大幅上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:18 - [A股极致分化，创业板失守3600点，医疗等板块走强| 华宝基金3A日报（2026.4.28）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:12 - [美国7年期国债中标收益率略高于发行前交易水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:10 - [OpenAI增长失速冲击AI板块：超大规模资本支出模式遭遇“信任危机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:28 - [第二届西南农资骨干流通走廊建设推进大会在重庆涪陵举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:18 - [英伟达股价下跌，公司正继续在美国以外增加产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:22 - [美国能源部长：霍尔木兹海峡无需清除所有水雷也可以开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:24 - [消费者信心疲软致达美乐披萨销量增长停滞，股价承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:07 - [中国首个脑机接口本科专业在天津大学设立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:20 - [司机月收入跌破2000元、聚合平台流量费连涨 T3出行难破网约车港股“破发魔咒”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:29 - [五粮液开盘最高跌超3%，股价跌破100元，创6年新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:29 - [中天期货:焦煤持续震荡 橡胶震荡上行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:17 - [“中国式现代化离不开农业农村现代化”（总书记的人民情怀）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:07 - [主力资金，“盯上”这些股票](http://www.blog.minike.top/Article/details/864431682031.shtml)
-- 2026-06-29 12:11 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](http://www.blog.kurohicncr.top/Article/details/0342745147.shtml)
-- 2026-06-29 12:23 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](http://www.share.kurohicncr.top/Article/details/71918661329.shtml)
-- 2026-06-29 12:05 - [中东部有大范围降水 黄海海域有大雾](http://www.blog.minike.top/Article/details/059001949056.shtml)
-- 2026-06-29 12:03 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](http://www.blog.kurohicncr.top/Article/details/8224866892.shtml)
-- 2026-06-29 11:56 - [重庆对8个区县启动地质灾害四级应急响应](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](http://www.blog.kurohicncr.top/Article/details/7053005619.shtml)
-- 2026-06-29 12:22 - [香港特区政府新一批基建及绿色债券在港发行](http://www.share.minike.top/Article/details/2520400635.shtml)
-- 2026-06-29 11:55 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [中国外交部发言人就美国总统特朗普访华情况答记者问](http://www.blog.kurohicncr.top/Article/details/607343129194.shtml)
-- 2026-06-29 12:23 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](http://www.blog.kurohicncr.top/Article/details/2557778031.shtml)
-- 2026-06-29 12:07 - [中国第12批援埃塞俄比亚军医专家组出征](http://www.share.kurohicncr.top/Article/details/344738022240.shtml)
-- 2026-06-29 12:00 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](http://www.blog.minike.top/Article/details/59328.shtml)
-- 2026-06-29 12:20 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](http://www.share.kurohicncr.top/Article/details/49561.shtml)
-- 2026-06-29 11:57 - [受降雨影响 国铁广州局今明两天部分列车停运](http://www.blog.kurohicncr.top/Article/details/49131.shtml)
+- 2026-06-29 12:02 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [千年晋祠难老泉高位复流 带动周边产业焕新生](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [一江清水向东流——凝心聚力共绘长江发展新画卷](http://www.share.kurohicncr.top/Article/details/782897635393.shtml)
+- 2026-06-29 12:16 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](http://www.share.kurohicncr.top/Article/details/09642542892.shtml)
+- 2026-06-29 12:01 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](http://www.blog.kurohicncr.top/Article/details/64044442.shtml)
+- 2026-06-29 12:22 - [四川蓝莓首次出口](http://www.share.kurohicncr.top/Article/details/699832817.shtml)
+- 2026-06-29 12:05 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](http://www.blog.minike.top/Article/details/02672.shtml)
+- 2026-06-29 12:22 - [中钢协：积极开展产能治理、产量调控、行业自律](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](http://www.share.kurohicncr.top/Article/details/623810795.shtml)
+- 2026-06-29 12:18 - [快乐出行不“掉坑”，这份网络安全指南请查收！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并](http://www.blog.kurohicncr.top/Article/details/67446968.shtml)
+- 2026-06-29 12:03 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](http://www.share.minike.top/Article/details/1187119344.shtml)
+- 2026-06-29 12:15 - [晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考](http://www.share.kurohicncr.top/Article/details/58774.shtml)
+- 2026-06-29 12:13 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](http://www.share.kurohicncr.top/Article/details/89683.shtml)

@@ -1,57 +1,61 @@
-# 在霍尔木兹海峡或长期关闭之际 油价上涨
+# 中国国家文化产业拟向周星驰等认购方发行合共4680万份认股权证
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-在霍尔木兹海峡可能长期关闭之际，油价上涨，全球五分之一的石油通常通过该水道运输。美国总统特朗普周日在社交媒体上发帖称：“对伊朗来说，时间已经不多了，他们最好快点行动，否则他们将一无所有。“美国和伊朗在伊朗核计划等问题上仍存在巨大分歧。Tradu.com高级市场分析师Nikos Tzabouras在一封电子邮件中表示，这种僵局“引发了人们对脆弱停火协议可行性的担忧，并使和平协议的
+中国国家文化产业（00745）发布公告，于2026年4月28日，本公司与4名认购方（周星驰先生、王鹏先生、比高集团及Data Hash Group Limited）订立4份认购协议，认购方已有条件同意（代表其本身或透过其指定实体）认购而本公司已有条件同意配发及发行合共4680万份认股权证，发行价为0.10港元。 本公司预期将自发行认股权证获得的估计所得款项净额（经扣除其他相关开
 
 ## 正文
 
-在霍尔木兹海峡可能长期关闭之际，油价上涨，全球五分之一的石油通常通过该水道运输。
+中国国家文化产业（00745）发布公告，于2026年4月28日，本公司与4名认购方（周星驰先生、王鹏先生、比高集团及Data Hash Group Limited）订立4份认购协议，认购方已有条件同意（代表其本身或透过其指定实体）认购而本公司已有条件同意配发及发行合共4680万份认股权证，发行价为0.10港元。
 
-美国总统特朗普周日在社交媒体上发帖称：“对伊朗来说，时间已经不多了，他们最好快点行动，否则他们将一无所有。
+本公司预期将自发行认股权证获得的估计所得款项净额（经扣除其他相关开支及专业费用后）为460万港元。
 
-“美国和伊朗在伊朗核计划等问题上仍存在巨大分歧。
+每份认股权证的价格净额估计约为0.098港元。
 
-Tradu.com高级市场分析师Nikos Tzabouras在一封电子邮件中表示，这种僵局“引发了人们对脆弱停火协议可行性的担忧，并使和平协议的前景受到质疑“。
+假设认股权证所附带的认购权获悉数行使，本公司预计所得款项净额将增至约6070万港元。
 
-近月西得州中质油期货上涨1.75%，报每桶107.26美元；近月布伦特原油期货上涨1.3%，报每桶110.72美元。
+本公司认为，向认购方发行认股权证，主要旨在于本集团现有业务上创造策略性协同效应，尤其是借助周先生（国际知名影星，现任比高集团执行董事，同时为认股权证的认购方之一）的参与，以及探索人工智能生成音乐、视频及游戏的新机遇。
 
-责任编辑：王永生
+认购方具备在影视娱乐、新媒体开发（例如数字版权、流媒体、视频点播）及授权方面的垂直整合优势，而本公司则贡献广告及设计服务。
+
+此项合作使本公司的现有业务能够优先进入比高集团的新媒体发行网络，同时比高集团的内容库可藉由本公司的制作能力进行共同开发或授权。
+
+至关重要的是，新媒体开发的协同效应使双方能够从数字平台（包括流媒体、视频点播及移动内容授权）中实现收益最大化。
 
 ## 相关推荐
 
-- 2026-06-29 11:54 - [主力资金，“盯上”这些股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:03 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:08 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:14 - [中东部有大范围降水 黄海海域有大雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:12 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:13 - [重庆对8个区县启动地质灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:02 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:08 - [香港特区政府新一批基建及绿色债券在港发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:13 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:15 - [中国外交部发言人就美国总统特朗普访华情况答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:55 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:54 - [中国第12批援埃塞俄比亚军医专家组出征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:18 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:22 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:19 - [受降雨影响 国铁广州局今明两天部分列车停运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:14 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:03 - [千年晋祠难老泉高位复流 带动周边产业焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:04 - [一江清水向东流——凝心聚力共绘长江发展新画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:27 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:29 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:08 - [四川蓝莓首次出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:01 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:11 - [中钢协：积极开展产能治理、产量调控、行业自律](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:25 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:29 - [快乐出行不“掉坑”，这份网络安全指南请查收！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:25 - [企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:06 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:14 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:29 - [晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:23 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [相向而行，共同开启中美关系新篇章（钟声）](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%](http://www.share.minike.top/Article/details/56640.shtml)
-- 2026-06-29 11:59 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](http://www.blog.kurohicncr.top/Article/details/83461828.shtml)
-- 2026-06-29 11:57 - [日本央行警示：投资基金活动暗藏金融体系风险](http://www.share.minike.top/Article/details/590095.shtml)
-- 2026-06-29 11:55 - [中国铁塔将于6月30日派发末期股息每股0.32539元](http://www.blog.minike.top/Article/details/064175478698.shtml)
-- 2026-06-29 12:11 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](http://www.share.kurohicncr.top/Article/details/71611753.shtml)
-- 2026-06-29 12:15 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](http://www.blog.minike.top/Article/details/4544058.shtml)
-- 2026-06-29 12:02 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](http://www.blog.minike.top/Article/details/813159289244.shtml)
-- 2026-06-29 12:20 - [高盛：中国移动目标价升至94港元 维持“中性”评级](http://www.blog.kurohicncr.top/Article/details/278849464376.shtml)
-- 2026-06-29 11:54 - [以“生活”叙事陕味浓郁 《主角》热播引关注](http://www.share.minike.top/Article/details/86918.shtml)
-- 2026-06-29 12:10 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [光大证券：整固蓄势 积极看多](http://www.share.kurohicncr.top/Article/details/0348171466.shtml)
-- 2026-06-29 11:54 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](http://www.blog.minike.top/Article/details/410457.shtml)
-- 2026-06-29 12:11 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](http://www.blog.kurohicncr.top/Article/details/9700363.shtml)
-- 2026-06-29 12:03 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](http://www.blog.kurohicncr.top/Article/details/553764.shtml)
+- 2026-06-29 12:17 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](http://www.share.minike.top/Article/details/2702608262.shtml)
+- 2026-06-29 12:03 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](http://www.blog.minike.top/Article/details/999603525.shtml)
+- 2026-06-29 12:20 - [如何看待中方叫停Manus并购案？](http://www.blog.kurohicncr.top/Article/details/40065.shtml)
+- 2026-06-29 12:07 - [南京银行董事长谢宁解读“好银行”发展理念](http://www.blog.kurohicncr.top/Article/details/787289386109.shtml)
+- 2026-06-29 12:16 - [“漂流书包”十年：一份民主党派的阅读答卷](http://www.blog.kurohicncr.top/Article/details/7815478761.shtml)
+- 2026-06-29 12:15 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [康宁一季度利润与核心营收双双增长](http://www.blog.minike.top/Article/details/51167410.shtml)
+- 2026-06-29 12:03 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [五一机票又“跳水”了？](http://www.share.kurohicncr.top/Article/details/7459000.shtml)
+- 2026-06-29 12:00 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](http://www.blog.kurohicncr.top/Article/details/265480675927.shtml)
+- 2026-06-29 12:05 - [日本公然宣称为“长期战争”做准备 中方回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [金石为开——西安·沈阳名碑拓片特展开幕](http://www.blog.minike.top/Article/details/7680223717.shtml)
+- 2026-06-29 12:12 - [铁路文旅创新融合绘就发展新图景](http://www.share.minike.top/Article/details/007007494.shtml)
+- 2026-06-29 12:12 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](http://www.blog.kurohicncr.top/Article/details/58493636052.shtml)
+- 2026-06-29 12:10 - [AI赋能“一人公司” 个体创新潜力持续激活](http://www.blog.kurohicncr.top/Article/details/020489150.shtml)

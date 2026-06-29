@@ -1,58 +1,59 @@
-# 三星会长李在镕就劳资纠纷向公众致歉
+# 华尔街开盘涨跌互现，AI需求忧虑重返市场
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-据报道，在与工会新一轮薪资谈判破裂数日后，三星电子会长李在镕就企业内部矛盾引发社会各界担忧一事，向公众正式致歉。 报道称，李在镕结束海外行程、周六抵达首尔金浦国际机场时表态：“当下我们应当凝心聚力，同心同向携手前行。” 他表示：“工会同仁与全体三星员工本是一体、同为一家人。” 媒体称，李在镕宣读致歉声明期间三度鞠躬。 此外，韩国劳动部长官于周六与三星管理层举行一小时会谈，敦促企
+登录新浪财经APP 搜索【信披】查看更多考评等级 受OpenAI增长放缓消息拖累，美股周二开盘涨跌互现，科技股集中的纳斯达克指数领跌，投资者在本周科技巨头财报公布前夕重新评估AI支出的可持续性。 截至开盘，道琼斯工业平均指数上涨0.2%，而标普500指数下跌约0.6%，纳斯达克综合指数跌幅扩大至0.7%。油价持续高企叠加对AI投资回报的担忧，成为压制市场情绪的主要因素。 Ope
 
 ## 正文
 
-据报道，在与工会新一轮薪资谈判破裂数日后，三星电子会长李在镕就企业内部矛盾引发社会各界担忧一事，向公众正式致歉。
+登录新浪财经APP 搜索【信披】查看更多考评等级 受OpenAI增长放缓消息拖累，美股周二开盘涨跌互现，科技股集中的纳斯达克指数领跌，投资者在本周科技巨头财报公布前夕重新评估AI支出的可持续性。
 
-报道称，李在镕结束海外行程、周六抵达首尔金浦国际机场时表态：“当下我们应当凝心聚力，同心同向携手前行。
+截至开盘，道琼斯工业平均指数上涨0.2%，而标普500指数下跌约0.6%，纳斯达克综合指数跌幅扩大至0.7%。
 
-” 他表示：“工会同仁与全体三星员工本是一体、同为一家人。
+油价持续高企叠加对AI投资回报的担忧，成为压制市场情绪的主要因素。
 
-” 媒体称，李在镕宣读致歉声明期间三度鞠躬。
+OpenAI目标未完成引发连锁反应 据报道，OpenAI近期未能实现其内部设定的营收和用户增长目标——ChatGPT未能在2025年底前达成每周10亿活跃用户的里程碑，今年也有多个月度营收目标落空。
 
-此外，韩国劳动部长官于周六与三星管理层举行一小时会谈，敦促企业积极开展对话，妥善化解劳资矛盾。
+公司首席财务官萨拉·弗里尔已向管理层表达担忧，若营收增速不够快，公司未来可能无力承担庞大的算力合同费用。
 
-本周早些时候，经政府出面调解后，三星与旗下最大工会的薪资谈判依旧宣告失败。
+这一消息在财报季前夕重新点燃市场对AI资本支出回报的疑虑。
 
-工会扬言，若诉求得不到满足，将于5月21日起开启为期18天的罢工。
+与OpenAI深度绑定的一批科技股在盘前交易中集体承压：CoreWeave与甲骨文跌幅均超7%，AMD跌超5%，英伟达跌逾3%。
 
-责任编辑：刘明亮
+竞争加剧与IPO前路蒙尘 OpenAI面临的增长困境与其日益激烈的市场竞争密切相关。
 
 ## 相关推荐
 
-- 2026-06-29 11:58 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:54 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:04 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:58 - [浙江省欧美同学会金融委员会举行座谈交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:20 - [特朗普结束访华回国途中，与高市早苗通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:02 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:57 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:15 - [尾盘：国债收益率大涨 美股继续下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:23 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:56 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:16 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:17 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:00 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:13 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:18 - [韩国宣布与Google DeepMind建立合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:20 - [光大期货：4月28日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:20 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:28 - [深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:13 - [华盛顿发生两起枪击事件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:22 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:20 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:09 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:17 - [国务院任免国家工作人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:20 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:01 - [第139届广交会二期闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:54 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](http://www.blog.minike.top/Article/details/087550.shtml)
-- 2026-06-29 12:01 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](http://www.blog.minike.top/Article/details/99960405749.shtml)
-- 2026-06-29 12:05 - [总书记引领强国之路｜聚天下英才而用之](http://www.share.kurohicncr.top/Article/details/7967689.shtml)
-- 2026-06-29 12:03 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](http://www.share.minike.top/Article/details/93559.shtml)
-- 2026-06-29 12:14 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](http://www.share.kurohicncr.top/Article/details/096707011480.shtml)
-- 2026-06-29 12:18 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](http://www.blog.kurohicncr.top/Article/details/23253202459.shtml)
-- 2026-06-29 12:02 - [台湾西螺七嵌客家武术流派赴福建诏安交流](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](http://www.blog.minike.top/Article/details/6232924.shtml)
-- 2026-06-29 12:11 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](http://www.blog.minike.top/Article/details/0642779545.shtml)
-- 2026-06-29 12:09 - [杭州欧美同学会国际文化交流工作委员会成立](http://www.share.kurohicncr.top/Article/details/1770943513.shtml)
-- 2026-06-29 12:15 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](http://www.share.minike.top/Article/details/508885.shtml)
-- 2026-06-29 12:20 - [联播+｜读懂中国的特别窗口](http://www.share.minike.top/Article/details/546590939540.shtml)
-- 2026-06-29 12:04 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [星网宇达：截至2026年4月20日公司股东人数为40184户](http://www.share.kurohicncr.top/Article/details/890015.shtml)
-- 2026-06-29 12:06 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](http://www.blog.minike.top/Article/details/40647.shtml)
+- 2026-06-29 12:12 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](http://www.share.minike.top/Article/details/4361815.shtml)
+- 2026-06-29 12:12 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](http://www.share.kurohicncr.top/Article/details/401623.shtml)
+- 2026-06-29 12:14 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](http://www.share.minike.top/Article/details/2076802296.shtml)
+- 2026-06-29 12:25 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](http://www.share.kurohicncr.top/Article/details/548892801650.shtml)
+- 2026-06-29 12:14 - [渝昆高铁川滇段无砟轨道施工全部完成](http://www.share.kurohicncr.top/Article/details/5758565.shtml)
+- 2026-06-29 12:20 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](http://www.share.kurohicncr.top/Article/details/04622054147.shtml)
+- 2026-06-29 12:07 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](http://www.share.minike.top/Article/details/801050.shtml)
+- 2026-06-29 12:19 - [西安通报5起违反中央八项规定精神问题](http://www.blog.minike.top/Article/details/03906.shtml)
+- 2026-06-29 12:29 - [GTC泽汇资本:黄金整理静待方向明朗](http://www.share.minike.top/Article/details/3214290846.shtml)
+- 2026-06-29 12:29 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [OpenAI称已更新与微软的合作伙伴关系](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](http://www.share.kurohicncr.top/Article/details/0810153.shtml)
+- 2026-06-29 12:21 - [【市场聚焦】棉花：美国主产区干旱持续发酵带动全球棉市价格上行](http://www.share.kurohicncr.top/Article/details/7237496.shtml)

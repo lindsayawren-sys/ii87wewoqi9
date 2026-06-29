@@ -1,59 +1,49 @@
-# 日本国债收益率飙升 投资者押注日资从美债回流本土
+# ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-随着日本国内收益率飙升至创纪录高位，投资公司正在为日本投资者资金可能从美国国债撤离并回流日本政府债券做准备。 基准的10年期日本国债收益率在周五交易中升至2.73%，为1997年5月以来的最高水平。投资者越来越相信，不断上升的通胀将促使日本央行在6月将政策利率上调25个基点至1%。 30年期日本国债收益率自1999年该债券首次发行以来首次触及4%。5年期和20年期国债收益率均在
+根据ADP Research和斯坦福数字经济实验室的初步估计，截至4月11日的四周，美国私营部门就业人数平均每周增加39，250人。 ADP此前公布的3月就业人数月度变化为增加6.2万人。 ADP与斯坦福数字经济实验室于10月28日启动了每周就业数据发布。责任编辑：江学思
 
 ## 正文
 
-随着日本国内收益率飙升至创纪录高位，投资公司正在为日本投资者资金可能从美国国债撤离并回流日本政府债券做准备。
+根据ADP Research和斯坦福数字经济实验室的初步估计，截至4月11日的四周，美国私营部门就业人数平均每周增加39，250人。
 
-基准的10年期日本国债收益率在周五交易中升至2.73%，为1997年5月以来的最高水平。
+ADP此前公布的3月就业人数月度变化为增加6.2万人。
 
-投资者越来越相信，不断上升的通胀将促使日本央行在6月将政策利率上调25个基点至1%。
+ADP与斯坦福数字经济实验室于10月28日启动了每周就业数据发布。
 
-30年期日本国债收益率自1999年该债券首次发行以来首次触及4%。
-
-5年期和20年期国债收益率均在本周早些时候创下历史新高。
-
-收益率与价格走势相反。
-
-日本财务大臣片山皋月周五对记者表示，全球最大债券市场的政府债务收益率都在上升。
-
-她表示：“这些走势相互影响，正在产生复合效应。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 12:13 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:14 - [兰州新区全链赋能丝路“甘味”香飘海内外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:10 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:21 - [“超级食物”真有那么神奇吗？专家揭秘真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:11 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:14 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:00 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:18 - [土耳其理工名校掀起中国热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:15 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:15 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:07 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:07 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:12 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:17 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:06 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:06 - [中国选手赵一程打破男子速度攀岩世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:14 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:05 - [“华住会”App崩了？客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:21 - [“五一”假期小型客车继续施行免收通行费政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:20 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:11 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:19 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:07 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:01 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:55 - [交响组曲《想你——永远的焦裕禄》在兰考上演](http://www.blog.minike.top/Article/details/704732.shtml)
-- 2026-06-29 11:56 - [中视金桥于5月15日斥资147.4万港元回购72.6万股](http://www.share.minike.top/Article/details/934105171.shtml)
-- 2026-06-29 12:04 - [蚊子藏隐患？乙脑怎么防？这套“防护攻略”快收好|科普时间](http://www.share.minike.top/Article/details/390169.shtml)
-- 2026-06-29 12:10 - [2026重庆六一缤纷跑欢乐起跑 3500余组亲子家庭乐享运动时光](http://www.share.kurohicncr.top/Article/details/74782705054.shtml)
-- 2026-06-29 11:55 - [吉林打造长白山环山骑行品牌](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [超5000名小勇士挑战2026斯巴达勇士儿童赛杭州站](http://www.share.minike.top/Article/details/34075.shtml)
-- 2026-06-29 12:14 - [保障灾区基本通信 国家应急通信融合接入平台启动全国应用](http://www.blog.minike.top/Article/details/3885355095.shtml)
-- 2026-06-29 12:00 - [王毅向媒体介绍中美元首会晤情况和共识](http://www.blog.kurohicncr.top/Article/details/92451410227.shtml)
-- 2026-06-29 11:59 - [中资企业持续助力柬埔寨教育发展](http://www.blog.minike.top/Article/details/045534213392.shtml)
-- 2026-06-29 11:56 - [华泰 | A股策略：均衡配置应对内外风险](http://www.share.kurohicncr.top/Article/details/168096.shtml)
-- 2026-06-29 12:18 - [首次，首项，首个！本周我国多领域实现突破 创新实力亮眼](http://www.share.minike.top/Article/details/00701843.shtml)
-- 2026-06-29 12:04 - [广发证券：这是一场EPS上调速度和利率上行速度的较量](http://www.share.kurohicncr.top/Article/details/57052099606.shtml)
-- 2026-06-29 12:09 - [诗承千年风起庐陵 第二届“迦陵杯”中华诗教大会江西吉安举行](http://www.share.kurohicncr.top/Article/details/23809850796.shtml)
-- 2026-06-29 12:09 - [从增量扩张到存量提质 建设现代化人民城市](http://www.share.minike.top/Article/details/570564965.shtml)
-- 2026-06-29 12:15 - [日本宫城县附近海域发生6.3级地震 震源深度50公里](http://www.share.kurohicncr.top/Article/details/524828029136.shtml)
+- 2026-06-29 12:19 - [香港引入首辆飞机专用重型电拖车](http://www.blog.kurohicncr.top/Article/details/182541.shtml)
+- 2026-06-29 12:21 - [瑞银：华润置地目标价36港元 维持“买入”评级](http://www.share.kurohicncr.top/Article/details/694894.shtml)
+- 2026-06-29 12:11 - [《习近平谈治国理政》第五卷英文版中印尼推介会在雅加达举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [江西省省长：加快让人形机器人等未来产业形成新经济增长点](http://www.share.minike.top/Article/details/130304916406.shtml)
+- 2026-06-29 12:11 - [国泰君安期货：玻璃跌破前低 下跌趋势延续](http://www.share.minike.top/Article/details/7419759168.shtml)
+- 2026-06-29 12:21 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.kurohicncr.top/Article/details/60502790.shtml)
+- 2026-06-29 12:19 - [全球首艘10800车汽车运输船在广州命名交付](http://www.share.kurohicncr.top/Article/details/93822775.shtml)
+- 2026-06-29 12:02 - [截至4月28日，今年全国共发生7次大范围强对流天气过程](http://www.blog.kurohicncr.top/Article/details/250638161310.shtml)
+- 2026-06-29 12:22 - [中方：巴勒斯坦问题在任何情况下都不应被边缘化](http://www.blog.minike.top/Article/details/0340943530.shtml)
+- 2026-06-29 12:01 - [广东湛江吴川国际机场首条全货机定期航线开通](http://www.blog.kurohicncr.top/Article/details/841626312122.shtml)
+- 2026-06-29 12:08 - [人社部：一季度全国城镇新增就业299万人](http://www.share.minike.top/Article/details/2540631.shtml)
+- 2026-06-29 12:17 - [长安汽车战略协同，阿维塔品牌独立运营不变：协同降本空间打开，港股IPO照常推进](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [丁二烯：一季度进口下滑出口增加，二季度趋势或延续](http://www.share.minike.top/Article/details/197274405.shtml)
+- 2026-06-29 12:26 - [南京银行董事长谢宁：“好银行”至少应具备经营发展好等三大特征](http://www.blog.kurohicncr.top/Article/details/446418.shtml)
+- 2026-06-29 12:08 - [视频|小鹏智驾误判路灯倒影 紧急制动引发追尾事故](https://github.com/lisacumin64-arch)

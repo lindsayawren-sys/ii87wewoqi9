@@ -1,59 +1,59 @@
-# LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月
+# 韩国宣布与Google DeepMind建立合作
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-金融服务公司LM Funding America在周五发布的第一季度财报中重申了其扩建战略。公司董事长兼首席执行官Bruce Rodgers在业绩电话会议上表示，公司正继续评估5至20兆瓦范围内的增值并购机会。这一审慎策略曾指引公司以每兆瓦约35.5万美元的成本成功完成密西西比州的收购。 贷款展期获财务灵活性 为配合产能扩张计划，LM Funding已于4月6日将其与Galax
+韩国政府周一表示，已与谷歌旗下人工智能研究实验室Google DeepMind建立合作，共同推进以人工智能为主导的科技创新项目。 韩国科学技术信息通信部称，该部当天在首尔与Google DeepMind首席执行官兼联合创始人德米斯·哈萨比斯签署了谅解备忘录（MOU）。 Google DeepMind以其开发的AI程序AlphaGo而闻名。2016年，AlphaGo在首尔以五局击
 
 ## 正文
 
-金融服务公司LM Funding America在周五发布的第一季度财报中重申了其扩建战略。
+韩国政府周一表示，已与谷歌旗下人工智能研究实验室Google DeepMind建立合作，共同推进以人工智能为主导的科技创新项目。
 
-公司董事长兼首席执行官Bruce Rodgers在业绩电话会议上表示，公司正继续评估5至20兆瓦范围内的增值并购机会。
+韩国科学技术信息通信部称，该部当天在首尔与Google DeepMind首席执行官兼联合创始人德米斯·哈萨比斯签署了谅解备忘录（MOU）。
 
-这一审慎策略曾指引公司以每兆瓦约35.5万美元的成本成功完成密西西比州的收购。
+Google DeepMind以其开发的AI程序AlphaGo而闻名。
 
-贷款展期获财务灵活性 为配合产能扩张计划，LM Funding已于4月6日将其与Galaxy Digital的1100万美元比特币担保贷款再度展期，新的到期日为2026年6月26日。
+2016年，AlphaGo在首尔以五局击败了围棋世界冠军李世石。
 
-该贷款根据双方于2025年10月签订的主数字货币贷款协议执行，本次为第二次展期。
+哈萨比斯还因在基于AI的蛋白质结构预测研究方面的贡献，于2024年获得诺贝尔化学奖。
 
-首席财务官Richard Russell表示，Galaxy Digital提供的灵活性使公司能够充分利用比特币的任何上涨潜力。
+根据备忘录，双方将在科学技术与AI领域的联合研究、AI人才培养以及负责任的AI使用等方面开展合作。
 
-一季度业绩受币价拖累 公司一季度总营收为210万美元，同比下降11.1%。
+双方特别同意，在韩国政府以AI为核心的“K-Moonshot”项目框架下，探索与Google DeepMind在技术、基础设施和研究人员交流等方面具体的合作方式。
 
-期间共开采26.1枚比特币，平均成本约为每枚75，700美元。
+双方计划在生命科学、气象、气候及AI等多个科学技术领域开展合作，同时推动以将于下月投入运营的国家科学AI研究中心为中心的联合研究和研究人员交流。
 
 ## 相关推荐
 
-- 2026-06-29 12:10 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:13 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:15 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:21 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:07 - [日本央行理事称投资基金活动对金融体系构成潜在风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:12 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:08 - [沃尔玛希望Flipkart放慢节奏并实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:06 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:03 - [CBA观察：我们需要一支怎样的山西男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:04 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:07 - [全国广电民生节目在渝交流创新经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:03 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:10 - [王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:15 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:14 - [国务院任免国家工作人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:02 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:18 - [第139届广交会二期闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:27 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:18 - [2026年盈江海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:10 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:21 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:11 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:22 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:09 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:03 - [银行业首个行业级“数据分类分级”大模型发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:01 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [杭州欧美同学会国际文化交流工作委员会成立](http://www.blog.minike.top/Article/details/091688816880.shtml)
-- 2026-06-29 12:08 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](http://www.blog.minike.top/Article/details/11937118.shtml)
-- 2026-06-29 12:23 - [联播+｜读懂中国的特别窗口](http://www.blog.minike.top/Article/details/4083537.shtml)
-- 2026-06-29 12:09 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](http://www.blog.minike.top/Article/details/857799142264.shtml)
-- 2026-06-29 12:04 - [星网宇达：截至2026年4月20日公司股东人数为40184户](http://www.blog.kurohicncr.top/Article/details/53027740560.shtml)
-- 2026-06-29 12:15 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](http://www.share.minike.top/Article/details/0268859.shtml)
-- 2026-06-29 12:01 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](http://www.blog.minike.top/Article/details/66485170.shtml)
-- 2026-06-29 12:08 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](http://www.blog.minike.top/Article/details/0501836.shtml)
-- 2026-06-29 12:12 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](http://www.blog.kurohicncr.top/Article/details/80167535.shtml)
-- 2026-06-29 12:04 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](http://www.blog.minike.top/Article/details/0489212.shtml)
-- 2026-06-29 12:18 - [文脉华章丨一个博物院就是一所大学校](http://www.blog.minike.top/Article/details/867433.shtml)
-- 2026-06-29 11:56 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](http://www.blog.kurohicncr.top/Article/details/8653351099.shtml)
-- 2026-06-29 12:11 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](http://www.blog.kurohicncr.top/Article/details/423394312734.shtml)
-- 2026-06-29 12:03 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](http://www.share.kurohicncr.top/Article/details/899417514207.shtml)
+- 2026-06-29 12:26 - [西安通报5起违反中央八项规定精神问题](http://www.share.minike.top/Article/details/1305099.shtml)
+- 2026-06-29 12:20 - [GTC泽汇资本:黄金整理静待方向明朗](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [OpenAI称已更新与微软的合作伙伴关系](http://www.blog.kurohicncr.top/Article/details/64338054917.shtml)
+- 2026-06-29 12:12 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [【市场聚焦】棉花：美国主产区干旱持续发酵带动全球棉市价格上行](http://www.blog.minike.top/Article/details/78439441.shtml)
+- 2026-06-29 12:07 - [“伊斯兰国”袭击尼日利亚东北部 造成至少29人丧生](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [中钢协：一季度钢材价格总体走势平稳但处于近年同期最低水平](http://www.blog.kurohicncr.top/Article/details/95842884261.shtml)
+- 2026-06-29 12:06 - [谷歌不顾员工反对，与美国国防部签署机密人工智能合作协议](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [穿越机视角领略婺源“江南第一奇谷”飞瀑景观](http://www.blog.kurohicncr.top/Article/details/940029955292.shtml)
+- 2026-06-29 12:25 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](http://www.share.minike.top/Article/details/97007444.shtml)
+- 2026-06-29 12:25 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](http://www.share.minike.top/Article/details/3064845891.shtml)
+- 2026-06-29 12:20 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](http://www.blog.minike.top/Article/details/99706.shtml)
+- 2026-06-29 12:28 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](http://www.share.minike.top/Article/details/840750850.shtml)

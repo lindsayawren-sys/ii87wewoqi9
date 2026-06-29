@@ -1,61 +1,57 @@
-# 江西85后富豪夫妇又要IPO了，身家65亿，一年狂揽34亿
+# 光大期货0428热点追踪：玻璃弱势下行，供需压力仍存
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-记者丨朱治宣 编辑丨蒋韵 林曦 江佩霞 继首次递表港交所失效之后，今年4月27日，总部位于广州的“电商代运营第一股”若羽臣第二次向港交所递交招股书，拟在香港主板上市，联席保荐人为中信建投国际、广发证券。 值得注意的是，为了给冲刺港股增加砝码，4月初，若羽臣国际拟以自有或自筹资金4382.21万美元（约2.99亿元）的交易价格收购百年历史的高端护肤品牌奥伦纳素，本次交易完成后，若
+今日玻璃盘面跌幅较为明显，按收盘价计算，截至撰稿主力合约跌幅约3%，盘中一度创出阶段性新低。 玻璃供应端整体持稳，目前行业在产日熔量维持在14.49万吨左右。值得注意的是，沙河地区周末新点火一条1800吨/日产线，后期玻璃产能将小幅回升，供给压力边际增加。需求端表现依旧偏弱，五一假期临近，下游并未出现集中补库迹象，备货情绪较为谨慎，昨日主产区现货产销率多数集中在90%至110%
 
 ## 正文
 
-记者丨朱治宣 编辑丨蒋韵 林曦 江佩霞 继首次递表港交所失效之后，今年4月27日，总部位于广州的“电商代运营第一股”若羽臣第二次向港交所递交招股书，拟在香港主板上市，联席保荐人为中信建投国际、广发证券。
+今日玻璃盘面跌幅较为明显，按收盘价计算，截至撰稿主力合约跌幅约3%，盘中一度创出阶段性新低。
 
-值得注意的是，为了给冲刺港股增加砝码，4月初，若羽臣国际拟以自有或自筹资金4382.21万美元（约2.99亿元）的交易价格收购百年历史的高端护肤品牌奥伦纳素，本次交易完成后，若羽臣将获得该品牌100%股权。
+玻璃供应端整体持稳，目前行业在产日熔量维持在14.49万吨左右。
 
-这家曾以“电商代运营第一股”登陆A股的公司，如今想讲出品牌新故事。
+值得注意的是，沙河地区周末新点火一条1800吨/日产线，后期玻璃产能将小幅回升，供给压力边际增加。
 
-5月9日，若羽臣董事长、创始人王玉在一封十五周年内部信中，将这段历程描述为“从追赶者到领跑者的蜕变”，十五年代运营积累的全链路能力正转化为品牌孵化引擎，但翻开招股书和2026年一季度财报，财务指标仍需理性审视。
+需求端表现依旧偏弱，五一假期临近，下游并未出现集中补库迹象，备货情绪较为谨慎，昨日主产区现货产销率多数集中在90%至110%区间，但湖北地区产销率不足70%，当地中游库存压力较为突出，后续库存消化仍将对现货及近月合约形成压制。
 
-截至5月15日收盘，若羽臣报28.76元/股，跌幅0.52%，总市值89.46亿元。
+总体来看，玻璃短期面临“供给小幅回升、需求跟进不足、中上游高库存”的多重压力，近月合约承压较为明显。
 
-数据显示，若羽臣今年股价整体走弱，年初至今累计下跌17.76%，而2025年全年大涨146.33%。
+相比之下，远月合约受成本支撑、加工制品出口边际改善以及终端需求缓慢修复等预期影响，走势相对抗跌。
 
-2025年10月17日，若羽臣盘中摸到48.86元/股的历史最高价。
+当前玻璃期价处于低估值磨底阶段，但市场缺乏明确的上行驱动，短期仍以弱势震荡为主，后续建议关注玻璃产能变动、区域产销节奏以及中游库存去化情况。
 
-相比2024年初的3.76元低位，翻了12倍多。
+信息来源：光大期货研究所 撰稿：姚涛 从业资格：F3082336 交易咨询资格：Z0018553 免责声明：本报告的信息均来源于公开资料，我公司对这些信息的准确性、可靠性和完整性不作任何保证，也不保证所包含的信息和建议不会发生任何变更。
 
 ## 相关推荐
 
-- 2026-06-29 12:20 - [Slate Grocery REIT宣布派发5月每单位0.072美元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:56 - [大和：腾讯控股目标价降至700港元 重申“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:14 - [证监会重击107起案件罚没33亿，近200只股票或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:07 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:59 - [第十届中俄博览会开幕 46个国家和地区1500余家企业参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:20 - [天玑开发者大会MDDC 2026：MediaTek AI开发套件下载量升至440%，发布多项重磅技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:06 - [郑丽文：反对“台独”是稳定台海关键](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:19 - [在霍尔木兹海峡或长期关闭之际 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:08 - [高德专车上线静音服务，用户可一键定制“静音专车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:54 - [世界超级摩托车锦标赛捷克站：“张雪机车”位列超级杆位赛第三名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:12 - [内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:01 - [拉动文旅消费过亿 一场“村跑”何来如此大的能量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:00 - [时令水果批量上市 专家提示当心糖分超标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:22 - [交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:08 - [主力资金，“盯上”这些股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:01 - [中国银联董事长董俊峰出席APEC工商咨询理事会会议 参加与墨西哥政府高层双边会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:28 - [凯莱英午前涨超8% 第一季度经调整归母净利润增近28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:01 - [新华时评丨借尸还魂的“大将”“大佐”们](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:08 - [北美与欧洲增长放缓，Spotify Q2利润指引不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:17 - [城堡证券高管称伊朗冲突风险消退 股债市场有望同步上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:07 - [酒价内参4月29日价格发布：五粮液1618保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:15 - [爱奇艺的“AI赌局”：当降本逻辑撞上内容本质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:26 - [中国国家文化产业拟向周星驰等认购方发行合共4680万份认股权证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:26 - [银行理财子加速“扫货”权益市场，打新报价量两月激增近九成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:29 - [【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:25 - [转让底价6573万元，华泰保险集团880万股股份再度挂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:10 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](http://www.blog.kurohicncr.top/Article/details/028143.shtml)
-- 2026-06-29 12:19 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](http://www.share.kurohicncr.top/Article/details/02098371.shtml)
-- 2026-06-29 12:09 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](http://www.share.minike.top/Article/details/7129833861.shtml)
-- 2026-06-29 12:01 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](http://www.share.kurohicncr.top/Article/details/42688985.shtml)
-- 2026-06-29 12:17 - [特朗普说“伊斯兰国”二号头目被“清除”](http://www.share.minike.top/Article/details/54016322616.shtml)
-- 2026-06-29 12:18 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](http://www.share.kurohicncr.top/Article/details/81562.shtml)
-- 2026-06-29 11:56 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](http://www.blog.kurohicncr.top/Article/details/992165176.shtml)
-- 2026-06-29 12:13 - [芭蕾舞演员、医学专家带民众走出减重“误区”](http://www.blog.minike.top/Article/details/779557.shtml)
-- 2026-06-29 12:13 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](http://www.share.kurohicncr.top/Article/details/6100353.shtml)
-- 2026-06-29 12:11 - [倒车接人？科创芯片震荡两连阴，原因找到](http://www.share.minike.top/Article/details/197810841.shtml)
-- 2026-06-29 12:06 - [能源危机叠加日元贬值，日本实体经济正为中东战火埋单](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [外交部：中美双方就两国元首年内互动安排保持着沟通](http://www.blog.minike.top/Article/details/825029.shtml)
-- 2026-06-29 12:14 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](http://www.blog.minike.top/Article/details/4747216.shtml)
-- 2026-06-29 12:11 - [相向而行，共同开启中美关系新篇章（钟声）](http://www.blog.kurohicncr.top/Article/details/269874182326.shtml)
+- 2026-06-29 12:00 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](http://www.blog.minike.top/Article/details/6030413.shtml)
+- 2026-06-29 12:23 - [普京称西方正将领导地位让位于全球南方国家](http://www.blog.minike.top/Article/details/3964635466.shtml)
+- 2026-06-29 12:12 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](http://www.blog.kurohicncr.top/Article/details/0513993.shtml)
+- 2026-06-29 12:26 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](http://www.blog.minike.top/Article/details/6800901134.shtml)
+- 2026-06-29 12:10 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](http://www.blog.kurohicncr.top/Article/details/99902466738.shtml)
+- 2026-06-29 12:22 - [破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用](http://www.share.minike.top/Article/details/55943882625.shtml)
+- 2026-06-29 12:13 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](http://www.share.minike.top/Article/details/153817542.shtml)
+- 2026-06-29 12:14 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](http://www.share.minike.top/Article/details/5242568313.shtml)
+- 2026-06-29 12:09 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](http://www.blog.minike.top/Article/details/069758.shtml)
+- 2026-06-29 12:19 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](http://www.blog.kurohicncr.top/Article/details/5142906568.shtml)
+- 2026-06-29 12:16 - [泰国央行维持关键利率不变 以抵御油价对经济的冲击](http://www.share.kurohicncr.top/Article/details/6145463000.shtml)
+- 2026-06-29 12:07 - [全国首单银行间市场消费类定向资产支持票据发行](http://www.share.kurohicncr.top/Article/details/641091370367.shtml)
+- 2026-06-29 12:24 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](http://www.blog.kurohicncr.top/Article/details/660580507.shtml)
+- 2026-06-29 12:14 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](http://www.blog.minike.top/Article/details/541071006.shtml)

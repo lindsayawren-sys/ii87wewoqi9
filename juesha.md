@@ -1,57 +1,61 @@
-# 聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径
+# 千年晋祠难老泉高位复流 带动周边产业焕新生
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新网济源5月17日电 (李海珠)5月17日是全民科学补硒日。当日，一场聚焦硒健康与硒科学的专家会议在河南济源启幕，来自营养与健康领域的多位专家学者齐聚愚公故里，围绕硒资源开发、营养融合、产业升级等议题进行交流对话。 济源工业产业基础扎实，是亚洲最大的绿色铅锌加工基地、全国最大的白银生产基地。同时，济源丰富的硒资源，近年来，济源不仅建立了多个科研平台，还集聚了一批骨干企业，致力
+中新网太原4月28日电 题：千年晋祠难老泉高位复流 带动周边产业焕新生 作者 杨杰英 杨润德 崔莉霞 春日晋祠，泉水潺潺。历经多年系统治理与生态涵养，难老泉实现高位复流。清泉顺着智伯渠流淌，带活了周边产业与百姓生活。 一泉引客来：晋水巷里文旅兴 顺着泉水流淌的方向，来到晋祠公园迎曦门对面的晋水巷，这里早已是商铺林立，酒店、民宿、小吃店、文创铺等上百个摊位一家挨着一家。今年春节，
 
 ## 正文
 
-中新网济源5月17日电 (李海珠)5月17日是全民科学补硒日。
+中新网太原4月28日电 题：千年晋祠难老泉高位复流 带动周边产业焕新生 作者 杨杰英 杨润德 崔莉霞 春日晋祠，泉水潺潺。
 
-当日，一场聚焦硒健康与硒科学的专家会议在河南济源启幕，来自营养与健康领域的多位专家学者齐聚愚公故里，围绕硒资源开发、营养融合、产业升级等议题进行交流对话。
+历经多年系统治理与生态涵养，难老泉实现高位复流。
 
-济源工业产业基础扎实，是亚洲最大的绿色铅锌加工基地、全国最大的白银生产基地。
+清泉顺着智伯渠流淌，带活了周边产业与百姓生活。
 
-同时，济源丰富的硒资源，近年来，济源不仅建立了多个科研平台，还集聚了一批骨干企业，致力于探寻一条以创新链驱动产业链、以科技赋能硒健康产业发展的新路径。
+一泉引客来：晋水巷里文旅兴 顺着泉水流淌的方向，来到晋祠公园迎曦门对面的晋水巷，这里早已是商铺林立，酒店、民宿、小吃店、文创铺等上百个摊位一家挨着一家。
 
-近年来，国内硒产业发展势头迅猛，市场前景广阔。
+今年春节，晋祠博物馆累计接待游客17.57万人次，省外游客占比64%。
 
-同时，含硒产品质量参差不齐、标准执行不统一、产品标示和说明混乱等问题依然存在。
+由周边村民成立的“晋之胜”旅游服务公司，260余名导游讲解客单不断。
 
-对此，河南省市场监管局相关负责人表示，将持续强化硒产业标准供给及全链条质量安全监管，引导该省硒产业加快向标准化、品牌化、高端化迈进。
+栖迟小筑轰趴馆老板刘金娥把一层改成茶社，用古泉泡茶，开张即火爆。
 
-“近年来，济源依托资源禀赋与创新驱动发展理念，将有色金属产业链延伸，并与大健康产业深度融合，在硒资源开发利用及硒产业高质量发展领域走在全国前列。
+“难老泉复流后，游客一天比一天多，大家想坐下来喝杯茶，看看泉。
 
 ## 相关推荐
 
-- 2026-06-29 12:18 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:14 - [中国外交部发言人就美国总统特朗普访华情况答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:02 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:19 - [中国第12批援埃塞俄比亚军医专家组出征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:15 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:12 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:56 - [受降雨影响 国铁广州局今明两天部分列车停运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:19 - [宁波银行回应拨备覆盖率下降：整体上符合行业趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:16 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:11 - [九连板之后，002207公告：无注入算力资产的计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:11 - [日本财务大臣片山皋月否认需要编制额外预算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:30 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:05 - [快乐出行不“掉坑”，这份网络安全指南请查收！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:16 - [企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:08 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:04 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:26 - [晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:02 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:05 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:10 - [国铁沈阳局五一小长假预计发送旅客740万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:09 - [香港3月进出口货值现两位数增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:01 - [涉嫌严重违纪违法 内蒙古两厅官被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:10 - [港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:06 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:29 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:28 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:11 - [高盛：中国移动目标价升至94港元 维持“中性”评级](http://www.share.minike.top/Article/details/45620.shtml)
-- 2026-06-29 12:11 - [以“生活”叙事陕味浓郁 《主角》热播引关注](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](http://www.blog.minike.top/Article/details/2811170008.shtml)
-- 2026-06-29 12:01 - [光大证券：整固蓄势 积极看多](http://www.blog.kurohicncr.top/Article/details/56152203.shtml)
-- 2026-06-29 12:22 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](http://www.blog.minike.top/Article/details/49098072.shtml)
-- 2026-06-29 12:16 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](http://www.share.minike.top/Article/details/759092336.shtml)
-- 2026-06-29 12:12 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](http://www.blog.kurohicncr.top/Article/details/8292372008.shtml)
-- 2026-06-29 12:21 - [广西南宁首批10个人工智能OPC创业社区集中开放](http://www.blog.kurohicncr.top/Article/details/034153388.shtml)
-- 2026-06-29 12:09 - [中方回应中美是否达成农业方面协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [沪港文化交流再升级：从“经典展演”到“多元共创”](http://www.blog.kurohicncr.top/Article/details/83556.shtml)
-- 2026-06-29 12:19 - [日本不断加速扩军修宪图谋：日本抛修宪构想 拟设紧急政令扩内阁权限](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [国常会：审议通过《加快农业农村现代化“十五五”规划》](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [债券承销违规！国都证券又被点名，一项目负责人被禁业1年](http://www.blog.minike.top/Article/details/061833242.shtml)
-- 2026-06-29 12:14 - [英国国债大跌 投资者为伯纳姆挑战斯塔默做准备](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [2027澳网亚太区外卡赛将落地成都](http://www.blog.kurohicncr.top/Article/details/2714044.shtml)
+- 2026-06-29 12:18 - [五一机票又“跳水”了？](http://www.blog.kurohicncr.top/Article/details/882914480.shtml)
+- 2026-06-29 12:23 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](http://www.share.minike.top/Article/details/47771.shtml)
+- 2026-06-29 12:14 - [日本公然宣称为“长期战争”做准备 中方回应](http://www.share.minike.top/Article/details/372493.shtml)
+- 2026-06-29 12:20 - [金石为开——西安·沈阳名碑拓片特展开幕](http://www.blog.minike.top/Article/details/857327.shtml)
+- 2026-06-29 12:03 - [铁路文旅创新融合绘就发展新图景](http://www.blog.kurohicncr.top/Article/details/34482162232.shtml)
+- 2026-06-29 12:24 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](http://www.share.minike.top/Article/details/5981204.shtml)
+- 2026-06-29 12:11 - [AI赋能“一人公司” 个体创新潜力持续激活](http://www.share.minike.top/Article/details/92582605.shtml)
+- 2026-06-29 12:16 - [中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](http://www.share.kurohicncr.top/Article/details/64676384107.shtml)
+- 2026-06-29 12:02 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](http://www.share.kurohicncr.top/Article/details/239619.shtml)
+- 2026-06-29 12:11 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](http://www.blog.minike.top/Article/details/67284276663.shtml)
+- 2026-06-29 12:27 - [促进高质量充分就业 多项政策出台](http://www.share.kurohicncr.top/Article/details/276377.shtml)
+- 2026-06-29 12:24 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](http://www.share.minike.top/Article/details/457964.shtml)
+- 2026-06-29 12:24 - [中天策略:4月28日市场分析](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](http://www.share.kurohicncr.top/Article/details/624368012788.shtml)

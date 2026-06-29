@@ -1,45 +1,57 @@
-# 世界超级摩托车锦标赛捷克站：“张雪机车”位列超级杆位赛第三名
+# 【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-在刚刚结束的2026世界超级摩托车锦标赛(WSBK)捷克站WorldSSP组别比赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯位列超级杆位赛第三名。
+来源：国投期货研究院 印尼政府将石化原料LPG和石脑油的进口关税降至零，同时宣布对所有塑料产品征收0%的进口关税，并对塑料制品实行为期6个月的进口关税优惠政策。 受此消息提振，瓶片期货价格大幅上涨，主力2606合约期货价格收于日内最高位8948元/吨，涨幅5.89%。乙二醇期货主力2609合约涨幅超3%，PTA期货主力涨幅2.67%。 1、国内瓶片出口持续增长，印尼是第一大贸易
 
 ## 正文
 
-在刚刚结束的2026世界超级摩托车锦标赛(WSBK)捷克站WorldSSP组别比赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯位列超级杆位赛第三名。
+来源：国投期货研究院 印尼政府将石化原料LPG和石脑油的进口关税降至零，同时宣布对所有塑料产品征收0%的进口关税，并对塑料制品实行为期6个月的进口关税优惠政策。
+
+受此消息提振，瓶片期货价格大幅上涨，主力2606合约期货价格收于日内最高位8948元/吨，涨幅5.89%。
+
+乙二醇期货主力2609合约涨幅超3%，PTA期货主力涨幅2.67%。
+
+1、国内瓶片出口持续增长，印尼是第一大贸易伙伴 2023年至今，我国瓶片产能持续增长，同时海外需求增加及产能增长停滞，我国瓶片的出口量持续增长。
+
+中国海关数据统计瓶片出口量约占我国总产量的37%。
+
+从出口流向的国家来看，印尼是我国瓶片第一大出口贸易伙伴，2026年对其出口量为38万吨，占我国总出口量的约5.9%，2026年1-3月我国对印尼的瓶片出口量占比小幅扩大至6.7%。
+
+作为东盟自由贸易区和RCEP成员国，中国对印尼的瓶片出口基础关税可以降至0%，但需要申请原产地证明，且面临印尼海关的查询，有一定的贸易门槛。
+
+全面“0关税”落地后，中国的瓶片出口商对印尼的出口贸易门槛降低，效率提升，将提振中国的瓶片出口需求。
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:20 - [中东部有大范围降水 黄海海域有大雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:08 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:11 - [重庆对8个区县启动地质灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:20 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:06 - [香港特区政府新一批基建及绿色债券在港发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:17 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:02 - [中国外交部发言人就美国总统特朗普访华情况答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:00 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:21 - [中国第12批援埃塞俄比亚军医专家组出征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:22 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:19 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:17 - [受降雨影响 国铁广州局今明两天部分列车停运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:06 - [一江清水向东流——凝心聚力共绘长江发展新画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:17 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:27 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:08 - [四川蓝莓首次出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:05 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:02 - [中钢协：积极开展产能治理、产量调控、行业自律](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:07 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:02 - [快乐出行不“掉坑”，这份网络安全指南请查收！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:30 - [企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:19 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:09 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:58 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](http://www.share.minike.top/Article/details/0053924030.shtml)
-- 2026-06-29 12:12 - [日本央行警示：投资基金活动暗藏金融体系风险](http://www.share.kurohicncr.top/Article/details/7289224.shtml)
-- 2026-06-29 12:00 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](http://www.share.minike.top/Article/details/591606.shtml)
-- 2026-06-29 12:08 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](http://www.share.kurohicncr.top/Article/details/4593872732.shtml)
-- 2026-06-29 11:58 - [高盛：中国移动目标价升至94港元 维持“中性”评级](http://www.blog.kurohicncr.top/Article/details/091511.shtml)
-- 2026-06-29 11:58 - [以“生活”叙事陕味浓郁 《主角》热播引关注](http://www.share.kurohicncr.top/Article/details/2488083424.shtml)
-- 2026-06-29 11:54 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](http://www.blog.kurohicncr.top/Article/details/242839436024.shtml)
-- 2026-06-29 12:12 - [光大证券：整固蓄势 积极看多](http://www.blog.kurohicncr.top/Article/details/03540053826.shtml)
-- 2026-06-29 12:08 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](http://www.share.kurohicncr.top/Article/details/11891137363.shtml)
-- 2026-06-29 12:08 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](http://www.blog.minike.top/Article/details/1767032342.shtml)
-- 2026-06-29 12:23 - [广西南宁首批10个人工智能OPC创业社区集中开放](http://www.share.kurohicncr.top/Article/details/627079.shtml)
-- 2026-06-29 12:12 - [中方回应中美是否达成农业方面协议](http://www.blog.minike.top/Article/details/42100.shtml)
+- 2026-06-29 12:13 - [如何看待中方叫停Manus并购案？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [南京银行董事长谢宁解读“好银行”发展理念](http://www.blog.minike.top/Article/details/503043360315.shtml)
+- 2026-06-29 12:12 - [“漂流书包”十年：一份民主党派的阅读答卷](http://www.share.kurohicncr.top/Article/details/8720552622.shtml)
+- 2026-06-29 12:16 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](http://www.share.minike.top/Article/details/1710655432.shtml)
+- 2026-06-29 12:00 - [康宁一季度利润与核心营收双双增长](http://www.blog.kurohicncr.top/Article/details/220255325992.shtml)
+- 2026-06-29 12:00 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](http://www.blog.kurohicncr.top/Article/details/83275376374.shtml)
+- 2026-06-29 12:05 - [五一机票又“跳水”了？](http://www.share.minike.top/Article/details/383743535.shtml)
+- 2026-06-29 12:00 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [日本公然宣称为“长期战争”做准备 中方回应](http://www.blog.kurohicncr.top/Article/details/94433.shtml)
+- 2026-06-29 12:04 - [金石为开——西安·沈阳名碑拓片特展开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [铁路文旅创新融合绘就发展新图景](http://www.blog.minike.top/Article/details/41989579184.shtml)
+- 2026-06-29 12:26 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](http://www.share.kurohicncr.top/Article/details/6520346446.shtml)
+- 2026-06-29 12:10 - [AI赋能“一人公司” 个体创新潜力持续激活](http://www.blog.kurohicncr.top/Article/details/438571678533.shtml)
+- 2026-06-29 12:10 - [中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%](http://www.share.kurohicncr.top/Article/details/2694543319.shtml)
+- 2026-06-29 12:25 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](http://www.share.minike.top/Article/details/502828753.shtml)

@@ -1,58 +1,59 @@
-# 国际人士：中美元首外交意义重大 推动世界和平发展
+# 通用汽车CFO：5亿美元关税返还背后的谨慎乐观
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中美元首会晤引发全球关注。国际人士认为，此次会晤将构建“中美建设性战略稳定关系”作为中美关系新定位意义重大，“中美建设性战略稳定关系”至关重要，将促进世界和平稳定与发展。 缅甸战略和国际问题研究所联合秘书长 钦貌佐：“中美建设性战略稳定关系”至关重要，其重点就是彼此互信。中美两国间的良好关系对整个世界也非常重要，有助于缓和冲突、减少对抗、推动经济增长。 塞尔维亚贝尔格莱德“一带
+尽管第一财季业绩超预期，并受益于美国最高法院的一项裁决获得了高达5亿美元的关税退款，通用汽车首席财务官保罗·雅各布森周二仍发出警告，公司正在为全年的不确定性做准备。 关税“意外之财”提振业绩 周二公布的数据显示，通用汽车第一季度营收达436.2亿美元，调整后每股收益为3.70美元，远超市场预期的2.62美元。超预期的表现得益于美国最高法院今年2月的裁决——认定特朗普政府根据《国
 
 ## 正文
 
-中美元首会晤引发全球关注。
+尽管第一财季业绩超预期，并受益于美国最高法院的一项裁决获得了高达5亿美元的关税退款，通用汽车首席财务官保罗·雅各布森周二仍发出警告，公司正在为全年的不确定性做准备。
 
-国际人士认为，此次会晤将构建“中美建设性战略稳定关系”作为中美关系新定位意义重大，“中美建设性战略稳定关系”至关重要，将促进世界和平稳定与发展。
+关税“意外之财”提振业绩 周二公布的数据显示，通用汽车第一季度营收达436.2亿美元，调整后每股收益为3.70美元，远超市场预期的2.62美元。
 
-缅甸战略和国际问题研究所联合秘书长 钦貌佐：“中美建设性战略稳定关系”至关重要，其重点就是彼此互信。
+超预期的表现得益于美国最高法院今年2月的裁决——认定特朗普政府根据《国际紧急经济权力法》实施的大规模关税违法。
 
-中美两国间的良好关系对整个世界也非常重要，有助于缓和冲突、减少对抗、推动经济增长。
+这使得通用汽车预计将获得约5亿美元的关税退款。
 
-塞尔维亚贝尔格莱德“一带一路”研究所所长 博扬·拉利奇：“中美建设性战略稳定关系”新定位将为动荡的世界增添确定性，包括在经济、新技术、人工智能和其他领域的稳定性。
+受此影响，公司将全年调整后息税前利润指引上调5亿美元，至135亿至155亿美元区间。
 
-这对我们国家、对推进共建“一带一路”也至关重要。
+公司目前预计全年总关税成本将从此前的30亿至40亿美元降至25亿至35亿美元。
 
-德国媒体人士 弗里德里希：我认为中美元首会晤向所有致力于创造双赢而不是双输局面的人们，释放出了非常积极的信号，并且增强了世界上的进步力量。
+通胀与原材料涨价成隐忧 尽管上调了盈利指引，但雅各布森在周二的媒体采访中强调：“尽管我们取得了超出预期的成绩，但我们并未将业绩指引上调同样的幅度。
 
-阿尔及利亚-中国友好协会主席 伊斯梅尔·德贝什：正如中国国家主席习近平所言，中美关系是当今世界最重要的双边关系，因此中美两国关系保持总体稳定、增进沟通对话，有益于维护全球稳定与发展。
+我们对这种情况能持续多久持谨慎态度。
 
 ## 相关推荐
 
-- 2026-06-29 12:10 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:03 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:01 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:16 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:54 - [浙江省欧美同学会金融委员会举行座谈交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:23 - [特朗普结束访华回国途中，与高市早苗通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:55 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:20 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:59 - [尾盘：国债收益率大涨 美股继续下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:07 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:05 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:07 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:09 - [重庆秀山：烟雨“边城” 古韵映春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:01 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:25 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:12 - [韩国宣布与Google DeepMind建立合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:15 - [光大期货：4月28日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:13 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:17 - [深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:10 - [华盛顿发生两起枪击事件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:07 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:21 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:28 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:06 - [国务院任免国家工作人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:27 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:02 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](http://www.blog.minike.top/Article/details/62175938.shtml)
-- 2026-06-29 12:12 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](http://www.share.minike.top/Article/details/16143535799.shtml)
-- 2026-06-29 12:05 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](http://www.share.minike.top/Article/details/19160387.shtml)
-- 2026-06-29 12:21 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](http://www.blog.minike.top/Article/details/38629.shtml)
-- 2026-06-29 12:14 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [台湾西螺七嵌客家武术流派赴福建诏安交流](http://www.blog.minike.top/Article/details/58104195751.shtml)
-- 2026-06-29 12:24 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](http://www.blog.kurohicncr.top/Article/details/6244393422.shtml)
-- 2026-06-29 12:00 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](http://www.blog.kurohicncr.top/Article/details/0663915.shtml)
-- 2026-06-29 12:19 - [杭州欧美同学会国际文化交流工作委员会成立](http://www.blog.minike.top/Article/details/720825360.shtml)
-- 2026-06-29 12:11 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](http://www.blog.minike.top/Article/details/6219759.shtml)
-- 2026-06-29 12:16 - [联播+｜读懂中国的特别窗口](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](http://www.share.kurohicncr.top/Article/details/2842940069.shtml)
-- 2026-06-29 12:01 - [星网宇达：截至2026年4月20日公司股东人数为40184户](http://www.blog.kurohicncr.top/Article/details/967370.shtml)
+- 2026-06-29 12:30 - [传递“乌尔朵”的守边人](http://www.share.minike.top/Article/details/337017743.shtml)
+- 2026-06-29 12:04 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](http://www.blog.minike.top/Article/details/471635.shtml)
+- 2026-06-29 12:23 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](http://www.blog.kurohicncr.top/Article/details/871265.shtml)
+- 2026-06-29 12:22 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](http://www.blog.minike.top/Article/details/42029.shtml)
+- 2026-06-29 12:19 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](http://www.blog.kurohicncr.top/Article/details/80795046051.shtml)
+- 2026-06-29 12:03 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](http://www.blog.minike.top/Article/details/8401277797.shtml)
+- 2026-06-29 12:09 - [渝昆高铁川滇段无砟轨道施工全部完成](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](http://www.share.kurohicncr.top/Article/details/3410171299.shtml)
+- 2026-06-29 12:29 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [西安通报5起违反中央八项规定精神问题](http://www.blog.kurohicncr.top/Article/details/3538543754.shtml)
+- 2026-06-29 12:16 - [GTC泽汇资本:黄金整理静待方向明朗](http://www.share.minike.top/Article/details/4133577.shtml)
+- 2026-06-29 12:11 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](http://www.share.kurohicncr.top/Article/details/639452541.shtml)
+- 2026-06-29 12:13 - [OpenAI称已更新与微软的合作伙伴关系](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](https://github.com/lisacumin64-arch)

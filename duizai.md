@@ -1,57 +1,57 @@
-# 郑州缘何连续四年高规格举办大学生集中毕业典礼？
+# 铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-中新网郑州5月17日电 题：郑州缘何连续四年高规格举办大学生集中毕业典礼？ 记者 韩章云 又到一年毕业季，河南郑州以城市之名向高校毕业生发出诚挚邀约。 5月16日，“‘郑’好需要你 未来皆可期”2026郑州·大学生集中毕业典礼在郑州轻工业大学举行，15所驻郑高校的近千名毕业生代表齐聚一堂，共同见证这场青春盛会。 这是郑州连续第四年，以城市之名为大学生高规格举办集中毕业典礼。活动
+中新网重庆4月28日电 (张旭 蒋远智)“五一”假期将近，4月28日，中国铁路成都局集团有限公司重庆车站(以下简称“重庆火车站”)发布消息称，2026年铁路“五一”假期运输将于4月29日启动，至5月6日结束。 在此期间，重庆火车站预计发送旅客240万人次，日均发送旅客30万人次，同比增长7.6%。客流最高日预计在5月1日，预计发送旅客39万人次。 据重庆火车站介绍，“五一”假期
 
 ## 正文
 
-中新网郑州5月17日电 题：郑州缘何连续四年高规格举办大学生集中毕业典礼？
+中新网重庆4月28日电 (张旭 蒋远智)“五一”假期将近，4月28日，中国铁路成都局集团有限公司重庆车站(以下简称“重庆火车站”)发布消息称，2026年铁路“五一”假期运输将于4月29日启动，至5月6日结束。
 
-记者 韩章云 又到一年毕业季，河南郑州以城市之名向高校毕业生发出诚挚邀约。
+在此期间，重庆火车站预计发送旅客240万人次，日均发送旅客30万人次，同比增长7.6%。
 
-5月16日，“‘郑’好需要你 未来皆可期”2026郑州·大学生集中毕业典礼在郑州轻工业大学举行，15所驻郑高校的近千名毕业生代表齐聚一堂，共同见证这场青春盛会。
+客流最高日预计在5月1日，预计发送旅客39万人次。
 
-这是郑州连续第四年，以城市之名为大学生高规格举办集中毕业典礼。
+据重庆火车站介绍，“五一”假期，旅客探亲、旅游等出行需求旺盛，城际和邻近地市的客流居多，直通客流主要集中在重庆与北京、上海、广州、武汉、长沙、张家界、西安、南宁、昆明、兰州、西宁等热门城市，管内客流主要集中在重庆与成都、合川、潼南、内江、宜宾、达州、南充、万州、云阳、奉节、巫山、涪陵、丰都、石柱县、贵阳、荔波等热门城市。
 
-活动由郑州市委、郑州市政府、共青团河南省委、郑州轻工业大学主办，郑州市委书记安伟等领导出席，既为青年送行，更为青年加油喝彩。
+截至目前，重庆火车站已安排加开列车667列，其中加开夜间列车59列(重庆北站19列、重庆西站40列)，为旅客出行提供更多选择和运力保障。
 
-安伟向2026届毕业生发出留郑创业就业的诚挚邀约，勉励他们坚定理想信念、勇担时代使命，在郑州这片热土上贡献青春力量、成就人生价值、书写时代华章。
-
-多措赋能青年发展 郑州以诚意留青年人才，青年在郑州乐业安居。
-
-郑州，这座有着3600多年历史的古老城市，与青年双向奔赴。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:14 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:23 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:07 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:18 - [兰州新区全链赋能丝路“甘味”香飘海内外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:03 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:01 - [“超级食物”真有那么神奇吗？专家揭秘真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:12 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:19 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:55 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:17 - [土耳其理工名校掀起中国热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:11 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:10 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:12 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:24 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:27 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:09 - [中国选手赵一程打破男子速度攀岩世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:09 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:06 - [“华住会”App崩了？客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:04 - [“五一”假期小型客车继续施行免收通行费政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:08 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:13 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:17 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:05 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:28 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:25 - [“十四五”期间中国新发现大中型油气田225处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:20 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:15 - [长岛铁路工人或于今夜举行罢工](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [688549突发利好，股价短期已翻倍](http://www.share.minike.top/Article/details/449616874000.shtml)
-- 2026-06-29 11:54 - [交响组曲《想你——永远的焦裕禄》在兰考上演](http://www.share.minike.top/Article/details/5056961.shtml)
-- 2026-06-29 12:12 - [中视金桥于5月15日斥资147.4万港元回购72.6万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [蚊子藏隐患？乙脑怎么防？这套“防护攻略”快收好|科普时间](http://www.blog.kurohicncr.top/Article/details/46505.shtml)
-- 2026-06-29 11:57 - [2026重庆六一缤纷跑欢乐起跑 3500余组亲子家庭乐享运动时光](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [吉林打造长白山环山骑行品牌](http://www.share.kurohicncr.top/Article/details/556418.shtml)
-- 2026-06-29 12:20 - [超5000名小勇士挑战2026斯巴达勇士儿童赛杭州站](http://www.share.minike.top/Article/details/31603.shtml)
-- 2026-06-29 11:59 - [保障灾区基本通信 国家应急通信融合接入平台启动全国应用](http://www.blog.kurohicncr.top/Article/details/89214.shtml)
-- 2026-06-29 12:10 - [王毅向媒体介绍中美元首会晤情况和共识](http://www.share.minike.top/Article/details/28187236245.shtml)
-- 2026-06-29 12:04 - [中资企业持续助力柬埔寨教育发展](http://www.share.kurohicncr.top/Article/details/66278.shtml)
-- 2026-06-29 12:04 - [华泰 | A股策略：均衡配置应对内外风险](http://www.share.minike.top/Article/details/5184554368.shtml)
-- 2026-06-29 12:04 - [首次，首项，首个！本周我国多领域实现突破 创新实力亮眼](http://www.share.minike.top/Article/details/30768677.shtml)
-- 2026-06-29 11:59 - [广发证券：这是一场EPS上调速度和利率上行速度的较量](http://www.share.minike.top/Article/details/4554190263.shtml)
-- 2026-06-29 12:11 - [诗承千年风起庐陵 第二届“迦陵杯”中华诗教大会江西吉安举行](http://www.share.kurohicncr.top/Article/details/0883709.shtml)
+- 2026-06-29 12:24 - [2026年孟连海关部门预算公开](http://www.blog.minike.top/Article/details/181511054.shtml)
+- 2026-06-29 12:24 - [东珠生态（603359）投资者索赔分析](http://www.share.minike.top/Article/details/2857016.shtml)
+- 2026-06-29 12:00 - [香港引入首辆飞机专用重型电拖车](http://www.share.minike.top/Article/details/346299257.shtml)
+- 2026-06-29 12:27 - [瑞银：华润置地目标价36港元 维持“买入”评级](http://www.blog.minike.top/Article/details/5093735708.shtml)
+- 2026-06-29 12:25 - [《习近平谈治国理政》第五卷英文版中印尼推介会在雅加达举行](http://www.blog.minike.top/Article/details/93772052.shtml)
+- 2026-06-29 12:22 - [江西省省长：加快让人形机器人等未来产业形成新经济增长点](http://www.share.minike.top/Article/details/763130.shtml)
+- 2026-06-29 12:11 - [国泰君安期货：玻璃跌破前低 下跌趋势延续](http://www.share.kurohicncr.top/Article/details/89418054594.shtml)
+- 2026-06-29 12:23 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.minike.top/Article/details/776260140.shtml)
+- 2026-06-29 12:03 - [全球首艘10800车汽车运输船在广州命名交付](http://www.blog.minike.top/Article/details/261865658.shtml)
+- 2026-06-29 12:29 - [截至4月28日，今年全国共发生7次大范围强对流天气过程](http://www.share.kurohicncr.top/Article/details/52005.shtml)
+- 2026-06-29 12:23 - [中方：巴勒斯坦问题在任何情况下都不应被边缘化](http://www.blog.minike.top/Article/details/7667080.shtml)
+- 2026-06-29 12:05 - [广东湛江吴川国际机场首条全货机定期航线开通](http://www.blog.kurohicncr.top/Article/details/617656560.shtml)
+- 2026-06-29 12:23 - [人社部：一季度全国城镇新增就业299万人](http://www.share.kurohicncr.top/Article/details/29109.shtml)
+- 2026-06-29 12:02 - [长安汽车战略协同，阿维塔品牌独立运营不变：协同降本空间打开，港股IPO照常推进](http://www.blog.minike.top/Article/details/419506.shtml)
+- 2026-06-29 12:11 - [丁二烯：一季度进口下滑出口增加，二季度趋势或延续](http://www.share.minike.top/Article/details/50263270103.shtml)

@@ -1,57 +1,56 @@
-# 主力资金，“盯上”这些股票
+# 大牌加码创作者营销预算，但中小品牌仍主导合作市场
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-本周，A股市场表现分化。上证指数、深证成指分别累计下跌1.07%、0.02%，创业板指累计上涨3.50%。行业板块中，通信、电子、机械设备行业领涨，涨幅最大的股票中船特气涨逾82%（剔除本周上市新股）。 Wind数据显示，截至5月15日收盘，A股市场总市值为130.12万亿元。 资金层面，Wind数据显示，本周沪深两市主力资金有4个交易日出现净流出，主力资金加仓天孚通信超49亿
+众多坐拥百万播放与粉丝的内容创作者，依旧难以获得头部广告商的青睐 内容摘要 内容创作者在美国广告营销中的重要性持续提升，今年美国品牌在达人赞助内容上的支出预计达439 亿美元。 创作者经济正在抢占越来越多的用户注意力，但行业高速扩张，也让品牌与寻求商业合作的创作者陷入更复杂的市场环境。 部分头部广告主表示，正将投放预算从电视广告、传统数字广告转移至社交平台达人内容；但创作者营销
 
 ## 正文
 
-本周，A股市场表现分化。
+众多坐拥百万播放与粉丝的内容创作者，依旧难以获得头部广告商的青睐 内容摘要 内容创作者在美国广告营销中的重要性持续提升，今年美国品牌在达人赞助内容上的支出预计达439 亿美元。
 
-上证指数、深证成指分别累计下跌1.07%、0.02%，创业板指累计上涨3.50%。
+创作者经济正在抢占越来越多的用户注意力，但行业高速扩张，也让品牌与寻求商业合作的创作者陷入更复杂的市场环境。
 
-行业板块中，通信、电子、机械设备行业领涨，涨幅最大的股票中船特气涨逾82%（剔除本周上市新股）。
+部分头部广告主表示，正将投放预算从电视广告、传统数字广告转移至社交平台达人内容；但创作者营销的资金增速，仍落后于消费趋势变化与创作者数量爆发式增长。
 
-Wind数据显示，截至5月15日收盘，A股市场总市值为130.12万亿元。
+创作者普遍反映，预算被过度分散，高性价比的长期深度合作不断减少，大量中小创作者被市场边缘化。
 
-资金层面，Wind数据显示，本周沪深两市主力资金有4个交易日出现净流出，主力资金加仓天孚通信超49亿元。
+YouTube、TikTok 坐拥千万粉丝的创作者桑布查（本名山姆・贝雷斯）表示： “所有创作者都渴望和大品牌合作。
 
-中船特气本周大涨超82% 本周，A股三大指数表现分化，半导体设备、长江存储、工业气体等主题概念板块表现亮眼。
+我们主动抛出合作意向，期待获得合理报酬，但愿意入局投放的品牌终究太少。
 
-Wind数据显示，本周申万一级31个行业中，通信、电子、机械设备、公用事业、家用电器行业上涨，涨幅分别为6.77%、4.70% 、1.81%、1.18%、0.52%；有色金属、钢铁、美容护理行业跌幅居前，分别下跌7.39%、5.92%、5.63%。
+” 广告行业机构互动广告局去年夏季调研显示：48% 的营销人员将达人内容列为媒体投放的 “必选项目”，重要性仅次于搜索广告与社交信息流广告。
 
-数据来源：Wind Wind数据显示，本周A股有115只股票涨幅超20%。
+机构数据显示，2026 年美国广告商在达人赞助帖及相关广告的支出将达 439 亿美元，较 2025 年的 371 亿美元大幅增长。
 
 ## 相关推荐
 
-- 2026-06-29 12:14 - [香港特区政府新一批基建及绿色债券在港发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:58 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:03 - [中国外交部发言人就美国总统特朗普访华情况答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:12 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:11 - [中国第12批援埃塞俄比亚军医专家组出征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:11 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:56 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:56 - [受降雨影响 国铁广州局今明两天部分列车停运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:24 - [宁波银行回应拨备覆盖率下降：整体上符合行业趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:17 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:02 - [九连板之后，002207公告：无注入算力资产的计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:20 - [中钢协：积极开展产能治理、产量调控、行业自律](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:17 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:22 - [快乐出行不“掉坑”，这份网络安全指南请查收！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:28 - [企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:29 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:16 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:26 - [晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:14 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:04 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:19 - [国铁沈阳局五一小长假预计发送旅客740万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:58 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [高盛：中国移动目标价升至94港元 维持“中性”评级](http://www.blog.kurohicncr.top/Article/details/532365410328.shtml)
-- 2026-06-29 12:02 - [以“生活”叙事陕味浓郁 《主角》热播引关注](http://www.blog.minike.top/Article/details/01369806.shtml)
-- 2026-06-29 11:58 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](http://www.share.kurohicncr.top/Article/details/56887142482.shtml)
-- 2026-06-29 12:07 - [光大证券：整固蓄势 积极看多](http://www.blog.kurohicncr.top/Article/details/314908341544.shtml)
-- 2026-06-29 11:55 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](http://www.share.minike.top/Article/details/024226507325.shtml)
-- 2026-06-29 12:15 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](http://www.share.minike.top/Article/details/841779.shtml)
-- 2026-06-29 11:58 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [广西南宁首批10个人工智能OPC创业社区集中开放](http://www.blog.minike.top/Article/details/029071142.shtml)
-- 2026-06-29 12:21 - [中方回应中美是否达成农业方面协议](http://www.blog.kurohicncr.top/Article/details/515795783.shtml)
-- 2026-06-29 11:56 - [沪港文化交流再升级：从“经典展演”到“多元共创”](http://www.share.minike.top/Article/details/80055451.shtml)
-- 2026-06-29 12:13 - [日本不断加速扩军修宪图谋：日本抛修宪构想 拟设紧急政令扩内阁权限](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [国常会：审议通过《加快农业农村现代化“十五五”规划》](http://www.share.minike.top/Article/details/3320696519.shtml)
-- 2026-06-29 11:54 - [债券承销违规！国都证券又被点名，一项目负责人被禁业1年](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [英国国债大跌 投资者为伯纳姆挑战斯塔默做准备](http://www.blog.kurohicncr.top/Article/details/0096735942.shtml)
+- 2026-06-29 12:04 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [五一机票又“跳水”了？](http://www.blog.kurohicncr.top/Article/details/50823.shtml)
+- 2026-06-29 12:20 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](http://www.share.kurohicncr.top/Article/details/96975186.shtml)
+- 2026-06-29 12:14 - [日本公然宣称为“长期战争”做准备 中方回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [金石为开——西安·沈阳名碑拓片特展开幕](http://www.share.kurohicncr.top/Article/details/0454141811.shtml)
+- 2026-06-29 12:01 - [铁路文旅创新融合绘就发展新图景](http://www.blog.minike.top/Article/details/7138149.shtml)
+- 2026-06-29 12:07 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](http://www.share.kurohicncr.top/Article/details/545093.shtml)
+- 2026-06-29 12:03 - [AI赋能“一人公司” 个体创新潜力持续激活](http://www.blog.minike.top/Article/details/932737831.shtml)
+- 2026-06-29 12:12 - [中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%](http://www.share.minike.top/Article/details/135049190592.shtml)
+- 2026-06-29 12:06 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](http://www.share.kurohicncr.top/Article/details/150856.shtml)
+- 2026-06-29 12:26 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](http://www.share.minike.top/Article/details/36635418.shtml)
+- 2026-06-29 12:08 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](http://www.blog.kurohicncr.top/Article/details/003015563.shtml)
+- 2026-06-29 12:20 - [促进高质量充分就业 多项政策出台](http://www.share.minike.top/Article/details/15845.shtml)
+- 2026-06-29 12:16 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](http://www.share.minike.top/Article/details/265888889626.shtml)
+- 2026-06-29 12:08 - [中天策略:4月28日市场分析](http://www.blog.minike.top/Article/details/2792421419.shtml)

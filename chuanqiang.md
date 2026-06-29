@@ -1,57 +1,58 @@
-# 债券承销违规！国都证券又被点名，一项目负责人被禁业1年
+# 前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资
 
-> 更新时间：2026-06-29 12:24:05 UTC+8
+> 更新时间：2026-06-29 12:30:05 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！因在债券承销个别项目中未勤勉尽责，国都证券又被监管点名。 5月15日，北京证监局集中披露了五份行政监管措施决定书。经查，国都证券股份有限公司（下称“国都证券”，870488.NQ）在公司债券承销个别项目中，存在未审慎核查发行人主要客户变化情况及相关销售收入真
+核心要点 谷歌人工智能部门深度思维（DeepMind）的前核心研究员于本周一宣布，其成立仅数月的初创企业Ineffable Intelligence，完成高达 11 亿美元的种子轮融资，创下行业纪录。 这家公司由伦敦大学学院教授、前 DeepMind 强化学习团队负责人戴维・西尔弗于 2025 年末创立，核心目标是研发超级人工智能。 公司称，本轮融资为欧洲有史以来规模最大的种子
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+核心要点 谷歌人工智能部门深度思维（DeepMind）的前核心研究员于本周一宣布，其成立仅数月的初创企业Ineffable Intelligence，完成高达 11 亿美元的种子轮融资，创下行业纪录。
 
-因在债券承销个别项目中未勤勉尽责，国都证券又被监管点名。
+这家公司由伦敦大学学院教授、前 DeepMind 强化学习团队负责人戴维・西尔弗于 2025 年末创立，核心目标是研发超级人工智能。
 
-5月15日，北京证监局集中披露了五份行政监管措施决定书。
+公司称，本轮融资为欧洲有史以来规模最大的种子轮融资，企业整体估值达 51 亿美元。
 
-经查，国都证券股份有限公司（下称“国都证券”，870488.NQ）在公司债券承销个别项目中，存在未审慎核查发行人主要客户变化情况及相关销售收入真实性、应收账款和存货涉及的相关工程项目真实性等问题。
+本轮融资由美国风投机构红杉资本、光速创投联合领投，英伟达、DST 全球、指数创投、谷歌、英国国家主权 AI 基金等机构跟投。
 
-北京证监局指出，上述行为违反了《公司债券发行与交易管理办法》相关规定，决定对国都证券采取监管谈话的行政监管措施，并要求公司主要负责人按指定日期携带有效身份证件到北京证监局接受监管谈话。
+Ineffable Intelligence 将主攻强化学习技术路径：让 AI 模型依靠自主经验自主学习，而非依赖人工标注数据； 这与当前主流依托互联网海量文本训练的大模型形成鲜明差异。
 
-同日，被北京证监局点名的还有国都证券4名项目相关人员。
+西尔弗表示，公司愿景是 “超越语言、科学、数学、技术等人类历史上所有伟大发明的边界”。
 
-其中，项目负责人被禁业1年，3名项目组成员均被采取出具警示函的行政监管措施。
+他在声明中称：“我们的使命，是率先触达并实现超级智能。
 
-具体而言，因上述违规行为，北京证监局认定项目负责人扈海天为不适当人选，自行政监管措施决定作出之日起1年内不得担任证券公司债券承销业务相关职务或实际履行上述职务。
+” “我们正在打造超级自主学习体，使其从基础行动能力到高阶前沿科研突破，完全依靠自身经验探索、习得全部知识。
 
 ## 相关推荐
 
-- 2026-06-29 12:17 - [中国大陆学者首获英国皇家经济学会终身院士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:13 - [Lifeward Q1营收不及预期，战略转型费用拖累盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:11 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:19 - [002342，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:55 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:20 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:14 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:57 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:15 - [浙江省欧美同学会金融委员会举行座谈交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:05 - [特朗普结束访华回国途中，与高市早苗通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:01 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:10 - [民政部：着力推进普惠性、基础性、兜底性民生建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:00 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:03 - [2026年度丽江海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:21 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:10 - [重庆秀山：烟雨“边城” 古韵映春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:02 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:21 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:22 - [韩国宣布与Google DeepMind建立合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:16 - [光大期货：4月28日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:19 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:05 - [深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:28 - [华盛顿发生两起枪击事件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:15 - [天润工业：公司与银轮股份没有业务往来](http://www.share.kurohicncr.top/Article/details/739179289.shtml)
-- 2026-06-29 12:12 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](http://www.share.kurohicncr.top/Article/details/200479943925.shtml)
-- 2026-06-29 11:54 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.blog.kurohicncr.top/Article/details/5753466.shtml)
-- 2026-06-29 12:22 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](http://www.blog.kurohicncr.top/Article/details/444544.shtml)
-- 2026-06-29 12:23 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](http://www.blog.minike.top/Article/details/4469154013.shtml)
-- 2026-06-29 12:08 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](http://www.share.minike.top/Article/details/867073605.shtml)
-- 2026-06-29 12:23 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](http://www.share.kurohicncr.top/Article/details/680260397.shtml)
-- 2026-06-29 11:55 - [总书记引领强国之路｜聚天下英才而用之](http://www.share.kurohicncr.top/Article/details/542466203635.shtml)
-- 2026-06-29 12:07 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](http://www.blog.minike.top/Article/details/0332281.shtml)
-- 2026-06-29 12:13 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](http://www.blog.kurohicncr.top/Article/details/680904.shtml)
-- 2026-06-29 12:21 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](http://www.share.kurohicncr.top/Article/details/81939650.shtml)
-- 2026-06-29 12:19 - [台湾西螺七嵌客家武术流派赴福建诏安交流](http://www.share.kurohicncr.top/Article/details/96443749.shtml)
-- 2026-06-29 11:58 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](http://www.share.minike.top/Article/details/204858716885.shtml)
-- 2026-06-29 12:15 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](http://www.share.minike.top/Article/details/0006780.shtml)
-- 2026-06-29 12:13 - [杭州欧美同学会国际文化交流工作委员会成立](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [“五一”假期预计约600万人次进出香港](http://www.blog.kurohicncr.top/Article/details/06370117337.shtml)
+- 2026-06-29 12:15 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](http://www.share.minike.top/Article/details/12352.shtml)
+- 2026-06-29 12:01 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](http://www.share.minike.top/Article/details/4449269.shtml)
+- 2026-06-29 12:16 - [央行今日开展259亿元7天期逆回购操作](http://www.blog.kurohicncr.top/Article/details/614100150001.shtml)
+- 2026-06-29 12:18 - [传递“乌尔朵”的守边人](http://www.share.minike.top/Article/details/07954979.shtml)
+- 2026-06-29 12:20 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](http://www.share.kurohicncr.top/Article/details/494813343365.shtml)
+- 2026-06-29 12:23 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](http://www.blog.minike.top/Article/details/03703503.shtml)
+- 2026-06-29 12:07 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](http://www.share.minike.top/Article/details/59944.shtml)
+- 2026-06-29 12:19 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](http://www.blog.kurohicncr.top/Article/details/4179932756.shtml)
+- 2026-06-29 12:04 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](http://www.share.minike.top/Article/details/0645300145.shtml)
+- 2026-06-29 12:02 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](http://www.share.kurohicncr.top/Article/details/318699499.shtml)
+- 2026-06-29 12:25 - [渝昆高铁川滇段无砟轨道施工全部完成](http://www.blog.kurohicncr.top/Article/details/5682940153.shtml)
+- 2026-06-29 12:23 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](http://www.blog.kurohicncr.top/Article/details/097438472977.shtml)
+- 2026-06-29 12:20 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](http://www.blog.minike.top/Article/details/98868260470.shtml)
+- 2026-06-29 12:27 - [西安通报5起违反中央八项规定精神问题](http://www.share.minike.top/Article/details/9135873.shtml)
