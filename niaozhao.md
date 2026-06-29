@@ -1,61 +1,58 @@
-# 正确理解“为官不易” 树牢正确政绩观(思想纵横)
+# AI泡沫要崩？黄金跌了该割吗？解读6月投资疑惑
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-领导干部担当作为，是从政本分。针对对“为官不易”的错误认识，习近平总书记指出：“如果组织上管得严一点、群众监督多一点就感到受不了，就要‘为官不易’，那是境界不高、不负责任的表现”，并强调：“‘为官不易’要正确理解，应该理解为用好党和人民赋予的权力不易，按照党和人民的要求严格要求自己不易，自觉接受党和人民监督不易，作出经得起实践、人民、历史检验的政绩不易。”这一重要论述廓清了“为
+来源：吴晓波频道 6月中旬的市场，全球投资者的情绪明显从年初的亢奋转向了谨慎。 往前看几个月，海外市场在AI驱动下，日、韩、美股接连创新高，日经指数涨到了历史新高6.6万上下，韩国指数站上9000点左右，纳斯达克指数也从2万点附近最高上涨到2.7万点。但进入6月后，节奏明显变了：随着美联储降息预期一再延后，市场开始进入“震荡消化”阶段。 国内这边，科技主线在AI算力、半导体、机
 
 ## 正文
 
-领导干部担当作为，是从政本分。
+来源：吴晓波频道 6月中旬的市场，全球投资者的情绪明显从年初的亢奋转向了谨慎。
 
-针对对“为官不易”的错误认识，习近平总书记指出：“如果组织上管得严一点、群众监督多一点就感到受不了，就要‘为官不易’，那是境界不高、不负责任的表现”，并强调：“‘为官不易’要正确理解，应该理解为用好党和人民赋予的权力不易，按照党和人民的要求严格要求自己不易，自觉接受党和人民监督不易，作出经得起实践、人民、历史检验的政绩不易。
+往前看几个月，海外市场在AI驱动下，日、韩、美股接连创新高，日经指数涨到了历史新高6.6万上下，韩国指数站上9000点左右，纳斯达克指数也从2万点附近最高上涨到2.7万点。
 
-”这一重要论述廓清了“为官不易”的思想迷雾和认识误区，为树立和践行正确政绩观指明了方向。
+但进入6月后，节奏明显变了：随着美联储降息预期一再延后，市场开始进入“震荡消化”阶段。
 
-新时代以来，我们党对领导干部的要求提高了、管理严格了，营造了干净干事、大胆干事的良好政治生态。
+国内这边，科技主线在AI算力、半导体、机器人、商业航天之间轮动，传统的蓝筹股依旧保持着“跌跌不休”的态势，虽然说是牛市，但是想在市场里获得收益并不简单。
 
-然而，个别领导干部却把严管视为束缚，对“为官不易”形成了错误认识，不愿担当、不想干事，还把不干事的原因归咎到严管上。
+2026年已经过半，在当下这个节点，很多投资者既怕踏空，又怕追高，不知道自己年初规划的配置是否需要调整。
 
-这种错误观念的根子在于宗旨意识淡化，只想当官享福、不想为民谋利。
+海外市场：新高之后的震荡与机会 Q1 日韩指数从三月份的大跌中已经差不多翻倍，美股也创历史新高，现在还能追吗？
 
-须知严管不是束缚，而是干事创业的“安全屏障”。
+已经持有的要不要兑现利润？
 
-“不易”更不是“不为”的借口，面对艰巨的改革发展稳定任务，领导干部只有实干苦干，才能扛起应该扛的重担。
+赵启欣老师：这是现在被问得最多的问题。
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 20:05 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 19:45 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 19:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 19:44 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 19:55 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 19:53 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 19:38 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 20:03 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 19:40 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 19:58 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 19:36 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 20:03 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 19:55 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 19:58 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 19:49 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 20:02 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 19:42 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 19:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 20:11 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 19:47 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 20:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 19:57 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 20:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 19:53 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 19:43 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 20:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/03854293.shtml)
-- 2026-06-29 20:04 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/3544839567.shtml)
-- 2026-06-29 20:03 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/093022165.shtml)
-- 2026-06-29 19:49 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/3055360030.shtml)
-- 2026-06-29 19:55 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/07602095107.shtml)
-- 2026-06-29 19:46 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/62075.shtml)
-- 2026-06-29 19:47 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/48322754506.shtml)
-- 2026-06-29 19:59 - [女生每天戴耳机18小时突发耳聋](https://www.share.minike.top/Article/details/3130429622.shtml)
-- 2026-06-29 19:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/333158.shtml)
-- 2026-06-29 19:45 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.minike.top/Article/details/265930253.shtml)
-- 2026-06-29 19:42 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/0380671224.shtml)
-- 2026-06-29 19:37 - [送你一朵小红花](https://www.share.minike.top/Article/details/63501.shtml)
-- 2026-06-29 19:54 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/03747.shtml)
-- 2026-06-29 19:47 - [女生学医适合选什么专业](https://www.share.kurohicncr.top/Article/details/62484608.shtml)
-- 2026-06-29 19:37 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/36109210314.shtml)
+- 2026-06-29 19:57 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/59049765763.shtml)
+- 2026-06-29 20:01 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/5066055870.shtml)
+- 2026-06-29 19:48 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/441116824.shtml)
+- 2026-06-29 19:48 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/732690.shtml)
+- 2026-06-29 19:58 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/378164856845.shtml)
+- 2026-06-29 20:01 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/6619030.shtml)
+- 2026-06-29 20:06 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/7999856.shtml)
+- 2026-06-29 20:08 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/156847.shtml)
+- 2026-06-29 19:57 - [王楚钦称抽签结果出来心情不好](https://www.blog.minike.top/Article/details/05802638600.shtml)
+- 2026-06-29 19:44 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.kurohicncr.top/Article/details/7688501.shtml)
+- 2026-06-29 20:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/2780417259.shtml)
+- 2026-06-29 20:04 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/96195111371.shtml)
+- 2026-06-29 20:04 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/661238314414.shtml)
+- 2026-06-29 20:04 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/996657844.shtml)
+- 2026-06-29 19:51 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/598223275.shtml)

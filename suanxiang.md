@@ -1,49 +1,55 @@
-# 上海银行党委书记、董事长顾建忠：成本收入比是个伪命题，真正重要的是ROE
+# 重庆海关关于送达《中华人民共和国重庆海关企业信用等级认定决定书》（渝关认〔2026〕3号）的公告
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行党委书记、董事长顾建忠直言，成本收入比是个伪命题，真正重要的是ROE（净资产收益率）。从当下价值创造来看，长远而言，如何保持可持续的竞争力才是关键，一两次的成功如果无法持续也不行。责任编辑：秦艺
+根据《中华人民共和国海关注册登记和备案企业信用管理办法》(海关总署令第251号，以下简称《信用管理办法》)有关规定，我关决定于2026年5月28日起认定重庆智澜汽车销售服务有限公司(统一社会信用代码：91500106MA5U56JH78)为失信企业。因直接送达、邮寄送达等方式均无法送达，现依法公告送达《中华人民共和国重庆海关企业信用等级认定决定书》(渝关认〔2026〕3号，见附
 
 ## 正文
 
-4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行党委书记、董事长顾建忠直言，成本收入比是个伪命题，真正重要的是ROE（净资产收益率）。
+根据《中华人民共和国海关注册登记和备案企业信用管理办法》(海关总署令第251号，以下简称《信用管理办法》)有关规定，我关决定于2026年5月28日起认定重庆智澜汽车销售服务有限公司(统一社会信用代码：91500106MA5U56JH78)为失信企业。
 
-从当下价值创造来看，长远而言，如何保持可持续的竞争力才是关键，一两次的成功如果无法持续也不行。
+因直接送达、邮寄送达等方式均无法送达，现依法公告送达《中华人民共和国重庆海关企业信用等级认定决定书》(渝关认〔2026〕3号，见附件)。
 
-责任编辑：秦艺
+请你单位自公告之日起30日内到我关领取上述文书正本，逾期视为送达。
+
+联系地址：重庆市渝北区龙山一路1号。
+
+联系电话：023—67709456。
+
+特此公告。
+
+附件：中华人民共和国重庆海关企业信用等级认定决定书(渝关认〔2026〕3号).pdf
 
 ## 相关推荐
 
-- 2026-06-29 19:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 19:37 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 19:44 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 19:50 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 19:46 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 19:46 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 19:57 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 19:57 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 19:56 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 19:50 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 19:49 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 19:45 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 19:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 19:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 19:48 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 19:54 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 20:02 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 19:49 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 19:52 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 19:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 19:47 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 19:56 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 19:49 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 20:05 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:38 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/056856896225.shtml)
-- 2026-06-29 19:40 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/09732444.shtml)
-- 2026-06-29 19:44 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/866456.shtml)
-- 2026-06-29 20:01 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/0386226.shtml)
-- 2026-06-29 19:43 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/42494547.shtml)
-- 2026-06-29 19:37 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/4879369116.shtml)
-- 2026-06-29 19:44 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/7848611838.shtml)
-- 2026-06-29 19:40 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/39572.shtml)
-- 2026-06-29 19:44 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/83409215424.shtml)
-- 2026-06-29 20:00 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/474262.shtml)
-- 2026-06-29 19:54 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/77627825.shtml)
-- 2026-06-29 20:01 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/7182117.shtml)
-- 2026-06-29 19:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/535026005.shtml)
-- 2026-06-29 19:58 - [北京市发布雷电黄色预警](https://www.share.minike.top/Article/details/3045205669.shtml)
-- 2026-06-29 19:58 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/767090.shtml)
+- 2026-06-29 19:49 - [大马同意延长马航370残骸搜寻工作](http://www.blog.minike.top/Article/details/521230.shtml)
+- 2026-06-29 19:58 - [急先锋](https://www.share.minike.top/Article/details/816241475668.shtml)
+- 2026-06-29 19:42 - [北京市发布雷电黄色预警](http://www.share.kurohicncr.top/Article/details/74859016599.shtml)
+- 2026-06-29 20:00 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/136366010750.shtml)
+- 2026-06-29 19:56 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/656970.shtml)
+- 2026-06-29 20:00 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/1503974.shtml)
+- 2026-06-29 19:59 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/250295813.shtml)
+- 2026-06-29 19:58 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/521836063554.shtml)
+- 2026-06-29 19:47 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/6575107833.shtml)
+- 2026-06-29 19:48 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/40574630.shtml)
+- 2026-06-29 20:09 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/326996397.shtml)
+- 2026-06-29 20:00 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/355680132498.shtml)
+- 2026-06-29 19:50 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/0036962.shtml)
+- 2026-06-29 20:08 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/31871364.shtml)
+- 2026-06-29 19:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/90528365725.shtml)

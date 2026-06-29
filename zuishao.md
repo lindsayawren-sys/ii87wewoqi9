@@ -1,60 +1,59 @@
-# 全球金融市场即将迎来“超级央行周” 美联储重磅来袭！降息大消息！
+# 海德股份(000567)被处罚，股民索赔可期
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-全球金融市场即将迎来“超级央行周”。 展望下周，美联储、欧洲央行、英国央行、日本央行和加拿大央行都将陆续公布利率决议，目前市场普遍预期，五大央行都将“按兵不动”。 值得一提的是，即将召开的议息会议或将是美联储主席鲍威尔的“最后一舞”，其主席任期将于5月15日结束。美国司法部最新表示，将结束对鲍威尔的刑事调查，从而扫清了阻碍美国总统特朗普提名的下任美联储主席人选凯文·沃什接任的关
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月10日，海南海德资本管理股份有限公司（简称：海德股份（维权），代码：000567）发布《关于公司及相关人员收到行政处罚决定书的公告》。 经中国证监会海南监管局查明，海德股份、王广西涉嫌违法的事实如下：2021年3月，海德股份开展不良资产收购重组业务，海德股份及其子公司海徳资产管理有限公 司陆续向交易对手方支付收购价
 
 ## 正文
 
-全球金融市场即将迎来“超级央行周”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月10日，海南海德资本管理股份有限公司（简称：海德股份（维权），代码：000567）发布《关于公司及相关人员收到行政处罚决定书的公告》。
 
-展望下周，美联储、欧洲央行、英国央行、日本央行和加拿大央行都将陆续公布利率决议，目前市场普遍预期，五大央行都将“按兵不动”。
+经中国证监会海南监管局查明，海德股份、王广西涉嫌违法的事实如下：2021年3月，海德股份开展不良资产收购重组业务，海德股份及其子公司海徳资产管理有限公 司陆续向交易对手方支付收购价款。
 
-值得一提的是，即将召开的议息会议或将是美联储主席鲍威尔的“最后一舞”，其主席任期将于5月15日结束。
+2021年4月，海德股份交易对手方将收购价款中的8.84亿元代 海德股份关联方海南新海基投资有限公司偿还借款。
 
-美国司法部最新表示，将结束对鲍威尔的刑事调查，从而扫清了阻碍美国总统特朗普提名的下任美联储主席人选凯文·沃什接任的关键障碍。
+上述行为构成资金占用。
 
-受此影响，市场对美联储2026年年内降息的预期有所升温。
+海德股份2021年末、2022年末、2023年末、2024年6月30日资金占用余额均为8.84亿元，分别占当期定期报告记载净资产的18.65%、17.04%、16.08%、16.69%，未在相应定期报告中披露前述资金占用情况。
 
-与此同时，美股市场还将迎来“超级财报周”——美股“科技七巨头”中的苹果、谷歌、微软、Meta和亚马逊将密集披露财报。
+海德股份在2024年年度报告中披露了上述资金占用情况。
 
-有分析指出，考虑到“科技七巨头”在美股市场的市值占比，一旦业绩不及预期，或将引发美股市场剧烈波动。
+截至2025年4月，上述占用资金及相应利息已全部归还。
 
-“超级央行周”来袭 展望下周，全球金融市场关注的焦点将是美联储的议息会议。
+中国证监会海南监管局认为，海德股份上述违法行为涉嫌违反《证券法》第七十八条第二款的规定，构成《证券法》第一百九十七条第二款所述信息披露违法行为。
 
 ## 相关推荐
 
-- 2026-06-29 19:53 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 20:00 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 19:38 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 20:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 19:46 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 19:48 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 19:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 19:50 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 19:46 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 19:36 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 19:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 19:38 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 19:44 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 19:42 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 19:42 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 20:10 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 19:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 20:01 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 19:56 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 19:45 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 20:00 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 19:59 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 19:42 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 20:09 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 19:52 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 19:48 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 19:59 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/9388983.shtml)
-- 2026-06-29 19:51 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/75616.shtml)
-- 2026-06-29 19:54 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/5767745591.shtml)
-- 2026-06-29 19:45 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/5378363036.shtml)
-- 2026-06-29 19:37 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/991904.shtml)
-- 2026-06-29 19:45 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/95184822664.shtml)
-- 2026-06-29 20:04 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/397525687361.shtml)
-- 2026-06-29 19:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/2887493570.shtml)
-- 2026-06-29 19:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/79635931969.shtml)
-- 2026-06-29 19:51 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/13693751.shtml)
-- 2026-06-29 19:48 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/368243443161.shtml)
-- 2026-06-29 19:48 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/241402.shtml)
-- 2026-06-29 19:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/7126572.shtml)
-- 2026-06-29 20:01 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/064520.shtml)
-- 2026-06-29 20:05 - [教育部高校学生资助热线7月1日开通](https://www.blog.minike.top/Article/details/382124.shtml)
+- 2026-06-29 19:42 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/04678292407.shtml)
+- 2026-06-29 19:54 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/799765590704.shtml)
+- 2026-06-29 20:08 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/91786071485.shtml)
+- 2026-06-29 20:01 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/83113349497.shtml)
+- 2026-06-29 20:08 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/9135659867.shtml)
+- 2026-06-29 19:52 - [法生态部长反对装空调却自己吹空调](https://www.blog.kurohicncr.top/Article/details/316921613898.shtml)
+- 2026-06-29 19:44 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/81120895562.shtml)
+- 2026-06-29 19:42 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/14936697.shtml)
+- 2026-06-29 20:01 - [欧洲极端高温如何影响家电股](https://www.blog.minike.top/Article/details/4274082069.shtml)
+- 2026-06-29 20:11 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/660188.shtml)
+- 2026-06-29 19:55 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/509241.shtml)
+- 2026-06-29 19:42 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/13592065.shtml)
+- 2026-06-29 19:48 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/16596939.shtml)
+- 2026-06-29 20:01 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/5465957.shtml)
+- 2026-06-29 19:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/39060.shtml)

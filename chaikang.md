@@ -1,61 +1,60 @@
-# 学习手记｜总书记为全民阅读躬身示范
+# 奔驰中国又裁员了？巨头奔驰的持续收缩意味着什么？
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-今年4月第四周是首个“全民阅读活动周”。从“4·23世界读书日”到“全民阅读活动周”，不仅是时间的延长，更是全民阅读工作的进一步深入。 “希望全社会都参与到阅读中来，形成爱读书、读好书、善读书的浓厚氛围。”2022年，习近平总书记在致首届全民阅读大会举办的贺信中，向全社会提出期盼。在总书记指引下，全民阅读风尚一步步深化。 书香致远，初心如磐。 从梁家河的窑洞到中南海的书房，从躬
+曾经，开宝马坐奔驰是中国人的一种豪车信仰，然而就在最近这个信仰似乎发生了变化，在上次裁员一年多之后，奔驰中国又开始裁员的消息传来，巨头奔驰的持续缩水到底意味着什么？ 一、奔驰中国又裁员了？ 《经济日报》消息称，继2025年2月首轮人员优化之后，北京奔驰（以下简称“北奔”）在不到一年半的时间内，再度启动大规模结构性裁员。 本轮裁员主要集中在北奔销售板块，计划将现有约900名员工缩
 
 ## 正文
 
-今年4月第四周是首个“全民阅读活动周”。
+曾经，开宝马坐奔驰是中国人的一种豪车信仰，然而就在最近这个信仰似乎发生了变化，在上次裁员一年多之后，奔驰中国又开始裁员的消息传来，巨头奔驰的持续缩水到底意味着什么？
 
-从“4·23世界读书日”到“全民阅读活动周”，不仅是时间的延长，更是全民阅读工作的进一步深入。
+一、奔驰中国又裁员了？
 
-“希望全社会都参与到阅读中来，形成爱读书、读好书、善读书的浓厚氛围。
+《经济日报》消息称，继2025年2月首轮人员优化之后，北京奔驰（以下简称“北奔”）在不到一年半的时间内，再度启动大规模结构性裁员。
 
-”2022年，习近平总书记在致首届全民阅读大会举办的贺信中，向全社会提出期盼。
+本轮裁员主要集中在北奔销售板块，计划将现有约900名员工缩减至600人以内。
 
-在总书记指引下，全民阅读风尚一步步深化。
+裁员分为两个阶段推进，目前正在落地的裁员比例为10%，员工补偿标准为N+6；后续年底还将开启第二轮裁员工作，全面完成本轮组织缩编。
 
-书香致远，初心如磐。
+相较于2025年首轮调整，奔驰中国的第二轮裁员，力度与福利标准明显收紧。
 
-从梁家河的窑洞到中南海的书房，从躬耕基层到领航中国，习近平总书记一直将读书视为“最大的爱好”和“一种生活方式”，并通过读书、谈书、赠书，将个人修养、文化传承与民族复兴、文明交流深刻联结。
+2025年2月，奔驰开启首轮大规模裁员时，给出的基础补偿为N+9，现场签约员工可额外获得3个月工资补贴；若员工两个月内未入职新单位，还可享受过渡期薪资补偿，整体最高赔付标准可达N+11，被视作豪华车企温和优化的典型案例。
 
-“一物不知，深以为耻，便求知若渴。
+而本轮裁员仅保留了N+6的基础补偿政策，取消了此前的签约奖励与过渡期工资补贴，员工权益保障力度缩水。
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 19:41 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 19:44 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 19:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 19:55 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 20:05 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 20:05 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 19:58 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 19:43 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 19:58 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 19:44 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 19:45 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 19:50 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 19:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 19:59 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 19:47 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 19:57 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 20:00 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 20:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 19:52 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 19:43 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 20:00 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 19:55 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 19:51 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 19:57 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 20:03 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 19:52 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 19:56 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 19:45 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/769733001008.shtml)
-- 2026-06-29 19:41 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/06888491.shtml)
-- 2026-06-29 19:52 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/29520390.shtml)
-- 2026-06-29 19:43 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/12131031.shtml)
-- 2026-06-29 19:52 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/6522231.shtml)
-- 2026-06-29 19:48 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/1063253.shtml)
-- 2026-06-29 19:39 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/4963016.shtml)
-- 2026-06-29 19:49 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/999312000.shtml)
-- 2026-06-29 20:02 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/6829779888.shtml)
-- 2026-06-29 19:41 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/82260.shtml)
-- 2026-06-29 19:45 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/254199758332.shtml)
-- 2026-06-29 20:04 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/347495312.shtml)
-- 2026-06-29 19:38 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/81905498.shtml)
-- 2026-06-29 19:40 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/9623471.shtml)
-- 2026-06-29 19:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/00639413271.shtml)
+- 2026-06-29 20:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/7211209789.shtml)
+- 2026-06-29 19:44 - [店员光脚踩入盆中清洗土豆](https://www.share.minike.top/Article/details/086223279.shtml)
+- 2026-06-29 20:09 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.kurohicncr.top/Article/details/3987086.shtml)
+- 2026-06-29 20:04 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/83342634296.shtml)
+- 2026-06-29 20:07 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/487850561194.shtml)
+- 2026-06-29 19:52 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/9299522.shtml)
+- 2026-06-29 19:47 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/91950206799.shtml)
+- 2026-06-29 19:50 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/905542.shtml)
+- 2026-06-29 19:42 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/39586501921.shtml)
+- 2026-06-29 20:02 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/23228729.shtml)
+- 2026-06-29 19:42 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/324507937.shtml)
+- 2026-06-29 19:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/606083.shtml)
+- 2026-06-29 19:53 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/10998699.shtml)
+- 2026-06-29 19:48 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/627923.shtml)
+- 2026-06-29 20:11 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/8232336.shtml)

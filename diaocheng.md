@@ -1,57 +1,53 @@
-# 上门医疗服务价格政策落地——普惠型便民医疗迎来新发展
+# 智谱早盘涨超6% 公司已推出最新一代旗舰模型GLM-5.2
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-“老伴儿卧床，以前每次去医院都要全家出动，费力又折腾。现在护理人员定期上门，费用也明明白白，真是解决了我们家的大难题！”北京市丰台区一位居民的感慨，道出了众多行动不便患者及其家庭的心声。 据统计，我国65周岁及以上老年人口约占总人口的15.9%，已步入中度老龄化阶段。不少老年人自主行动能力受限，往返医院就医成为困扰患者及家属的一大难题，患者及患者家庭对居家医疗、上门医疗服务的需
+智谱（02513）早盘涨近7%，截至发稿，股价上涨6.18%，现报1547港元，成交额10.69亿港元。 6月15日，智谱发布公告，公司已推出最新一代旗舰模型GLM-5.2，模型提供达到1M的长上下文，并在长程任务中继续保持领先，将遵循MIT协议开源。预计该模型将助益公司后续开放平台及API业务的调用量提升。麦格理认为，智谱推出GLM-5.2带来正面影响，可能加强该公司在随后订
 
 ## 正文
 
-“老伴儿卧床，以前每次去医院都要全家出动，费力又折腾。
+智谱（02513）早盘涨近7%，截至发稿，股价上涨6.18%，现报1547港元，成交额10.69亿港元。
 
-现在护理人员定期上门，费用也明明白白，真是解决了我们家的大难题！
+6月15日，智谱发布公告，公司已推出最新一代旗舰模型GLM-5.2，模型提供达到1M的长上下文，并在长程任务中继续保持领先，将遵循MIT协议开源。
 
-”北京市丰台区一位居民的感慨，道出了众多行动不便患者及其家庭的心声。
+预计该模型将助益公司后续开放平台及API业务的调用量提升。
 
-据统计，我国65周岁及以上老年人口约占总人口的15.9%，已步入中度老龄化阶段。
+麦格理认为，智谱推出GLM-5.2带来正面影响，可能加强该公司在随后订阅计划中的定价能力，这应会继续推动强劲的年度经常性收入增长势头。
 
-不少老年人自主行动能力受限，往返医院就医成为困扰患者及家属的一大难题，患者及患者家庭对居家医疗、上门医疗服务的需求日益迫切。
+中金指出，根据该行和众多开发者测评，GLM-5.2整体编程能力相较GLM-5.1均有明显进步，在具备优势的后端领域多项测评任务已可以对标Claude Opus 4.6；前端任务的审美、精细度和可控性也有明显提高，综合编程能力继续稳居国产模型第一，也是国模首个真实能力达到Opus 4.6的模型，并逐步拉开和其他国产模型的差距。
 
-在此背景下，国家医保局在综合诊查类医疗服务价格项目立项指南中统一新增“上门服务费”价格项目。
-
-记者了解到，目前各地已对接落地制定价格，鼓励医疗机构为行动不便的院外患者上门提供医疗服务，推动优质医疗资源走进家庭。
-
-价格立项落地，上门服务收费有规可依过去，各地为满足居家医疗需求，多采取将“上门服务”和具体服务事项组合立项的方式，如设立“上门护理”“上门注射”“上门换药”等价格项目。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:57 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 19:58 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 20:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 19:54 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 19:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 19:58 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 19:41 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 20:04 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 19:59 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 19:54 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 20:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 19:45 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 19:52 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 19:55 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 19:45 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 20:02 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 19:55 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 19:49 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 19:50 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 20:01 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 19:49 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 19:50 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/8476380.shtml)
-- 2026-06-29 19:47 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/28045981405.shtml)
-- 2026-06-29 19:51 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/8817221.shtml)
-- 2026-06-29 19:43 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/07029535341.shtml)
-- 2026-06-29 20:03 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/853480029485.shtml)
-- 2026-06-29 19:51 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/181695.shtml)
-- 2026-06-29 19:57 - [女心理师](http://www.blog.minike.top/Article/details/85306895.shtml)
-- 2026-06-29 20:00 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/78306341317.shtml)
-- 2026-06-29 19:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/0056283912.shtml)
-- 2026-06-29 19:57 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/90594585391.shtml)
-- 2026-06-29 19:41 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/11679.shtml)
-- 2026-06-29 19:50 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/80364436.shtml)
-- 2026-06-29 20:00 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/613558451129.shtml)
-- 2026-06-29 19:56 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/67319.shtml)
-- 2026-06-29 19:48 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/22461.shtml)
+- 2026-06-29 19:58 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/96244237695.shtml)
+- 2026-06-29 20:10 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/8685690.shtml)
+- 2026-06-29 19:50 - [扩军害了世界杯吗](http://www.blog.minike.top/Article/details/531785009.shtml)
+- 2026-06-29 20:01 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/448425.shtml)
+- 2026-06-29 19:44 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/346953315992.shtml)
+- 2026-06-29 20:09 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/99932.shtml)
+- 2026-06-29 19:47 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/6154271449.shtml)
+- 2026-06-29 19:50 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/158024013894.shtml)
+- 2026-06-29 19:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/02956788.shtml)
+- 2026-06-29 20:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/812137707.shtml)
+- 2026-06-29 20:02 - [流金岁月](https://www.share.kurohicncr.top/Article/details/67454815.shtml)
+- 2026-06-29 20:05 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/42635079.shtml)
+- 2026-06-29 20:00 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/9384729.shtml)
+- 2026-06-29 20:05 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/762870394.shtml)
+- 2026-06-29 19:57 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/05816498.shtml)

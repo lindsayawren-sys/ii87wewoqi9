@@ -1,60 +1,61 @@
-# 酒价内参4月27日价格发布：水晶剑南春显著上涨3元
+# “银行系”公募换帅！张宏良到龄离任 非货规模缩水432亿，袁庆伟代行董事长职务
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月27日整体温和走高。如果主要单品各取一瓶整体打包售卖，今日总售价为9971元，较昨日上涨12元，创下4月3日以来新高。市场在前一日回调后重拾涨势，终端交投情绪保持平稳，核心单品涨跌分化依然显著。 今日白酒市场11大单品七涨三跌一平，赢家明显占优。上涨方面，古井贡古20涨幅居前，上涨6元/瓶
+近日，交银施罗德基金管理有限公司发布高级管理人员变更公告。公司董事长张宏良因近法定退休年龄，按内部制度要求退出一线管理岗位，正式卸任董事长职务。在公司新任董事长到任前，由总经理袁庆伟代为履行董事长职责。 张宏良掌舵一年半：总规模基本持平，产品数量扩张，非货规模有所下降 出生于1966年的张宏良，职业生涯横跨保险、银行理财与公募三界。历任中国太平洋人寿保险公司乌鲁木齐分公司、河南
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月27日整体温和走高。
+近日，交银施罗德基金管理有限公司发布高级管理人员变更公告。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9971元，较昨日上涨12元，创下4月3日以来新高。
+公司董事长张宏良因近法定退休年龄，按内部制度要求退出一线管理岗位，正式卸任董事长职务。
 
-市场在前一日回调后重拾涨势，终端交投情绪保持平稳，核心单品涨跌分化依然显著。
+在公司新任董事长到任前，由总经理袁庆伟代为履行董事长职责。
 
-今日白酒市场11大单品七涨三跌一平，赢家明显占优。
+张宏良掌舵一年半：总规模基本持平，产品数量扩张，非货规模有所下降 出生于1966年的张宏良，职业生涯横跨保险、银行理财与公募三界。
 
-上涨方面，古井贡古20涨幅居前，上涨6元/瓶，收获三连涨迭创一个月来新高；精品茅台上涨5元/瓶；价盘一向稳重的水晶剑南春显著上涨3元/瓶；五粮液普五八代、洋河梦之蓝M6+及习酒君品均上涨2元/瓶；国窖1573小幅上涨1元/瓶。
+历任中国太平洋人寿保险公司乌鲁木齐分公司、河南（郑州）分公司、上海分公司党委书记、总经理，交银人寿保险有限公司党委书记、董事长、总裁，兼任交银康联资产管理有限公司董事长，交银理财有限责任公司党委书记、董事长。
 
-下跌方面，青花汾20跌幅居前，下跌4元/瓶；飞天茅台下跌3元/瓶；青花郎小幅回落2元/瓶。
+2024年8月，张宏良加入交银施罗德基金担任党委书记、董事，同年10月起出任董事长，至卸任时任职仅一年多。
 
-五粮液1618的价格环比保持不变。
+这已是交银施罗德基金近两年内第二次因到达退休年龄而进行的董事长更替——2024年8月，前任董事长阮红同样因到龄退休卸任。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+公司公告中，公司在公告中对张宏良任职期间的工作给予高度评价，称其“立足公司既有发展优势，带领公司积极应对行业变革，着力推动发展方式转变，形成“资产管理与财富管理双轮驱动”的发展格局。
 
 ## 相关推荐
 
-- 2026-06-29 19:41 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 19:40 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 19:40 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 19:54 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 19:49 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 19:56 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 20:00 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 19:48 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 19:52 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 19:37 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 19:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 19:38 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 19:58 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 20:03 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 20:00 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 19:53 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 19:59 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 20:02 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 19:48 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 19:44 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 19:46 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 19:56 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 20:06 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 19:51 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 19:55 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 19:48 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 20:01 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 20:01 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 20:07 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:59 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/4847258.shtml)
-- 2026-06-29 19:50 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/3480973.shtml)
-- 2026-06-29 20:05 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/019143.shtml)
-- 2026-06-29 19:42 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/266160310229.shtml)
-- 2026-06-29 19:56 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/13649735.shtml)
-- 2026-06-29 19:47 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/474527.shtml)
-- 2026-06-29 19:58 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/848366050560.shtml)
-- 2026-06-29 19:40 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/33970.shtml)
-- 2026-06-29 20:04 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/08081.shtml)
-- 2026-06-29 19:39 - [主力抛售电子和通信板块](http://www.share.kurohicncr.top/Article/details/202552.shtml)
-- 2026-06-29 19:47 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/536204654841.shtml)
-- 2026-06-29 19:58 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/130542894000.shtml)
-- 2026-06-29 19:59 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/5031625.shtml)
-- 2026-06-29 19:41 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/3589192.shtml)
-- 2026-06-29 19:49 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/33797.shtml)
+- 2026-06-29 20:10 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/0144960184.shtml)
+- 2026-06-29 19:56 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/64547.shtml)
+- 2026-06-29 20:04 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/97181333962.shtml)
+- 2026-06-29 20:09 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/237059935782.shtml)
+- 2026-06-29 20:04 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/176335553220.shtml)
+- 2026-06-29 19:59 - [天道](http://www.blog.kurohicncr.top/Article/details/5763787966.shtml)
+- 2026-06-29 19:51 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/469495.shtml)
+- 2026-06-29 19:44 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/6502782211.shtml)
+- 2026-06-29 20:06 - [速度与激情9](https://www.share.minike.top/Article/details/228166.shtml)
+- 2026-06-29 20:09 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/40958301284.shtml)
+- 2026-06-29 19:58 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/3156381034.shtml)
+- 2026-06-29 20:10 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/5808540.shtml)
+- 2026-06-29 20:08 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/561919.shtml)
+- 2026-06-29 20:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/93075.shtml)
+- 2026-06-29 19:46 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/80228721.shtml)

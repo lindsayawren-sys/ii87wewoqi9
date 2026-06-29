@@ -1,61 +1,59 @@
-# 嬴彻科技马喆人：预计2028年智驾里程达50亿公里，为高速重卡L4奠定数据基石
+# 陕西：近千名“泳士”逐浪丹江 助力体育与文旅融合发展
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-专题：第二届自动驾驶产业发展论坛 4月25日，第二届自动驾驶产业发展论坛在北京召开，主题为“加速自动驾驶产业发展 凝聚自动驾驶安全共识”。嬴彻科技创始人兼CEO马喆人出席并演讲。 马喆人介绍到，在L4方面，嬴彻在中国是目前智能重卡测试牌照最多的公司，在北京、浙江、海南及更多地方，依托牌照在做面向最高阶无人驾驶的探索尝试。 同时，在L2+方面，嬴彻是全球最早实现L2+ NOA量产
+中新网陕西商洛6月13日电 (记者 张一辰)2026丹江公开水域游泳挑战赛13日在商洛市银杏公园鸣枪开赛。来自全国26支代表队的近千名游泳健儿纵身跃入清澈的丹江，展开一场速度与耐力的水上较量。 丹江碧波里，各色泳帽点点攒动。1500米选手劈波斩浪、你追我赶；畅游组悠然舒展，享受着大自然带来的惬意。岸边，加油声、欢呼声此起彼伏，不少市民和游客早早来到江滨步道，驻足观看这场家门口的
 
 ## 正文
 
-专题：第二届自动驾驶产业发展论坛 4月25日，第二届自动驾驶产业发展论坛在北京召开，主题为“加速自动驾驶产业发展 凝聚自动驾驶安全共识”。
+中新网陕西商洛6月13日电 (记者 张一辰)2026丹江公开水域游泳挑战赛13日在商洛市银杏公园鸣枪开赛。
 
-嬴彻科技创始人兼CEO马喆人出席并演讲。
+来自全国26支代表队的近千名游泳健儿纵身跃入清澈的丹江，展开一场速度与耐力的水上较量。
 
-马喆人介绍到，在L4方面，嬴彻在中国是目前智能重卡测试牌照最多的公司，在北京、浙江、海南及更多地方，依托牌照在做面向最高阶无人驾驶的探索尝试。
+丹江碧波里，各色泳帽点点攒动。
 
-同时，在L2+方面，嬴彻是全球最早实现L2+ NOA量产的公司，目前已与中国前六名主机厂中的五家建立量产研发合作，超过20款智能重卡车型实现前装量产。
+1500米选手劈波斩浪、你追我赶；畅游组悠然舒展，享受着大自然带来的惬意。
 
-在量产规模和年度销量上，均为中国乃至全世界第一。
+岸边，加油声、欢呼声此起彼伏，不少市民和游客早早来到江滨步道，驻足观看这场家门口的水上盛会。
 
-他提到，L2+和L4二者的关系，首先体现在数据上。
+据了解，作为南水北调中线工程核心水源涵养区，丹江口库区水质常年保持Ⅱ类以上。
 
-目前，搭载嬴彻智能辅助驾驶系统的各品牌重卡，在AD智驾状态下的商用里程已超过7亿公里，不仅全球领先，还覆盖了中国97%的高速网络。
+本次赛事赛道选在丹江立交桥至望江楼段，两岸3.4公里的银杏公园绿意连绵，选手们在碧波中畅游，既是对自身体能的挑战，也是对商洛“中国气候康养之都”生态名片的诠释。
 
-其次，体现在产品化，不仅仅要做好的技术，而且一定是高度安全、稳定、有性价比的产品。
+赛事组委会相关负责人表示，近年来，商洛依托自然和人文资源，先后成功举办国际排联U19沙排世锦赛、U15世界中学生排球锦标赛、全国中学生排球区域联赛总决赛等100余场国际、国内品牌赛事，逐步构建起多元化的体育赛事体系。
 
 ## 相关推荐
 
-- 2026-06-29 19:52 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 19:45 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 19:47 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 19:47 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 20:01 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 20:01 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 19:57 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 19:39 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 19:52 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 20:00 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 20:01 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 19:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 19:47 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 20:05 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 20:03 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 20:04 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 19:50 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 19:57 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 20:02 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 20:08 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 20:06 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 19:57 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 19:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 20:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 19:58 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 20:03 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 19:53 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 19:42 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:45 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/2166329965.shtml)
-- 2026-06-29 19:41 - [大马同意延长马航370残骸搜寻工作](http://www.blog.minike.top/Article/details/87262581911.shtml)
-- 2026-06-29 19:53 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.minike.top/Article/details/54090.shtml)
-- 2026-06-29 19:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/530107302737.shtml)
-- 2026-06-29 19:59 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/2490988.shtml)
-- 2026-06-29 19:49 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/33254.shtml)
-- 2026-06-29 19:58 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/2448006797.shtml)
-- 2026-06-29 19:59 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.kurohicncr.top/Article/details/351890.shtml)
-- 2026-06-29 19:46 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/300409048795.shtml)
-- 2026-06-29 19:40 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/827466086870.shtml)
-- 2026-06-29 19:55 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/52085689.shtml)
-- 2026-06-29 19:36 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/495047.shtml)
-- 2026-06-29 19:54 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/8850155864.shtml)
-- 2026-06-29 20:01 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/15153988.shtml)
-- 2026-06-29 20:01 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/581772248447.shtml)
+- 2026-06-29 19:53 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/43013.shtml)
+- 2026-06-29 20:11 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/87954178546.shtml)
+- 2026-06-29 20:05 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/8347652.shtml)
+- 2026-06-29 19:45 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/5177551.shtml)
+- 2026-06-29 19:47 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/6263863.shtml)
+- 2026-06-29 19:47 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/95293.shtml)
+- 2026-06-29 20:02 - [伊朗足球队将启程回国](https://www.blog.minike.top/Article/details/8623702.shtml)
+- 2026-06-29 19:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/73853.shtml)
+- 2026-06-29 19:46 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/06984698860.shtml)
+- 2026-06-29 19:44 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/375012315115.shtml)
+- 2026-06-29 19:54 - [男子40度高温下骑行严重晒伤](https://www.blog.kurohicncr.top/Article/details/39285.shtml)
+- 2026-06-29 19:47 - [TTG KSG](http://www.share.minike.top/Article/details/88281099088.shtml)
+- 2026-06-29 19:44 - [温网](https://www.blog.kurohicncr.top/Article/details/587717350.shtml)
+- 2026-06-29 19:42 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/439989651.shtml)
+- 2026-06-29 20:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/87105023811.shtml)

@@ -1,58 +1,57 @@
-# 巴西闽籍侨团联袂资助闽籍侨胞流感疫苗免费接种
+# 英伟达五年来首次发行投资级债券 认购额高达850亿美元
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网圣保罗4月27日电 (记者 林春茵)巴西正值流感接种季，当地时间26日，“闽侨安康·流感无忧”闽籍七大社团联合公益行动在巴西圣保罗仁爱医疗中心启动，为旅巴闽籍侨胞免费接种进口流感疫苗。 此次活动由巴西福建同乡总会、南美洲闽南同乡联谊总会、巴西华侨华人促进中国和平统一联合会、世界福建青年巴西联会、巴西闽商联合会、巴西世界福州十邑同乡会、巴西华人华侨电商总会等在巴闽籍社团主办
+芯片巨头英伟达周一势将通过投资级债券发行筹集250亿美元，认购需求达到拟发售规模的三倍以上，凸显投资者急切希望从人工智能中分一杯羹。 据知情人士透露，此次债券发行吸引的认购额高达850亿美元。另有知情人士称，英伟达此次将分七批发行的债券期限从2年期至30年期不等。 知情人士表示，英伟达此次发行的最长期限债券收益率定价为较美国国债收益率高大约0.65个百分点。该人士还表示，此次发
 
 ## 正文
 
-中新网圣保罗4月27日电 (记者 林春茵)巴西正值流感接种季，当地时间26日，“闽侨安康·流感无忧”闽籍七大社团联合公益行动在巴西圣保罗仁爱医疗中心启动，为旅巴闽籍侨胞免费接种进口流感疫苗。
+芯片巨头英伟达周一势将通过投资级债券发行筹集250亿美元，认购需求达到拟发售规模的三倍以上，凸显投资者急切希望从人工智能中分一杯羹。
 
-此次活动由巴西福建同乡总会、南美洲闽南同乡联谊总会、巴西华侨华人促进中国和平统一联合会、世界福建青年巴西联会、巴西闽商联合会、巴西世界福州十邑同乡会、巴西华人华侨电商总会等在巴闽籍社团主办，巴西华人协会监事长王万瑞及赵余玲、杨志芳、林筠、陈彬、邱秀华、吴智情、孙孝钦、陈永辉、郑进展、郑文标、林果等多位闽籍侨领出席活动。
+据知情人士透露，此次债券发行吸引的认购额高达850亿美元。
 
-王万瑞表示，长期以来，各位会长与侨团同仁始终以乡情为纽带、以服务为初心，扎根巴西、守望相助，为闽籍侨胞在巴西的生存发展、权益维护、文化传承与社群凝聚，做了大量实实在在的工作。
+另有知情人士称，英伟达此次将分七批发行的债券期限从2年期至30年期不等。
 
-南美洲闽南同乡联谊总会会长杨志芳说，闽南会一直设立防疫基金，此次免费接种四价流感疫苗的公益活动，为侨胞们在异国他乡筑牢健康安全防线。
+知情人士表示，英伟达此次发行的最长期限债券收益率定价为较美国国债收益率高大约0.65个百分点。
 
-巴西华侨华人促进中国和平统一联合会执行会长陈彬说，不少侨胞因工作繁忙、语言障碍和信息落差，疏于管理健康，此次不但免费接种疫苗，还可通过仁爱医疗搭建就医渠道免于后顾之忧。
+该人士还表示，此次发债募集的资金将用于再融资现有债务等用途。
 
-世界福建青年巴西联会会长邱秀华指出，无论是帮扶新侨落地的、维护老侨权益、搭建乡情联谊，还是关切“侨”健康，都传递了家乡温暖和依靠。
+这将是英伟达五年来首次发行的债券。
 
-巴西闽商联合会监事长吴智情表示，近年来闽籍侨团活动注重公益性和融入巴西主流，目前正值巴西推动流感疫苗全民接种，此次活动正集中体现这一趋向。
+随着建设数据中心以及其他支撑人工智能快速发展的基础设施，Alphabet Inc．和亚马逊等企业正通过大规模发行债券涌入债务市场，融资规模累计已达数千亿美元。
 
-巴西世界福州十邑同乡会会长孙孝钦说，近年来闽籍侨团联动密切，从大型春晚到“打预防针”，“事无大小，都是为侨服务”。
+截至目前，投资者顺利消化了这些债券供应。
 
 ## 相关推荐
 
-- 2026-06-29 19:54 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 20:03 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 19:52 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 19:36 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 20:02 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 19:52 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 20:00 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 19:41 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 19:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 19:54 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 19:52 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 19:43 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 19:44 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 19:43 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 20:09 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 19:55 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 20:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 19:42 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 20:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 20:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 19:48 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 19:46 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 20:02 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:58 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/48069928065.shtml)
-- 2026-06-29 19:47 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/18353969684.shtml)
-- 2026-06-29 20:00 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/038356557555.shtml)
-- 2026-06-29 19:55 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/5862022.shtml)
-- 2026-06-29 19:42 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.minike.top/Article/details/3828983.shtml)
-- 2026-06-29 19:36 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/26738.shtml)
-- 2026-06-29 20:00 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/876696.shtml)
-- 2026-06-29 19:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/15507787.shtml)
-- 2026-06-29 19:36 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/729389359.shtml)
-- 2026-06-29 19:55 - [第一炉香](https://www.blog.minike.top/Article/details/65778463821.shtml)
-- 2026-06-29 19:45 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/604947587.shtml)
-- 2026-06-29 19:45 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/51794383.shtml)
-- 2026-06-29 19:36 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/0652108.shtml)
-- 2026-06-29 19:50 - [CORTIS 小牌大耍](https://www.blog.kurohicncr.top/Article/details/7120265210.shtml)
-- 2026-06-29 20:05 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/2424361.shtml)
+- 2026-06-29 19:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/33872073.shtml)
+- 2026-06-29 20:06 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/648796.shtml)
+- 2026-06-29 19:44 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/89459.shtml)
+- 2026-06-29 19:53 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/638620449548.shtml)
+- 2026-06-29 19:54 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/3793780.shtml)
+- 2026-06-29 20:04 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/61057380084.shtml)
+- 2026-06-29 19:52 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/3740555.shtml)
+- 2026-06-29 19:45 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/332029808535.shtml)
+- 2026-06-29 19:49 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/332052177611.shtml)
+- 2026-06-29 19:57 - [滚石点名酒店员工说有急救培训](https://www.share.minike.top/Article/details/9947334.shtml)
+- 2026-06-29 19:55 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/753649.shtml)
+- 2026-06-29 20:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/05907266290.shtml)
+- 2026-06-29 19:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/3198717.shtml)
+- 2026-06-29 19:47 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/8206048336.shtml)
+- 2026-06-29 19:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/125836296424.shtml)

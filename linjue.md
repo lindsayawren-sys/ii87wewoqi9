@@ -1,59 +1,56 @@
-# 全球领跑，智启新程｜比亚迪亮相2026北京车展
+# 酒价内参6月14日价格发布：五粮液普五八代国窖1573领涨 总价创六天以来新高
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-4月24日，2026北京国际汽车展览会盛大启幕。比亚迪集团整馆包场，在E3馆打造品牌独立展区。王朝|海洋、方程豹、腾势、仰望四大业务板块统一布局、集中展示，同时专门设置“天神之眼”和闪充技术专区，彰显比亚迪在智能辅助驾驶与电动化领域的前沿技术成果。 现场更有-30℃低温闪充实测、天神之眼全场景泊车辅助、易三方、越野等技术体验区，见证中国汽车的巅峰实力，共创智能出行的无限可能。构
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月14日整体小幅回弹。如果主要单品各取一瓶整体打包售卖，今日总售价为9906元，较昨日上涨8元，重返9900元关口上方，创六天以来最高。市场在前一日小幅回落后再度修复，终端交投情绪略有回暖，但核心单品的涨跌分化依然显著。 今日11大白酒
 
 ## 正文
 
-4月24日，2026北京国际汽车展览会盛大启幕。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月14日整体小幅回弹。
 
-比亚迪集团整馆包场，在E3馆打造品牌独立展区。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9906元，较昨日上涨8元，重返9900元关口上方，创六天以来最高。
 
-王朝|海洋、方程豹、腾势、仰望四大业务板块统一布局、集中展示，同时专门设置“天神之眼”和闪充技术专区，彰显比亚迪在智能辅助驾驶与电动化领域的前沿技术成果。
+市场在前一日小幅回落后再度修复，终端交投情绪略有回暖，但核心单品的涨跌分化依然显著。
 
-现场更有-30℃低温闪充实测、天神之眼全场景泊车辅助、易三方、越野等技术体验区，见证中国汽车的巅峰实力，共创智能出行的无限可能。
+今日11大白酒单品四涨四跌三平，涨跌数量持平，但上涨品种的涨幅相对更大，带动总价回升。
 
-构建一体化比亚迪专属展示空间，全方位展现了中国智造的强劲实力。
+上涨方面，五粮液普五八代的涨幅居前，上涨7元/瓶，重回810元一线；国窖1573上涨6元/瓶，回补昨日全部跌幅，重新站上880元关口；习酒君品上涨5元/瓶；洋河梦之蓝M6+小幅上涨1元/瓶。
 
-基于强大的技术平台，比亚迪带来了极具竞争力的产品阵容。
+下跌方面，古井贡古20跌幅居前，下跌6元/瓶；精品茅台下跌3元/瓶；飞天茅台与五粮液1618均下跌1元/瓶，后者平近一月最低价格纪录。
 
-王朝|海洋继续夯实主流市场，王朝新旗舰——大唐预售价25万元起，以硬核实力重新定义全尺寸旗舰SUV价值标杆。
+青花汾20、青花郎与水晶剑南春价格环比保持不变。
 
-此外，第三代元PLUS焕新登场，定位“元力智趣闪充SUV”，为元气青年、年轻家庭、科技实用派创造前所未有的元气闪充生活。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 19:50 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 19:36 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 19:39 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 19:47 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 19:44 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 19:49 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 19:42 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 19:58 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 19:39 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 19:37 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 20:02 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 20:01 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 19:56 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 19:48 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 20:08 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 19:44 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 19:49 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 20:05 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 20:04 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 20:09 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 20:10 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 20:05 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:51 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/88987786610.shtml)
-- 2026-06-29 19:42 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/72343614.shtml)
-- 2026-06-29 20:04 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/3458304.shtml)
-- 2026-06-29 19:41 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/863862.shtml)
-- 2026-06-29 19:42 - [伊朗足球队将启程回国](https://www.share.minike.top/Article/details/59240712.shtml)
-- 2026-06-29 19:46 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/208234.shtml)
-- 2026-06-29 19:58 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/041115751306.shtml)
-- 2026-06-29 19:38 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/61648164164.shtml)
-- 2026-06-29 19:56 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/27845.shtml)
-- 2026-06-29 19:54 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/33158918.shtml)
-- 2026-06-29 19:48 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/300950.shtml)
-- 2026-06-29 19:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/186367904.shtml)
-- 2026-06-29 19:59 - [一汽大众黄金超混技术来袭](http://www.share.minike.top/Article/details/3410617.shtml)
-- 2026-06-29 19:59 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/617790935571.shtml)
-- 2026-06-29 19:46 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/03023825.shtml)
+- 2026-06-29 20:04 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/8517939.shtml)
+- 2026-06-29 19:57 - [官方通报一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/0338957.shtml)
+- 2026-06-29 20:05 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/894836780970.shtml)
+- 2026-06-29 20:06 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/797394626280.shtml)
+- 2026-06-29 19:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/2156361.shtml)
+- 2026-06-29 20:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/966369.shtml)
+- 2026-06-29 20:10 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/6348362.shtml)
+- 2026-06-29 19:54 - [哈兰德吃饭被镜中自己吓到](https://www.share.kurohicncr.top/Article/details/26743718282.shtml)
+- 2026-06-29 20:08 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/83149356735.shtml)
+- 2026-06-29 19:53 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/168174039070.shtml)
+- 2026-06-29 20:02 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/6700920.shtml)
+- 2026-06-29 19:43 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/568499.shtml)
+- 2026-06-29 19:59 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.minike.top/Article/details/357358255.shtml)
+- 2026-06-29 20:07 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/180992173.shtml)
+- 2026-06-29 19:49 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/187369181540.shtml)

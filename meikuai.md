@@ -1,47 +1,57 @@
-# 合兴包装：2025年度营收101.94亿元，同比减少11.13%
+# 海口海关关于举办2026年6月份“关长接待日”的通知
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-北京商报讯（记者孔文燮）4月26日，合兴包装披露的2025年度业绩报告显示，实现营业收入约101.94亿元，同比减少11.13%；实现归母净利润约1.03亿元，同比增加10.61%。（文章来源：北京商报）
+为进一步畅通与社会公众及干部职工的沟通渠道，促进关务公开，现就2026年6月份“关长接待日”相关安排通知如下： 一、总关接待日安排 (一)接待时间。 2026年6月16日(周二)10:00—12:00。(二)接待关领导。 副关长、党委委员敖必强。 (三)接待地点。 海南省海口市龙华区滨海大道61号海口海关机关办公大楼。 (四)预约登记方式。 请来访人员于6月15日(周一)上午1
 
 ## 正文
 
-北京商报讯（记者孔文燮）4月26日，合兴包装披露的2025年度业绩报告显示，实现营业收入约101.94亿元，同比减少11.13%；实现归母净利润约1.03亿元，同比增加10.61%。
+为进一步畅通与社会公众及干部职工的沟通渠道，促进关务公开，现就2026年6月份“关长接待日”相关安排通知如下： 一、总关接待日安排 (一)接待时间。
 
-（文章来源：北京商报）
+2026年6月16日(周二)10:00—12:00。
+
+(二)接待关领导。
+
+副关长、党委委员敖必强。
+
+(三)接待地点。
+
+海南省海口市龙华区滨海大道61号海口海关机关办公大楼。
+
+(四)预约登记方式。
+
+请来访人员于6月15日(周一)上午12:00前通过电话或邮箱进行预约，并按照海口海关办公室反馈的接待时间顺序准时参加活动。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 19:47 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 20:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 19:37 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 19:47 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 19:45 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 19:37 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 20:05 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 19:56 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 19:38 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 19:59 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 20:02 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 19:39 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 19:56 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 19:58 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 20:06 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 20:00 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 20:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 20:03 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 20:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 20:08 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 20:00 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 19:48 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 20:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:01 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/135852636.shtml)
-- 2026-06-29 19:55 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/87169468389.shtml)
-- 2026-06-29 20:04 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/0752184.shtml)
-- 2026-06-29 19:56 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/8541373279.shtml)
-- 2026-06-29 19:42 - [周杰伦演唱会含星量](https://www.share.minike.top/Article/details/252613352.shtml)
-- 2026-06-29 19:49 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/6527593330.shtml)
-- 2026-06-29 20:00 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/613571557752.shtml)
-- 2026-06-29 19:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/3169924980.shtml)
-- 2026-06-29 19:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/71182823.shtml)
-- 2026-06-29 19:49 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/791335.shtml)
-- 2026-06-29 19:38 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/13175887.shtml)
-- 2026-06-29 19:39 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/635130.shtml)
-- 2026-06-29 19:39 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/078200.shtml)
-- 2026-06-29 19:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/431290571719.shtml)
-- 2026-06-29 19:40 - [周杰伦演唱会含星量](http://www.share.kurohicncr.top/Article/details/44096.shtml)
+- 2026-06-29 20:09 - [济南航空航天全面起势](https://www.blog.kurohicncr.top/Article/details/698057813807.shtml)
+- 2026-06-29 19:51 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/6373734090.shtml)
+- 2026-06-29 19:44 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/9823755250.shtml)
+- 2026-06-29 20:10 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/3401543.shtml)
+- 2026-06-29 20:08 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/9010896791.shtml)
+- 2026-06-29 19:50 - [滚石点名酒店员工说有急救培训](http://www.blog.minike.top/Article/details/73678.shtml)
+- 2026-06-29 19:59 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/7570519.shtml)
+- 2026-06-29 20:06 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/11209233.shtml)
+- 2026-06-29 20:09 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/0616922825.shtml)
+- 2026-06-29 19:53 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/75080.shtml)
+- 2026-06-29 19:42 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/860805.shtml)
+- 2026-06-29 20:06 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/7737688421.shtml)
+- 2026-06-29 19:45 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/16950.shtml)
+- 2026-06-29 20:04 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/516436.shtml)
+- 2026-06-29 19:43 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/33475486.shtml)

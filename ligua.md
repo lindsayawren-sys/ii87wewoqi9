@@ -1,57 +1,58 @@
-# 从不敢到不想：一夜七家被查被罚背后 财务造假治理步入深水区
+# 入窑一色出窑万彩 重庆荣昌陶开窑
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 4月24日，又有七家上市公司被中国证监会或地方证监局点名。 其中，神马股份、黑芝麻（含公司及时任董事长）因涉嫌信息披露违法违规被立案调查；行云科技、ST嘉澳（维权）、ST章鼓（维权）、ST达华（维权）、ST海泰（维权）等5家公司则收到了《行政处罚决定书》。 值得注意的是，就在几天前的4月22日，*ST数源（维权）、傲农生物（维权
+发布时间：2026年06月14日 22:34 来源：中国新闻网 6月14日，在重庆市荣昌区安陶小镇的吉芬窑，随着一声“开窑喽”响起，在众人期待的目光中，开窑师傅手持太平钩，用力敲开窑门。花瓶、茶壶、茶杯、水杯等生活用具类产品一一从柴窑中被取出。 荣昌陶器历史悠久，早在汉代时期就开始生产。因独特的原料、高超的工艺和厚重的历史文化，重庆荣昌陶与云南建水陶、广西钦州坭兴陶、江苏宜兴紫
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 4月24日，又有七家上市公司被中国证监会或地方证监局点名。
+发布时间：2026年06月14日 22:34 来源：中国新闻网 6月14日，在重庆市荣昌区安陶小镇的吉芬窑，随着一声“开窑喽”响起，在众人期待的目光中，开窑师傅手持太平钩，用力敲开窑门。
 
-其中，神马股份、黑芝麻（含公司及时任董事长）因涉嫌信息披露违法违规被立案调查；行云科技、ST嘉澳（维权）、ST章鼓（维权）、ST达华（维权）、ST海泰（维权）等5家公司则收到了《行政处罚决定书》。
+花瓶、茶壶、茶杯、水杯等生活用具类产品一一从柴窑中被取出。
 
-值得注意的是，就在几天前的4月22日，*ST数源（维权）、傲农生物（维权）、欢瑞世纪（维权）、兰石重装（维权）4家公司也刚被立案调查。
+荣昌陶器历史悠久，早在汉代时期就开始生产。
 
-也就是说，短短5天内，已有11家上市公司披露被查或被罚。
+因独特的原料、高超的工艺和厚重的历史文化，重庆荣昌陶与云南建水陶、广西钦州坭兴陶、江苏宜兴紫砂陶并称为中国四大名陶。
 
-实际上，一周数家乃至十余家公司被查被罚，已成为监管新常态。
+荣昌陶制作技艺于2011年入选国家级非物质文化遗产名录。
 
-这并不意味着问题公司数量在增多，恰恰相反，它是监管效率提升、技术手段升级的结果。
+荣昌陶传统制作方法至少有20道工序，包括晒泥、碾泥、过浆、制坯、打磨、装窑、烧窑、观窑、闭窑等。
 
-随着存量问题被不断出清，上市公司的合规意识将逐步增强，假以时日，A股上市公司整体质量有望显著提升。
+柴烧过程中，时间和温度的不可预见与变幻万千，是“窑变”形成的关键因素。
 
-更值得关注的是，4月24日，证监会正式启动了“2026年打击和防范上市公司财务造假专项行动”。
+(梁钦卿 景诗雁 贾楠) 责任编辑：【曲克】
 
 ## 相关推荐
 
-- 2026-06-29 19:52 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 19:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 19:52 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 19:50 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 19:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 19:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 19:36 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 19:39 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 19:54 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 20:05 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 20:04 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 20:09 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 20:04 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 19:46 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 19:58 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 19:43 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 20:01 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 19:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 19:48 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 20:05 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 20:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 20:05 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 19:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:44 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/46337731.shtml)
-- 2026-06-29 19:36 - [刘冰任河南南阳市代市长](https://www.share.minike.top/Article/details/17937765.shtml)
-- 2026-06-29 19:40 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/36859.shtml)
-- 2026-06-29 19:40 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/2477556219.shtml)
-- 2026-06-29 20:04 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/206341370.shtml)
-- 2026-06-29 19:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/803526539612.shtml)
-- 2026-06-29 19:50 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/9831435.shtml)
-- 2026-06-29 19:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/06239659838.shtml)
-- 2026-06-29 20:02 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/9988584.shtml)
-- 2026-06-29 19:53 - [Ella回应SHE何时合体](http://www.share.kurohicncr.top/Article/details/54129553.shtml)
-- 2026-06-29 19:59 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/462199.shtml)
-- 2026-06-29 20:00 - [V8](https://www.share.kurohicncr.top/Article/details/88642778549.shtml)
-- 2026-06-29 19:41 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/35476.shtml)
-- 2026-06-29 19:39 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/5136256.shtml)
-- 2026-06-29 19:55 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/421559.shtml)
+- 2026-06-29 20:06 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/18544878157.shtml)
+- 2026-06-29 19:59 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/0353252810.shtml)
+- 2026-06-29 20:08 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/25479.shtml)
+- 2026-06-29 19:57 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/978410049.shtml)
+- 2026-06-29 19:42 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/6405472.shtml)
+- 2026-06-29 20:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/250530046.shtml)
+- 2026-06-29 19:42 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/956487.shtml)
+- 2026-06-29 19:47 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/954170.shtml)
+- 2026-06-29 20:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/08067985.shtml)
+- 2026-06-29 19:50 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/78422546.shtml)
+- 2026-06-29 20:00 - [歼-15型舰载机为何被歼-15T替代](https://www.share.kurohicncr.top/Article/details/684240922290.shtml)
+- 2026-06-29 19:51 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/05999679.shtml)
+- 2026-06-29 19:46 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/57235682165.shtml)
+- 2026-06-29 19:58 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/5837606.shtml)
+- 2026-06-29 20:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/843955365910.shtml)

@@ -1,57 +1,59 @@
-# 北京丰台区侨联联合中国华侨出版社参与东高地街道首届航天文化节
+# 中信建投期货：6月16日能化早报 橡胶企稳震荡
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-动态┃党建共建聚合力 航天文化绘新篇——丰台区侨联联合中国华侨出版社参与东高地街道首届航天文化节 近日，丰台区东高地街道“梦启高地 共探九霄”首届航天文化节开幕式举办。来自地区航天企业的专家学者、社区居民、青少年代表以及长期深耕文化传播领域的侨界代表等300余人参加，丰台区侨联联合中国华侨出版社参加活动。 为系统整合东高地地区航天文化资源，东高地街道联合辖区航天院所、北京航空精
+橡胶：企稳震荡 周一，国产全乳胶17900/吨，环比上日上涨250元/吨；泰国20号混合胶17300元/吨，环比上日上涨180元/吨。 原料端：昨日泰国胶水报收87.5泰铢/公斤，环比上日下跌1.0泰铢/公斤，泰国杯胶报收72.0 泰铢/公斤，环比上日上涨2.0泰铢/公斤；云南胶水报收16.3元/公斤，环比上日下跌0.1 元/公斤；海南胶水报收15.8元/公斤，环比上日上涨0.
 
 ## 正文
 
-动态┃党建共建聚合力 航天文化绘新篇——丰台区侨联联合中国华侨出版社参与东高地街道首届航天文化节 近日，丰台区东高地街道“梦启高地 共探九霄”首届航天文化节开幕式举办。
+橡胶：企稳震荡 周一，国产全乳胶17900/吨，环比上日上涨250元/吨；泰国20号混合胶17300元/吨，环比上日上涨180元/吨。
 
-来自地区航天企业的专家学者、社区居民、青少年代表以及长期深耕文化传播领域的侨界代表等300余人参加，丰台区侨联联合中国华侨出版社参加活动。
+原料端：昨日泰国胶水报收87.5泰铢/公斤，环比上日下跌1.0泰铢/公斤，泰国杯胶报收72.0 泰铢/公斤，环比上日上涨2.0泰铢/公斤；云南胶水报收16.3元/公斤，环比上日下跌0.1 元/公斤；海南胶水报收15.8元/公斤，环比上日上涨0.1元/公斤。
 
-为系统整合东高地地区航天文化资源，东高地街道联合辖区航天院所、北京航空精密机械研究所、中国华侨出版社、东高地青少年科技馆、北京钱学森中学、辖区小学等多家单位成立了“东高地航天文化联盟”，有力促进航天文化的传承与传播。
+截至2026年6月14日，青岛地区天胶保税和一般贸易合计库存量68.16万吨，环比上期减少1.52万吨，降幅2.18%。
 
-现场还同步开展了文化展演、科普教育、文创市集、志愿服务等主题活动。
+保税区库存8.45万吨，降幅5.62%；一般贸易库存59.71万吨，降幅1.68%。
 
-丰台区侨联联合中国华侨出版社在活动中积极推介涉侨主题书籍，开展“情暖侨心”主题侨法宣传和志愿服务活动，充分体现“以人为本、为侨服务”的宗旨，受到居民群众广泛好评。
+青岛天然橡胶样本保税仓库入率减少1.19个百分点，出库率增加0.09个百分点；一般贸易仓库入库率减少0.33百分点，出库率增加3.09个百分点。
 
-4月24日至25日，在首个“全民阅读活动周”之际，双方还联合参加了在东高地万源广场举办的文创市集活动，进一步进行书籍推介和为侨服务活动，深入挖掘航天文化的特色与内涵，激发侨界群众的阅读热情。
+观点：近期，尽管泰国等全球主产区存在普遍的高温现象，但根据目前的气象数据来看，目前的气温并未达到对橡胶树造成持续负面影响影响的程度，近期的供应扰动主要来自于清晨时段降雨对割胶的影响，供应端或未形成系统性的减产风险，根据未来16天的天气预报，后续天气对供应的影响边际改善。
 
-此次航天文化节活动联办充分发挥了五级党建工作机制作用。
+故，对产量的短期判断暂时没有变化，相对稳定的状态，全球产量的季节性或不会出现特殊的超预期延迟。
 
-双方充分发挥各自优势，紧密协作，将航天科普、文化交流、阅读推广、侨法宣传等内容融为一体，广泛整合侨联系统内部资源与社会力量，进一步团结凝聚和服务了侨界群众，助力了航天文化与航天精神的传承弘扬。
+需求端来看，在前期下游轮胎需求阶段性放缓后，近期并没有持续走弱的迹象。
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 19:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 19:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 19:54 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 19:54 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 19:46 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 19:45 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 19:59 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 19:50 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 19:43 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 19:55 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 20:09 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 19:43 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 20:04 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 19:56 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 19:51 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 19:53 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 19:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 19:57 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 19:53 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 20:01 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 20:09 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 20:00 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 19:53 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/3874944.shtml)
-- 2026-06-29 19:54 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/85770934.shtml)
-- 2026-06-29 19:36 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/63983615.shtml)
-- 2026-06-29 19:55 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/409336.shtml)
-- 2026-06-29 20:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/885835.shtml)
-- 2026-06-29 19:44 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/946277508.shtml)
-- 2026-06-29 19:36 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/702708979894.shtml)
-- 2026-06-29 20:05 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/724666.shtml)
-- 2026-06-29 19:56 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/425609.shtml)
-- 2026-06-29 20:04 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/21852993.shtml)
-- 2026-06-29 19:41 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/79912730813.shtml)
-- 2026-06-29 19:40 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/683774.shtml)
-- 2026-06-29 19:38 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/839410796822.shtml)
-- 2026-06-29 19:45 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/1682813566.shtml)
-- 2026-06-29 19:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/1505907.shtml)
+- 2026-06-29 20:01 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/62483023.shtml)
+- 2026-06-29 19:47 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/493404840.shtml)
+- 2026-06-29 19:54 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/491345386.shtml)
+- 2026-06-29 19:47 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/4115366743.shtml)
+- 2026-06-29 20:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/074064125659.shtml)
+- 2026-06-29 19:49 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/943106563.shtml)
+- 2026-06-29 19:56 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/6438589.shtml)
+- 2026-06-29 20:06 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/85306.shtml)
+- 2026-06-29 19:46 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/0921971791.shtml)
+- 2026-06-29 20:00 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/075179.shtml)
+- 2026-06-29 19:42 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/31032131.shtml)
+- 2026-06-29 19:43 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/570830.shtml)
+- 2026-06-29 19:59 - [韩国小学生都来吐槽了](https://www.share.minike.top/Article/details/48743911038.shtml)
+- 2026-06-29 19:42 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/9613429161.shtml)
+- 2026-06-29 19:50 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/6830116.shtml)

@@ -1,57 +1,49 @@
-# 港股IPO创近五年新高 富国港股通成长精选即将于4月28日结束募集
+# 探讨合作与未来 “2026中国与中东欧青年政治家论坛”开幕
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-今年以来，港股IPO市场表现火热。据德勤统计，2026年第一季度，港股市场共迎来40家公司挂牌上市，合计募资1099.26亿港元，募资规模远超纳斯达克（约440.2亿港元）和纽交所（约402.2亿港元），稳居全球榜首，数量及募资额创下近五年同期高位。从行业分布上看，上市企业呈现鲜明的硬科技为主的特征。毕马威数据显示，A+H及特专科技公司两个板块贡献了近八成募资额，港股新经济活力
+发布时间：2026年06月15日 13:59 来源：中国新闻网 6月14日，2026中国与中东欧青年政治家论坛在武汉开幕，来自中东欧国家的政党、智库、民间组织青年代表，与中国嘉宾、青年代表开展对话交流，探讨合作与未来发展。 此次论坛由中共中央对外联络部、中共湖北省委共同主办，主题为“新形势下中国与中东欧国家同行现代化之路：青年的行动和贡献”。 记者 郑子颜 湖北武汉报道 责任编
 
 ## 正文
 
-今年以来，港股IPO市场表现火热。
+发布时间：2026年06月15日 13:59 来源：中国新闻网 6月14日，2026中国与中东欧青年政治家论坛在武汉开幕，来自中东欧国家的政党、智库、民间组织青年代表，与中国嘉宾、青年代表开展对话交流，探讨合作与未来发展。
 
-据德勤统计，2026年第一季度，港股市场共迎来40家公司挂牌上市，合计募资1099.26亿港元，募资规模远超纳斯达克（约440.2亿港元）和纽交所（约402.2亿港元），稳居全球榜首，数量及募资额创下近五年同期高位。
+此次论坛由中共中央对外联络部、中共湖北省委共同主办，主题为“新形势下中国与中东欧国家同行现代化之路：青年的行动和贡献”。
 
-从行业分布上看，上市企业呈现鲜明的硬科技为主的特征。
-
-毕马威数据显示，A+H及特专科技公司两个板块贡献了近八成募资额，港股新经济活力愈发突出。
-
-在此背景下，即将于4月28日结募的富国港股通成长精选混合（A 类：026923；C 类：026924）将通过聚焦港股高成长标的，助力投资者分享中国新经济红利。
-
-跨境投资实力派 积淀不凡 富国港股通成长精选混合拟任基金经理为富国基金海外权益投资部副总监彭陈晨，她具有11年证券从业经验，超4年投资经理年限，出道即专注跨境投资。
-
-经年累月的深度研究与广度覆盖，让彭陈晨能够基于全球产业链视角，深度挖掘优质成长企业，并将GARP策略内化于自己的投资框架中。
-
-她希望能以合理的价格买到尽可能高的成长，重视性价比和安全边际。
+记者 郑子颜 湖北武汉报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 19:45 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 20:03 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 19:47 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 19:40 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 19:59 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 20:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 19:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 19:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 19:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 19:51 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 20:02 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 19:46 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 19:49 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 20:11 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 19:58 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 19:51 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 19:50 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 19:52 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 20:09 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 19:43 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 20:07 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 20:02 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 20:02 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 19:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:48 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/15583286.shtml)
-- 2026-06-29 19:46 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/5656884792.shtml)
-- 2026-06-29 19:54 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/0451962.shtml)
-- 2026-06-29 20:03 - [扬名立万](https://www.blog.minike.top/Article/details/032467623.shtml)
-- 2026-06-29 19:36 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/39819416.shtml)
-- 2026-06-29 19:36 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/75356842472.shtml)
-- 2026-06-29 19:41 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/7177792.shtml)
-- 2026-06-29 20:01 - [男子40度高温下骑行严重晒伤](http://www.share.minike.top/Article/details/714740341.shtml)
-- 2026-06-29 19:37 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/87230.shtml)
-- 2026-06-29 19:37 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/479234569.shtml)
-- 2026-06-29 19:53 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/17229808140.shtml)
-- 2026-06-29 19:42 - [急先锋](https://www.blog.kurohicncr.top/Article/details/741956064.shtml)
-- 2026-06-29 19:55 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/981938614.shtml)
-- 2026-06-29 19:39 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/3076874479.shtml)
-- 2026-06-29 19:39 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/9629112126.shtml)
+- 2026-06-29 20:09 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/49800.shtml)
+- 2026-06-29 20:10 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/854420346795.shtml)
+- 2026-06-29 19:48 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/44205034.shtml)
+- 2026-06-29 20:03 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/99834088862.shtml)
+- 2026-06-29 19:55 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/068502923.shtml)
+- 2026-06-29 20:00 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/47710002.shtml)
+- 2026-06-29 20:06 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/70078991.shtml)
+- 2026-06-29 20:09 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/410825208399.shtml)
+- 2026-06-29 20:05 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/9953153.shtml)
+- 2026-06-29 19:45 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/50336286.shtml)
+- 2026-06-29 19:58 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/93869153039.shtml)
+- 2026-06-29 19:49 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/39758058.shtml)
+- 2026-06-29 19:50 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/78910350829.shtml)
+- 2026-06-29 19:45 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/51048389.shtml)
+- 2026-06-29 20:08 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/55600496.shtml)

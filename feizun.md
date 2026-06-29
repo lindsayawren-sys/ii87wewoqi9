@@ -1,56 +1,44 @@
-# 从黔地到浙里 法治架起民族团结“暖心桥”
+# 6月15日央行开展4250亿元7天期逆回购操作
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-中新网湖州4月26日电 题：从黔地到浙里 法治架起民族团结“暖心桥” 作者 吴怡欣 家在千里之外，人在他乡务工。如果在工作中发生纠纷，要如何维护自身权益？ 来自贵州省黔南布依族苗族自治州三都水族自治县的苗族务工人员吴万友，在浙江省湖州市安吉县工作期间便遇到了这一情况。 “我对法律知识不太了解。”一筹莫展之际，吴万友听同乡说起，安吉有一处为三都籍务工人员提供法律援助的地方——安吉
+中新网6月15日电 据央行网站消息，2026年6月15日中国人民银行以固定利率、数量招标方式开展了4250亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
 
 ## 正文
 
-中新网湖州4月26日电 题：从黔地到浙里 法治架起民族团结“暖心桥” 作者 吴怡欣 家在千里之外，人在他乡务工。
+中新网6月15日电 据央行网站消息，2026年6月15日中国人民银行以固定利率、数量招标方式开展了4250亿元7天期逆回购操作，全额满足了一级交易商需求。
 
-如果在工作中发生纠纷，要如何维护自身权益？
-
-来自贵州省黔南布依族苗族自治州三都水族自治县的苗族务工人员吴万友，在浙江省湖州市安吉县工作期间便遇到了这一情况。
-
-“我对法律知识不太了解。
-
-”一筹莫展之际，吴万友听同乡说起，安吉有一处为三都籍务工人员提供法律援助的地方——安吉县三都水族自治县公共法律服务跨区域协作示范站(以下简称“协作站”)。
-
-在安吉，有三都籍务工人员超2万名，涵盖水族、苗族等多个民族。
-
-2022年，为保障这一群体的合法权益，安吉县与三都水族自治县司法行政部门建立公共法律服务跨区域协作机制，并在民族同胞聚集的安吉县递铺街道康山村设立协作站。
-
-安吉县法律援助中心主任王萍表示：“协作站的设立，就是希望能让大家更加便捷地获取法律服务，在安吉工作、生活更安心。
+具体情况如下：
 
 ## 相关推荐
 
-- 2026-06-29 19:56 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 20:01 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 19:52 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 19:39 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 20:02 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 19:53 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 19:59 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 19:41 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 19:39 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 19:42 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 20:11 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 19:42 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 19:45 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 19:59 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 19:44 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 19:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 19:59 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 20:00 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 20:01 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 19:45 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:58 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/20923122974.shtml)
-- 2026-06-29 19:55 - [第一炉香](http://www.blog.minike.top/Article/details/08103.shtml)
-- 2026-06-29 19:53 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/890053126.shtml)
-- 2026-06-29 19:57 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/95685.shtml)
-- 2026-06-29 19:53 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/3119044408.shtml)
-- 2026-06-29 19:51 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/205860396341.shtml)
-- 2026-06-29 19:39 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/0533227542.shtml)
-- 2026-06-29 19:48 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/349766.shtml)
-- 2026-06-29 19:57 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/1175771.shtml)
-- 2026-06-29 19:37 - [教育部高校学生资助热线7月1日开通](https://www.blog.minike.top/Article/details/528291.shtml)
-- 2026-06-29 20:00 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/437743461.shtml)
-- 2026-06-29 20:05 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/64852.shtml)
-- 2026-06-29 19:54 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.kurohicncr.top/Article/details/83155008204.shtml)
-- 2026-06-29 19:46 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/8957112799.shtml)
-- 2026-06-29 19:54 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/9997235601.shtml)
+- 2026-06-29 20:03 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/5710377630.shtml)
+- 2026-06-29 19:56 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/553361.shtml)
+- 2026-06-29 20:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/955704261697.shtml)
+- 2026-06-29 20:02 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/258768.shtml)
+- 2026-06-29 20:09 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/921203.shtml)
+- 2026-06-29 19:42 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/976435006823.shtml)
+- 2026-06-29 20:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/12385983.shtml)
+- 2026-06-29 19:48 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/09952.shtml)
+- 2026-06-29 19:51 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/63591963.shtml)
+- 2026-06-29 20:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/930681.shtml)
+- 2026-06-29 19:53 - [急先锋](https://www.share.minike.top/Article/details/42789.shtml)
+- 2026-06-29 19:56 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/07190838.shtml)
+- 2026-06-29 20:08 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/552724579.shtml)
+- 2026-06-29 20:00 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/27077.shtml)
+- 2026-06-29 20:09 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/6116480418.shtml)

@@ -1,58 +1,57 @@
-# 伊朗奥委会秘书长：面临困难但不放弃亚沙会参赛
+# 智界汽车赵长江：预计2035年中国品牌出海将达1500-2000万辆
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新社三亚4月23日电 (周昕)第六届亚洲沙滩运动会沙滩足球项目23日在三亚开赛。在当日小组赛中，伊朗队以5:2战胜阿联酋队，收获“开门红”。伊朗奥委会秘书长迈赫迪·阿里内贾德全程观赛，表示此次伊朗队虽面临困难但不放弃参赛。 本届亚沙会沙滩足球共有7支队伍参赛，分为两个小组，伊朗队、沙特阿拉伯队、泰国队和阿联酋队同为B组。小组赛采用单循环方式。 迈赫迪·阿里内贾德当日受访时表示
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，智界汽车执行董事及执行副总裁赵长江出席并演讲。 赵长江在演讲中表示，中国汽车过去是大而不强，今天正处在从大到强的攀登路上。我们从规模扩张的时代，进入到高质量发展和全球化布局的时代。在大的环境下，如何跨越这个周期、升级这个周期，非常关键。他从“天时”的产业视角出发，分析了四个方
 
 ## 正文
 
-中新社三亚4月23日电 (周昕)第六届亚洲沙滩运动会沙滩足球项目23日在三亚开赛。
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，智界汽车执行董事及执行副总裁赵长江出席并演讲。
 
-在当日小组赛中，伊朗队以5:2战胜阿联酋队，收获“开门红”。
+赵长江在演讲中表示，中国汽车过去是大而不强，今天正处在从大到强的攀登路上。
 
-伊朗奥委会秘书长迈赫迪·阿里内贾德全程观赛，表示此次伊朗队虽面临困难但不放弃参赛。
+我们从规模扩张的时代，进入到高质量发展和全球化布局的时代。
 
-本届亚沙会沙滩足球共有7支队伍参赛，分为两个小组，伊朗队、沙特阿拉伯队、泰国队和阿联酋队同为B组。
+在大的环境下，如何跨越这个周期、升级这个周期，非常关键。
 
-小组赛采用单循环方式。
+他从“天时”的产业视角出发，分析了四个方面的趋势。
 
-迈赫迪·阿里内贾德当日受访时表示，该项目是伊朗队在本届亚沙会重点冲冠项目之一。
+第一，市场结构将正式进入存量市场的下半场。
 
-“尽管我们面临困难，但伊朗队没有放弃参赛。
+存量市场的下半场将构建新的消费结构、新的竞争业态和新的消费趋势。
 
-” 迈赫迪·阿里内贾德介绍，伊朗队派出57名运动员参加本届亚沙会沙滩足球、沙滩卡巴迪、沙滩手球等项目。
+第二，智能化和跨界融合。
 
 ## 相关推荐
 
-- 2026-06-29 19:51 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 19:46 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 20:00 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 19:40 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 19:46 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 19:52 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 19:46 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 20:03 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 19:50 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 19:42 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 20:00 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 19:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 20:06 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 20:08 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 20:01 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 19:55 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 19:58 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 20:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 20:08 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 20:04 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 19:50 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 20:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 19:57 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:41 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/073899.shtml)
-- 2026-06-29 19:53 - [锐评白玉兰提名片段](https://www.blog.kurohicncr.top/Article/details/150327786319.shtml)
-- 2026-06-29 20:05 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/501785004.shtml)
-- 2026-06-29 19:41 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/807574070375.shtml)
-- 2026-06-29 20:01 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/601034234487.shtml)
-- 2026-06-29 19:46 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/1470526592.shtml)
-- 2026-06-29 19:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/606091526711.shtml)
-- 2026-06-29 19:58 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/438186521030.shtml)
-- 2026-06-29 19:48 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/6437901804.shtml)
-- 2026-06-29 20:03 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/27554.shtml)
-- 2026-06-29 19:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/4339389066.shtml)
-- 2026-06-29 19:52 - [起风了](https://www.share.kurohicncr.top/Article/details/58243.shtml)
-- 2026-06-29 19:42 - [欧洲安装一台空调要花近8000元](https://www.share.minike.top/Article/details/3850900.shtml)
-- 2026-06-29 19:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/670410.shtml)
-- 2026-06-29 19:50 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/38704945917.shtml)
+- 2026-06-29 19:56 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/220202.shtml)
+- 2026-06-29 19:42 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.minike.top/Article/details/3225233.shtml)
+- 2026-06-29 19:56 - [小娘惹](https://www.blog.minike.top/Article/details/70524.shtml)
+- 2026-06-29 20:02 - [新官上任三把火](http://www.share.minike.top/Article/details/8511604.shtml)
+- 2026-06-29 19:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/221278987014.shtml)
+- 2026-06-29 20:10 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/018981426.shtml)
+- 2026-06-29 19:48 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/65943563517.shtml)
+- 2026-06-29 19:51 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/61855311882.shtml)
+- 2026-06-29 19:55 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/7074680.shtml)
+- 2026-06-29 20:00 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/89434.shtml)
+- 2026-06-29 20:07 - [德国医生在没有空调的手术室工作](http://www.share.kurohicncr.top/Article/details/1355302.shtml)
+- 2026-06-29 19:48 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/40754397394.shtml)
+- 2026-06-29 20:01 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/130228.shtml)
+- 2026-06-29 19:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/090786760995.shtml)
+- 2026-06-29 19:49 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/908134842.shtml)

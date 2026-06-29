@@ -1,58 +1,61 @@
-# 学习时节｜星空浩瀚无比，探索永无止境
+# “存款搬家”最新进展？业内人士：真实存在但并非大规模迁移
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-航天事业是现代科学技术的集大成者，是国家工业整体水平的集中体现。习近平总书记高度重视航天事业发展，他强调，探索浩瀚宇宙，发展航天事业，建设航天强国，是我们不懈追求的航天梦。 党的十八大以来，习近平总书记就建设航天强国作出一系列重要部署，引领中国航天开启全面建设航天强国新征程。“嫦娥”揽月、“天问”探火、“羲和”逐日、空间站巡天……中国积极开展空间探索活动，不断深化人类对宇宙的认
+21世纪经济报道记者 曹媛 2026年，市场对“存款搬家”的讨论热度依旧不减，多家机构判断今年将迎来大量长期定期存款的集中“到期潮”，年内到期定存规模可达30万亿元至70余万亿元，资金是否会大规模“撤离”银行体系？ 近日，多位一线人士给出了不同判断：“存款搬家”真实存在，但并非大规模迁移。那么，几十万亿元居民存款究竟流向何方？低利率时代，低风险偏好的居民储蓄又该如何安放？ “存
 
 ## 正文
 
-航天事业是现代科学技术的集大成者，是国家工业整体水平的集中体现。
+21世纪经济报道记者 曹媛 2026年，市场对“存款搬家”的讨论热度依旧不减，多家机构判断今年将迎来大量长期定期存款的集中“到期潮”，年内到期定存规模可达30万亿元至70余万亿元，资金是否会大规模“撤离”银行体系？
 
-习近平总书记高度重视航天事业发展，他强调，探索浩瀚宇宙，发展航天事业，建设航天强国，是我们不懈追求的航天梦。
+近日，多位一线人士给出了不同判断：“存款搬家”真实存在，但并非大规模迁移。
 
-党的十八大以来，习近平总书记就建设航天强国作出一系列重要部署，引领中国航天开启全面建设航天强国新征程。
+那么，几十万亿元居民存款究竟流向何方？
 
-“嫦娥”揽月、“天问”探火、“羲和”逐日、空间站巡天……中国积极开展空间探索活动，不断深化人类对宇宙的认知，致力增进人类共同福祉。
+低利率时代，低风险偏好的居民储蓄又该如何安放？
 
-2026年4月24日，是第十一个“中国航天日”。
+“存款搬家”真实存在，但并非大规模迁移 回顾银行存款市场，2023-2024年大量城商行、农商行及民营银行发行的三年期、五年期长期定存利率普遍处于3%-4%的高位，国有大行、头部股份行利率相对偏低但也处在相对高点，而当前新增定存利率已回落至1.5%-2%区间，悬殊的收益差让市场普遍预判，存款到期后将迎来集中外流，即出现所谓的“存款搬家”现象。
 
-星空浩瀚无比，探索永无止境，一起重温习近平总书记深情寄语，我们对航天事业发展充满期待。
+“‘存款搬家’现象并不明显，这一点和市场年初时的判断不一致。
 
-统筹：李琳 杨格 策划：黎洁婵 陈榕 设计：武君丽 校对：陈学德
+”在近日由21世纪经济报道、广东粤港澳大湾区研究院主办的2026湾区财富大会上，招银理财业务总监、多资产投资部总经理袁尧表示，“从二季度的数据来看，这个现象没有发生，或者说发生的规模比较小。
+
+” 平安理财混合投资部总经理唐沪军肯定了“存款搬家”现象的存在，他认为这并非突发事件，而是自2025年下半年起行业对该现象的讨论热度持续上升，“2025年7月份居民存款单月减少了1.1万亿元，同期非银机构的存款增加了2.14万亿元，去年10月份和今年4月居民存款更是出现明显回落。
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 19:45 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 19:59 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 19:54 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 19:42 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 19:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 19:47 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 19:57 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 19:58 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 19:48 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 19:36 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 19:51 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 19:38 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 19:36 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 20:04 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 20:08 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 20:03 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 19:48 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 19:52 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 19:54 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 19:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 19:55 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 20:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 20:11 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 19:59 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 20:00 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 20:06 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 19:48 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 19:54 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/070844.shtml)
-- 2026-06-29 20:05 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/8878256.shtml)
-- 2026-06-29 19:55 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/402849608.shtml)
-- 2026-06-29 19:38 - [世界杯在中国观看最多的比赛](http://www.share.minike.top/Article/details/20807550442.shtml)
-- 2026-06-29 19:57 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/1447291487.shtml)
-- 2026-06-29 19:50 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/781723179326.shtml)
-- 2026-06-29 19:37 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/184236068.shtml)
-- 2026-06-29 20:01 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/738249.shtml)
-- 2026-06-29 19:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/2374124395.shtml)
-- 2026-06-29 19:42 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/850164735067.shtml)
-- 2026-06-29 19:51 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/67286.shtml)
-- 2026-06-29 19:36 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/9208479.shtml)
-- 2026-06-29 19:41 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/330444.shtml)
-- 2026-06-29 20:04 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/819329887.shtml)
-- 2026-06-29 19:39 - [宜宾地震已转移安置225人](http://www.share.minike.top/Article/details/465813.shtml)
+- 2026-06-29 19:50 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/31854420.shtml)
+- 2026-06-29 19:44 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/4513533.shtml)
+- 2026-06-29 19:55 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/7139898.shtml)
+- 2026-06-29 19:51 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/2953873063.shtml)
+- 2026-06-29 19:43 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/133717797.shtml)
+- 2026-06-29 19:59 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/3361435399.shtml)
+- 2026-06-29 19:58 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/791388.shtml)
+- 2026-06-29 19:46 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/33042.shtml)
+- 2026-06-29 19:53 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/1862391937.shtml)
+- 2026-06-29 19:46 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/523323353153.shtml)
+- 2026-06-29 20:10 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/99245731300.shtml)
+- 2026-06-29 19:43 - [第一炉香](https://www.share.minike.top/Article/details/30850096684.shtml)
+- 2026-06-29 19:52 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/9035223.shtml)
+- 2026-06-29 19:53 - [绘画区你赢了](http://www.blog.minike.top/Article/details/465863508.shtml)
+- 2026-06-29 20:03 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/20811.shtml)

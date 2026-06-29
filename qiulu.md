@@ -1,61 +1,58 @@
-# 可孚医疗于4月27日至30日招股 拟全球发售2700万股H股
+# 西南证券总经理杨雨松调任渝富控股总经理
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-可孚医疗（01187）于2026年4月27日-4月30日招股，拟全球发售2700万股H股，香港公开发售占10%，国际发售占90%。每股发售价将不超过39.33港元，每手100股，预期H股将于2026年5月6日（星期三）开始在联交所买卖。 该公司是中国的家用医疗器械企业。根据弗若斯特沙利文的资料，按2024年的国内收入计，该公司在中国所有家用医疗器械企业中排名第二，市场份额达2.
+上证报中国证券网讯（刘禹希 记者 徐蔚）6月12日，西南证券公告，公司董事会于近日收到董事、总经理杨雨松的书面辞职报告。因工作调动，杨雨松申请辞去公司第十届董事会董事、战略与ESG委员会委员、风险控制委员会主任委员以及总经理职务，离任后不再担任公司及其控股子公司任何职务。公告显示，杨雨松原定任期至2026年12月24日。在聘任新任总经理之前，由董事长姜栋林代为履行总经理职务。与
 
 ## 正文
 
-可孚医疗（01187）于2026年4月27日-4月30日招股，拟全球发售2700万股H股，香港公开发售占10%，国际发售占90%。
+上证报中国证券网讯（刘禹希 记者 徐蔚）6月12日，西南证券公告，公司董事会于近日收到董事、总经理杨雨松的书面辞职报告。
 
-每股发售价将不超过39.33港元，每手100股，预期H股将于2026年5月6日（星期三）开始在联交所买卖。
+因工作调动，杨雨松申请辞去公司第十届董事会董事、战略与ESG委员会委员、风险控制委员会主任委员以及总经理职务，离任后不再担任公司及其控股子公司任何职务。
 
-该公司是中国的家用医疗器械企业。
+公告显示，杨雨松原定任期至2026年12月24日。
 
-根据弗若斯特沙利文的资料，按2024年的国内收入计，该公司在中国所有家用医疗器械企业中排名第二，市场份额达2.1%。
+在聘任新任总经理之前，由董事长姜栋林代为履行总经理职务。
 
-全球家用医疗器械行业竞争激烈，尤其是家用康复辅具、家用呼吸支持类产品及家用医疗护理耗材行业。
+与此同时，重庆渝富控股集团有限公司官网显示，杨雨松已出任渝富控股党委副书记、总经理、董事。
 
-根据弗若斯特沙利文的资料，该公司经营所在的家用康复辅具行业及家用医疗护理类产品行业竞争激烈，中国这两个行业均有超过300名市场参与者。
+这意味着，这位在西南证券工作近三年的资深金融高管，回到了其职业生涯中深耕多年的渝富体系。
 
-截至2023年、2024年及2025年12月31日止年度，该公司的收入分别为人民币28.537亿元、人民币29.829亿元及人民币33.875亿元。
+回顾来看，杨雨松职业生涯起步于华夏证券，后转任重庆港九股份有限公司投资部经理、总经理助理。
 
-假设发售价为每股H股39.33港元（即招股章程所述的最高发售价），该公司估计将获得的全球发售所得款项净额约为10.072亿港元。
+2006年，他加入重庆渝富资产经营管理集团有限公司（后更名为重庆渝富资本运营集团有限公司），在渝富体系内任职多年，历任投资部经理助理、副经理、经理、投资管理部部长、产业事业部部长、金融事业部部长、职工董事、党委委员、副总经理，并曾担任重庆渝富控股集团有限公司党委委员、副总经理。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 19:40 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 20:04 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 19:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 19:38 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 19:44 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 19:40 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 19:49 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 19:43 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 19:44 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 19:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 19:45 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 20:04 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 19:58 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 19:40 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 19:48 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 19:46 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 20:00 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 20:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 20:00 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 20:06 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 19:45 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 20:09 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 20:02 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 19:51 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 20:05 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 19:56 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:44 - [世界杯在中国观看最多的比赛](http://www.share.minike.top/Article/details/653542.shtml)
-- 2026-06-29 19:45 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/5261686393.shtml)
-- 2026-06-29 19:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/81608277.shtml)
-- 2026-06-29 19:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/64361.shtml)
-- 2026-06-29 19:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/10684859628.shtml)
-- 2026-06-29 19:51 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/24008915598.shtml)
-- 2026-06-29 19:41 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/0896857.shtml)
-- 2026-06-29 19:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/97901.shtml)
-- 2026-06-29 19:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/19688527099.shtml)
-- 2026-06-29 19:56 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/515083675708.shtml)
-- 2026-06-29 19:59 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/5547632067.shtml)
-- 2026-06-29 19:51 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/17165.shtml)
-- 2026-06-29 20:02 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/6946515960.shtml)
-- 2026-06-29 20:01 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/604398035948.shtml)
-- 2026-06-29 19:37 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/589015813368.shtml)
+- 2026-06-29 19:55 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/5916295450.shtml)
+- 2026-06-29 20:00 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/914419052049.shtml)
+- 2026-06-29 19:45 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/32092.shtml)
+- 2026-06-29 19:47 - [官媒首曝六代机？大V解读](http://www.share.kurohicncr.top/Article/details/57616409843.shtml)
+- 2026-06-29 20:04 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/6630587676.shtml)
+- 2026-06-29 20:11 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/438780485478.shtml)
+- 2026-06-29 20:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/2086494173.shtml)
+- 2026-06-29 20:06 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/512733998.shtml)
+- 2026-06-29 20:02 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/776862124163.shtml)
+- 2026-06-29 19:54 - [周生如故](https://www.share.minike.top/Article/details/266165280.shtml)
+- 2026-06-29 19:49 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/65016335782.shtml)
+- 2026-06-29 19:54 - [毒液2](http://www.blog.kurohicncr.top/Article/details/3682674.shtml)
+- 2026-06-29 19:50 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/3454696.shtml)
+- 2026-06-29 20:08 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/412636.shtml)
+- 2026-06-29 20:00 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/87076.shtml)

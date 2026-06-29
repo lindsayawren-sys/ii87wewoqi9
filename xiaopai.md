@@ -1,43 +1,56 @@
-# 新疆生产建设兵团建设工程集团原董事长夏建国接受审查调查
+# AI集体“翻车”！日本逼平橙衣军团，仅一款大模型猜中结果
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网4月24日电 据新疆生产建设兵团纪委监委消息：新疆生产建设兵团建设工程(集团)有限责任公司原党委书记、董事长夏建国涉嫌严重违纪违法，目前正接受新疆生产建设兵团纪委监委纪律审查和监察调查。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间6月15日，2026年世界杯小组赛上演了一场充满戏剧性的对决，亚洲劲旅日本队在先失球的不利局面下顽强扳平比分，最终与欧洲豪门荷兰队战成2：2平。这场经典的以弱抗强战役，不仅让球迷热血沸腾，更让赛前信心满满的AI预测模型遭遇了史诗级的“滑铁卢”。在由联想集团与咪咕视频联合推出的预测活动中，包括Deep
 
 ## 正文
 
-中新网4月24日电 据新疆生产建设兵团纪委监委消息：新疆生产建设兵团建设工程(集团)有限责任公司原党委书记、董事长夏建国涉嫌严重违纪违法，目前正接受新疆生产建设兵团纪委监委纪律审查和监察调查。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+北京时间6月15日，2026年世界杯小组赛上演了一场充满戏剧性的对决，亚洲劲旅日本队在先失球的不利局面下顽强扳平比分，最终与欧洲豪门荷兰队战成2：2平。
+
+这场经典的以弱抗强战役，不仅让球迷热血沸腾，更让赛前信心满满的AI预测模型遭遇了史诗级的“滑铁卢”。
+
+在由联想集团与咪咕视频联合推出的预测活动中，包括DeepSeek、Kimi、通义千问在内的10款主流国产大模型几乎全军覆没，只有一款大模型猜中了平局。
+
+赛前的数据分析显示，AI模型对这场比赛的判断呈现出惊人的同质化。
+
+在参与预测的12款大模型中，高达11款都毫不犹豫地选择了“荷兰胜”。
+
+它们给出的剧本高度一致：荷兰队将以2：1或3：1的小比分优势取胜。
+
+中移九天成为本场唯一命中者。
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 19:40 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 20:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 19:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 20:00 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 20:02 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 19:36 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 19:37 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 19:38 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 20:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 19:50 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 19:59 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 20:03 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 19:51 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 19:57 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 19:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 20:05 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 20:10 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 20:08 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 19:49 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 20:06 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:41 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/459382185405.shtml)
-- 2026-06-29 19:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/2124099.shtml)
-- 2026-06-29 19:41 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/484137.shtml)
-- 2026-06-29 19:39 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/1846471081.shtml)
-- 2026-06-29 19:38 - [叠纸](https://www.share.minike.top/Article/details/7368523857.shtml)
-- 2026-06-29 19:44 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/56637436034.shtml)
-- 2026-06-29 19:57 - [沙丘](http://www.blog.kurohicncr.top/Article/details/437008785324.shtml)
-- 2026-06-29 19:58 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/6888882278.shtml)
-- 2026-06-29 19:38 - [女生每天戴耳机18小时突发耳聋](https://www.blog.minike.top/Article/details/201873469981.shtml)
-- 2026-06-29 19:43 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/3245246.shtml)
-- 2026-06-29 19:55 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/208729672.shtml)
-- 2026-06-29 19:36 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/941595146.shtml)
-- 2026-06-29 20:04 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/1726184.shtml)
-- 2026-06-29 19:54 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/94985.shtml)
-- 2026-06-29 20:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/70922815.shtml)
+- 2026-06-29 20:09 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/047277433893.shtml)
+- 2026-06-29 19:46 - [主力抛售电子和通信板块](https://www.blog.minike.top/Article/details/318410.shtml)
+- 2026-06-29 19:54 - [天道](http://www.blog.kurohicncr.top/Article/details/4796062841.shtml)
+- 2026-06-29 20:09 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/155832462480.shtml)
+- 2026-06-29 20:04 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/512940261.shtml)
+- 2026-06-29 19:47 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/95746.shtml)
+- 2026-06-29 19:57 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/902377741702.shtml)
+- 2026-06-29 20:11 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/06732080.shtml)
+- 2026-06-29 19:44 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/028622385498.shtml)
+- 2026-06-29 19:43 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/716010.shtml)
+- 2026-06-29 19:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/476057765.shtml)
+- 2026-06-29 20:10 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/31530676937.shtml)
+- 2026-06-29 19:43 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/99824306416.shtml)
+- 2026-06-29 19:55 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/94253491.shtml)
+- 2026-06-29 19:56 - [啊啊啊](https://www.share.minike.top/Article/details/41009170950.shtml)

@@ -1,60 +1,56 @@
-# 以书为媒 上海黄浦打造全民阅读 “春日新图景”
+# “文化和自然遗产日”陕西主会场活动在铜川举行
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-中新网上海4月26日电(范宇斌)25日，一场以“万物生花·阅读宇宙”为主题的全民阅读特别活动在上海市黄浦区举行。本次活动由黄浦区委宣传部、黄浦区委统战部主办，黄浦区新联会、海燕博客公益发展中心和百花洲(文艺联盟)上海书友会承办，上海市新联会协办。 上海市黄浦区“阅读大会”已深耕全民阅读12年，以“书香黄浦”为引领，推动文商旅体展深度融合。本次活动以书香为核、花展为媒、咖啡为伴，
+中新网陕西铜川6月13日电 (记者 阿琳娜)2026年“文化和自然遗产日”陕西省主会场活动13日在铜川举行。 陕西省文物局局长贾强表示，迈向“十五五”文化遗产保护传承利用新征程，要进一步筑牢系统保护根基，统筹规划文物事业长远发展，完善法规制度与监管体系，推进文物现代化、数字化治理，实现文化遗产整体保护、协同监管、永续传承。进一步深化传承利用实践，深挖文物蕴含的历史价值、文化内涵
 
 ## 正文
 
-中新网上海4月26日电(范宇斌)25日，一场以“万物生花·阅读宇宙”为主题的全民阅读特别活动在上海市黄浦区举行。
+中新网陕西铜川6月13日电 (记者 阿琳娜)2026年“文化和自然遗产日”陕西省主会场活动13日在铜川举行。
 
-本次活动由黄浦区委宣传部、黄浦区委统战部主办，黄浦区新联会、海燕博客公益发展中心和百花洲(文艺联盟)上海书友会承办，上海市新联会协办。
+陕西省文物局局长贾强表示，迈向“十五五”文化遗产保护传承利用新征程，要进一步筑牢系统保护根基，统筹规划文物事业长远发展，完善法规制度与监管体系，推进文物现代化、数字化治理，实现文化遗产整体保护、协同监管、永续传承。
 
-上海市黄浦区“阅读大会”已深耕全民阅读12年，以“书香黄浦”为引领，推动文商旅体展深度融合。
+进一步深化传承利用实践，深挖文物蕴含的历史价值、文化内涵与时代精神，打造考古研究、遗址活化、场馆提升、红色传承特色品牌，不断满足民众日益增长的精神文化需求。
 
-本次活动以书香为核、花展为媒、咖啡为伴，为民众献上一场春日文化盛宴。
+进一步拓宽文明交流视野，深化多领域文博交流合作，常态化开展文物外展、联合考古、研学互动，积极展现中华文明风采与陕西文化魅力，持续讲好陕西故事、丝路故事、中国故事。
 
-活动现场，零点有数董事长、黑苹果青年公益发起人袁岳以《趁年轻，阅读吧》这本书点燃了全场。
+在主场活动中，公布了2026年陕西省“最美文物安全守护者”名单，西安市临潼区秦陵街鱼池村群众文保员吴江等10人入选；发布“陕西省文物主题游径典型案例”，包括汉景帝阳陵博物院大汉紫道——“寻踪汉阳陵”等7条文物主题游径典型案例；陕西省文物局分别与陕西省测绘地理信息局、西北有色地质矿业集团有限公司签订合作协议；铜川市文物局与陕西省考古研究院签订战略合作框架协议，举行铜川基本建设工程考古出土文物移交仪式；铜川市第四次全国文物普查二队队长、耀州窑博物馆副研究馆员陈宁宁为大家讲述那段“踏遍漆沮守护文脉”的普查时光；在主会场还举办文物保护、文创和非遗展示等宣传活动。
 
-他用自己跨界的经历与敏锐的社会观察，鼓励年轻人在阅读中寻找方向与力量。
+在2026年“文化和自然遗产日”前后，陕西各地文物行政管理部门、文博单位、社会行业等机构围绕“文物属于人民，服务人民”主题，精心组织策划各类线上线下各具特色的宣传活动。
 
-纪录片导演、旅行家徐承华(老极)带来了《珠峰下的成长课：读万卷书，行万里路》的主题分享，他带着妻子和儿子辛巴进行了三次极地长途旅行，倡导“经历是最好的成长”这一教育理念。
+其中各市、县文博单位和省文物局直属文博单位举办了320多场内容丰富多彩的系列宣传活动，集中展示陕西近年来文物事业高质量发展的新进展、新成效，让文物保护理念深入人心，让文化遗产绽放新的光彩。
 
-上海广播电视台“侧耳”团队三位主持人则用声音为文字“插上翅膀”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:05 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 19:42 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 20:02 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 20:00 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 20:01 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 20:05 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 19:40 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 19:48 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 19:49 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 19:52 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 19:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 19:59 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 19:49 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 19:56 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 19:58 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 19:58 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 20:02 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 20:06 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 19:48 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 20:10 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 20:10 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 19:53 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 20:11 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 20:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:36 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/2712090.shtml)
-- 2026-06-29 20:00 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/77772394.shtml)
-- 2026-06-29 19:53 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/703664023.shtml)
-- 2026-06-29 19:44 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/609168352.shtml)
-- 2026-06-29 20:02 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/5637149.shtml)
-- 2026-06-29 19:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/4938477280.shtml)
-- 2026-06-29 19:47 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/84136.shtml)
-- 2026-06-29 20:04 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.kurohicncr.top/Article/details/6189641022.shtml)
-- 2026-06-29 19:53 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/3605184.shtml)
-- 2026-06-29 19:57 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/622900018.shtml)
-- 2026-06-29 19:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/1272539.shtml)
-- 2026-06-29 20:04 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.kurohicncr.top/Article/details/7012922883.shtml)
-- 2026-06-29 19:58 - [周生如故](https://www.blog.kurohicncr.top/Article/details/172368646547.shtml)
-- 2026-06-29 19:44 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/8993431.shtml)
-- 2026-06-29 19:43 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/68979.shtml)
+- 2026-06-29 19:46 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/848305.shtml)
+- 2026-06-29 20:03 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/13915.shtml)
+- 2026-06-29 19:52 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/83554986947.shtml)
+- 2026-06-29 20:09 - [女生每天戴耳机18小时突发耳聋](http://www.share.kurohicncr.top/Article/details/095328667229.shtml)
+- 2026-06-29 20:06 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/2563079605.shtml)
+- 2026-06-29 19:42 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/245455.shtml)
+- 2026-06-29 19:52 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/0652219.shtml)
+- 2026-06-29 19:50 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/543055.shtml)
+- 2026-06-29 20:04 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/115064562.shtml)
+- 2026-06-29 20:09 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/64193962790.shtml)
+- 2026-06-29 19:56 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/6152811066.shtml)
+- 2026-06-29 19:52 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/501958607993.shtml)
+- 2026-06-29 19:43 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/9102743.shtml)
+- 2026-06-29 19:48 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/549164.shtml)
+- 2026-06-29 19:58 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/18223511633.shtml)

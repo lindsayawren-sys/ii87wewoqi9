@@ -1,60 +1,57 @@
-# 热辣烟火迎宾客 重庆北站旁“来渝第一顿火锅”开席
+# 当AI深度融入生活，人与AI如何和谐相处？看看他们怎么做
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？太阳今日爆发X2.4级耀斑，有何影响？为何说中国全
+当下，AI已深度融入人们的日常生活。在带来高效与便利的同时，也催生了AI依赖、数字信任缺失、内容真伪难辨等各类问题。如何正视AI、用好AI、规范AI，成为全民数字素养提升过程中亟待解答的现实课题。 6月11日，2026年上海市全民数字素养与技能提升月启动活动举行。今年的活动以“申城友AI，共塑智序”为主题，从去年“携手AI”，到今年“友爱AI”，不仅倡导市民以开放心态拥抱新技术
 
 ## 正文
 
-1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？
+当下，AI已深度融入人们的日常生活。
 
-义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？
+在带来高效与便利的同时，也催生了AI依赖、数字信任缺失、内容真伪难辨等各类问题。
 
-太阳今日爆发X2.4级耀斑，有何影响？
+如何正视AI、用好AI、规范AI，成为全民数字素养提升过程中亟待解答的现实课题。
 
-为何说中国全面推广普及国家通用语言文字和保护少数民族语言文化并行不悖？
+6月11日，2026年上海市全民数字素养与技能提升月启动活动举行。
 
-企业玩“心机商标”，但口碑不会陪你演作家蒋胜男：真正的“大女主”不是玛丽苏式“等人来救”孙悟空是“男主人设天花板”？
+今年的活动以“申城友AI，共塑智序”为主题，从去年“携手AI”，到今年“友爱AI”，不仅倡导市民以开放心态拥抱新技术，让AI成为生活、工作的得力助手，更呼吁大家在享受便利的同时，守住安全伦理底线，共同探索人与AI和谐相处的“新智序”。
 
-六小龄童回应台湾退役舰长“打卡”人民海军舰艇 挥笔留言“两岸一家亲”大熊猫“平平”和“福双”将赴美开启10年旅居生活华谊兄弟沉浮录：曾是“中国影视第一股”罪恶神社的“招魂”闹剧罪大恶极：日本又上演“招魂”闹剧12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
+来自不同年龄、不同行业的普通市民走上讲台，分享了他们与人工智能相处的真实故事。
 
-台胞小可的拜祖初体验沈阳塔台迎接志愿军忠烈回家西藏樟木口岸全面复通后出入境人员突破100万人次中国海军以最高礼仪迎接烈士遗骸回国深圳市非血缘造血干细胞捐献达1000例宿迁：在“项王故里”邂逅水韵柔情沈阳全城披红 迎第十三批志愿军烈士遗骸归国实拍西汉王后的“硬核”文具惊险！
+从学生、社区志愿者到内容创作者，他们用各自的方式探索着与AI的相处之道。
 
-买馕忘拉手刹，爱车溜坡撞上绿化带5.2米高！
+和AI做朋友，塑造独立思考能力来自华师永德学校的董逸飞，带来了他告别AI依赖、与AI携手成长的“破瘾”故事。
 
 ## 相关推荐
 
-- 2026-06-29 20:00 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 20:03 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 19:52 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 19:59 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 19:42 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 19:58 - [TTG KSG](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 19:49 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 19:41 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 19:55 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 20:02 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 19:37 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 19:48 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 19:47 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 20:05 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 19:51 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 19:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 20:11 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 20:01 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 20:05 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 19:50 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 19:51 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 19:51 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 19:44 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 20:00 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 20:09 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/40033696.shtml)
-- 2026-06-29 19:58 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/186854313.shtml)
-- 2026-06-29 20:03 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/0120339.shtml)
-- 2026-06-29 19:38 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/1621206.shtml)
-- 2026-06-29 20:05 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/6529476.shtml)
-- 2026-06-29 19:43 - [天道](https://www.share.minike.top/Article/details/773591167.shtml)
-- 2026-06-29 19:37 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/676232.shtml)
-- 2026-06-29 20:06 - [官方通报一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/20585.shtml)
-- 2026-06-29 19:51 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/4693778.shtml)
-- 2026-06-29 19:41 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/270058351.shtml)
-- 2026-06-29 19:48 - [扬名立万](http://www.blog.minike.top/Article/details/648678.shtml)
-- 2026-06-29 19:59 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/242010943.shtml)
-- 2026-06-29 19:55 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/56757579557.shtml)
-- 2026-06-29 20:00 - [美人鱼](https://www.share.minike.top/Article/details/836997027688.shtml)
-- 2026-06-29 19:46 - [北京市发布雷电黄色预警](http://www.share.minike.top/Article/details/54957312.shtml)
+- 2026-06-29 20:03 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/892835103489.shtml)
+- 2026-06-29 19:42 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/0478318550.shtml)
+- 2026-06-29 19:50 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/696738704.shtml)
+- 2026-06-29 19:59 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/276607044.shtml)
+- 2026-06-29 19:53 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/13703613.shtml)
+- 2026-06-29 19:49 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/1105529.shtml)
+- 2026-06-29 19:52 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/969328697807.shtml)
+- 2026-06-29 19:57 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/44676690342.shtml)
+- 2026-06-29 19:45 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/725807.shtml)
+- 2026-06-29 20:09 - [啊啊啊](https://www.blog.minike.top/Article/details/5071278411.shtml)
+- 2026-06-29 20:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/627103309029.shtml)
+- 2026-06-29 20:09 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/133738.shtml)
+- 2026-06-29 19:59 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/337955650129.shtml)
+- 2026-06-29 19:46 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/1921901972.shtml)
+- 2026-06-29 20:09 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/935194.shtml)

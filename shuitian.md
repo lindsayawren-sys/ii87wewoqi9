@@ -1,59 +1,54 @@
-# 国产专业监听音箱团体标准在京发布
+# 梁朝伟谈金爵评审：用心观影，更要尊重多元观点
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网北京4月23日电 (汪俐辰)4月23日，《有源专业监听音箱技术要求和测量方法》团体标准在北京发布，填补了我国专业监听音箱自主标准空白，为行业规范化、高质量发展提供重要支撑。 长期以来，国内广电、录音等专业领域高品质监听音箱高度依赖进口，标准与核心元器件被“卡脖子”。为破解这一难题，中国电影电视技术学会联合行业权威专家，经多轮研讨论证，制定出台该项团体标准，对产品性能、技术
+发布时间：2026年06月13日 17:24 来源：中国新闻网 6月12日，第28届上海国际电影节开幕首日，金爵奖主竞赛单元评委会集体亮相。评委会主席梁朝伟携辛芷蕾、多拉·布舒沙等六位海内外电影人登场。 作为评委会主席，梁朝伟从业四十余年，始终秉持开放、包容的评审心态。谈及这次来上影节担任评委会主席的工作，他表示自己和上海挺有缘，作为中国电影的一分子应该来支持。 电影节是不同文
 
 ## 正文
 
-中新网北京4月23日电 (汪俐辰)4月23日，《有源专业监听音箱技术要求和测量方法》团体标准在北京发布，填补了我国专业监听音箱自主标准空白，为行业规范化、高质量发展提供重要支撑。
+发布时间：2026年06月13日 17:24 来源：中国新闻网 6月12日，第28届上海国际电影节开幕首日，金爵奖主竞赛单元评委会集体亮相。
 
-长期以来，国内广电、录音等专业领域高品质监听音箱高度依赖进口，标准与核心元器件被“卡脖子”。
+评委会主席梁朝伟携辛芷蕾、多拉·布舒沙等六位海内外电影人登场。
 
-为破解这一难题，中国电影电视技术学会联合行业权威专家，经多轮研讨论证，制定出台该项团体标准，对产品性能、技术指标与测量方法作出统一规范。
+作为评委会主席，梁朝伟从业四十余年，始终秉持开放、包容的评审心态。
 
-中国电影电视技术学会常务副理事长钱岳林表示，专业监听音箱作为音视频创作、制作、传输的重要设备，其性能直接影响作品的艺术表达和质量。
+谈及这次来上影节担任评委会主席的工作，他表示自己和上海挺有缘，作为中国电影的一分子应该来支持。
 
-该团体标准将进一步推动产品标准化和技术升级，规范设备性能指标、测量方法及标准要求，有助于内容创作质量提升，促进行业生态协同，支撑产业高质量发展。
+电影节是不同文明开展对话的优质平台，梁朝伟表示，评审是团队协作的工作，若遇到格外欣赏的优质影片，他会坦诚输出观点、尽自己最大努力沟通说服，同时也会认真倾听、尊重每一位评委的想法，在充分交流中凝聚共识。
 
-此外，音王集团作为该标准的重要参与方，其MS系列有源监听音箱通过权威机构检测，达标准要求。
-
-这标志着中国自主研发的监听音箱不仅在技术上实现关键突破，更在标准化、产业化道路上迈上了新的台阶。
-
-据悉，随着该标准的推广应用与自主产品的持续迭代，国内广播电视台、录音室及各类专业音频领域将逐步摆脱进口依赖，真正构建起安全可控、高效协同的国产化产业生态。
+记者王笈 徐银 康玉湛上海报道 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 19:49 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 19:36 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 20:01 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 19:49 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 20:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 19:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 19:37 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 19:40 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 19:39 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 19:42 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 19:36 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 19:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 20:04 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 20:05 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 20:01 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 20:00 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 20:01 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 20:07 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 19:54 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 19:46 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 19:56 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 20:03 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 19:52 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 19:57 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:51 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/1716924.shtml)
-- 2026-06-29 20:05 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/1881980634.shtml)
-- 2026-06-29 20:01 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/935797947924.shtml)
-- 2026-06-29 20:00 - [周杰伦演唱会含星量](https://www.blog.kurohicncr.top/Article/details/31899147367.shtml)
-- 2026-06-29 20:01 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/902171089162.shtml)
-- 2026-06-29 19:43 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/554118649619.shtml)
-- 2026-06-29 20:01 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/50344.shtml)
-- 2026-06-29 19:59 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/462939155621.shtml)
-- 2026-06-29 19:46 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/72181598.shtml)
-- 2026-06-29 19:40 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/3554582.shtml)
-- 2026-06-29 19:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/978979188793.shtml)
-- 2026-06-29 20:03 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/13650.shtml)
-- 2026-06-29 19:54 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/412918.shtml)
-- 2026-06-29 20:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/445556001.shtml)
-- 2026-06-29 19:59 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/308393916.shtml)
+- 2026-06-29 19:56 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/88086833325.shtml)
+- 2026-06-29 20:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/995283781078.shtml)
+- 2026-06-29 20:10 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/26069.shtml)
+- 2026-06-29 20:09 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/462889556175.shtml)
+- 2026-06-29 19:56 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/495551.shtml)
+- 2026-06-29 19:49 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/300020550452.shtml)
+- 2026-06-29 20:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/41909030.shtml)
+- 2026-06-29 19:48 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/506726333529.shtml)
+- 2026-06-29 20:02 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/460019320.shtml)
+- 2026-06-29 20:11 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/64748.shtml)
+- 2026-06-29 19:50 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/17788.shtml)
+- 2026-06-29 20:09 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/7318184.shtml)
+- 2026-06-29 19:49 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/690252.shtml)
+- 2026-06-29 19:47 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/17138.shtml)
+- 2026-06-29 19:45 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.minike.top/Article/details/90273402581.shtml)

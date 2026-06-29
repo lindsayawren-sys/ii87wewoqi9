@@ -1,61 +1,60 @@
-# 中国拟立法加强医保基金管理 严格执行实名就医、购药管理规定
+# 上海将开启第三轮蚊虫专项控制行动 聚焦成蚊消杀控制
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网北京4月27日电(记者 郭超凯 黄钰钦)医疗保障法草案27日提请十四届全国人大常委会二次审议。草案二审稿加强医疗保障基金管理，明确严格执行实名就医、购药管理规定等。 为加强医疗保障基金管理，草案二审稿主要作以下两方面修改完善：一是规定统筹地区人民政府建立基本医疗保险基金风险管控机制，构建中长期收支平衡机制和应急处置机制。二是明确定点医药机构应当按照医疗保障基金使用管理要求
+中新网上海6月15日电 (记者 陈静)上海市爱卫办方面15日披露，今年6月下旬，上海的蚊虫密度将逐步上升，预计7月中旬达到全年最高峰，为此，上海将于6月16日启动第三轮蚊虫专项控制行动，持续强化成蚊消杀控制，确保有效降低高峰蚊虫基数。根据疾控机构最新监测数据显示，今年6月上旬上海成蚊密度、白纹伊蚊孳生情况均低于去年同期。另据气象部门预测，6月下旬本市将有明显降水，气温较高，天气
 
 ## 正文
 
-中新网北京4月27日电(记者 郭超凯 黄钰钦)医疗保障法草案27日提请十四届全国人大常委会二次审议。
+中新网上海6月15日电 (记者 陈静)上海市爱卫办方面15日披露，今年6月下旬，上海的蚊虫密度将逐步上升，预计7月中旬达到全年最高峰，为此，上海将于6月16日启动第三轮蚊虫专项控制行动，持续强化成蚊消杀控制，确保有效降低高峰蚊虫基数。
 
-草案二审稿加强医疗保障基金管理，明确严格执行实名就医、购药管理规定等。
+根据疾控机构最新监测数据显示，今年6月上旬上海成蚊密度、白纹伊蚊孳生情况均低于去年同期。
 
-为加强医疗保障基金管理，草案二审稿主要作以下两方面修改完善：一是规定统筹地区人民政府建立基本医疗保险基金风险管控机制，构建中长期收支平衡机制和应急处置机制。
+另据气象部门预测，6月下旬本市将有明显降水，气温较高，天气潮湿闷热，有利蚊虫孳生繁殖。
 
-二是明确定点医药机构应当按照医疗保障基金使用管理要求，严格执行实名就医、购药管理规定等。
+上海市爱卫办方面介绍，上海今年启动夏秋季爱国卫生运动以来，从5月18日起连续开展两轮蚊虫专项控制行动，聚焦“四个集中”，即：集中开展环境整治、集中开展科普宣传、集中开展成蚊控制和集中开展监督指导，同时对民众通过公共卫生公益服务电话12320提供的800余条线索进行跟踪处置。
 
-为进一步完善生育保险有关规定，草案二审稿明确，生育保险费由用人单位缴纳，职工不缴纳。
+此次上海启动第三轮蚊虫专项控制行动，将开展科普宣传教育，推出“蚊虫防制核心知识科普工具包”，包含核心知识、个人防护和单位责任三大板块，囊括推文、长图等全品类素材，进一步提升全社会防蚊灭蚊意识与技能。
 
-生育保险费与职工基本医疗保险费统一征缴。
+据悉，上海将开展蚊虫孳生环境清理，组织社区、单位等进行卫生大扫除，重点清理小型容器和卫生死角，清除各类积水，减少蚊虫孳生地；同时开展成蚊杀灭，参照疾控部门监测情况，相关部门组织各街镇、各类社会单位强化民众活动较多场所的成蚊杀灭，确保有效降低夏季高峰蚊虫密度。
 
-生育保险基金与职工基本医疗保险基金合并建账。
+针对近期民众咨询较多的问题，上海市爱卫办组织疾控专家进行解答。
 
-草案二审稿还明确，国家完善生育保险制度，推进扩大生育保险覆盖范围。
+住在高层，为何家中还有蚊子？
 
 ## 相关推荐
 
-- 2026-06-29 20:05 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 19:57 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 20:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 19:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 20:01 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 19:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 19:57 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 19:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 19:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 19:57 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 19:44 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 19:56 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 19:55 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 19:38 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 19:38 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 20:02 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 19:44 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 19:47 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 19:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 20:05 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 20:08 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 19:51 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 19:54 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 19:56 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 20:09 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 20:05 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 19:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 19:48 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 20:05 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/47579823.shtml)
-- 2026-06-29 20:03 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/65622.shtml)
-- 2026-06-29 19:48 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/717760702610.shtml)
-- 2026-06-29 20:05 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/59005098.shtml)
-- 2026-06-29 19:44 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/5702530407.shtml)
-- 2026-06-29 19:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/516057699.shtml)
-- 2026-06-29 19:59 - [德国医生在没有空调的手术室工作](https://www.blog.minike.top/Article/details/3322866492.shtml)
-- 2026-06-29 19:39 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.minike.top/Article/details/439901.shtml)
-- 2026-06-29 19:59 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/849737.shtml)
-- 2026-06-29 20:01 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/0779171886.shtml)
-- 2026-06-29 19:58 - [金刚川](http://www.blog.minike.top/Article/details/21766.shtml)
-- 2026-06-29 19:59 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/280852330197.shtml)
-- 2026-06-29 20:03 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/379999903468.shtml)
-- 2026-06-29 19:49 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/9274811.shtml)
-- 2026-06-29 19:41 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/62854.shtml)
+- 2026-06-29 19:49 - [新官上任三把火](http://www.share.minike.top/Article/details/293666030166.shtml)
+- 2026-06-29 19:57 - [逆天祖国人](http://www.blog.minike.top/Article/details/1664142.shtml)
+- 2026-06-29 20:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/828272.shtml)
+- 2026-06-29 19:56 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/8207685621.shtml)
+- 2026-06-29 19:46 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/79420.shtml)
+- 2026-06-29 20:01 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/81624285368.shtml)
+- 2026-06-29 19:46 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/75997986.shtml)
+- 2026-06-29 19:59 - [欧洲安装一台空调要花近8000元](https://www.share.minike.top/Article/details/1768680.shtml)
+- 2026-06-29 20:09 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/48273532.shtml)
+- 2026-06-29 19:54 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/014210259777.shtml)
+- 2026-06-29 19:42 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/93689032.shtml)
+- 2026-06-29 19:53 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/92660601.shtml)
+- 2026-06-29 20:06 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/746868.shtml)
+- 2026-06-29 20:04 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/2328147969.shtml)
+- 2026-06-29 19:56 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/45860036663.shtml)

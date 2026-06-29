@@ -1,60 +1,59 @@
-# 山东发布2025年知识产权白皮书 全面展示知识产权强省建设成效
+# 聚焦“艺术+体育”，LOTUS万荷国际嘉年华落幕
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网济南4月25日电(孙倩)记者25日从山东省市场监督管理局了解到，山东省质量强省建设协调推进领导小组办公室发布《2025年山东省知识产权发展与保护状况》白皮书，这是该省连续24年发布知识产权发展状况白皮书。白皮书全面展示2025年山东在知识产权制度体系、保护效能、转化运用、服务能力、对外合作等方面取得的显著成效。截至2025年底，山东省专利授权量20.61万件，其中发明专利
+中新网北京6月15日电 (记者 高凯)为期两天的LOTUS万荷国际嘉年华日前在北京万荷文化硅谷收官。 嘉年华融合多元文化、潮流演艺、传统国风、公益科普等多项内容。其中，“绿茵无界·迷你世杯”作为核心板块，成为全场亮点。活动吸引到巴西、加纳等多国友人参与。现场还开设迷你足球赛事，孩子们在奔跑嬉戏间尽情感受运动魅力。 在主题巡游环节。六大方阵轮番登场：打头阵的摩托车特技方阵酷炫吸睛
 
 ## 正文
 
-中新网济南4月25日电(孙倩)记者25日从山东省市场监督管理局了解到，山东省质量强省建设协调推进领导小组办公室发布《2025年山东省知识产权发展与保护状况》白皮书，这是该省连续24年发布知识产权发展状况白皮书。
+中新网北京6月15日电 (记者 高凯)为期两天的LOTUS万荷国际嘉年华日前在北京万荷文化硅谷收官。
 
-白皮书全面展示2025年山东在知识产权制度体系、保护效能、转化运用、服务能力、对外合作等方面取得的显著成效。
+嘉年华融合多元文化、潮流演艺、传统国风、公益科普等多项内容。
 
-截至2025年底，山东省专利授权量20.61万件，其中发明专利授权量5.75万件；发明专利拥有量32.76万件，同比增长14.4%；高价值发明专利拥有量12.38万件，每万人口高价值发明专利拥有量达到12.28件，超额实现“十四五”规划确定的人均10件的目标。
+其中，“绿茵无界·迷你世杯”作为核心板块，成为全场亮点。
 
-2025年末有效注册商标311.6万件，著作权作品年登记64.8万件，农业、林业植物新品种授权量与累计量持续增长，知识产权创造基础持续夯实。
+活动吸引到巴西、加纳等多国友人参与。
 
-知识产权保护格局全面构建。
+现场还开设迷你足球赛事，孩子们在奔跑嬉戏间尽情感受运动魅力。
 
-在司法保护方面，山东省新收、审结知识产权案件量稳中有升，具备一审知识产权民事、行政案件管辖权的基层法院数量增至43个。
+在主题巡游环节。
 
-知识产权转化运用效益也日益凸显，山东发布《数据知识产权确权指南》地方标准，在中国率先完成数据知识产权登记审查央地对接，累计发放数据知识产权登记证书663张。
+六大方阵轮番登场：打头阵的摩托车特技方阵酷炫吸睛，车手在园区红色旋转楼梯核心打卡点上演精彩特技表演；亲子汉服方阵中，百余套定制汉服穿梭于工业风园区之内，传统国风与现代建筑相融碰撞，焕发出别样美感；泰嘉戏剧方阵现场演绎经典戏剧选段，打破舞台边界，氛围感十足；足球方阵色彩缤纷，球员轮番展示娴熟颠球技艺；Cosplay舞团带来动感舞蹈；儿童电动车车队压轴登场，萌态十足。
 
-专利导航助力国产GPU、芯片设计制造等关键核心领域技术突破，地理标志与商标品牌指导站赋能乡村振兴提档升级。
+此外，三层T台走秀聚焦国风美学、NPC角色等，趣味多样。
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 20:01 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 19:44 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 20:03 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 19:59 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 19:51 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 19:37 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 19:53 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 19:55 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 19:49 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 19:37 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 20:00 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 20:05 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 19:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 19:50 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 20:12 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 20:09 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 19:45 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 19:54 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 19:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 20:11 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 19:51 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 20:01 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 20:10 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 19:51 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 20:07 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 19:56 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/1920679.shtml)
-- 2026-06-29 20:02 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/412463713630.shtml)
-- 2026-06-29 19:47 - [大马同意延长马航370残骸搜寻工作](http://www.blog.kurohicncr.top/Article/details/5190068.shtml)
-- 2026-06-29 19:36 - [第一炉香](http://www.share.kurohicncr.top/Article/details/04378230661.shtml)
-- 2026-06-29 20:04 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/97513.shtml)
-- 2026-06-29 19:36 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/5643226.shtml)
-- 2026-06-29 19:54 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/602682.shtml)
-- 2026-06-29 19:57 - [沉睡花园](https://www.blog.minike.top/Article/details/603276241481.shtml)
-- 2026-06-29 19:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/666456484.shtml)
-- 2026-06-29 19:48 - [一生一世](http://www.share.minike.top/Article/details/26216.shtml)
-- 2026-06-29 19:47 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/864374465936.shtml)
-- 2026-06-29 20:02 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.minike.top/Article/details/737636534545.shtml)
-- 2026-06-29 20:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/625193.shtml)
-- 2026-06-29 19:39 - [扫黑风暴](https://www.share.minike.top/Article/details/845689616245.shtml)
-- 2026-06-29 19:46 - [速度与激情9](https://www.share.minike.top/Article/details/42125009480.shtml)
+- 2026-06-29 19:43 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/06255.shtml)
+- 2026-06-29 20:11 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/00448437918.shtml)
+- 2026-06-29 20:01 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/04574474.shtml)
+- 2026-06-29 19:42 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/362432758732.shtml)
+- 2026-06-29 20:09 - [济南航空航天全面起势](https://www.blog.kurohicncr.top/Article/details/7097348229.shtml)
+- 2026-06-29 20:00 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/4466481.shtml)
+- 2026-06-29 19:44 - [周生如故](http://www.share.minike.top/Article/details/9032832756.shtml)
+- 2026-06-29 19:47 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/710174462567.shtml)
+- 2026-06-29 20:08 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/7898032861.shtml)
+- 2026-06-29 20:02 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/8857739199.shtml)
+- 2026-06-29 19:43 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/308870.shtml)
+- 2026-06-29 19:47 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/2428587349.shtml)
+- 2026-06-29 19:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/85435107791.shtml)
+- 2026-06-29 20:11 - [极限挑战第一季](https://www.share.minike.top/Article/details/883862.shtml)
+- 2026-06-29 20:00 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/5411365.shtml)

@@ -1,54 +1,57 @@
-# 沈阳市举办2026年中小学生人工智能实践活动
+# 重庆市树立和践行正确政绩观学习教育工作成果交流会举行 袁家军主持并讲话 王炯程丽华出席
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网沈阳4月25日电 (记者 于海洋)为提升学生人工智能素养与技能，2026年沈阳市中小学生人工智能实践活动25日在和平区南京一校长白岛第一小学举行。本次活动由沈阳市教育局主办、沈阳市教育研究院承办，吸引来自98所学校的250支队伍、401名学生参与。本次活动是为沈阳市中小学生量身打造的学习成长与展示交流平台，活动共设置7个项目，在智能机器人A类、B类、C类和智能机器人—超级
+6月15日下午，重庆市树立和践行正确政绩观学习教育工作成果交流会举行。市委书记袁家军主持会议并讲话。他强调，要深学笃行习近平总书记关于树立和践行正确政绩观的重要论述，深入贯彻习近平总书记视察重庆重要讲话重要指示精神，聚焦做实“两大定位”、发挥“三个作用”，深化落实“立党为公、为民造福、科学决策、真抓实干”总要求，紧盯重点任务推动学习教育走深走实、见行见效，引领全市上下不断增强树
 
 ## 正文
 
-中新网沈阳4月25日电 (记者 于海洋)为提升学生人工智能素养与技能，2026年沈阳市中小学生人工智能实践活动25日在和平区南京一校长白岛第一小学举行。
+6月15日下午，重庆市树立和践行正确政绩观学习教育工作成果交流会举行。
 
-本次活动由沈阳市教育局主办、沈阳市教育研究院承办，吸引来自98所学校的250支队伍、401名学生参与。
+市委书记袁家军主持会议并讲话。
 
-本次活动是为沈阳市中小学生量身打造的学习成长与展示交流平台，活动共设置7个项目，在智能机器人A类、B类、C类和智能机器人—超级轨迹、智能机器人—分秒必争等传统项目基础上，新增了智达天工、智能机器人—鲸鱼文明破晓项目。
+他强调，要深学笃行习近平总书记关于树立和践行正确政绩观的重要论述，深入贯彻习近平总书记视察重庆重要讲话重要指示精神，聚焦做实“两大定位”、发挥“三个作用”，深化落实“立党为公、为民造福、科学决策、真抓实干”总要求，紧盯重点任务推动学习教育走深走实、见行见效，引领全市上下不断增强树立和践行正确政绩观的政治自觉思想自觉行动自觉，为奋力开创“十五五”开局之年现代化新重庆建设新局面提供坚强保障。
 
-活动现场，参赛选手在21块比赛场地上同场竞技，他们人机并肩协作，用双手搭建创意，用代码书写梦想，用团队合作点亮智慧的火花。
+市人大常委会主任王炯、市政协主席程丽华，市委副书记陈新武，市委常委，有关市级领导出席。
 
-据悉，沈阳市教育局将完善人工智能教育课程体系，推动常态化教学实施，建设优质数字化教学资源，加强人工智能应用场景建设，加快普及中小学人工智能教育。
+会议通报了全市学习教育开展情况，市应急管理局、市发展改革委、市财政局、南岸区、重庆机电集团、涪陵区、北碚区、梁平区、市委政法委、合川区负责人作交流发言。
 
-(完)
+袁家军在讲话中指出，学习教育开展以来，全市各级党组织全面贯彻党中央重大决策部署，高标准推进学查改各项任务，全体党员干部普遍经受了一次深刻的政治洗礼和党性锻造，以正确政绩观干事创业的思想观念和能力本领得到锤炼提升，旗帜鲜明讲政治的党性自觉更加坚定，遵循规律科学决策推动高质量发展的拼劲干劲更加充足，直面解决历史遗留问题的主动性积极性更加凸显，践行“中国式现代化，民生为大”理念的意识更加牢固，从严治党、营造风清气正政治生态更加富有成效，以实干实绩实效坚定拥护“两个确立”、坚决做到“两个维护”展现新气象。
+
+袁家军强调，要清醒认识当前全市政绩观方面存在的突出问题，紧盯重点任务推动学习教育走深走实、见行见效，引导全市党员干部进一步提高思想认识、端正干事方向，持续用力破解发展难题、促进事业发展，坚决做到为人民出政绩、以实干出政绩。
+
+●要坚持把忠诚履职摆在首要位置，坚决维护党中央权威，驰而不息锤炼增强政治能力，时刻保持警醒守住清正廉洁底线，全面彻底肃清流毒影响，持续修复净化政治生态，坚决做到有令必行、有禁必止。
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 20:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 19:58 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 20:01 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 19:50 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 19:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 19:41 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 19:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 19:43 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 19:59 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 19:41 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 19:51 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 20:04 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 20:06 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 20:10 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 19:54 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 19:50 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 20:01 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 20:05 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 19:52 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 19:57 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 20:07 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 19:50 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:59 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/94633945.shtml)
-- 2026-06-29 19:37 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/26604.shtml)
-- 2026-06-29 19:43 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/405332.shtml)
-- 2026-06-29 20:03 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/300941.shtml)
-- 2026-06-29 20:00 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/940560.shtml)
-- 2026-06-29 20:02 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/610492.shtml)
-- 2026-06-29 19:52 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/641868.shtml)
-- 2026-06-29 19:42 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/3202084.shtml)
-- 2026-06-29 19:44 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/960123.shtml)
-- 2026-06-29 19:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/12012413.shtml)
-- 2026-06-29 19:58 - [周杰伦演唱会含星量](https://www.share.minike.top/Article/details/16210239877.shtml)
-- 2026-06-29 19:40 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/878552295929.shtml)
-- 2026-06-29 19:52 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/58456620.shtml)
-- 2026-06-29 20:05 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/80931225.shtml)
-- 2026-06-29 19:52 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/2166650.shtml)
+- 2026-06-29 20:03 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/287839052.shtml)
+- 2026-06-29 20:03 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/986248927982.shtml)
+- 2026-06-29 19:58 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/2600413.shtml)
+- 2026-06-29 19:42 - [欧洲极端高温如何影响家电股](https://www.share.minike.top/Article/details/5089277282.shtml)
+- 2026-06-29 19:46 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/1881011.shtml)
+- 2026-06-29 20:09 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.minike.top/Article/details/0141047.shtml)
+- 2026-06-29 19:52 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/42069081662.shtml)
+- 2026-06-29 19:48 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.kurohicncr.top/Article/details/0743213313.shtml)
+- 2026-06-29 19:43 - [特朗普两大核心赌注将迎高院裁决](https://www.share.minike.top/Article/details/558791602.shtml)
+- 2026-06-29 19:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/0078358.shtml)
+- 2026-06-29 19:55 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/1578267316.shtml)
+- 2026-06-29 20:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/368849909399.shtml)
+- 2026-06-29 20:06 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.minike.top/Article/details/7438875.shtml)
+- 2026-06-29 19:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/0167259.shtml)
+- 2026-06-29 19:55 - [欧洲极端高温如何影响家电股](http://www.blog.kurohicncr.top/Article/details/4937926766.shtml)

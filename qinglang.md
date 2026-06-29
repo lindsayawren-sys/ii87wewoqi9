@@ -1,59 +1,60 @@
-# 杭州市准独角兽企业增至413家 规模与质量双升
+# 重庆启幕西南地区首个常态化烟花文旅演艺
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月23日电(奚金燕)4月23日，以“浙里创新，智领未来”为主题的第十届万物生长大会在杭州举行。现场发布的“2026杭州独角兽与准独角兽企业名单”显示，杭州准独角兽企业从397家增长到413家，规模与质量双升。 据悉，大会由民建浙江省委会、浙江省商会、中国投资发展促进会主办。来自全国的独角兽企业创始人、顶尖投资人、科学家及政府代表等千余人参会。 现场发布了2026“浙
+中新网重庆6月14日电 (记者 钟旖)13日晚，位于重庆长寿湖的重庆天空剧院正式启动“焰遇重庆·仲夏花火夜”首场演出。 随着千架无人机化作“巨帆”驶入星河，搭配瀑布烟花倾泻而下，西南地区首个常态化烟花文旅演艺在重庆正式落地。即日起，重庆天空剧院将开启“周周有烟花”模式，每周六晚定期举行烟花秀，为山城夜经济与文旅发展增添新亮点。 当晚，“朝暮树”“七彩祥云”“星际之门”等经典烟花
 
 ## 正文
 
-中新网杭州4月23日电(奚金燕)4月23日，以“浙里创新，智领未来”为主题的第十届万物生长大会在杭州举行。
+中新网重庆6月14日电 (记者 钟旖)13日晚，位于重庆长寿湖的重庆天空剧院正式启动“焰遇重庆·仲夏花火夜”首场演出。
 
-现场发布的“2026杭州独角兽与准独角兽企业名单”显示，杭州准独角兽企业从397家增长到413家，规模与质量双升。
+随着千架无人机化作“巨帆”驶入星河，搭配瀑布烟花倾泻而下，西南地区首个常态化烟花文旅演艺在重庆正式落地。
 
-据悉，大会由民建浙江省委会、浙江省商会、中国投资发展促进会主办。
+即日起，重庆天空剧院将开启“周周有烟花”模式，每周六晚定期举行烟花秀，为山城夜经济与文旅发展增添新亮点。
 
-来自全国的独角兽企业创始人、顶尖投资人、科学家及政府代表等千余人参会。
+当晚，“朝暮树”“七彩祥云”“星际之门”等经典烟花轮番升空，结合长寿湖湖面景观，空中焰火与水中倒影相映成趣，吸引上万名市民与游客现场观看。
 
-现场发布了2026“浙江独角兽企业名单”“浙江未来独角兽企业TOP100名单”“浙江种子独角兽企业TOP100名单”“2026杭州独角兽与准独角兽企业名单”，勾勒出浙江省科创企业梯队的成长脉络与蓬勃生机。
+值得一提的是，为迎接毕业季，演出特别设置面向高校毕业生的“云帆入海”仪式。
 
-榜单显示，2026年浙江独角兽“生态”呈现出“硬核科技主导、上市批量增长”的鲜明特征。
+在万人齐声高喊“乘风破浪，毕业快乐”后，无人机矩阵汇聚为巨幅帆船图案，与瀑布烟花融合呈现，为莘莘学子送上离校前最特别的“毕业礼物”。
 
-2026年“浙江独角兽”从55家增长到58家；杭州独角兽从44家增长到48家；杭州准独角兽从397家增长到413家。
+为献礼青春学子，本场演出前夕，长寿区文旅部门即联合重庆天空剧院发起“花火毕业影像计划”，向毕业生赠送百张门票，并在现场为身着学士服、校服的学子派发“花火毕业礼包”。
 
-从城市分布格局来看，浙江系列榜单企业呈现“头部引领、全域协同”的特点，杭州、宁波、嘉兴居于前三，其余地市分布相对均衡，彰显了浙江产业全域协同发展的良好态势。
+该影像计划将贯穿整个毕业季，持续面向毕业生开放报名。
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 19:53 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 19:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 19:47 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 20:04 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 19:42 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 20:00 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 19:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 19:45 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 19:50 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 19:54 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 19:52 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 19:57 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 19:55 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 19:47 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 20:07 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 19:57 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 19:52 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 19:45 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 19:47 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 19:50 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 19:50 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 19:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 19:50 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 19:43 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 19:53 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 20:06 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:01 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/598470.shtml)
-- 2026-06-29 19:43 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/42468327728.shtml)
-- 2026-06-29 19:57 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/88772401.shtml)
-- 2026-06-29 19:47 - [金牌调解](http://www.share.minike.top/Article/details/47320155.shtml)
-- 2026-06-29 19:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/547220830.shtml)
-- 2026-06-29 19:55 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/5132367.shtml)
-- 2026-06-29 19:49 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/615588713618.shtml)
-- 2026-06-29 19:53 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/78280468.shtml)
-- 2026-06-29 20:04 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/648247449420.shtml)
-- 2026-06-29 19:54 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/09988687.shtml)
-- 2026-06-29 19:41 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/972361619.shtml)
-- 2026-06-29 19:50 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/486028.shtml)
-- 2026-06-29 20:05 - [乔家的儿女](https://www.blog.minike.top/Article/details/774580709814.shtml)
-- 2026-06-29 19:55 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/7085110.shtml)
-- 2026-06-29 19:55 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/625141733432.shtml)
+- 2026-06-29 19:49 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/796427786.shtml)
+- 2026-06-29 19:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/980695.shtml)
+- 2026-06-29 19:51 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/3418170358.shtml)
+- 2026-06-29 20:09 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/165364.shtml)
+- 2026-06-29 19:50 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/7912848.shtml)
+- 2026-06-29 19:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/9382782883.shtml)
+- 2026-06-29 19:50 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/4741163584.shtml)
+- 2026-06-29 19:55 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/76535453.shtml)
+- 2026-06-29 19:43 - [扬名立万](https://www.blog.minike.top/Article/details/53767353.shtml)
+- 2026-06-29 19:59 - [时光音乐会](https://www.share.minike.top/Article/details/3050504411.shtml)
+- 2026-06-29 19:57 - [教育部高校学生资助热线7月1日开通](http://www.blog.kurohicncr.top/Article/details/096268.shtml)
+- 2026-06-29 20:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/4021978.shtml)
+- 2026-06-29 20:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/619081665.shtml)
+- 2026-06-29 19:57 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/6519377.shtml)
+- 2026-06-29 19:51 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.minike.top/Article/details/184981331.shtml)

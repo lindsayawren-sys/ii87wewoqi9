@@ -1,54 +1,51 @@
-# 美国政府：白宫晚宴枪手意图刺杀特朗普
+# 厦门银行：获准发行资本补充债券
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据英国广播公司(BBC)报道，当地时间26日，美国代理司法部长托德·布兰奇表示，白宫记者协会晚宴的枪手，意图刺杀美国总统特朗普及部分官员。 据报道，这名枪手于当地时间25日在白宫记者协会晚宴上，在一个安全检查点附近开枪，随后被捕。 布兰奇表示，这名枪手的作案动机仍在调查中，但“初步”调查结果显示，他的目标是特朗普及美国政府高级官员。 美国联邦调查局刑事部门和
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月15日金融一线消息，厦门银行公告称，近日，公司收到《中国人民银行准予行政许可决定书》（银许准予决字〔2026〕第 54 号），中国人民银行同意公司在全国银行间市场及境外市场发行资本补充债券，行政许可有效期截止至2027年 6 月 30 日，有效期末资本补充债券新增余额不超过0 亿元，资本补充债券余额不超过 114 亿元，公司
 
 ## 正文
 
-中新网4月27日电 据英国广播公司(BBC)报道，当地时间26日，美国代理司法部长托德·布兰奇表示，白宫记者协会晚宴的枪手，意图刺杀美国总统特朗普及部分官员。
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月15日金融一线消息，厦门银行公告称，近日，公司收到《中国人民银行准予行政许可决定书》（银许准予决字〔2026〕第 54 号），中国人民银行同意公司在全国银行间市场及境外市场发行资本补充债券，行政许可有效期截止至2027年 6 月 30 日，有效期末资本补充债券新增余额不超过0 亿元，资本补充债券余额不超过 114 亿元，公司可在有效期内自主选择分期发行时间。
 
-据报道，这名枪手于当地时间25日在白宫记者协会晚宴上，在一个安全检查点附近开枪，随后被捕。
+公司将按照《全国银行间债券市场金融债券发行管理办法》《全国银行间债券市场金融债券发行管理操作规程》《商业银行资本管理办法》等金融债券管理规定，做好资本补充债券发行及信息披露工作。
 
-布兰奇表示，这名枪手的作案动机仍在调查中，但“初步”调查结果显示，他的目标是特朗普及美国政府高级官员。
-
-美国联邦调查局刑事部门和反恐特遣队正在调查此事件。
-
-枪击事件发生后，特朗普表示，这名嫌疑人“心中怀有很久的强烈仇恨”，并称他的家人知道他“有困难”。
-
-据此前报道，当地时间25日晚间，枪声在华盛顿希尔顿酒店的大厅响起，当时白宫记者协会晚宴正在楼下宴会厅举行。
-
-特朗普夫妇以及美国副总统万斯等人被安保人员紧急护送离席。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 19:47 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 19:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 20:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 19:55 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 19:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 19:45 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 19:55 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 19:58 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 20:02 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 20:06 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 19:54 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 19:54 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 20:00 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 19:46 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 19:48 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 19:42 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 20:07 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 19:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 19:54 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 19:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 20:09 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 20:07 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 20:02 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 20:10 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/97454391.shtml)
-- 2026-06-29 19:43 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/3523251.shtml)
-- 2026-06-29 19:55 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/675278828217.shtml)
-- 2026-06-29 19:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/794477.shtml)
-- 2026-06-29 19:55 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/61465457228.shtml)
-- 2026-06-29 19:36 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/0729677.shtml)
-- 2026-06-29 19:56 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/28549.shtml)
-- 2026-06-29 19:45 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/43709.shtml)
-- 2026-06-29 19:59 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/87984911.shtml)
-- 2026-06-29 20:00 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/5817447.shtml)
-- 2026-06-29 19:49 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/738384406999.shtml)
-- 2026-06-29 19:39 - [沙丘](https://www.share.minike.top/Article/details/2216755.shtml)
-- 2026-06-29 19:39 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/279410390133.shtml)
-- 2026-06-29 20:00 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/65289.shtml)
-- 2026-06-29 19:57 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/22896.shtml)
+- 2026-06-29 19:59 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/1116892.shtml)
+- 2026-06-29 20:07 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/191862.shtml)
+- 2026-06-29 20:05 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/472580.shtml)
+- 2026-06-29 20:03 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/17835.shtml)
+- 2026-06-29 19:59 - [男子40度高温下骑行严重晒伤](http://www.share.minike.top/Article/details/33169569.shtml)
+- 2026-06-29 20:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/44314419.shtml)
+- 2026-06-29 19:46 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/1066593173.shtml)
+- 2026-06-29 20:01 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/072213.shtml)
+- 2026-06-29 20:01 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/18626.shtml)
+- 2026-06-29 19:55 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/57647678.shtml)
+- 2026-06-29 19:57 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/7688398.shtml)
+- 2026-06-29 19:55 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/78324.shtml)
+- 2026-06-29 19:57 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/48526.shtml)
+- 2026-06-29 20:08 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/64541855630.shtml)
+- 2026-06-29 20:10 - [王楚钦称抽签结果出来心情不好](https://www.blog.kurohicncr.top/Article/details/9462985.shtml)

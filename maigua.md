@@ -1,56 +1,59 @@
-# “上海论坛2026”年会开幕
+# 光大期货：6月16日农产品日报
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-专题：上海论坛2026 （通讯员 汪蒙琪 李怡洁 杨于琛 黄晨） 4月24日上午，“上海论坛2026”在上海世界会客厅开幕。本届论坛为期三天，以“重构的时代：创新与共治”为主题，来自全球50多个国家和地区的智库、高校、政府、企业、媒体等机构的近400名与会者围绕人工智能治理、绿色转型、全球南方发展等议题展开对话交流，为推动包容、可持续的全球发展贡献多元方案。 开幕式上，上海市人
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收高，受助于技术性反弹，此前总体有利的美国作物天气以及原油价格拖累美豆创四个月新低。NOPA发布月度压榨数据，截至5月底美豆油库存降至17.35亿帮，为5个月最低水平。美豆油库存低于预期。美豆出口检验符合预期，美豆优良率略改善。机构预计美豆种植面积8530万英亩，略高于种植意
 
 ## 正文
 
-专题：上海论坛2026 （通讯员 汪蒙琪 李怡洁 杨于琛 黄晨） 4月24日上午，“上海论坛2026”在上海世界会客厅开幕。
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收高，受助于技术性反弹，此前总体有利的美国作物天气以及原油价格拖累美豆创四个月新低。
 
-本届论坛为期三天，以“重构的时代：创新与共治”为主题，来自全球50多个国家和地区的智库、高校、政府、企业、媒体等机构的近400名与会者围绕人工智能治理、绿色转型、全球南方发展等议题展开对话交流，为推动包容、可持续的全球发展贡献多元方案。
+NOPA发布月度压榨数据，截至5月底美豆油库存降至17.35亿帮，为5个月最低水平。
 
-开幕式上，上海市人大常委会副主任、上海市人民对外友好协会会长陈靖，复旦大学校长金力，韩国SK集团董事长兼首席执行官崔泰源致辞，复旦大学党委书记裘新主持开幕式。
+美豆油库存低于预期。
 
-博鳌亚洲论坛理事长、联合国第八任秘书长潘基文发表特别演讲。
+美豆出口检验符合预期，美豆优良率略改善。
 
-美国前助理国务卿、斯坦福大学弗里曼·斯伯格利国际研究所研究员冯稼时（Thomas Fingar），稀宇科技（MiniMax）副总裁、资本市场负责人薛子钊，马克斯-普朗克气象研究所所长、美国地球物理联合会会士比约恩·史蒂文斯（Bjorn Stevens），复旦大学技术创新战略研究中心教授、华为技术有限公司前常务董事徐文伟发表主旨演讲，韩国崔钟贤学术院院长金裕锡主持主旨演讲。
+机构预计美豆种植面积8530万英亩，略高于种植意向报告的8470万英亩。
 
-西班牙IE大学政治经济与全球事务学院院长、意大利前总理恩里克·莱塔（Enrico Letta），联合国环境规划署数字办公室司长萨里·拉德万（Golestan Sally Radwan），韩国前驻联合国大使金塾，SK中国董事长朴成泽、联席总裁崔东昱，国际关系学院院长胡继平，上海市友协副会长傅继红，复旦大学副校长陈志敏等出席开幕式。
+国内方面，蛋白粕偏弱震荡，资金观望情绪浓厚。
 
-创新与共治：于不确定性中寻找创新锚点 潘基文指出，我们正生活在一个深刻的全球重构时代：单边主义抬头，保护主义加剧，信任不断侵蚀，气候变化也在加速。
+现货市场成交清淡，同样观望为主。
 
-与此同时，人工智能和生物技术带来希望，但也带来了深刻的不确定性。
+钢联数据显示，上周大豆库存攀升，豆粕库存攀升，未执行合同下降。
 
 ## 相关推荐
 
-- 2026-06-29 19:38 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 19:37 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 19:54 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 19:46 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 19:41 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 19:39 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 19:44 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 19:57 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 19:47 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 19:57 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 19:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 19:56 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 19:53 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 20:04 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 19:50 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 20:07 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 19:46 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 20:02 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 19:50 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 20:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 19:58 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 19:42 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 19:57 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:40 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/37017615498.shtml)
-- 2026-06-29 19:48 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/9429930551.shtml)
-- 2026-06-29 19:50 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/302382945693.shtml)
-- 2026-06-29 19:44 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/380816011962.shtml)
-- 2026-06-29 19:50 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/34390356.shtml)
-- 2026-06-29 19:51 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/399629000.shtml)
-- 2026-06-29 19:51 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/608660596.shtml)
-- 2026-06-29 19:43 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/0029402971.shtml)
-- 2026-06-29 20:02 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/683083673.shtml)
-- 2026-06-29 19:47 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/21514043223.shtml)
-- 2026-06-29 19:36 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/88684621765.shtml)
-- 2026-06-29 19:36 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/463595.shtml)
-- 2026-06-29 19:55 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/6566201.shtml)
-- 2026-06-29 19:58 - [啊啊啊](http://www.share.minike.top/Article/details/153823.shtml)
-- 2026-06-29 20:04 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/7854067.shtml)
+- 2026-06-29 19:56 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/00920.shtml)
+- 2026-06-29 20:02 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/4820163.shtml)
+- 2026-06-29 19:54 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/5533345.shtml)
+- 2026-06-29 19:53 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/1860737.shtml)
+- 2026-06-29 19:44 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/07743022405.shtml)
+- 2026-06-29 19:58 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/52675.shtml)
+- 2026-06-29 19:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/8245878.shtml)
+- 2026-06-29 19:48 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/377269336.shtml)
+- 2026-06-29 20:08 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/34544.shtml)
+- 2026-06-29 20:11 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/366731123137.shtml)
+- 2026-06-29 19:59 - [这一刀 会很帅](https://www.share.minike.top/Article/details/042625267.shtml)
+- 2026-06-29 19:59 - [周生如故](https://www.share.kurohicncr.top/Article/details/728553.shtml)
+- 2026-06-29 19:51 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/0007842262.shtml)
+- 2026-06-29 19:53 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/8433128.shtml)
+- 2026-06-29 19:49 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/417918.shtml)

@@ -1,48 +1,60 @@
-# 4月24日隔夜要闻：美股收低软件股领跌 特朗普称对伊不想仓促行事 德黑兰传出爆炸声 以色列否认空袭伊朗
+# 港股收评：恒指涨0.5% 科指涨1.28% 黄金股、航空股大涨 芯片股强势 智谱涨超32% 溜溜梅上市首日涨超193%
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-欲览更多环球财经资讯，请移步7×24小时实时财经新闻直播 市场 4月24日收盘：美股收低软件股领跌 纳指下跌逾200点 4月24日美股成交额前20：传特斯拉或将SpaceX合并 4月24日热门中概股普跌 小鹏汽车跌6.36%，新东方跌5.97% 未经证实消息称伊朗首席谈判代表辞职，布伦特原油突破每桶104美元 欧洲股市持稳 交易员密切关注伊朗相关新闻和企业财报 大宗商品综述：中
+6月15日消息，港股三大指数集体上涨。截至收盘，恒生指数涨0.5%，报24842.67，恒生科技指数涨1.28%，国企指数涨0.02%。盘面上，科网股涨跌不一，联想超9%，哔哩哔哩跌超1%；黄金股集体上涨，紫金黄金国际涨超15%；AI应用股部分走高，智谱涨超32%；芯片股涨幅居前，华虹宏力涨超10%；航空股全天强势，东方航空涨超8%；溜溜梅今日上市，首日涨超193%。 黄金股集
 
 ## 正文
 
-欲览更多环球财经资讯，请移步7×24小时实时财经新闻直播 市场 4月24日收盘：美股收低软件股领跌 纳指下跌逾200点 4月24日美股成交额前20：传特斯拉或将SpaceX合并 4月24日热门中概股普跌 小鹏汽车跌6.36%，新东方跌5.97% 未经证实消息称伊朗首席谈判代表辞职，布伦特原油突破每桶104美元 欧洲股市持稳 交易员密切关注伊朗相关新闻和企业财报 大宗商品综述：中东紧张局势推高油价 黄金和铜下跌 宏观 特朗普称美国不会对伊朗使用核武器 特朗普称对伊“不想仓促行事” 仍保留军事选项 特朗普称不急于结束与伊朗的战争 特朗普宣布：以黎停火协议延长三周 美伊和平谈判陷入僵局，霍尔木兹海峡局势加剧 “灭亡文明”“送回石器时代” 特朗普激烈言辞据悉削弱伊朗谈判意愿 特朗普称他将调查联邦雇员在事件预测平台押注的问题 特朗普：美国无意干预即将参加世界杯
+6月15日消息，港股三大指数集体上涨。
 
-中东局势不确定性拖累，铜价从数周高位回落 美伊谈判陷僵局，墨西哥比索承压走低 瑞银：科技股是冲突爆发以来股市反弹的核心驱动力 欧洲央行管委Nagel称特朗普对美联储的攻击引发了避险行为责任编辑：丁文武
+截至收盘，恒生指数涨0.5%，报24842.67，恒生科技指数涨1.28%，国企指数涨0.02%。
+
+盘面上，科网股涨跌不一，联想超9%，哔哩哔哩跌超1%；黄金股集体上涨，紫金黄金国际涨超15%；AI应用股部分走高，智谱涨超32%；芯片股涨幅居前，华虹宏力涨超10%；航空股全天强势，东方航空涨超8%；溜溜梅今日上市，首日涨超193%。
+
+黄金股集体上涨，紫金黄金国际涨超15%。
+
+6月15日， 黄金站上4300美元/盎司。
+
+据央视新闻，美东时间14日，美国总统特朗普在社交媒体上说，随着美伊协议19日签署，霍尔木兹海峡将重新开放，以便进行排雷作业。
+
+中金财富期货指出，黄金是美伊达成协议的最受益标的。
+
+后续关注霍尔木兹海峡油轮通过情况及油价走势。
 
 ## 相关推荐
 
-- 2026-06-29 20:00 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 20:01 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 19:51 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 20:03 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 19:43 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 19:47 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 19:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 19:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 19:40 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 20:04 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 19:53 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 19:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 19:36 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 20:05 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 20:11 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 20:03 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 20:07 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 19:55 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 19:43 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 20:04 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 19:51 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 19:43 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 20:10 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 19:49 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 20:03 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 20:08 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 20:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 20:02 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:43 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/46387704365.shtml)
-- 2026-06-29 20:03 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/01929876.shtml)
-- 2026-06-29 19:57 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/415441799537.shtml)
-- 2026-06-29 19:36 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/774539322004.shtml)
-- 2026-06-29 19:40 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/516640435903.shtml)
-- 2026-06-29 19:43 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/5622929380.shtml)
-- 2026-06-29 19:54 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/95373.shtml)
-- 2026-06-29 19:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/751484.shtml)
-- 2026-06-29 19:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/15193498125.shtml)
-- 2026-06-29 19:45 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.minike.top/Article/details/24866325163.shtml)
-- 2026-06-29 20:04 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/40732501511.shtml)
-- 2026-06-29 19:42 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/4416378.shtml)
-- 2026-06-29 19:57 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/193278294035.shtml)
-- 2026-06-29 19:50 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/762765515.shtml)
-- 2026-06-29 19:53 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/8583781136.shtml)
+- 2026-06-29 19:42 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/376053.shtml)
+- 2026-06-29 20:11 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/4403257174.shtml)
+- 2026-06-29 20:09 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/927017.shtml)
+- 2026-06-29 20:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/421448811.shtml)
+- 2026-06-29 20:01 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/1402671.shtml)
+- 2026-06-29 19:43 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/254823130.shtml)
+- 2026-06-29 19:50 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/59218.shtml)
+- 2026-06-29 19:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/438133343.shtml)
+- 2026-06-29 19:56 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/444537.shtml)
+- 2026-06-29 20:04 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/9422919352.shtml)
+- 2026-06-29 20:11 - [王楚钦称抽签结果出来心情不好](https://www.share.minike.top/Article/details/6907128.shtml)
+- 2026-06-29 19:47 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/81446.shtml)
+- 2026-06-29 20:01 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/7519698.shtml)
+- 2026-06-29 19:59 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/30369.shtml)
+- 2026-06-29 20:03 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/162775972280.shtml)

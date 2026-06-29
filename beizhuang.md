@@ -1,57 +1,56 @@
-# 一名美军士兵被控利用马杜罗抓捕行动的机密信息 在预测市场下注牟利
+# 韩国5月进口价格连续第二个月下降，因国际油价下跌
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-美国司法部周四表示，一名美军士兵被指控利用美军抓捕时任委内瑞拉总统马杜罗时间的机密信息，在Polymarket的预测市场上进行交易获利逾40万美元。 美方表示，这名38岁的士兵Gannon Ken Van Dyke驻扎在北卡罗来纳州费耶特维尔的布拉格堡（Fort Bragg）基地，他参与了“绝对决心”行动的策划与执行。相关行动旨在抓捕马杜罗，这使他有机会接触到行动的敏感、非公开
+韩国央行周二公布的数据显示，由于中东冲突趋于缓和导致国际油价下跌，韩国5月份进口价格连续第二个月下降。 韩国央行的初步数据显示，继4月份环比下降2.1%之后，5月份进口价格指数环比下降了0.3%。 与去年同期相比，该指数上涨了24.8%。 韩国基准原油迪拜原油价格上月环比下跌2.4%，至每桶103.15美元。这些数据对韩国有着直接的影响，因为韩国严重依赖能源进口。 5月份原材料
 
 ## 正文
 
-美国司法部周四表示，一名美军士兵被指控利用美军抓捕时任委内瑞拉总统马杜罗时间的机密信息，在Polymarket的预测市场上进行交易获利逾40万美元。
+韩国央行周二公布的数据显示，由于中东冲突趋于缓和导致国际油价下跌，韩国5月份进口价格连续第二个月下降。
 
-美方表示，这名38岁的士兵Gannon Ken Van Dyke驻扎在北卡罗来纳州费耶特维尔的布拉格堡（Fort Bragg）基地，他参与了“绝对决心”行动的策划与执行。
+韩国央行的初步数据显示，继4月份环比下降2.1%之后，5月份进口价格指数环比下降了0.3%。
 
-相关行动旨在抓捕马杜罗，这使他有机会接触到行动的敏感、非公开信息。
+与去年同期相比，该指数上涨了24.8%。
 
-检方称，12月26日左右Van Dyke在Polymarket平台注册了一个账户，充值后开始在与马杜罗和委内瑞拉有关的市场进行交易。
+韩国基准原油迪拜原油价格上月环比下跌2.4%，至每桶103.15美元。
 
-从12月27日至1月2日晚，他总共押注约13笔，对交易平台提出的各种与马杜罗相关的问题，均押注“是”。
+这些数据对韩国有着直接的影响，因为韩国严重依赖能源进口。
 
-该平台允许用户对现实世界事件的结果进行投注。
+5月份原材料价格环比下降1%，而中间产品价格同期保持不变。
 
-“预测市场绝非利用侵占的机密或保密信息谋取私利的避风港，”曼哈顿联邦检察官Jay Clayton表示。
+韩国央行称，进口价格是韩国通胀的主要驱动因素，因为它们会影响整个供应链的生产成本和消费者价格。
 
-“被告涉嫌背弃美国政府对其的信任，利用敏感军事行动的机密信息，就该行动的时间和结果进行投注，以此牟利。
+韩国央行数据显示，5月份出口价格指数环比上涨0.3%，连续第11个月环比上涨。
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 19:50 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 19:40 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 19:57 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 19:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 19:47 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 20:02 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 20:01 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 19:41 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 19:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 19:44 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 20:10 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 19:46 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 19:45 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 19:42 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 20:07 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 19:53 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 19:58 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 19:44 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 20:09 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 19:53 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:48 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/5872579660.shtml)
-- 2026-06-29 19:39 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/328603542.shtml)
-- 2026-06-29 19:53 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/0096512.shtml)
-- 2026-06-29 19:52 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/4717841.shtml)
-- 2026-06-29 20:02 - [蔚来回应车漆洗车时被冲掉](https://www.blog.kurohicncr.top/Article/details/1902693244.shtml)
-- 2026-06-29 20:02 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/506289609458.shtml)
-- 2026-06-29 19:52 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/340725.shtml)
-- 2026-06-29 19:56 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/085794598271.shtml)
-- 2026-06-29 19:59 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/80332.shtml)
-- 2026-06-29 19:46 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/41968.shtml)
-- 2026-06-29 20:02 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/62131895.shtml)
-- 2026-06-29 19:57 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/13627.shtml)
-- 2026-06-29 19:36 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/2124876960.shtml)
-- 2026-06-29 19:46 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/0900223.shtml)
-- 2026-06-29 19:44 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/7560995.shtml)
+- 2026-06-29 20:05 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/14027279.shtml)
+- 2026-06-29 20:07 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/972635143.shtml)
+- 2026-06-29 19:45 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.kurohicncr.top/Article/details/934756.shtml)
+- 2026-06-29 19:55 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/6018392437.shtml)
+- 2026-06-29 19:54 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/4944816.shtml)
+- 2026-06-29 19:59 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/310597.shtml)
+- 2026-06-29 19:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/8614716366.shtml)
+- 2026-06-29 19:47 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/8884122474.shtml)
+- 2026-06-29 19:44 - [叠纸](http://www.blog.minike.top/Article/details/8281864.shtml)
+- 2026-06-29 19:43 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/78476179.shtml)
+- 2026-06-29 19:46 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/04860.shtml)
+- 2026-06-29 19:52 - [新官上任三把火](https://www.blog.minike.top/Article/details/84767961.shtml)
+- 2026-06-29 20:08 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/048583.shtml)
+- 2026-06-29 19:53 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/68033751.shtml)
+- 2026-06-29 19:57 - [歼-15型舰载机为何被歼-15T替代](https://www.share.minike.top/Article/details/8640187129.shtml)

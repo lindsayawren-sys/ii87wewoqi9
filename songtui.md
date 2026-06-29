@@ -1,51 +1,57 @@
-# 快讯：恒指低开0.7% 科指跌0.8% 科网股普跌 锂电池股高开
+# 美伊达成和平协议，霍尔木兹海峡何时通？
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-美股周四先跌后回稳，中东局势再度紧张，大市早段一度急挫，尾市跌势有所收窄，三大指数均录得跌幅收市。美元走势向好，美国十年期债息上升至4.32厘水平，金价反复偏软，油价走势向上。 今日港股三大指数集体低开，恒指开盘跌0.7%，报25733.61点，恒科指跌0.8%，国企指数跌0.6%。盘面上，科网股普跌，网易、联想、百度、阿里巴巴、腾讯、哔哩哔哩、快手跌超1%；芯片股活跃，澜起科
+特朗普称美伊19日签署协议之时，就是霍尔木兹海峡开放之时。 经过反复“讨价还价”，美国和伊朗达成了协议。 据新华社报道，美国东部时间14日，美国总统特朗普在社交媒体上发文说，美伊协议“现在完成”。伊朗最高国家安全委员会秘书处当地时间15日凌晨发表声明，正式宣布伊美已最终敲定关于“结束战争谈判”的谅解备忘录文本，并计划于19日正式签署。 此次，美国和伊朗同时发文证明，增加了美伊协
 
 ## 正文
 
-美股周四先跌后回稳，中东局势再度紧张，大市早段一度急挫，尾市跌势有所收窄，三大指数均录得跌幅收市。
+特朗普称美伊19日签署协议之时，就是霍尔木兹海峡开放之时。
 
-美元走势向好，美国十年期债息上升至4.32厘水平，金价反复偏软，油价走势向上。
+经过反复“讨价还价”，美国和伊朗达成了协议。
 
-今日港股三大指数集体低开，恒指开盘跌0.7%，报25733.61点，恒科指跌0.8%，国企指数跌0.6%。
+据新华社报道，美国东部时间14日，美国总统特朗普在社交媒体上发文说，美伊协议“现在完成”。
 
-盘面上，科网股普跌，网易、联想、百度、阿里巴巴、腾讯、哔哩哔哩、快手跌超1%；芯片股活跃，澜起科技涨超4%；油气股延续涨势，山东墨龙涨超4%。
+伊朗最高国家安全委员会秘书处当地时间15日凌晨发表声明，正式宣布伊美已最终敲定关于“结束战争谈判”的谅解备忘录文本，并计划于19日正式签署。
 
-责任编辑：郝欣煜
+此次，美国和伊朗同时发文证明，增加了美伊协议的确定性，不过虽然正式签字仪式近在咫尺，但长期互不信任仍是横亘在美伊之间的障碍。
+
+此外，以色列能否就此停火，尚未可知。
+
+西北大学中东研究所教授王晋向第一财经记者表示，这份协议回应了双方各自的国内诉求。
+
+美国方面希望通过停火实现从当前冲突中脱离；伊朗方面则有国内经济形势问题考量，同时停火也有助于其尽早重启内部政治整合。
 
 ## 相关推荐
 
-- 2026-06-29 20:01 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 19:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 19:54 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 20:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 19:39 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 19:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 19:47 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 19:51 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 19:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 19:51 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 19:56 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 19:57 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 19:59 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 19:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 19:49 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 19:50 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 19:57 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 19:45 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 19:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 19:46 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 19:45 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 19:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/473130872.shtml)
-- 2026-06-29 19:50 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/818248.shtml)
-- 2026-06-29 19:49 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/07346289920.shtml)
-- 2026-06-29 19:59 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/16997162465.shtml)
-- 2026-06-29 19:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/64426503.shtml)
-- 2026-06-29 19:56 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/64587838740.shtml)
-- 2026-06-29 19:53 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/538067967126.shtml)
-- 2026-06-29 19:58 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/775390.shtml)
-- 2026-06-29 19:49 - [周生如故](https://www.share.minike.top/Article/details/687576417.shtml)
-- 2026-06-29 19:40 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/53805.shtml)
-- 2026-06-29 20:02 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/3467557669.shtml)
-- 2026-06-29 19:58 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/196076202119.shtml)
-- 2026-06-29 19:57 - [王楚钦开门红](https://www.share.minike.top/Article/details/63634189.shtml)
-- 2026-06-29 20:02 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/396108009731.shtml)
-- 2026-06-29 20:05 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/51128147.shtml)
+- 2026-06-29 19:48 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/4197536.shtml)
+- 2026-06-29 20:11 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/180402384.shtml)
+- 2026-06-29 19:45 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/770451094856.shtml)
+- 2026-06-29 20:02 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/1765514922.shtml)
+- 2026-06-29 20:10 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/3956028.shtml)
+- 2026-06-29 19:52 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/1450237.shtml)
+- 2026-06-29 19:56 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/69681518193.shtml)
+- 2026-06-29 19:59 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/87815420956.shtml)
+- 2026-06-29 19:43 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/059357.shtml)
+- 2026-06-29 20:02 - [急先锋](http://www.blog.kurohicncr.top/Article/details/918076446.shtml)
+- 2026-06-29 20:04 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/342549.shtml)
+- 2026-06-29 20:01 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/274573.shtml)
+- 2026-06-29 19:50 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/38151323588.shtml)
+- 2026-06-29 20:02 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/959683093832.shtml)
+- 2026-06-29 19:45 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/791065.shtml)

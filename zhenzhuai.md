@@ -1,53 +1,60 @@
-# 美国多家廉价航空公司联合请求白宫提供25亿美元纾困
+# 今夜，26家A股公司提示风险！
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-据报道，包括边疆航空和Avelo航空公司在内的美国多家廉价航空公司联合请求白宫提供规模25亿美元的纾困，作为交换，这些公司将向政府提供可转换为股权的权证。 报道称，这些廉价航空公司按今年航空燃油支出较早前预测增加的金额，测算出25亿美元这一数字。相关预测假设，2026年余下时间航空燃油均价将维持在每加仑4美元以上。责任编辑：于健 SF069
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】26家A股公司发布股价异动公告，回应多个热点并提示风险 中国基金报记者 闻言 6月15日晚间，26家A股公司发布股票交易异常波动或股票交易风险提示公告，分别是铜冠铜箔、*ST美芝（维权）、云南锗业、永冠新材、炬光科技、金安国纪、神剑股份、五方光电、粤传媒、华锡有色、泰晶科技、汇通控
 
 ## 正文
 
-据报道，包括边疆航空和Avelo航空公司在内的美国多家廉价航空公司联合请求白宫提供规模25亿美元的纾困，作为交换，这些公司将向政府提供可转换为股权的权证。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-报道称，这些廉价航空公司按今年航空燃油支出较早前预测增加的金额，测算出25亿美元这一数字。
+来源：中国基金报 【导读】26家A股公司发布股价异动公告，回应多个热点并提示风险 中国基金报记者 闻言 6月15日晚间，26家A股公司发布股票交易异常波动或股票交易风险提示公告，分别是铜冠铜箔、*ST美芝（维权）、云南锗业、永冠新材、炬光科技、金安国纪、神剑股份、五方光电、粤传媒、华锡有色、泰晶科技、汇通控股、金钼股份、洛阳钼业、驰宏锌锗、京能置业、*ST亿晶、横店影视、国际复材、嘉曼服饰、*ST威领、*ST宝馨（维权）、三羊马、兴发集团、大有能源、*ST联翔（维权）。
 
-相关预测假设，2026年余下时间航空燃油均价将维持在每加仑4美元以上。
+部分A股公司在公告中回应市场关注热点，包括光通信、算力产业链、光模块、钼材料将替代钨等，并且金安国纪否认产品被纳入英伟达、华为供应链体系认证。
 
-责任编辑：于健 SF069
+两家A股公司否认“追光” 炬光科技公告称，近期市场对光通信/算力产业链关注度较高，但2025年公司光通信相关业务收入占营业收入比例约为8%，尚未构成核心业绩支柱。
+
+炬光科技提醒投资者特别关注，下游光模块客户的整机交付，需要配套高速有源光芯片。
+
+受上游有源芯片供给偏紧影响，可能导致客户提货节奏不及预期。
+
+公司相关业务放量及业绩贡献存在不确定性。
+
+泰晶科技公告称，近期光模块市场受关注度较高，但公司目前相关业务尚处于市场推广期，业务收入占比极少，对近期报表影响极小。
 
 ## 相关推荐
 
-- 2026-06-29 20:05 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 19:48 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 19:57 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 20:03 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 19:54 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 19:48 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 19:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 19:46 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 19:39 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 19:42 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 19:36 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 19:43 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 20:02 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 19:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 19:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 20:02 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 19:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 20:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 19:55 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 20:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 19:57 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 20:11 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 19:45 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 19:55 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 19:47 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 19:50 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 19:51 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 19:52 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 20:02 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:49 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/53579237.shtml)
-- 2026-06-29 19:43 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/08728904.shtml)
-- 2026-06-29 19:59 - [无畏为自己的猫正名了](https://www.share.kurohicncr.top/Article/details/5035937.shtml)
-- 2026-06-29 19:37 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/766901.shtml)
-- 2026-06-29 19:38 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/01366960.shtml)
-- 2026-06-29 20:05 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/1643901.shtml)
-- 2026-06-29 19:54 - [互助版模拟高考志愿填报](https://www.share.kurohicncr.top/Article/details/218244.shtml)
-- 2026-06-29 19:37 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/351165022109.shtml)
-- 2026-06-29 20:02 - [TOP Prada](http://www.share.minike.top/Article/details/93833997.shtml)
-- 2026-06-29 19:39 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/26957103.shtml)
-- 2026-06-29 19:36 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/32906403274.shtml)
-- 2026-06-29 19:53 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/64215.shtml)
-- 2026-06-29 19:44 - [河南高院审委会原委员曲海滨被查](http://www.blog.kurohicncr.top/Article/details/43178631.shtml)
-- 2026-06-29 19:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/765276690191.shtml)
-- 2026-06-29 19:58 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/296902204.shtml)
+- 2026-06-29 19:52 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/693986142477.shtml)
+- 2026-06-29 19:45 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/422095206.shtml)
+- 2026-06-29 19:53 - [韩国小学生都来吐槽了](https://www.share.minike.top/Article/details/54846168721.shtml)
+- 2026-06-29 19:52 - [海清4次陪跑白玉兰](http://www.share.kurohicncr.top/Article/details/67773842.shtml)
+- 2026-06-29 19:58 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/67037.shtml)
+- 2026-06-29 19:52 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/24443632.shtml)
+- 2026-06-29 19:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/691310428585.shtml)
+- 2026-06-29 19:54 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/21378390291.shtml)
+- 2026-06-29 20:01 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/2866123.shtml)
+- 2026-06-29 19:52 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/58855.shtml)
+- 2026-06-29 19:54 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/398060142.shtml)
+- 2026-06-29 19:50 - [佛得角队长门德斯被控强奸](https://www.blog.kurohicncr.top/Article/details/257273.shtml)
+- 2026-06-29 19:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/7650126805.shtml)
+- 2026-06-29 20:08 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/9125049.shtml)
+- 2026-06-29 20:09 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/72952621490.shtml)

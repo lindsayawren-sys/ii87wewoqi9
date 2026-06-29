@@ -1,58 +1,59 @@
-# 美国陆军退役中校：美国在美伊冲突中的战略败局早已注定
+# AI版次贷危机的味道？1.8万亿美元表外敞口，正成为这轮狂欢的定时炸弹
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-视频︱美国陆军退役中校：美国在美伊冲突中的战略败局早已注定当地时间4月26日，美国陆军退役中校丹尼尔·戴维斯在社交媒体上批评美国主流媒体在报道美伊冲突时完全脱离现实、制造虚假叙事，同时认为美国的战略性败局早已注定。他表示，冲突继续拖下去只会让代价无限放大，完全不符合美国的利益。这场冲突过后，美国的国际地位只会变得更糟。 视频：美国陆军退役中校：美国在美伊冲突中的战略败局早已注定
+登录新浪财经APP 搜索【信披】查看更多考评等级 AI基础设施建设热潮之下，一场规模空前的债务扩张正在悄然成形——而其中最危险的部分，从未出现在任何一张资产负债表上。 高盛最新报告预测，2027年超大规模云计算企业资本支出将达1.1万亿至1.4万亿美元，远超市场共识。然而，据摩根士丹利的深度研究，这一已令市场咋舌的数字，仍只是冰山一角。 将近1万亿美元的采购承诺、逾8000亿美
 
 ## 正文
 
-视频︱美国陆军退役中校：美国在美伊冲突中的战略败局早已注定当地时间4月26日，美国陆军退役中校丹尼尔·戴维斯在社交媒体上批评美国主流媒体在报道美伊冲突时完全脱离现实、制造虚假叙事，同时认为美国的战略性败局早已注定。
+登录新浪财经APP 搜索【信披】查看更多考评等级 AI基础设施建设热潮之下，一场规模空前的债务扩张正在悄然成形——而其中最危险的部分，从未出现在任何一张资产负债表上。
 
-他表示，冲突继续拖下去只会让代价无限放大，完全不符合美国的利益。
+高盛最新报告预测，2027年超大规模云计算企业资本支出将达1.1万亿至1.4万亿美元，远超市场共识。
 
-这场冲突过后，美国的国际地位只会变得更糟。
+然而，据摩根士丹利的深度研究，这一已令市场咋舌的数字，仍只是冰山一角。
 
-视频：美国陆军退役中校：美国在美伊冲突中的战略败局早已注定来源：总台环球资讯广播 如果你关注美国的任何主流媒体，尤其是像MS Now、美国有线电视新闻网或一些左翼媒体，虽然它们会批评特朗普总统，但总体而言，它们口径上还是保持一致：伊朗人很糟糕，局势对伊朗不利。
+将近1万亿美元的采购承诺、逾8000亿美元的未生效租赁合同，以及数以百亿计的供应商融资安排，共同构成约1.8万亿美元的表外敞口——这些负债游离于资产负债表之外，却真实地锁定了未来的现金流出。
 
-而保守派及中立媒体则清一色宣称，伊朗已经输掉这场战争。
+市场目前尚未将上述风险充分定价。
 
-它们大肆吹捧总统和政府的卓著表现，称一切进展顺利，美军占据全面优势。
+摩根士丹利警告，超大规模云企业的杠杆率在短短两个季度内已从0.9倍飙升至1.8倍，资本支出增速持续跑赢营收与自由现金流增速，而折旧压力的真正冲击尚未到来。
 
-我实在难以理解，这些人完全是异想天开。
+与此同时，以Apollo、黑石为代表的私募信贷机构正通过SPV（特殊目的载体）将杠杆转移至供应链层面，形成高度循环、难以穿透的融资结构。
 
-对于主要关注主流媒体的美国公众而言，这就是他们所获取的信息，这就是他们对冲突的看法。
+一旦AI商业化进程不及预期，或企业客户大规模转向廉价替代方案，整条融资链条的脆弱性将集中暴露。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 19:45 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 19:45 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 20:01 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 19:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 19:46 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 20:03 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 19:58 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 19:36 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 19:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 20:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 19:51 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 19:53 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 19:49 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 20:04 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 20:05 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 19:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 19:43 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 20:07 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 20:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 19:54 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 20:00 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 19:47 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 20:08 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 19:45 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/212138346692.shtml)
-- 2026-06-29 19:54 - [周生如故](http://www.share.minike.top/Article/details/657705961.shtml)
-- 2026-06-29 19:45 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/950615367058.shtml)
-- 2026-06-29 20:04 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/69939219.shtml)
-- 2026-06-29 20:01 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/17798247188.shtml)
-- 2026-06-29 19:59 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/56404.shtml)
-- 2026-06-29 20:04 - [周生如故](http://www.share.minike.top/Article/details/149109192210.shtml)
-- 2026-06-29 19:52 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/9732597.shtml)
-- 2026-06-29 19:43 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/7789993085.shtml)
-- 2026-06-29 19:59 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/177060738.shtml)
-- 2026-06-29 19:52 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/15279.shtml)
-- 2026-06-29 19:54 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/82392.shtml)
-- 2026-06-29 19:47 - [青春环游记第三季](https://www.share.minike.top/Article/details/29751.shtml)
-- 2026-06-29 19:54 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/78070244786.shtml)
-- 2026-06-29 20:05 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/861357863861.shtml)
+- 2026-06-29 20:00 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/685292709.shtml)
+- 2026-06-29 19:49 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/704938.shtml)
+- 2026-06-29 19:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/62011039.shtml)
+- 2026-06-29 19:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/704505069.shtml)
+- 2026-06-29 19:42 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/681446877832.shtml)
+- 2026-06-29 20:06 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/8215174.shtml)
+- 2026-06-29 19:48 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/85925267.shtml)
+- 2026-06-29 19:49 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/041840225826.shtml)
+- 2026-06-29 20:04 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/8981492.shtml)
+- 2026-06-29 20:08 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/205157.shtml)
+- 2026-06-29 20:04 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/9402205.shtml)
+- 2026-06-29 19:56 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.minike.top/Article/details/271467.shtml)
+- 2026-06-29 19:52 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/91818833200.shtml)
+- 2026-06-29 20:11 - [绘画区你赢了](http://www.blog.minike.top/Article/details/319345679.shtml)
+- 2026-06-29 20:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/281446.shtml)

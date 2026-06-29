@@ -1,61 +1,61 @@
-# 去年广州海关查扣进出口侵权嫌疑货物970.4万件
+# 中电港：打造工程师“星光大道” 构筑集成电路应用创新生态平台
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网广州4月25日电 (记者 许青青)今年4月26日是第26个“世界知识产权日”，海关知识产权保护专项行动——“龙腾行动”也迎来实施十周年。据广州海关介绍，近年来该关对进出口环节侵权行为持续保持打击高压态势，2025年，广州海关依法查扣进出口侵权嫌疑货物4158批次、涉及货物970.4万件。2026年一季度，广州海关共查扣进出口侵权嫌疑货物457批次、涉及货物106.9万件。
+本报讯 （记者王镜茹）6月5日，深圳中电港技术股份有限公司（以下简称“中电港”）上线了一款自研AI应用产品“数字FAE”，该产品依托垂直产业大模型重构传统现场应用工程师服务模式，是电子元器件分销行业数智化升级的重要落地成果。当前人工智能技术不断在各行各业纵深发展，中电港将在这场产业变革中扮演怎样的角色？带着这些问题，近日《证券日报》记者走访了位于深圳南山区的中电港总部。AI赋能
 
 ## 正文
 
-中新网广州4月25日电 (记者 许青青)今年4月26日是第26个“世界知识产权日”，海关知识产权保护专项行动——“龙腾行动”也迎来实施十周年。
+本报讯 （记者王镜茹）6月5日，深圳中电港技术股份有限公司（以下简称“中电港”）上线了一款自研AI应用产品“数字FAE”，该产品依托垂直产业大模型重构传统现场应用工程师服务模式，是电子元器件分销行业数智化升级的重要落地成果。
 
-据广州海关介绍，近年来该关对进出口环节侵权行为持续保持打击高压态势，2025年，广州海关依法查扣进出口侵权嫌疑货物4158批次、涉及货物970.4万件。
+当前人工智能技术不断在各行各业纵深发展，中电港将在这场产业变革中扮演怎样的角色？
 
-2026年一季度，广州海关共查扣进出口侵权嫌疑货物457批次、涉及货物106.9万件。
+带着这些问题，近日《证券日报》记者走访了位于深圳南山区的中电港总部。
 
-依法保护企业知识产权，助力企业自主创新开拓国际市场，是知识产权海关保护工作一贯的重点。
+AI赋能服务升级作为国内领先的电子元器件应用创新与供应链服务平台，中电港长期连接集成电路原厂、方案商、制造企业及终端客户等产业链上下游资源。
 
-2025年3月，广州海关所属南沙海关在对一票以一般贸易方式申报出口的货物进行查验时，查获侵犯常州瑞峰新能源有限公司“RESTARSOLAR及图形”商标权的太阳能板1084块。
+目前，该公司拥有百余家国内外集成电路原厂授权，产品覆盖CPU、GPU、MCU、存储器、射频、无线通信、模拟器件、传感器及分立器件等核心品类，服务网络延伸至汽车电子、AI算力、工业制造、消费电子、低空经济、医疗设备等多个重点领域。
 
-“光伏产业是‘新三样’的代表产业之一，是中国外贸的‘新名片’。
+近年来，依托多年积累的技术服务、供应链管理及产业数据能力，该公司正持续推动人工智能技术与产业服务深度融合。
 
-”南沙海关案件管理三科副科长胡立表示，海关及时拦截侵犯自主品牌知识产权的太阳能板，堵截低质、不安全产品流入国际市场，有利于维护“中国制造”的良好形象。
+“电子产业的产品和技术迭代非常迅速，尤其是在人工智能时代，每个季度，甚至每个月都会有新的产品形态不断冒出来，这依赖于中国庞大的优秀工程师群体的研发效率与创新速度，也对集成电路原厂、IDH和分销商的技术支持团队提出了更高要求。
 
-为助力打造粤港澳大湾区知识产权保护高地，广州海关依托粤港澳海关知识产权合作机制，与香港、澳门海关常态化开展联合执法、案件信息通报、交流研讨等合作。
+”中电港相关业务负责人对记者表示。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 19:49 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 19:55 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 19:49 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 19:43 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 20:02 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 19:51 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 19:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 19:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 19:45 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 20:00 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 19:44 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 19:50 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 20:05 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 20:01 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 20:01 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 19:48 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 19:43 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 19:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 20:10 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 19:55 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 20:01 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 19:51 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 19:43 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 20:04 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 19:49 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 19:49 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 20:02 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 19:50 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 19:43 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/29698820268.shtml)
-- 2026-06-29 20:03 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/574391950.shtml)
-- 2026-06-29 19:54 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/174079393.shtml)
-- 2026-06-29 20:02 - [店员光脚踩入盆中清洗土豆](https://www.share.minike.top/Article/details/696057.shtml)
-- 2026-06-29 19:54 - [男子40度高温下骑行严重晒伤](https://www.share.kurohicncr.top/Article/details/22730658439.shtml)
-- 2026-06-29 19:36 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/5592491.shtml)
-- 2026-06-29 19:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/37515074599.shtml)
-- 2026-06-29 19:36 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/586632862.shtml)
-- 2026-06-29 19:44 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/345066061788.shtml)
-- 2026-06-29 19:51 - [金牌调解](https://www.share.kurohicncr.top/Article/details/80024.shtml)
-- 2026-06-29 19:44 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/5257857.shtml)
-- 2026-06-29 20:03 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/789411612.shtml)
-- 2026-06-29 19:55 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/940288435.shtml)
-- 2026-06-29 19:42 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/638855.shtml)
-- 2026-06-29 19:47 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.minike.top/Article/details/17529.shtml)
+- 2026-06-29 19:59 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/064048.shtml)
+- 2026-06-29 19:58 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/71410398880.shtml)
+- 2026-06-29 20:06 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/86586175722.shtml)
+- 2026-06-29 20:02 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/6132410.shtml)
+- 2026-06-29 19:55 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/18530804334.shtml)
+- 2026-06-29 20:07 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/12788048111.shtml)
+- 2026-06-29 20:07 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/9051218135.shtml)
+- 2026-06-29 19:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/684898369.shtml)
+- 2026-06-29 19:44 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/36559.shtml)
+- 2026-06-29 20:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/55347162.shtml)
+- 2026-06-29 19:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/930941163278.shtml)
+- 2026-06-29 19:46 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/468561770573.shtml)
+- 2026-06-29 19:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/64134128644.shtml)
+- 2026-06-29 19:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/5371880.shtml)
+- 2026-06-29 19:57 - [济南航空航天全面起势](https://www.blog.kurohicncr.top/Article/details/8431931.shtml)

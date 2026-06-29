@@ -1,53 +1,59 @@
-# 清华大学老校友任丽翰：我最不赞成被叫“学霸”
+# 青春华章·丝路逐光丨高台西路军纪念馆里 青年接力传承红色基因
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 23:01 来源：中国新闻网 4月26日下午，清华大学115周年校庆活动举行。清华大学上海校友会艺术团副团长任丽翰在接受记者采访时说，中国知识分子最优秀的就是爱国，她最不赞成被叫“学霸”，因为他们有责任为社会多做工作。她谈到，自己特别喜欢马兰基地的口号，“要做隐姓埋名的人，要干惊天动地的事”。(刘子衿 唐梅芳 制作 王嘉怡) 责任编辑：【张令旗
+中国甘肃网6月12日讯(西北角·中国甘肃网记者 宋芳科 程健 赵志富)6月11日，由中央网信办网络传播局指导，甘肃省委网信办、甘肃省教育厅、共青团甘肃省委联合主办，中国互联网发展基金会提供特别支持，河西学院、张掖市委网信办、中国甘肃网共同承办的“青春华章·丝路逐光”网络主题活动采访团走进位于张掖高台的中国工农红军西路军纪念馆，缅怀革命先烈、追忆烽火岁月，深入挖掘新时代青年传承红
 
 ## 正文
 
-发布时间：2026年04月26日 23:01 来源：中国新闻网 4月26日下午，清华大学115周年校庆活动举行。
+中国甘肃网6月12日讯(西北角·中国甘肃网记者 宋芳科 程健 赵志富)6月11日，由中央网信办网络传播局指导，甘肃省委网信办、甘肃省教育厅、共青团甘肃省委联合主办，中国互联网发展基金会提供特别支持，河西学院、张掖市委网信办、中国甘肃网共同承办的“青春华章·丝路逐光”网络主题活动采访团走进位于张掖高台的中国工农红军西路军纪念馆，缅怀革命先烈、追忆烽火岁月，深入挖掘新时代青年传承红色基因、弘扬革命精神的生动实践。
 
-清华大学上海校友会艺术团副团长任丽翰在接受记者采访时说，中国知识分子最优秀的就是爱国，她最不赞成被叫“学霸”，因为他们有责任为社会多做工作。
+采访团缓步走入中国工农红军西路军纪念馆园区，向革命英烈敬献鲜花，驻足瞻仰烈士丰碑、珍贵文物与历史影像。
 
-她谈到，自己特别喜欢马兰基地的口号，“要做隐姓埋名的人，要干惊天动地的事”。
+全体人员怀着崇敬之心，深切缅怀西路军将士浴血河西、誓死为民的英雄壮举，深刻体悟西路军不畏艰险、浴血奋战的英雄主义气概，为党为人民英勇献身的精神。
 
-(刘子衿 唐梅芳 制作 王嘉怡) 责任编辑：【张令旗】
+红色历史需要铭记，红色故事需要用心讲述。
+
+中国青年五四奖章暨新时代青年先锋获得者、中国工农红军西路军纪念馆副研究馆员石琳，长期深耕西路军历史研究与红色宣讲一线。
+
+她始终坚持以史实为基，用心用情讲好西路军故事，让革命历史可感可触、入脑入心。
+
+在青少年红色教育方面，纪念馆持续打造“小小红色讲解员”培育项目，引导青少年走近红色历史、传承革命精神。
+
+截至目前，已累计培养200多名小小讲解员。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 20:00 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 19:37 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 19:40 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 20:02 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 19:42 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 19:46 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 19:52 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 19:41 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 19:46 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 19:36 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 19:56 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 19:47 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 19:41 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 19:44 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 20:10 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 19:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 19:57 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 20:06 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 19:49 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 20:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 19:44 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 20:07 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 19:43 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 19:50 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 20:02 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 19:50 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 19:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [女生学医适合选什么专业](https://www.blog.minike.top/Article/details/936180883.shtml)
-- 2026-06-29 19:41 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/30751.shtml)
-- 2026-06-29 20:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/72227.shtml)
-- 2026-06-29 19:48 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/4698147818.shtml)
-- 2026-06-29 20:05 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/36070080.shtml)
-- 2026-06-29 19:37 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/48664456965.shtml)
-- 2026-06-29 20:05 - [世界杯在中国观看最多的比赛](https://www.share.minike.top/Article/details/8149442.shtml)
-- 2026-06-29 19:59 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/1282222211.shtml)
-- 2026-06-29 19:43 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/880097.shtml)
-- 2026-06-29 19:51 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/61514.shtml)
-- 2026-06-29 19:40 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/04594.shtml)
-- 2026-06-29 19:44 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/3162055.shtml)
-- 2026-06-29 19:50 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/9705659367.shtml)
-- 2026-06-29 19:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/4984701645.shtml)
-- 2026-06-29 19:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/972974.shtml)
+- 2026-06-29 19:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/737453.shtml)
+- 2026-06-29 19:55 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/73369275.shtml)
+- 2026-06-29 19:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/0178124.shtml)
+- 2026-06-29 20:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/34049.shtml)
+- 2026-06-29 19:53 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/49143143.shtml)
+- 2026-06-29 19:54 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/0743392.shtml)
+- 2026-06-29 20:08 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/560044.shtml)
+- 2026-06-29 19:59 - [流金岁月](https://www.blog.minike.top/Article/details/3494539.shtml)
+- 2026-06-29 19:48 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/6559843.shtml)
+- 2026-06-29 19:44 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/434758.shtml)
+- 2026-06-29 19:58 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/6098498404.shtml)
+- 2026-06-29 19:46 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/01720522504.shtml)
+- 2026-06-29 19:44 - [金牌调解](http://www.blog.minike.top/Article/details/5899001755.shtml)
+- 2026-06-29 20:08 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/54493379.shtml)
+- 2026-06-29 19:59 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/1889267300.shtml)

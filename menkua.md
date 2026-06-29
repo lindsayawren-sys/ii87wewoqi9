@@ -1,48 +1,61 @@
-# 惠女文化时代创新与价值实践系列活动启幕
+# 科技股暴力反弹，创业板指涨超5%！券商股也罕见爆发，什么信号？
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月25日 13:52 来源：中国新闻网 4月24日，以“赓续‘惠女精神’绽放时代光彩”为主题的惠女文化时代创新与价值实践系列活动，在福建泉州惠安县启动。活动吸引海内外专家学者、老中青三代惠安女代表共聚一堂，共话惠女文化创新传承。(柯宁) 责任编辑：【叶攀】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|肖芮冬 每经编辑|赵云 6月15日，市场集体反弹，创业板指大涨超5%，深成指涨超3.5%。截至收盘，沪指涨1.61%，深成指涨3.79%，创业板指涨5.3%。 板块来看，AI硬件方向集体爆发，其中PCB概念持续走高，CPO概念走强，MLCC概念再度活跃；大金融板块盘中异动拉升，有色金属板块表现活跃
 
 ## 正文
 
-发布时间：2026年04月25日 13:52 来源：中国新闻网 4月24日，以“赓续‘惠女精神’绽放时代光彩”为主题的惠女文化时代创新与价值实践系列活动，在福建泉州惠安县启动。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-活动吸引海内外专家学者、老中青三代惠安女代表共聚一堂，共话惠女文化创新传承。
+每经记者|肖芮冬 每经编辑|赵云 6月15日，市场集体反弹，创业板指大涨超5%，深成指涨超3.5%。
 
-(柯宁) 责任编辑：【叶攀】
+截至收盘，沪指涨1.61%，深成指涨3.79%，创业板指涨5.3%。
+
+板块来看，AI硬件方向集体爆发，其中PCB概念持续走高，CPO概念走强，MLCC概念再度活跃；大金融板块盘中异动拉升，有色金属板块表现活跃。
+
+下跌方面，煤炭板块震荡走弱。
+
+全市场超3900只个股上涨，超百股涨停。
+
+沪深两市成交额3.03万亿元，较上一个交易日缩量1838亿。
+
+受“美伊达成协议”消息提振，今天亚太股市集体反弹，A股科技板块尤其AI硬件方向，也迎来强力修复。
 
 ## 相关推荐
 
-- 2026-06-29 19:48 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 20:04 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 19:53 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 20:02 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 19:51 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 20:02 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 20:04 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 19:56 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 19:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 19:54 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 20:01 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 19:54 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 19:59 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 20:01 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 20:01 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 19:54 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 20:12 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 19:47 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 19:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 20:08 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 20:04 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 19:55 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 20:01 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 19:52 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 19:48 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 19:45 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 19:54 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/81331.shtml)
-- 2026-06-29 19:56 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/29920290216.shtml)
-- 2026-06-29 20:03 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/41231319.shtml)
-- 2026-06-29 19:55 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/07471705213.shtml)
-- 2026-06-29 19:38 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.minike.top/Article/details/80172097283.shtml)
-- 2026-06-29 19:56 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/4694412.shtml)
-- 2026-06-29 19:46 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/012623976900.shtml)
-- 2026-06-29 20:02 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/20941.shtml)
-- 2026-06-29 19:58 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/274077340538.shtml)
-- 2026-06-29 19:54 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/18913.shtml)
-- 2026-06-29 19:58 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/4825600711.shtml)
-- 2026-06-29 19:57 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/92992941299.shtml)
-- 2026-06-29 19:54 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/086861501182.shtml)
-- 2026-06-29 20:04 - [伊朗足球队将启程回国](http://www.blog.minike.top/Article/details/3990917.shtml)
-- 2026-06-29 19:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/309162591.shtml)
+- 2026-06-29 19:52 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/0932907.shtml)
+- 2026-06-29 20:07 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/60020081035.shtml)
+- 2026-06-29 20:03 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/85813121070.shtml)
+- 2026-06-29 20:11 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/818948710.shtml)
+- 2026-06-29 20:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/323236212.shtml)
+- 2026-06-29 19:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/49634080179.shtml)
+- 2026-06-29 19:49 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/079951846170.shtml)
+- 2026-06-29 19:48 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/1422005458.shtml)
+- 2026-06-29 20:03 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/577229638316.shtml)
+- 2026-06-29 20:00 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/415485.shtml)
+- 2026-06-29 19:50 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/3112516143.shtml)
+- 2026-06-29 19:42 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/860335542933.shtml)
+- 2026-06-29 19:56 - [本届世界杯已有5人涉性侵风波](https://www.share.kurohicncr.top/Article/details/665465373146.shtml)
+- 2026-06-29 20:00 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/419163.shtml)
+- 2026-06-29 20:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/5801562.shtml)

@@ -1,61 +1,56 @@
-# 中华优秀科普图书榜2025年度榜单在京发布
+# 创新药终于反击！520880单日大涨3.66%，周线终结7连阴！机构密集提示底部机会
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网北京4月25日电 (记者 应妮)中华优秀科普图书榜2025年度榜单发布仪式暨新时代科普出版与全民阅读推广论坛24日在中国大百科全书出版社举办。 中国科普作家协会理事长王春法指出，在信息过载、知识爆炸的时代，优质科普榜单犹如全民阅读的“精准导航”，能为公众甄别精品、指引方向，中华优秀科普图书榜不仅是对优秀科普创作的高度认可，也对科普创作生态具有价值引领作用。 中国出版协会副
+6月12日，AH创新药携手上攻，显著跑赢大市！重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）场内价格分别收涨2.31%、3.66%。沪指涨1.12%重返4000点，恒指涨1.93%终结7连跌。 聚焦港股通创新药板块，诺诚建华、荣昌生物飙升逾7%强势领涨！权重龙头集体力挺：信达生物、康方生物大涨4.8%，中国生物制药、科伦博泰生物涨
 
 ## 正文
 
-中新网北京4月25日电 (记者 应妮)中华优秀科普图书榜2025年度榜单发布仪式暨新时代科普出版与全民阅读推广论坛24日在中国大百科全书出版社举办。
+6月12日，AH创新药携手上攻，显著跑赢大市！
 
-中国科普作家协会理事长王春法指出，在信息过载、知识爆炸的时代，优质科普榜单犹如全民阅读的“精准导航”，能为公众甄别精品、指引方向，中华优秀科普图书榜不仅是对优秀科普创作的高度认可，也对科普创作生态具有价值引领作用。
+重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）场内价格分别收涨2.31%、3.66%。
 
-中国出版协会副理事长李朋义强调，科学普及是全民阅读中不可或缺的“硬核”内容，优质科普阅读能够帮助公众辨别真伪、理解世界、拥抱变化，需要高质量的科普出版供给。
+沪指涨1.12%重返4000点，恒指涨1.93%终结7连跌。
 
-他表示，本次活动设置了丰富多元的议题，让科学家、科普作家、出版人、教育工作者等科普阅读相关各方对话交流，有助于构建共建共享的科普阅读生态圈。
+聚焦港股通创新药板块，诺诚建华、荣昌生物飙升逾7%强势领涨！
 
-中国大百科全书出版社社长高世屹宣读了入榜图书榜单。
+权重龙头集体力挺：信达生物、康方生物大涨4.8%，中国生物制药、科伦博泰生物涨超5%，百济神州、翰森制药、三生制药齐涨超2%。
 
-据介绍，活动于今年2月启动，共征集到150余家出版单位近千种图书参评。
+热门ETF方面，100%创新药研发标的——港股通创新药ETF华宝（520880）全天震荡上行，盘中摸高3.92%，收涨3.66%，创下4月16日以来最大单日升幅，全天成交5.28亿元，较上日激增逾77%！
 
-组委会邀请众多科普专家、出版专家、知名书评人等参与评选，最终推荐年度榜单图书共33种，其中入选图书20种、融合图书3种，提名图书10种。
+本周，港股通创新药初现止跌迹象，520880在连跌7周后，周线终于收阳！
 
-榜单图书主题覆盖自然科学、工程技术、医学健康、少儿科普等多个领域，集中展现了我国科普出版的最新成果与创作活力。
+尽管单周累计涨幅仅为0.25%，但已成功跑赢大盘，恒指周跌0.98%，连跌5周。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 20:02 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 19:48 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 19:46 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 20:03 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 19:53 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 19:56 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 20:05 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 19:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 20:02 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 19:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 20:02 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 20:00 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 19:45 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 19:40 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 20:10 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 19:46 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 19:49 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 20:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 19:53 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 19:57 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 19:51 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 20:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 19:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 20:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/25628956081.shtml)
-- 2026-06-29 20:04 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/142009793.shtml)
-- 2026-06-29 19:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/0542316.shtml)
-- 2026-06-29 19:44 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/368814447747.shtml)
-- 2026-06-29 19:41 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/725171566.shtml)
-- 2026-06-29 19:56 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/550282083.shtml)
-- 2026-06-29 19:37 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/63265.shtml)
-- 2026-06-29 19:41 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/0967834.shtml)
-- 2026-06-29 19:51 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/283193.shtml)
-- 2026-06-29 19:59 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/79109.shtml)
-- 2026-06-29 19:36 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/47163.shtml)
-- 2026-06-29 20:03 - [伊朗足球队将启程回国](http://www.blog.kurohicncr.top/Article/details/59067728141.shtml)
-- 2026-06-29 20:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/383991.shtml)
-- 2026-06-29 19:36 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/6632757.shtml)
-- 2026-06-29 19:56 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/6872314933.shtml)
+- 2026-06-29 19:51 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/77636.shtml)
+- 2026-06-29 19:46 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/60103.shtml)
+- 2026-06-29 20:08 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/1130726.shtml)
+- 2026-06-29 19:50 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/98035107.shtml)
+- 2026-06-29 19:57 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/55221676.shtml)
+- 2026-06-29 20:07 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/74037.shtml)
+- 2026-06-29 20:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/64167.shtml)
+- 2026-06-29 20:08 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/460329696483.shtml)
+- 2026-06-29 19:58 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/73367190.shtml)
+- 2026-06-29 19:44 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/915887582549.shtml)
+- 2026-06-29 20:11 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/270889.shtml)
+- 2026-06-29 19:53 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/20568.shtml)
+- 2026-06-29 19:44 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/824825314.shtml)
+- 2026-06-29 20:11 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/7758524.shtml)
+- 2026-06-29 20:08 - [起风了](https://www.share.kurohicncr.top/Article/details/380535951.shtml)

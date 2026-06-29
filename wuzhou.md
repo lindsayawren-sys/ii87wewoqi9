@@ -1,57 +1,56 @@
-# 郑钦文无缘WTA1000马德里站单打16强
+# “广州第一芯”迎IPO大考，盈利还得等两三年！
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-中新社北京4月27日电 当地时间26日举行的女子网球选手协会(WTA)1000马德里站单打第三轮比赛中，赛会32号种子、中国选手郑钦文以1:2被2号种子、哈萨克斯坦名将莱巴金娜逆转，无缘16强。 莱巴金娜本赛季状态火热，目前世界排名第二位，已斩获澳网和WTA500斯图加特站冠军。在因伤退出斯图加特站后，郑钦文在马德里站第二轮迎来红土赛季首秀，以2:1逆转战胜前澳网冠军、法网亚军
+来源：IPO日报 6月15日粤芯半导体将迎创业板IPO上会。作为广东首家量产12英寸晶圆企业，公司聚焦成熟制程，产能持续扩建。其营收连年高增，但成立八年累计亏损超百亿元，高度依赖政府补助。公司预计最早2029年实现盈利，本次募资将投向产线与技术研发。 6月15日，粤芯半导体技术股份有限公司（下称“粤芯半导体”）创业板IPO将上会迎考。 作为广东首家量产12英寸晶圆企业，公司聚焦
 
 ## 正文
 
-中新社北京4月27日电 当地时间26日举行的女子网球选手协会(WTA)1000马德里站单打第三轮比赛中，赛会32号种子、中国选手郑钦文以1:2被2号种子、哈萨克斯坦名将莱巴金娜逆转，无缘16强。
+来源：IPO日报 6月15日粤芯半导体将迎创业板IPO上会。
 
-莱巴金娜本赛季状态火热，目前世界排名第二位，已斩获澳网和WTA500斯图加特站冠军。
+作为广东首家量产12英寸晶圆企业，公司聚焦成熟制程，产能持续扩建。
 
-在因伤退出斯图加特站后，郑钦文在马德里站第二轮迎来红土赛季首秀，以2:1逆转战胜前澳网冠军、法网亚军肯宁。
+其营收连年高增，但成立八年累计亏损超百亿元，高度依赖政府补助。
 
-郑钦文和莱巴金娜此前交手四次，郑钦文三次告负，唯一一胜来自2024年WTA年终总决赛小组赛。
+公司预计最早2029年实现盈利，本次募资将投向产线与技术研发。
 
-两人最近一次交手是在今年2月的WTA1000多哈站单打第三轮，伤愈复出不久的郑钦文以1:2不敌莱巴金娜，无缘八强。
+6月15日，粤芯半导体技术股份有限公司（下称“粤芯半导体”）创业板IPO将上会迎考。
 
-26日的比赛是两人首次在红土球场上相遇。
+作为广东首家量产12英寸晶圆企业，公司聚焦成熟制程，营收连年高增，但成立八年累计亏损超百亿元，高度依赖政府补助，公司预计最早2029年实现盈利。
 
-首盘，郑钦文在第五局实现关键破发，并将领先优势保持至局末，以6:4先下一城。
+张力制图 八年累亏超百亿 资料显示，粤芯半导体成立于2017年，是广东省自主培养且首家进入量产的12英寸晶圆制造企业，是国内稀缺的“集成电路、功率器件、光电融合”三位一体特色晶圆代工平台。
 
-第二盘的局面更为胶着，郑钦文开局率先破发，不过莱巴金娜随后成功兑现第二个破发点、实现回破，郑钦文在第十局30:0领先的情况下连续发出三个双误，莱巴金娜盘末破发，以6:4将大比分扳平。
+目前粤芯半导体拥有两座12英寸晶圆厂，规划产能合计为8万片/月，此外，已启动建设一条规划产能为4万片/月的12英寸集成电路数模混合特色工艺生产线，即第三工厂（粤芯四期），建成后，该公司总产能将达到12万片/月。
 
 ## 相关推荐
 
-- 2026-06-29 19:45 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 19:55 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 19:47 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 19:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 19:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 19:46 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 19:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 19:44 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 20:02 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 19:58 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 19:36 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 20:11 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 20:10 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 20:04 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 19:58 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 19:49 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 19:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 19:47 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 19:53 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 20:00 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 19:49 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/65556.shtml)
-- 2026-06-29 19:41 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/66082.shtml)
-- 2026-06-29 19:58 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/15076073.shtml)
-- 2026-06-29 19:50 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/502801203.shtml)
-- 2026-06-29 19:41 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/471624.shtml)
-- 2026-06-29 20:01 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/0150411998.shtml)
-- 2026-06-29 20:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/430097562280.shtml)
-- 2026-06-29 19:39 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/480639359918.shtml)
-- 2026-06-29 19:40 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/992246348.shtml)
-- 2026-06-29 19:46 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/5925267.shtml)
-- 2026-06-29 19:40 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/884515.shtml)
-- 2026-06-29 19:47 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/2913766540.shtml)
-- 2026-06-29 19:39 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/030919542860.shtml)
-- 2026-06-29 20:00 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/561127.shtml)
-- 2026-06-29 19:38 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/5553707.shtml)
+- 2026-06-29 19:49 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/6351638040.shtml)
+- 2026-06-29 20:11 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/826069.shtml)
+- 2026-06-29 20:06 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/07285.shtml)
+- 2026-06-29 20:05 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/569195498563.shtml)
+- 2026-06-29 20:08 - [新官上任三把火](http://www.share.minike.top/Article/details/594446.shtml)
+- 2026-06-29 19:43 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/673429907320.shtml)
+- 2026-06-29 19:55 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/5116591.shtml)
+- 2026-06-29 20:02 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/266027.shtml)
+- 2026-06-29 20:10 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/000758675.shtml)
+- 2026-06-29 19:58 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/1119102153.shtml)
+- 2026-06-29 19:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/799062.shtml)
+- 2026-06-29 20:00 - [林逸向方筱然求婚了](http://www.share.minike.top/Article/details/06950.shtml)
+- 2026-06-29 19:49 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/0120379993.shtml)
+- 2026-06-29 19:50 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/8007224378.shtml)
+- 2026-06-29 20:06 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/349653155.shtml)

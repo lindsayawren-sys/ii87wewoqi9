@@ -1,57 +1,57 @@
-# 200余名青少年齐聚庐山西海展开匹克球竞技
+# 萌娃追风：滑步车赛跑出冰城全民健身新风景
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网九江4月25日电 (熊锦阳)4月25日，2026“李宁杯”中国匹克球巡回赛青少年赛江西庐山西海站(CPC-J180)在庐山西海全民健身中心正式开赛。 本次赛事由国家体育总局网球运动管理中心、中国网球协会共同主办，专门面向18岁以下青少年选手，共设置U10、U12、U14、U16、U18五个年龄组别，涵盖男子单打、女子单打、男子双打、女子双打四大项目。来自全国各地的203名
+中新网哈尔滨6月13日电 (记者 刘锡菊)13日，一场属于冰城萌娃的“追风”比赛，在初夏的哈尔滨火热开跑。发令哨响，头戴彩色头盔、身着护具的小选手们双腿蹬地，滑步车如离弦之箭冲出起点。小选手们紧握车把，全神贯注，在弯道处微微侧身——场边家长们的一声声“加油”淹没在掌声与呐喊里。这是哈尔滨市第三届少儿骑士滑步车大赛的现场，近千名小骑手齐聚赛场。 本次赛事由哈尔滨市体育局提供支持、
 
 ## 正文
 
-中新网九江4月25日电 (熊锦阳)4月25日，2026“李宁杯”中国匹克球巡回赛青少年赛江西庐山西海站(CPC-J180)在庐山西海全民健身中心正式开赛。
+中新网哈尔滨6月13日电 (记者 刘锡菊)13日，一场属于冰城萌娃的“追风”比赛，在初夏的哈尔滨火热开跑。
 
-本次赛事由国家体育总局网球运动管理中心、中国网球协会共同主办，专门面向18岁以下青少年选手，共设置U10、U12、U14、U16、U18五个年龄组别，涵盖男子单打、女子单打、男子双打、女子双打四大项目。
+发令哨响，头戴彩色头盔、身着护具的小选手们双腿蹬地，滑步车如离弦之箭冲出起点。
 
-来自全国各地的203名青少年匹克球选手齐聚庐山西海，在山水间展开青春竞技。
+小选手们紧握车把，全神贯注，在弯道处微微侧身——场边家长们的一声声“加油”淹没在掌声与呐喊里。
 
-“庐山西海是一片‘不是海却胜似海’的山水梦境，308平方公里水域上八千余座岛屿星罗棋布，自然风光与人间烟火在此完美交融。
+这是哈尔滨市第三届少儿骑士滑步车大赛的现场，近千名小骑手齐聚赛场。
 
-”据庐山西海风景区党工委委员、管委会副主任黎青介绍，本次赛事落户庐山西海，既是对景区办赛能力和体旅融合发展成果的认可，更是推广普及匹克球运动、深化体旅融合发展的重要举措。
+本次赛事由哈尔滨市体育局提供支持、市体育局赛事活动专班指导，是当地推进体育赛事“进景区、进街区、进商圈”、打造“跟着赛事去旅行”品牌的示范活动，也是儿童友好城市建设的特色IP赛事。
 
-“景区将以此次比赛为契机，进一步完善配套服务、培育赛事品牌，推动匹克球与景区发展深度融合。
+专业赛道蜿蜒铺开，防护设施、计时区域、观赛休息区一应俱全。
 
-” 一场青少年赛事的落地，背后是庐山西海深耕“运动+”融合发展的长期实践。
+小选手们穿戴整齐，有的在热身区认真压腿，有的蹲下身子反复调试车轮；场外，家长们举着手机伸长胳膊，生怕错过孩子冲线的瞬间，加油声此起彼伏，热闹非凡。
 
-近年来，庐山西海锚定国家高质量户外运动目的地建设目标，坚持“运动+旅游”融合发展战略，高标准完善赛事场地设施、丰富体育旅游业态、打造精品体旅线路。
+滑步车没有脚踏和链条，靠的只是孩子双脚蹬地，却在每一次前进中“跑”出了勇气与协调。
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 20:05 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 19:48 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 19:36 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 19:36 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 20:02 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 19:48 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 19:38 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 20:00 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 19:39 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 19:51 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 19:46 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 19:42 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 20:00 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 20:11 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 20:06 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 20:03 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 20:02 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 20:05 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 19:54 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 19:59 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 19:56 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:58 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/082757828.shtml)
-- 2026-06-29 19:58 - [速度与激情9](https://www.blog.minike.top/Article/details/191416102670.shtml)
-- 2026-06-29 19:51 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/57025070321.shtml)
-- 2026-06-29 19:45 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/9399845600.shtml)
-- 2026-06-29 19:53 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/93621.shtml)
-- 2026-06-29 19:53 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/298413051.shtml)
-- 2026-06-29 19:45 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/8326205.shtml)
-- 2026-06-29 19:39 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/70448707731.shtml)
-- 2026-06-29 19:39 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.kurohicncr.top/Article/details/978483092756.shtml)
-- 2026-06-29 19:48 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/772385355391.shtml)
-- 2026-06-29 20:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/740489477435.shtml)
-- 2026-06-29 19:58 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/486096.shtml)
-- 2026-06-29 19:41 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/304971399.shtml)
-- 2026-06-29 19:53 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/88279846962.shtml)
-- 2026-06-29 19:38 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/46300.shtml)
+- 2026-06-29 19:58 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/425114.shtml)
+- 2026-06-29 19:42 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/5972821.shtml)
+- 2026-06-29 19:59 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/76705982816.shtml)
+- 2026-06-29 20:06 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.minike.top/Article/details/2040170.shtml)
+- 2026-06-29 20:03 - [沙丘](https://www.blog.kurohicncr.top/Article/details/48232248651.shtml)
+- 2026-06-29 20:01 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/63013011054.shtml)
+- 2026-06-29 20:02 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/3723724932.shtml)
+- 2026-06-29 19:55 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/79776469804.shtml)
+- 2026-06-29 20:07 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/01023.shtml)
+- 2026-06-29 19:44 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/78194772149.shtml)
+- 2026-06-29 19:43 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/98482145581.shtml)
+- 2026-06-29 19:43 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/907391427.shtml)
+- 2026-06-29 20:05 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.minike.top/Article/details/01343188626.shtml)
+- 2026-06-29 19:42 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/800613356745.shtml)
+- 2026-06-29 19:59 - [天道](http://www.blog.kurohicncr.top/Article/details/793739199737.shtml)

@@ -1,57 +1,60 @@
-# 三部门发文规范慈善组织募捐成本支出
+# 食品安全问题多发，山姆总部被约谈！最新回应：完全认可、深刻反思
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据民政部网站消息，民政部、财政部、税务总局日前发布《关于慈善组织开展慈善活动年度支出、管理费用和募捐成本的规定》(以下简称《规定》)。《规定》明确，慈善组织的年度募捐成本不得高于前三年捐赠收入平均数的百分之三。《规定》要求，募捐活动中涉及本组织场地设备和工作人员的相关费用，不得计入募捐成本。《规定》全文如下： 关于慈善组织开展慈善活动年度支出、管理费用和募捐
+来源：华夏时报 针对一段时期以来监管发现和媒体曝光的山姆线下门店及线上网店多发的食品安全问题，近日，市场监管总局依法对沃尔玛（中国）投资有限公司（即山姆总部）负责人进行了责任约谈，要求其严格按照《中华人民共和国食品安全法》，以及《食品销售连锁企业落实食品安全主体责任监督管理规定》《网络食品销售经营者落实食品安全主体责任监督管理规定》等法律法规规定开展食品经营活动，始终树牢食品安
 
 ## 正文
 
-中新网4月27日电 据民政部网站消息，民政部、财政部、税务总局日前发布《关于慈善组织开展慈善活动年度支出、管理费用和募捐成本的规定》(以下简称《规定》)。
+来源：华夏时报 针对一段时期以来监管发现和媒体曝光的山姆线下门店及线上网店多发的食品安全问题，近日，市场监管总局依法对沃尔玛（中国）投资有限公司（即山姆总部）负责人进行了责任约谈，要求其严格按照《中华人民共和国食品安全法》，以及《食品销售连锁企业落实食品安全主体责任监督管理规定》《网络食品销售经营者落实食品安全主体责任监督管理规定》等法律法规规定开展食品经营活动，始终树牢食品安全意识，严格落实食品安全主体责任，自觉践行企业社会责任，严防全链条食品安全风险，切实保障公众饮食安全。
 
-《规定》明确，慈善组织的年度募捐成本不得高于前三年捐赠收入平均数的百分之三。
+山姆中国方面回应称，“近日，我们接受了市场监管部门的约谈指导。
 
-《规定》要求，募捐活动中涉及本组织场地设备和工作人员的相关费用，不得计入募捐成本。
+针对约谈中监管部门所指出的问题与整改要求，我们完全认可、深刻反思并诚恳接受。
 
-《规定》全文如下： 关于慈善组织开展慈善活动年度支出、管理费用和募捐成本的规定 第一条 为进一步明确慈善组织开展慈善活动的年度支出、管理费用和募捐成本，根据《中华人民共和国慈善法》的有关要求，制定本规定。
+对于相关问题给会员带来的困扰与不便，我们深表歉意。
 
-第二条 慈善组织应当依照法律法规和本组织章程的规定积极开展慈善活动，充分、高效运用慈善财产，并遵循管理费用、募捐成本最必要原则，厉行节约，减少不必要的开支。
+”山姆中国方面指出，“目前，公司已由管理层牵头成立专项整改工作组，第一时间启动全渠道、全链路专项自查整改。
 
-第三条 慈善组织应当依据《民间非营利组织会计制度》，加强对慈善活动相关费用的会计核算。
+我们将严格遵照相关法规及监管要求，全面优化食安管控和商品品控，严守食品安全底线、提升会员体验。
 
-第四条 慈善组织的慈善活动支出是指慈善组织基于慈善宗旨，在章程规定的业务范围内开展慈善活动，向受益人捐赠财产或提供无偿服务时发生的下列费用： (一)直接或委托其他组织资助给受益人的款物； (二)为提供慈善服务和实施慈善项目发生的人员报酬、志愿者补贴和保险，以及使用房屋、设备、物资发生的相关费用； (三)为管理慈善项目发生的差旅、物流、交通、会议、培训、审计、评估等费用。
+我们将定期向监管部门报送整改进展，主动接受社会各界监督。
 
-慈善活动支出在“业务活动成本”项目下核算和归集。
+” 相关报道： 此前，杭州山姆会员商店有限公司因销售的一款“天丝床笠”被市场监管部门抽查发现“甲醛含量”项目不符合A类纺织品要求，检验结论为不合格，因此受到了行政处罚。
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 19:40 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 19:39 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 19:37 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 19:46 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 20:03 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 19:41 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 19:57 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 19:39 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 19:55 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 20:01 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 20:08 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 20:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 19:58 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 19:49 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 20:08 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 19:53 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 19:51 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 20:04 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 20:01 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 20:00 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 19:47 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 19:43 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 19:52 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 20:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/1244606.shtml)
-- 2026-06-29 19:54 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/54216.shtml)
-- 2026-06-29 20:00 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/4593459.shtml)
-- 2026-06-29 19:57 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/95934.shtml)
-- 2026-06-29 19:45 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/03639715852.shtml)
-- 2026-06-29 19:40 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/4849771.shtml)
-- 2026-06-29 19:57 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/63471734.shtml)
-- 2026-06-29 19:36 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/89801733750.shtml)
-- 2026-06-29 19:57 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/9302239.shtml)
-- 2026-06-29 19:57 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/310610.shtml)
-- 2026-06-29 19:37 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/387931.shtml)
-- 2026-06-29 19:39 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/16149313636.shtml)
-- 2026-06-29 19:44 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/681247090200.shtml)
-- 2026-06-29 20:05 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/42115.shtml)
-- 2026-06-29 19:36 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/99423.shtml)
+- 2026-06-29 20:10 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/33214903207.shtml)
+- 2026-06-29 20:03 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/328624277.shtml)
+- 2026-06-29 19:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/5920442.shtml)
+- 2026-06-29 19:52 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/503091420960.shtml)
+- 2026-06-29 19:49 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/628720.shtml)
+- 2026-06-29 19:43 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/9015753669.shtml)
+- 2026-06-29 20:10 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/29085335.shtml)
+- 2026-06-29 19:54 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/48295162.shtml)
+- 2026-06-29 19:51 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/0630112920.shtml)
+- 2026-06-29 20:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/3887049532.shtml)
+- 2026-06-29 19:46 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/093488.shtml)
+- 2026-06-29 19:57 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/82402.shtml)
+- 2026-06-29 19:55 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/86655677.shtml)
+- 2026-06-29 19:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/4699570.shtml)
+- 2026-06-29 19:56 - [天道](https://www.blog.kurohicncr.top/Article/details/279281852.shtml)

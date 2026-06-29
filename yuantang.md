@@ -1,61 +1,59 @@
-# 从一座城的两座“灯塔”，看江苏制造业的转型升级之路
+# 西渝高铁康渝段首批500米长钢轨进场 年内铺轨具备条件
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-【开局之年看中国·遇见不一样的江苏】从一座城的两座“灯塔”，看江苏制造业的转型升级之路 一座城市，两家企业，同登全球“灯塔工厂”榜单。这不是巧合，而是盐城智造实力的集中体现。4月23日和4月25日，20余家全国重点媒体嘉宾走进盐城经济技术开发区和盐都区，先后探访了佛吉亚(盐城)汽车部件系统有限公司和江苏悦达纺织集团有限公司，感受传统产业与新兴产业的“智造”风采。 佛吉亚：全球汽
+中新网成都6月13日电(记者刘忠俊)6月13日，一列长钢轨运输专列平稳驶入西安至重庆高速铁路安康至重庆段(以下简称“西渝高铁康渝段”)望溪铺轨基地，首批500米长钢轨顺利入库存储。此次长钢轨的顺利进场，标志着西渝高铁康渝段正式进入长轨仓储储备阶段，为项目年内如期启动铺轨工程奠定坚实基础。 西渝高铁康渝段北起安康西站，途经陕西安康，重庆城口，四川达州、广安，重庆合川、北碚，终至重
 
 ## 正文
 
-【开局之年看中国·遇见不一样的江苏】从一座城的两座“灯塔”，看江苏制造业的转型升级之路 一座城市，两家企业，同登全球“灯塔工厂”榜单。
+中新网成都6月13日电(记者刘忠俊)6月13日，一列长钢轨运输专列平稳驶入西安至重庆高速铁路安康至重庆段(以下简称“西渝高铁康渝段”)望溪铺轨基地，首批500米长钢轨顺利入库存储。
 
-这不是巧合，而是盐城智造实力的集中体现。
+此次长钢轨的顺利进场，标志着西渝高铁康渝段正式进入长轨仓储储备阶段，为项目年内如期启动铺轨工程奠定坚实基础。
 
-4月23日和4月25日，20余家全国重点媒体嘉宾走进盐城经济技术开发区和盐都区，先后探访了佛吉亚(盐城)汽车部件系统有限公司和江苏悦达纺织集团有限公司，感受传统产业与新兴产业的“智造”风采。
+西渝高铁康渝段北起安康西站，途经陕西安康，重庆城口，四川达州、广安，重庆合川、北碚，终至重庆西站，线路设计时速350公里，全线铺轨总里程1138公里。
 
-佛吉亚：全球汽车座椅领域首家“灯塔工厂” “一根根汽车滑轨经过扫描后转至下一产线，漆面不匀的产品被系统精准锁定，迅速启动自动补漆工序。
+其中，中铁五局承建樊哙站至北碚南站约608公里铺轨工程，含正线铺轨584公里、站线铺轨24公里，配套施工20组道岔。
 
-”4月23日上午，在佛吉亚(盐城)汽车部件系统有限公司车间里，媒体嘉宾目睹了智能化生产的高效运转。
+望溪铺轨基地坐落于四川省达州市渠县望溪镇，是西渝高铁康渝段全线唯一铺轨基地，占地241亩，长轨最大存储量420公里，承担全线铺轨物资储备与施工调度核心职能。
 
-2026年1月，佛吉亚(盐城)汽车部件系统有限公司成功入选全球“灯塔工厂”，成为全球汽车座椅领域首家、苏北首家“灯塔工厂”。
+本次首批进场500米长钢轨共56根、总重1680吨，可满足14公里线路铺设需求。
 
-企业自2011年落户盐城以来，深耕汽车座椅滑轨细分市场，中国市场份额达32%。
+康渝段全线钢轨由茂陵焊轨基地统一焊接、检测、发运。
 
-2024年12月启动灯塔工厂创建项目后，仅用一年时间便通过世界经济论坛认证。
+为确保工程建设质量，基地引进母材自动检测、打磨机器人、探伤一体机等智能设备，升级钢轨加工工艺流程；同时严控施工工艺指标，将钢轨焊接接头平直度控制在0.2毫米以内，实现全流程智能化质检，保障钢轨焊接质量稳定达标。
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 19:53 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 19:54 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 19:41 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 19:47 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 19:59 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 19:41 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 19:49 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 19:40 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 20:03 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 19:46 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 19:54 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 19:53 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 19:50 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 19:55 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 19:43 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 19:48 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 20:08 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 20:09 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 20:05 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 20:04 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 19:49 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 20:05 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 19:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 20:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 20:09 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 20:11 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 20:06 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:38 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/54576755898.shtml)
-- 2026-06-29 19:42 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/81482.shtml)
-- 2026-06-29 19:56 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/82061475346.shtml)
-- 2026-06-29 20:00 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/8589957581.shtml)
-- 2026-06-29 19:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/974669820.shtml)
-- 2026-06-29 19:42 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/0742830.shtml)
-- 2026-06-29 19:57 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/37536973.shtml)
-- 2026-06-29 19:43 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/8375806.shtml)
-- 2026-06-29 19:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/922738.shtml)
-- 2026-06-29 19:44 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/553696660.shtml)
-- 2026-06-29 19:51 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/30591.shtml)
-- 2026-06-29 20:05 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/51879.shtml)
-- 2026-06-29 20:03 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/9055284420.shtml)
-- 2026-06-29 19:49 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/0128112698.shtml)
-- 2026-06-29 19:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/14886673.shtml)
+- 2026-06-29 19:59 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/5855905334.shtml)
+- 2026-06-29 19:54 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/1811220871.shtml)
+- 2026-06-29 19:42 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/2827911357.shtml)
+- 2026-06-29 19:52 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/93854322871.shtml)
+- 2026-06-29 20:00 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/685780367010.shtml)
+- 2026-06-29 19:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/60211294213.shtml)
+- 2026-06-29 20:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/838980073846.shtml)
+- 2026-06-29 19:54 - [斗破苍穹](https://www.blog.minike.top/Article/details/7785703501.shtml)
+- 2026-06-29 19:47 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/8645743.shtml)
+- 2026-06-29 19:46 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/139968174.shtml)
+- 2026-06-29 19:46 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/467114103631.shtml)
+- 2026-06-29 20:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/804677.shtml)
+- 2026-06-29 20:00 - [急先锋](http://www.blog.kurohicncr.top/Article/details/10369.shtml)
+- 2026-06-29 19:50 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/4957037845.shtml)
+- 2026-06-29 19:50 - [斗破苍穹](https://www.share.minike.top/Article/details/541586.shtml)

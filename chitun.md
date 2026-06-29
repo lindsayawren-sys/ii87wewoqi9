@@ -1,54 +1,54 @@
-# 水法迎修订 拟严格规范涉河建设项目和河道采砂
+# 新加坡5月船用燃油销量反弹，创两个月新高
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网北京4月27日电(记者 郭超凯 李京泽)中华人民共和国水法修订草案27日提请十四届全国人大常委会审议。修订草案专设“江河、湖泊管理与保护”一章，拟严格规范涉河建设项目和河道采砂。 修订草案规定，建设涉河建设项目不得威胁堤防安全、影响河势稳定、擅自改变水域和滩地用途、降低行洪和调蓄能力、缩小水域面积；明确禁止运输、收购、销售未依法取得河道采砂许可的单位、个人开采的河道砂石土
+新加坡海事及港务管理局周一公布官方数据显示，受到港船舶数量回升带动，该国5月船用燃油销量在上月下滑后迎来反弹，创下两个月以来新高。 新加坡作为全球最大船舶加油枢纽，5月船用燃油总销量达455万吨，较4月增长4.5%，但同比去年5月仍下降6.8%。 5月前来加注燃油的船舶艘次环比增加7.3%，至3690艘次；集装箱吞吐量环比上升4.9%，达394万标准箱。 主流传统燃油销量整体平
 
 ## 正文
 
-中新网北京4月27日电(记者 郭超凯 李京泽)中华人民共和国水法修订草案27日提请十四届全国人大常委会审议。
+新加坡海事及港务管理局周一公布官方数据显示，受到港船舶数量回升带动，该国5月船用燃油销量在上月下滑后迎来反弹，创下两个月以来新高。
 
-修订草案专设“江河、湖泊管理与保护”一章，拟严格规范涉河建设项目和河道采砂。
+新加坡作为全球最大船舶加油枢纽，5月船用燃油总销量达455万吨，较4月增长4.5%，但同比去年5月仍下降6.8%。
 
-修订草案规定，建设涉河建设项目不得威胁堤防安全、影响河势稳定、擅自改变水域和滩地用途、降低行洪和调蓄能力、缩小水域面积；明确禁止运输、收购、销售未依法取得河道采砂许可的单位、个人开采的河道砂石土。
+5月前来加注燃油的船舶艘次环比增加7.3%，至3690艘次；集装箱吞吐量环比上升4.9%，达394万标准箱。
 
-修订草案明确，国家实行水资源刚性约束制度，加强对水资源的保护，鼓励合理开发、利用水资源，厉行节约用水，建立健全水资源安全战略储备体系。
+主流传统燃油销量整体平稳、部分品类走高。
 
-修订草案强化江河、湖泊生态用水保障，规定合理确定江河、湖泊生态流量管控指标和水工程生态流量泄放指标，建设水工程应当满足生态流量泄放要求；加强饮用水水源地管理和保护，规定制定饮用水水源地名录，定期组织开展饮用水水源地安全评估。
+主力低硫船用燃料油（硫含量0.5%，VLSFO）5月销量为229万吨，环比4月增长4.7%；高硫船用燃油销量持平，维持在179万吨。
 
-修订草案还增加“保障农业农村优先发展用水需求”的表述，将保障粮食安全放在优先位置，着眼于提升农业综合生产能力和质量效益，充实关于农田水利、灌排水体系建设、调动农民兴办水利积极性等内容，打通农田灌溉“最后一公里”。
-
-(完)
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 19:41 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 19:46 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 20:01 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 19:57 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 19:48 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 19:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 19:47 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 19:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 19:46 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 20:01 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 19:59 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 19:58 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 20:01 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 19:42 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 19:54 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 19:43 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 19:56 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 19:44 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 19:52 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 19:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 19:57 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 19:59 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/256829995331.shtml)
-- 2026-06-29 19:42 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/14831374372.shtml)
-- 2026-06-29 20:01 - [主力抛售电子和通信板块](http://www.share.minike.top/Article/details/50044016.shtml)
-- 2026-06-29 19:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/6381375310.shtml)
-- 2026-06-29 19:40 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/040668476.shtml)
-- 2026-06-29 19:41 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/28236.shtml)
-- 2026-06-29 19:52 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/37163914162.shtml)
-- 2026-06-29 19:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/67086485772.shtml)
-- 2026-06-29 19:54 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/3130197297.shtml)
-- 2026-06-29 19:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/2750037.shtml)
-- 2026-06-29 19:43 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/06526919767.shtml)
-- 2026-06-29 19:57 - [青春环游记第三季](http://www.share.minike.top/Article/details/0400336.shtml)
-- 2026-06-29 19:50 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/48661759905.shtml)
-- 2026-06-29 19:54 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/10609214628.shtml)
-- 2026-06-29 19:37 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/4101686.shtml)
+- 2026-06-29 19:50 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/34126.shtml)
+- 2026-06-29 20:04 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/86209.shtml)
+- 2026-06-29 19:57 - [湖南耒阳“轮椅女孩”高考546分](https://www.share.minike.top/Article/details/586093018277.shtml)
+- 2026-06-29 19:51 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/0595549486.shtml)
+- 2026-06-29 20:02 - [欧洲极端高温如何影响家电股](http://www.blog.minike.top/Article/details/968050691.shtml)
+- 2026-06-29 20:03 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/68521219479.shtml)
+- 2026-06-29 19:55 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/179518222262.shtml)
+- 2026-06-29 19:47 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/17242.shtml)
+- 2026-06-29 20:04 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/60990115248.shtml)
+- 2026-06-29 20:11 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/388906753712.shtml)
+- 2026-06-29 19:43 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/151175024.shtml)
+- 2026-06-29 20:06 - [千与千寻](http://www.blog.minike.top/Article/details/231327115698.shtml)
+- 2026-06-29 20:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/65684.shtml)
+- 2026-06-29 19:57 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.minike.top/Article/details/4792726.shtml)
+- 2026-06-29 19:47 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.kurohicncr.top/Article/details/39243089067.shtml)

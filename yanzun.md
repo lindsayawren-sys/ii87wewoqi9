@@ -1,57 +1,53 @@
-# 301035 拟10转3派12元！多只A股 拟分红
+# 山东阳谷一化工企业石蜡料场起火 造成3人受伤
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-又有多只A股披露利润分配方案。润丰股份（301035）4月26日披露年报，2025年实现营业收入146.88亿元，同比增长10.47%；归母净利润10.45亿元，同比增长132.07%；基本每股收益3.75元。公司拟每10股派发现金红利12元(含税)，每10股转增3股。此外，当天，还有多家A股公司披露了利润分配方案。科华数据（002335）4月26日披露年报，2025年实现营业
+中新网山东阳谷6月14日电(记者 孙婷婷)据聊城市阳谷县应急管理局消息，6月13日17时38分，山东阳谷华泰化工股份有限公司石蜡料场起火，市县立即组织力量全力开展灭火救援。 经排查，本次事故造成3人受伤，正在全力救治，无生命危险，事故救援工作和原因调查正在进行。 山东阳谷华泰化工股份有限公司的主要产业橡胶助剂，是轮胎生产中的重要化工原料。该公司产品年总产能30万吨，主要包括标准
 
 ## 正文
 
-又有多只A股披露利润分配方案。
+中新网山东阳谷6月14日电(记者 孙婷婷)据聊城市阳谷县应急管理局消息，6月13日17时38分，山东阳谷华泰化工股份有限公司石蜡料场起火，市县立即组织力量全力开展灭火救援。
 
-润丰股份（301035）4月26日披露年报，2025年实现营业收入146.88亿元，同比增长10.47%；归母净利润10.45亿元，同比增长132.07%；基本每股收益3.75元。
+经排查，本次事故造成3人受伤，正在全力救治，无生命危险，事故救援工作和原因调查正在进行。
 
-公司拟每10股派发现金红利12元(含税)，每10股转增3股。
+山东阳谷华泰化工股份有限公司的主要产业橡胶助剂，是轮胎生产中的重要化工原料。
 
-此外，当天，还有多家A股公司披露了利润分配方案。
+该公司产品年总产能30万吨，主要包括标准橡胶化学品、预分散橡胶化学品、不溶性硫磺、加工助剂等产品。
 
-科华数据（002335）4月26日披露年报，2025年实现营业收入81.6亿元，同比增长5.2%；归母净利润4.18亿元，同比增长32.62%；基本每股收益0.83元。
-
-公司拟每10股派发现金红利5元(含税)，每10股转增4.5股。
-
-天山电子（301379）4月26日披露年报，2025年实现营业收入17.86亿元，同比增长20.96%；归母净利润1.42亿元，同比下降5.59%；基本每股收益0.73元。
-
-公司拟每10股转增4股并派发现金红利2元(含税)。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:59 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 19:41 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 19:36 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 19:39 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 20:03 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 19:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 19:38 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 19:41 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 19:56 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 19:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 19:43 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 19:57 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 20:03 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 19:52 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 20:09 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 20:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 19:44 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 20:04 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 19:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 19:43 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 19:46 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 19:57 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 20:04 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 19:57 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:39 - [叠纸](http://www.blog.kurohicncr.top/Article/details/4959027095.shtml)
-- 2026-06-29 19:58 - [金刚川](http://www.share.minike.top/Article/details/82870.shtml)
-- 2026-06-29 19:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/78281.shtml)
-- 2026-06-29 19:44 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/63906.shtml)
-- 2026-06-29 19:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/25690744616.shtml)
-- 2026-06-29 19:58 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/745392481486.shtml)
-- 2026-06-29 19:47 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/20169.shtml)
-- 2026-06-29 19:55 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/06928530240.shtml)
-- 2026-06-29 19:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/00815.shtml)
-- 2026-06-29 19:53 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/07228.shtml)
-- 2026-06-29 19:45 - [叠纸](http://www.share.minike.top/Article/details/06393889598.shtml)
-- 2026-06-29 19:51 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/91248532.shtml)
-- 2026-06-29 19:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/9329048.shtml)
-- 2026-06-29 19:50 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/3689217.shtml)
-- 2026-06-29 19:49 - [黄金也扛不住了](https://www.share.minike.top/Article/details/47876067205.shtml)
+- 2026-06-29 19:53 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/217814136129.shtml)
+- 2026-06-29 19:49 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/18628965515.shtml)
+- 2026-06-29 20:04 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/8919634.shtml)
+- 2026-06-29 20:04 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/1560819972.shtml)
+- 2026-06-29 19:43 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/03716223717.shtml)
+- 2026-06-29 20:11 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/895594357140.shtml)
+- 2026-06-29 19:57 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/4162211992.shtml)
+- 2026-06-29 20:04 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/0851642831.shtml)
+- 2026-06-29 20:02 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/422201518987.shtml)
+- 2026-06-29 20:09 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/76010804.shtml)
+- 2026-06-29 19:42 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.kurohicncr.top/Article/details/48315.shtml)
+- 2026-06-29 19:44 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/366049460624.shtml)
+- 2026-06-29 19:51 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/16593264010.shtml)
+- 2026-06-29 19:59 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/81121926.shtml)
+- 2026-06-29 20:10 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/438580.shtml)

@@ -1,58 +1,60 @@
-# 光大期货：4月24日有色金属日报
+# 沃什黑箱揭开那一刻，美元会崩成什么样？
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡偏强，国内精炼铜现货进口再次关闭。宏观方面，美国4月综合PMI初值录得52.0，高于预期值50.6和前值50.3，创3个月新高，其中制造业PMI初值录得54.0，高于预期值52.5和前值52.3，创47个月新高，景气度显著回升；服务业PMI初值录得51.3，高于预期值50.6和前值
+来源：汇通网 汇通财经APP讯——周一（6月15日） ，美元指数延续弱势，在99.49一线低位徘徊，空头结构未有改变。市场交易量相对清淡，注意力完全集中在即将到来的美联储6月议息会议。这是新任主席沃什上任后的首次新闻发布会，其关于通胀前景、利率路径的表述将直接填补其政策框架的“黑箱”。 结合盘面来看，美元指数在240分钟周期上呈现典型的“高位震荡破位下行低位弱势整理”的三段式结
 
 ## 正文
 
-铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡偏强，国内精炼铜现货进口再次关闭。
+来源：汇通网 汇通财经APP讯——周一（6月15日） ，美元指数延续弱势，在99.49一线低位徘徊，空头结构未有改变。
 
-宏观方面，美国4月综合PMI初值录得52.0，高于预期值50.6和前值50.3，创3个月新高，其中制造业PMI初值录得54.0，高于预期值52.5和前值52.3，创47个月新高，景气度显著回升；服务业PMI初值录得51.3，高于预期值50.6和前值49.8，重返扩张区间并创2个月新高。
+市场交易量相对清淡，注意力完全集中在即将到来的美联储6月议息会议。
 
-地缘政治方面，美伊谈判再次“陷入僵局”，特朗普表示霍尔木兹海峡已被彻底封锁。
+这是新任主席沃什上任后的首次新闻发布会，其关于通胀前景、利率路径的表述将直接填补其政策框架的“黑箱”。
 
-库存方面，LME铜库存增加425吨至396000吨；22日COMEX库存增加2821吨至547713吨；SHFE铜仓单下降4031吨至118497吨，BC维持11180吨。
+结合盘面来看，美元指数在240分钟周期上呈现典型的“高位震荡破位下行低位弱势整理”的三段式结构，布林带开口向下扩张，价格紧贴下轨运行，MACD在零轴下方死叉且绿柱放大。
 
-美伊谈判局势依旧不明朗，霍尔木兹海峡通航问题依然难以解决，宏观反复也带动盘面无序波动，增加短线操作难度。
+技术面已为可能的波动预留了空间，基本面的任何风吹草动都可能触发趋势加速或剧烈修正。
 
-不过结合近期国内铜快速去库及海外硫酸问题，铜价预计将延续偏强格局，但当前地缘持续扰动下需降低反弹高度预期。
+本次会议，政策声明措辞的调整以及沃什对经济“交叉气流”的解读，是打破当前美元僵局的关键变量。
 
-另外，临近五一小长假，企业或担心节日前后地缘生变，因此对于高价铜普遍偏谨慎，但也有备货需求，因此策略上建议以逢低做多为主，上方关注104000-105000元/吨阻力区间的突破情况。
+基本面“黑箱”待解，技术面弱势结构已明 本次议息会议的市场关注点，已从“是否降息”彻底转向“何时加息”以及沃什的个人风格。
 
-镍&不锈钢： （朱希，从业资格号：F03109968；交易咨询资格号：Z0021609） 隔夜LME镍涨1.68%报18775美元/吨，沪镍涨1.65%报144510元/吨。
+当前联邦基金利率处于3.50%-3.75%区间，市场主流预期此次会议将维持利率不变。
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 19:45 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 20:04 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 19:52 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 19:38 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 19:43 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 19:41 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 19:55 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 19:38 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 20:05 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 20:02 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 20:04 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 19:52 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 20:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 20:12 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 19:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 20:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 19:54 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 19:55 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 19:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 20:05 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 20:09 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 20:01 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 19:52 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 20:01 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 20:09 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:45 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/790288444.shtml)
-- 2026-06-29 19:50 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/93052966.shtml)
-- 2026-06-29 19:38 - [金牌调解](https://www.share.kurohicncr.top/Article/details/06477749.shtml)
-- 2026-06-29 19:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/1292289.shtml)
-- 2026-06-29 19:51 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/380410205210.shtml)
-- 2026-06-29 19:59 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/83569.shtml)
-- 2026-06-29 20:04 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/10950.shtml)
-- 2026-06-29 20:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/33791663381.shtml)
-- 2026-06-29 19:41 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/730946934449.shtml)
-- 2026-06-29 19:47 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/434627982.shtml)
-- 2026-06-29 20:03 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/34216716467.shtml)
-- 2026-06-29 19:52 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/22431943.shtml)
-- 2026-06-29 19:39 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/66007439.shtml)
-- 2026-06-29 19:43 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/122267505.shtml)
-- 2026-06-29 19:38 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/96516.shtml)
+- 2026-06-29 19:46 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/5613269030.shtml)
+- 2026-06-29 20:09 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/489722245.shtml)
+- 2026-06-29 19:54 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/712930.shtml)
+- 2026-06-29 20:02 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/65254738.shtml)
+- 2026-06-29 19:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/6266923928.shtml)
+- 2026-06-29 19:59 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.minike.top/Article/details/07902.shtml)
+- 2026-06-29 20:11 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/3773765245.shtml)
+- 2026-06-29 20:05 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/045574863.shtml)
+- 2026-06-29 20:09 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/1486089310.shtml)
+- 2026-06-29 19:56 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/3174043.shtml)
+- 2026-06-29 19:59 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/866519.shtml)
+- 2026-06-29 20:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/94386.shtml)
+- 2026-06-29 20:07 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/63569273.shtml)
+- 2026-06-29 19:57 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/437480154513.shtml)
+- 2026-06-29 19:57 - [叠纸](http://www.blog.kurohicncr.top/Article/details/29998.shtml)

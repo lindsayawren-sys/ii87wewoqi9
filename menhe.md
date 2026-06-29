@@ -1,56 +1,60 @@
-# 广西启动健康文化宣传服务月活动 推进健康知识进万家
+# 开封清明上河园港股IPO递表 净利润超2亿元
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-中新网南宁4月25日电 (记者 黄艳梅)2026年“广西三月三·健康春之声”健康文化宣传服务月暨“健康科普行——万场健康知识讲座”启动仪式，24日晚在南宁市民歌湖举行。 本次活动以民族文化为底色、健康科普为主线，紧扣民众健康需求，重点开展健康知识讲座“六进”活动、健康文化大集、健康文化作品展演等内容，旨在深入推进健康广西建设，普及科学健康知识，倡导文明健康生活方式，进一步提升广
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：投实 投实消息：6月15日，开封清明上河园股份有限公司向港交所递交了上市申请。 招股书披露，公司是位于河南省开封市的文化主题园区及旅游表演开发商及营运商，以清明上河园为核心，截至最后实际可行日期，清明上河园是开封市唯一一家国家5A级旅游景区，也是河南 省唯一一家提供大型实景旅游演出的主题园区。 根据灼
 
 ## 正文
 
-中新网南宁4月25日电 (记者 黄艳梅)2026年“广西三月三·健康春之声”健康文化宣传服务月暨“健康科普行——万场健康知识讲座”启动仪式，24日晚在南宁市民歌湖举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-本次活动以民族文化为底色、健康科普为主线，紧扣民众健康需求，重点开展健康知识讲座“六进”活动、健康文化大集、健康文化作品展演等内容，旨在深入推进健康广西建设，普及科学健康知识，倡导文明健康生活方式，进一步提升广西居民健康素养。
+来源：投实 投实消息：6月15日，开封清明上河园股份有限公司向港交所递交了上市申请。
 
-活动期间，主办方将以“讲座+”形式，组织健康知识讲座进学校、进企业、进机关、进社区、进乡村、进广场，让健康理念融入日常生产生活，促进健康文化在八桂大地生根发芽。
+招股书披露，公司是位于河南省开封市的文化主题园区及旅游表演开发商及营运商，以清明上河园为核心，截至最后实际可行日期，清明上河园是开封市唯一一家国家5A级旅游景区，也是河南 省唯一一家提供大型实景旅游演出的主题园区。
 
-广西壮族自治区卫生健康委员会主任杜振宗在致辞中指出，本次活动既是深入实施健康广西行动、推进健康知识进万家的具体实践，也是新时代落实国家健康科普战略、健全全民健康传播体系的重要举措。
+根据灼识咨询的资料，清明上河园于2025年共接待约9.6百万游客人次，在全中国所有单一主题园区中排名第四，在河南省 所有5A级旅游景区中排名第一。
 
-活动通过联合多部门开展“健康科普行——万场健康知识讲座”，以大规模、广覆盖、常态化的方式，将权威、实用、易懂的健康知识送进千家万户，引导民众养成文明健康生活方式，稳步提升全民健康水平。
+公司2023年-2025年分别实现营业收入6.731亿元、7.417亿元、7.460亿元；净利润2.853亿元、2.780亿元、2.124亿元。
 
-启动仪式上，民众代表宣读了《健康生活倡议书》，倡导市民从日常点滴做起，践行文明健康生活方式。
+公司的大部分收入来自园区运营，包括门票销售、租赁收入以及餐饮和酒店服务，园区运营产生的收入占2023财年、2024财年及2025财年总收入的比例分别约为78.5%、76.8%及78.1%。
 
-主办单位向“健康广西宣传大使”颁发聘书，宣传大使代表分享了参与健康科普的心得体会。
+截至最后实际可行日期，河南正钦集团有权行使本公司51.0%的投票权，开封发投投资管理运营有限公司及开封国有资产管理有限公司分别有权行使本公司45.0%及4.0%的投票权。
 
-在健康知识讲座中，医疗专家围绕高血压、糖尿病等常见慢性病的预防与日常管理，为现场民众带来了一场贴近生活、通俗易懂的健康科普课。
+公司在2023财年、2024财年及2025财年分别宣派现金股息人民币8000万元、人民币4.42亿元及人民币2.82亿元。
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 20:00 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 19:45 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 19:49 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 19:51 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 19:38 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 19:40 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 19:59 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 19:50 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 19:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 19:55 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 19:44 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 20:01 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 20:10 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 19:42 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 19:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 20:00 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 19:48 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 20:02 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 20:06 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 19:57 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 20:08 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 19:42 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 19:42 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:58 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/85814509383.shtml)
-- 2026-06-29 19:54 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/20301394677.shtml)
-- 2026-06-29 20:00 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/820729939164.shtml)
-- 2026-06-29 19:54 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/88766455.shtml)
-- 2026-06-29 20:03 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/4958477982.shtml)
-- 2026-06-29 19:49 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/97775.shtml)
-- 2026-06-29 19:44 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/751962.shtml)
-- 2026-06-29 19:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/7624391243.shtml)
-- 2026-06-29 19:43 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/278483878.shtml)
-- 2026-06-29 19:39 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/7319484374.shtml)
-- 2026-06-29 19:45 - [宜宾地震已转移安置225人](https://www.share.kurohicncr.top/Article/details/810955.shtml)
-- 2026-06-29 19:41 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/787380572.shtml)
-- 2026-06-29 19:41 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/93376893265.shtml)
-- 2026-06-29 19:46 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/87086669752.shtml)
-- 2026-06-29 19:51 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/229740501048.shtml)
+- 2026-06-29 19:57 - [A股割裂行情有变化了吗](https://www.blog.kurohicncr.top/Article/details/36363788272.shtml)
+- 2026-06-29 20:00 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/683644845036.shtml)
+- 2026-06-29 19:51 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/3400728407.shtml)
+- 2026-06-29 19:56 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/2596121703.shtml)
+- 2026-06-29 19:49 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/091423993.shtml)
+- 2026-06-29 20:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/620864907217.shtml)
+- 2026-06-29 19:48 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/452753824.shtml)
+- 2026-06-29 19:44 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/88878.shtml)
+- 2026-06-29 19:50 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/802841599.shtml)
+- 2026-06-29 19:52 - [法生态部长反对装空调却自己吹空调](https://www.share.minike.top/Article/details/63663163.shtml)
+- 2026-06-29 19:58 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/36086166.shtml)
+- 2026-06-29 20:08 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/59217.shtml)
+- 2026-06-29 19:44 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/05462.shtml)
+- 2026-06-29 19:49 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/31474.shtml)
+- 2026-06-29 19:55 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/47251286.shtml)

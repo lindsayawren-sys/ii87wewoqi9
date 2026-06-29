@@ -1,58 +1,57 @@
-# 中国成功发射巴基斯坦PRSC-EO3卫星
+# 俄军一架战略轰炸机坠毁 机组人员弹射逃生
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-中新社北京4月25日电 (记者 马帅莎)据中国航天科技集团消息，北京时间4月25日20时15分，中国在太原卫星发射中心使用长征六号运载火箭，成功将巴基斯坦PRSC-EO3卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 巴基斯坦PRSC-EO3卫星由巴基斯坦空间和外大气层研究委员会抓总研制。卫星搭载了高分辨率光学载荷，获取的遥感数据将服务于巴基斯坦的土地测绘、农业分类
+中新社莫斯科6月15日电 俄罗斯媒体15日报道称，俄军一架图-22M3战略轰炸机在东西伯利亚地区的伊尔库茨克州坠毁，机组人员弹射逃生。 塔斯社等媒体援引俄国防部的消息报道说，俄军一架图-22M3战略轰炸机在伊尔库茨克州执行例行飞行训练任务，在着陆时坠毁，机组人员弹射逃生，其生命健康未受到威胁。事故未对地面造成破坏。 消息同时表示，这架飞机当时并未携带弹药。俄空天军司令部的一个调
 
 ## 正文
 
-中新社北京4月25日电 (记者 马帅莎)据中国航天科技集团消息，北京时间4月25日20时15分，中国在太原卫星发射中心使用长征六号运载火箭，成功将巴基斯坦PRSC-EO3卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
+中新社莫斯科6月15日电 俄罗斯媒体15日报道称，俄军一架图-22M3战略轰炸机在东西伯利亚地区的伊尔库茨克州坠毁，机组人员弹射逃生。
 
-巴基斯坦PRSC-EO3卫星由巴基斯坦空间和外大气层研究委员会抓总研制。
+塔斯社等媒体援引俄国防部的消息报道说，俄军一架图-22M3战略轰炸机在伊尔库茨克州执行例行飞行训练任务，在着陆时坠毁，机组人员弹射逃生，其生命健康未受到威胁。
 
-卫星搭载了高分辨率光学载荷，获取的遥感数据将服务于巴基斯坦的土地测绘、农业分类评估、城乡规划、环境监测等领域。
+事故未对地面造成破坏。
 
-本次任务为巴方单星定制化发射。
+消息同时表示，这架飞机当时并未携带弹药。
 
-截至目前，中国已为巴基斯坦的PRSC-EO星座提供了3次发射服务，助力该星座顺利完成阶段性组网。
+俄空天军司令部的一个调查小组正在现场开展工作。
 
-长征六号运载火箭由中国航天科技集团八院抓总研制，是一款低温液体三级运载火箭，具备发射多种类型、不同轨道要求卫星的能力，可实施一箭单星或多星发射。
+另有俄媒体援引伊尔库茨克州州长科布泽夫的话报道称，机组人员已被送往医院。
 
-此次任务是长征系列运载火箭的第640次飞行。
+初步报告显示，飞机发生事故的原因可能是发动机故障。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 19:51 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 19:51 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 20:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 19:37 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 19:48 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 19:58 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 20:03 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 19:55 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 19:44 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 19:57 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 19:55 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 20:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 19:53 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 19:54 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 19:45 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 20:10 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 20:06 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 19:42 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 20:07 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 20:00 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 19:59 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 19:51 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/12569.shtml)
-- 2026-06-29 19:38 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/085541813.shtml)
-- 2026-06-29 19:37 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/361239.shtml)
-- 2026-06-29 19:53 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/246437271059.shtml)
-- 2026-06-29 20:05 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/220970.shtml)
-- 2026-06-29 19:43 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/0162264642.shtml)
-- 2026-06-29 19:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/75345236271.shtml)
-- 2026-06-29 19:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/964294794.shtml)
-- 2026-06-29 20:03 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/836643956.shtml)
-- 2026-06-29 19:39 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/95964.shtml)
-- 2026-06-29 19:55 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/6860495.shtml)
-- 2026-06-29 20:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/1486368258.shtml)
-- 2026-06-29 19:43 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/4852798.shtml)
-- 2026-06-29 19:46 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/8837217.shtml)
-- 2026-06-29 19:44 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/67017023.shtml)
+- 2026-06-29 19:51 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/02212998.shtml)
+- 2026-06-29 20:05 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/2989408915.shtml)
+- 2026-06-29 20:02 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/461750918905.shtml)
+- 2026-06-29 20:06 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/82121.shtml)
+- 2026-06-29 19:54 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/14766.shtml)
+- 2026-06-29 19:53 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/953875.shtml)
+- 2026-06-29 19:46 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/46624309702.shtml)
+- 2026-06-29 19:44 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/808418904.shtml)
+- 2026-06-29 20:05 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/9141028957.shtml)
+- 2026-06-29 19:50 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/0373406.shtml)
+- 2026-06-29 20:11 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/81098451.shtml)
+- 2026-06-29 20:02 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/770527515.shtml)
+- 2026-06-29 19:58 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/10073538.shtml)
+- 2026-06-29 19:55 - [当我回母校教书](http://www.blog.minike.top/Article/details/323661695857.shtml)
+- 2026-06-29 19:49 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/84613.shtml)

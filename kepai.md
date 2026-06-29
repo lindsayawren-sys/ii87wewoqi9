@@ -1,61 +1,61 @@
-# 亚马逊支持的小型核反应堆公司X-Energy通过IPO融资10.2亿美元
+# 两大北京市重点实验室通过认定，北京数据集团夯实“数算模用”创新底座
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-由亚马逊支持的小型核反应堆开发商X-Energy周四宣布，已在美国完成首次公开募股（IPO），筹集资金10.2亿美元。 这家总部位于马里兰州罗克维尔的公司在此次规模扩大的IPO中以每股23美元的价格出售了4430万股股票，高于此前预估的每股16至19美元的发行价区间。 此次IPO正值市场在3月份短暂放缓后重拾动力之际。当时，受中东紧张局势和更广泛的科技股抛售的影响，市场波动导致
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：智能院 近日，北京市科学技术委员会、中关村科技园区管理委员会公布2026年北京市重点实验室拟认定名单。由北京数据集团旗下京数公司支撑参与的“人工智能伦理与法治评测北京市重点实验室”与“智能原生数据系统北京市重点实验室”已通过认定公示。两大实验室分别聚焦人工智能治理技术与智能数据基础设施，是北京数据集团
 
 ## 正文
 
-由亚马逊支持的小型核反应堆开发商X-Energy周四宣布，已在美国完成首次公开募股（IPO），筹集资金10.2亿美元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家总部位于马里兰州罗克维尔的公司在此次规模扩大的IPO中以每股23美元的价格出售了4430万股股票，高于此前预估的每股16至19美元的发行价区间。
+来源：智能院 近日，北京市科学技术委员会、中关村科技园区管理委员会公布2026年北京市重点实验室拟认定名单。
 
-此次IPO正值市场在3月份短暂放缓后重拾动力之际。
+由北京数据集团旗下京数公司支撑参与的“人工智能伦理与法治评测北京市重点实验室”与“智能原生数据系统北京市重点实验室”已通过认定公示。
 
-当时，受中东紧张局势和更广泛的科技股抛售的影响，市场波动导致多家公司被迫暂停发行。
+两大实验室分别聚焦人工智能治理技术与智能数据基础设施，是北京数据集团深耕“数算模用”一体化布局的重要阶段性成果，为北京建设全球数字经济标杆城市提供支撑。
 
-随着市场接近历史高位，风险偏好有所改善，各公司正迅速采取行动以满足投资者的需求。
+聚焦AI治理：构建安全合规的评测基础设施 人工智能伦理与法治评测实验室由北京市经济和信息化局指导，中国政法大学牵头，联合京数公司、蚂蚁集团以及北京中关村学院共建，致力于打造智能体时代的系统性安全治理基础设施。
 
-随着电力需求激增，尤其是来自运行高能耗人工智能和云基础设施的超大规模企业的需求，核能再次引起人们的关注。
+实验室依托京数公司运营的全国首个人工智能数据沙盒，研发多模态评测智能体、可计算法律规则编译等核心技术，打通“规则—数据—评测—应用”全链条。
 
-X-Energy公司成立于2009年，致力于开发小型模块化反应堆（SMR）技术，并为先进核系统生产燃料。
+京数公司从三个维度提供关键支撑： 一是依托北京数据先行区政策优势，提供海量合规数据用于伦理对齐训练；二是输出自主研发的可信数据空间与安全治理工具，实现数据从匿名化到开发利用的闭环支撑；三是开放金融反欺诈、医疗数据匿名化等真实场景，为模型合规压力测试提供工程化验证环境。
 
-小型模块化反应堆（SMR）体积更小，设计上也比传统的大型反应堆更具成本效益，而大型反应堆的建造可能需要数年时间。
+夯实数据底座：破解智能原生系统核心瓶颈 智能原生数据系统实验室由北京航空航天大学牵头，北京数据集团及北京航天情报与信息研究所共建，重点破解多模态数据治理难、高质量训练数据不足、智能数据库自主化水平低等瓶颈。
 
 ## 相关推荐
 
-- 2026-06-29 19:41 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 19:39 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 19:37 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 19:52 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 19:57 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 19:50 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 19:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 19:42 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 19:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 19:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 19:59 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 19:43 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 20:04 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 19:43 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 19:49 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 20:00 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 19:48 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 20:11 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 19:45 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 19:48 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 19:50 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 19:44 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 19:57 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 19:44 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 19:48 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 20:06 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 19:46 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 19:51 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 20:10 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 20:11 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:55 - [新官上任三把火](https://www.blog.minike.top/Article/details/957289168.shtml)
-- 2026-06-29 19:41 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/705078722.shtml)
-- 2026-06-29 19:43 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/63683781.shtml)
-- 2026-06-29 20:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/880803999025.shtml)
-- 2026-06-29 19:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/789198.shtml)
-- 2026-06-29 19:43 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/946375.shtml)
-- 2026-06-29 20:00 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/218738.shtml)
-- 2026-06-29 20:01 - [中方向委方追加1亿元援助](http://www.blog.kurohicncr.top/Article/details/6543130.shtml)
-- 2026-06-29 19:55 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/645081.shtml)
-- 2026-06-29 20:05 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/6767543.shtml)
-- 2026-06-29 19:49 - [速度与激情9](https://www.share.minike.top/Article/details/0697023.shtml)
-- 2026-06-29 20:01 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/178606739.shtml)
-- 2026-06-29 19:38 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/345861881211.shtml)
-- 2026-06-29 19:42 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/751641621.shtml)
-- 2026-06-29 19:43 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/1477564.shtml)
+- 2026-06-29 20:05 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/121579977700.shtml)
+- 2026-06-29 19:55 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/868703865789.shtml)
+- 2026-06-29 19:46 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/0104774.shtml)
+- 2026-06-29 20:05 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/0410783.shtml)
+- 2026-06-29 19:46 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/03427565043.shtml)
+- 2026-06-29 20:04 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/06846992.shtml)
+- 2026-06-29 19:43 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/0880788901.shtml)
+- 2026-06-29 19:49 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/6863311.shtml)
+- 2026-06-29 20:11 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/69789637626.shtml)
+- 2026-06-29 20:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/115009976462.shtml)
+- 2026-06-29 19:54 - [北京市发布雷电黄色预警](https://www.share.minike.top/Article/details/822418349041.shtml)
+- 2026-06-29 19:56 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/03875.shtml)
+- 2026-06-29 20:06 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/27303375658.shtml)
+- 2026-06-29 20:01 - [医药生物行业今日涨5.91%](http://www.blog.minike.top/Article/details/004547832764.shtml)
+- 2026-06-29 20:02 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/909262047.shtml)

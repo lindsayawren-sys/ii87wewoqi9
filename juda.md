@@ -1,58 +1,60 @@
-# 古典与爵士乐复杂性为何接近流行乐？研究称或受音乐数字化影响
+# 划重点 这些生活习惯可能正在泄露你的个人信息
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网北京4月24日电 (记者 孙自法)施普林格·自然旗下开放获取学术期刊《科学报告》最新发表一篇音乐研究论文称，一项研究显示，自20世纪中叶以来，古典和爵士音乐变得更加简单和统一，其复杂性如今已更接近流行和摇滚等音乐流派。 论文作者认为，音乐数字化可能通过让艺术家更容易获取并从录音作品中汲取灵感，从而影响了不同流派的创作。 据论文介绍，此前研究表明，流行歌曲的歌词和旋律近年来
+国家网信办近日发布了《中国个人信息保护报告(2025)》，这是国家网信办首次发布个人信息保护综合性年度报告，“报告”系统梳理了2025年我国个人信息保护工作的成效与经验。过去一年，有哪些违法违规问题高频出现？集中在哪些领域环节？国家出台了哪些新制度和新标准？个人信息保护如何形成合力？ 侵害个人信息乱象 集中在哪些领域环节？ 《中国个人信息保护报告(2025)》显示，过去一年，我
 
 ## 正文
 
-中新网北京4月24日电 (记者 孙自法)施普林格·自然旗下开放获取学术期刊《科学报告》最新发表一篇音乐研究论文称，一项研究显示，自20世纪中叶以来，古典和爵士音乐变得更加简单和统一，其复杂性如今已更接近流行和摇滚等音乐流派。
+国家网信办近日发布了《中国个人信息保护报告(2025)》，这是国家网信办首次发布个人信息保护综合性年度报告，“报告”系统梳理了2025年我国个人信息保护工作的成效与经验。
 
-论文作者认为，音乐数字化可能通过让艺术家更容易获取并从录音作品中汲取灵感，从而影响了不同流派的创作。
+过去一年，有哪些违法违规问题高频出现？
 
-据论文介绍，此前研究表明，流行歌曲的歌词和旋律近年来已变得更加简单，但尚不清楚古典和爵士等历史上被视为“复杂”的流派是否也受到了类似影响。
+集中在哪些领域环节？
 
-在本项研究中，论文共同通讯作者、意大利图西亚大学Niccolò Di Marco和罗马大学Walter Quattrociocchi与合作者一起，分析了1600年至2021年间创作的21480首歌曲和乐曲的旋律与和声。
+国家出台了哪些新制度和新标准？
 
-他们发现，古典音乐的复杂度在1900年前曾多次起伏，但在整个20世纪呈现出显著下降的趋势。
+个人信息保护如何形成合力？
 
-同样，爵士乐作品的复杂度在20世纪50年代和60年代达到顶峰，此后便呈下降趋势。
+侵害个人信息乱象 集中在哪些领域环节？
 
-总体而言，20世纪早期的古典乐和爵士乐作品比整个世纪的流行、摇滚、电子或嘻哈歌曲更为复杂。
+《中国个人信息保护报告(2025)》显示，过去一年，我国开展了多轮专项整治工作，究竟在哪些场景中，会频繁出现侵害个人信息的违法违规问题？
 
-然而，20世纪中叶之后，古典乐和爵士乐作品的复杂度与其他流派的歌曲更为接近，其结构与和声也变得更加相似。
+“报告”显示，2025年，国家网信办等相关部门持续开展个人信息保护专项整治行动，累计通报1100余款违法违规App、SDK(软件开发工具包)，排查8万余个收集使用人脸识别的应用场所、14万余个线下消费场景，发现并处置违法违规收集使用个人信息问题8300余个。
 
 ## 相关推荐
 
-- 2026-06-29 19:52 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 19:50 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 19:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 19:52 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 19:58 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 19:55 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 20:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 19:59 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 19:39 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 19:59 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 19:49 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 19:58 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 19:55 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 20:11 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 19:59 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 20:07 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 20:03 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 19:43 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 20:03 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 20:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 20:07 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 20:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 19:42 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 20:07 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 19:49 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 19:58 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:01 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/2090376.shtml)
-- 2026-06-29 20:05 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/67846363312.shtml)
-- 2026-06-29 19:50 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/20675583.shtml)
-- 2026-06-29 19:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/650235741411.shtml)
-- 2026-06-29 19:50 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/51824.shtml)
-- 2026-06-29 19:49 - [LPL第三赛段赛制公布](http://www.share.kurohicncr.top/Article/details/965205202467.shtml)
-- 2026-06-29 19:53 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/939360529163.shtml)
-- 2026-06-29 19:48 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/301123112.shtml)
-- 2026-06-29 19:49 - [金牌调解](http://www.share.minike.top/Article/details/22928359672.shtml)
-- 2026-06-29 19:56 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/26181746.shtml)
-- 2026-06-29 19:52 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/99788.shtml)
-- 2026-06-29 19:38 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/06451374.shtml)
-- 2026-06-29 20:02 - [林逸向方筱然求婚了](http://www.blog.kurohicncr.top/Article/details/9973923.shtml)
-- 2026-06-29 19:48 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/59887.shtml)
-- 2026-06-29 19:48 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/207984962.shtml)
+- 2026-06-29 20:06 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/197378803963.shtml)
+- 2026-06-29 19:55 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/963196.shtml)
+- 2026-06-29 19:54 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/33964.shtml)
+- 2026-06-29 19:58 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/549883343.shtml)
+- 2026-06-29 19:59 - [回顾世界杯争议事件](https://www.blog.minike.top/Article/details/77522.shtml)
+- 2026-06-29 20:00 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/330289.shtml)
+- 2026-06-29 19:44 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/5063121919.shtml)
+- 2026-06-29 20:07 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/171829.shtml)
+- 2026-06-29 20:08 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/05391828957.shtml)
+- 2026-06-29 19:53 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/428002366.shtml)
+- 2026-06-29 19:49 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.kurohicncr.top/Article/details/043221.shtml)
+- 2026-06-29 19:48 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/58320052.shtml)
+- 2026-06-29 19:50 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.kurohicncr.top/Article/details/418629.shtml)
+- 2026-06-29 19:44 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/46966.shtml)
+- 2026-06-29 20:04 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/188824.shtml)

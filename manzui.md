@@ -1,50 +1,57 @@
-# 小摩：ASMPT给予“增持”评级 目标价上升至175港元
+# 《西湖龙井茶全书》首发 构建茶叶全生命周期知识体系
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，ASMPT（00522）今年首季业绩及次季指引，均远高于市场预期，主要受惠于半导体及表面贴装技术（SMT）收入强劲，以及半导体毛利率改善。小摩预计，ASMPT今年收入增长约30%至40%，因其先进封装持续扩张，以及AI服务器电路板及电源管理IC带动主流半导体和SMT解决方案强劲复苏。故上调今明两年每股盈利预测35%及21%，目标价由130港元升至175港元，
+中新网杭州6月15日电(郭其钰)6月15日，《西湖龙井茶全书》在浙江杭州首发。该书以茶文化、茶科技、茶产业统筹发展理念为主题主线，从历史、文化、科技、产业四大维度，构建覆盖茶叶全生命周期的完整知识体系。 西湖龙井茶是杭州的一张文化名片，是自然与人文共生、交汇的产物。西湖龙井茶的历史，就是一部与杭州城市发展交织并行、同频共振的成长史和兴盛史。 《西湖龙井茶全书》由杭州市政协牵头，
 
 ## 正文
 
-摩根大通发布研报称，ASMPT（00522）今年首季业绩及次季指引，均远高于市场预期，主要受惠于半导体及表面贴装技术（SMT）收入强劲，以及半导体毛利率改善。
+中新网杭州6月15日电(郭其钰)6月15日，《西湖龙井茶全书》在浙江杭州首发。
 
-小摩预计，ASMPT今年收入增长约30%至40%，因其先进封装持续扩张，以及AI服务器电路板及电源管理IC带动主流半导体和SMT解决方案强劲复苏。
+该书以茶文化、茶科技、茶产业统筹发展理念为主题主线，从历史、文化、科技、产业四大维度，构建覆盖茶叶全生命周期的完整知识体系。
 
-故上调今明两年每股盈利预测35%及21%，目标价由130港元升至175港元，给予“增持”评级。
+西湖龙井茶是杭州的一张文化名片，是自然与人文共生、交汇的产物。
 
-该行认为，公司未来几季有数个催化剂推动股价上涨包括积压的HBM4订单，可能在SK海力士解决其Rubin芯片的逻辑基板挑战后，于今年下半年获得释放； 同时，公司正与所有DRAM制造商就HBM4E TCB的认证合作进行广泛磋商等。
+西湖龙井茶的历史，就是一部与杭州城市发展交织并行、同频共振的成长史和兴盛史。
 
-责任编辑：卢昱君
+《西湖龙井茶全书》由杭州市政协牵头，杭州市政协文史委协同杭州市茶文化研究会等汇聚30余位相关领域专家学者，历时四年编撰而成，是国内首部系统阐述单类茶品的专业性著作。
+
+《西湖龙井茶全书》编委会主任、主编，杭州市政协原主席马卫光介绍，该书共5卷24章，约300万字、1500张图片。
+
+全书以“历史溯源—当代实践—未来展望”为轴线，梳理千年茶史脉络，立足现代产业革新，提出前瞻性发展路径。
+
+在编撰统稿方面，《西湖龙井茶全书》突破传统茶学体例，分茶文化、茶科技、茶产业三大板块，内容涉及历史文化、地理风俗、科技经贸、生产加工等众多领域，涵盖茶学、历史学、农学、气象学、地理学、文献学、艺术学等多学科。
 
 ## 相关推荐
 
-- 2026-06-29 19:56 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 20:05 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 19:49 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 19:45 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 19:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 19:48 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 19:55 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 19:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 19:38 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 20:04 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 19:44 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 19:50 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 20:01 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 20:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 19:51 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 19:52 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 20:04 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 19:49 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 19:56 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 19:42 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 19:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/677265296648.shtml)
-- 2026-06-29 20:05 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/0697283634.shtml)
-- 2026-06-29 20:00 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/58548.shtml)
-- 2026-06-29 20:03 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/01830128070.shtml)
-- 2026-06-29 19:38 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/4759608.shtml)
-- 2026-06-29 19:54 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/81908.shtml)
-- 2026-06-29 19:51 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/55084.shtml)
-- 2026-06-29 19:57 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/227425094.shtml)
-- 2026-06-29 20:02 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/93939679.shtml)
-- 2026-06-29 19:51 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/01614.shtml)
-- 2026-06-29 19:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/844068637917.shtml)
-- 2026-06-29 19:42 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/36042.shtml)
-- 2026-06-29 19:39 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/761188335085.shtml)
-- 2026-06-29 19:49 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/86988029.shtml)
-- 2026-06-29 19:46 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/0347421304.shtml)
+- 2026-06-29 19:52 - [官方通报一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/138878224466.shtml)
+- 2026-06-29 19:58 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/4041279.shtml)
+- 2026-06-29 20:07 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/43862346.shtml)
+- 2026-06-29 20:00 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/699611050.shtml)
+- 2026-06-29 19:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/61342348.shtml)
+- 2026-06-29 19:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/17018275.shtml)
+- 2026-06-29 20:04 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/780831543659.shtml)
+- 2026-06-29 19:48 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.minike.top/Article/details/903730867918.shtml)
+- 2026-06-29 19:50 - [逆天祖国人](https://www.blog.minike.top/Article/details/037598206113.shtml)
+- 2026-06-29 20:05 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/53346823.shtml)
+- 2026-06-29 19:52 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/3212986833.shtml)
+- 2026-06-29 20:06 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/7340249.shtml)
+- 2026-06-29 19:52 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/150837833.shtml)
+- 2026-06-29 20:08 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/84709740.shtml)
+- 2026-06-29 19:44 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/77577505765.shtml)

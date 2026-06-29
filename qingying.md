@@ -1,60 +1,56 @@
-# 市场监管总局：七省市率先探索破解“僵尸企业”退出难题
+# 2026年全国竞走大奖赛（第3站）在陕启幕
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网北京4月27日电 (记者 刘亮)市场监管总局27日公布，为深入贯彻落实新修订的《中华人民共和国公司法》关于强制清算的有关规定，该局近日选取北京、河北、江苏、浙江、河南、四川、广东等7省(市)开展由登记机关向人民法院申请强制清算试点工作。针对经营异常且怠于履行清算义务的企业，在原来可以由公司股东、债权人等利害关系人向人民法院申请强制清算的基础上，新修订的《中华人民共和国公司
+中新网陕西汉中6月13日电 (记者 张一辰)2026年全国竞走大奖赛(第3站)暨青少年竞走锦标赛暨竞走单项赛(第3站)13日在陕西城固县开幕，来自全国43支代表队的437名选手参赛。 本次赛事由中国田径协会、陕西省体育局、汉中市人民政府主办，西安体育学院、陕西省田径运动管理中心、陕西省田径协会、汉中市体育局、城固县人民政府承办。 城固县委常委、常务副县长杨奇涛表示，近年来，当地
 
 ## 正文
 
-中新网北京4月27日电 (记者 刘亮)市场监管总局27日公布，为深入贯彻落实新修订的《中华人民共和国公司法》关于强制清算的有关规定，该局近日选取北京、河北、江苏、浙江、河南、四川、广东等7省(市)开展由登记机关向人民法院申请强制清算试点工作。
+中新网陕西汉中6月13日电 (记者 张一辰)2026年全国竞走大奖赛(第3站)暨青少年竞走锦标赛暨竞走单项赛(第3站)13日在陕西城固县开幕，来自全国43支代表队的437名选手参赛。
 
-针对经营异常且怠于履行清算义务的企业，在原来可以由公司股东、债权人等利害关系人向人民法院申请强制清算的基础上，新修订的《中华人民共和国公司法》专门新增了有关部门或者公司登记机关可以作为申请人向人民法院申请强制清算的规定。
+本次赛事由中国田径协会、陕西省体育局、汉中市人民政府主办，西安体育学院、陕西省田径运动管理中心、陕西省田径协会、汉中市体育局、城固县人民政府承办。
 
-在部分地区开展试点，是贯彻落实新修订《中华人民共和国公司法》的有力举措，有利于构建“府院联动”强制清算机制，明确强制清算的申请条件、流程环节、材料规范、组织保障等，为全国推广实施强制清算工作积累可复制可推广经验做法。
+城固县委常委、常务副县长杨奇涛表示，近年来，当地把体育事业融入全县高质量发展大局，依托“体教大联盟”和“1+6竞走联盟”等创新模式，走出了一条具有地方特色的体教融合新路。
 
-试点的主要任务包括三个方面。
+本次赛事分为全国竞走大奖赛、青少年竞走锦标赛、竞走单项赛三大板块，共计27个竞赛大项，其中多项赛事为中国田径协会Ⅱ级、Ⅲ级专业赛事，含金量十足。
 
-一是推动建立工作机制。
+赛事涵盖成年组、U20、U18、U16等多个年龄组别，设置半程马拉松竞走、3公里、5公里、10公里个人竞走以及接力竞走等多个项目，全面考验选手的速度、耐力与节奏把控能力。
 
-试点地区市场监管部门主动对接人民法院，深入开展调研，确定本地区试点的时间表、路线图、保障措施等。
+在当日进行的成年组半程马拉松竞走比赛中，陕西选手表现出色，杨宇喆、杨柳静分别摘得男子组与女子组桂冠。
 
-二是完善清算制度规范。
+杨柳静赛后表示，她对自己本场比赛的状态和成绩十分满意。
 
-建立企业筛查机制以明确适用范围，理顺行政与司法衔接的各环节及材料要求，并支持清算组履职，鼓励设立专窗高效办理档案查询、注销登记等事项。
+此次参赛主要是以赛代练，接下来她将全身心投入亚运会备战，力争在大赛中取得理想名次。
 
 ## 相关推荐
 
-- 2026-06-29 19:54 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 20:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 19:45 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 19:51 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 19:37 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 19:51 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 19:47 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 20:04 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 20:05 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 19:39 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 19:44 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 19:36 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 20:02 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 19:59 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 20:01 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 20:07 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 20:03 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 19:57 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 20:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 19:43 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 19:59 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 19:48 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 19:57 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 20:10 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:50 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/137355397042.shtml)
-- 2026-06-29 20:03 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/0213874286.shtml)
-- 2026-06-29 19:37 - [中方向委方追加1亿元援助](http://www.share.minike.top/Article/details/992280455.shtml)
-- 2026-06-29 19:43 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/345076.shtml)
-- 2026-06-29 19:41 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/349739.shtml)
-- 2026-06-29 19:42 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/7577711.shtml)
-- 2026-06-29 19:36 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/032355349547.shtml)
-- 2026-06-29 19:56 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/522686350.shtml)
-- 2026-06-29 19:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/468487355.shtml)
-- 2026-06-29 19:46 - [男子40度高温下骑行严重晒伤](https://www.share.kurohicncr.top/Article/details/37518.shtml)
-- 2026-06-29 19:58 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/0305482861.shtml)
-- 2026-06-29 19:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/0351768245.shtml)
-- 2026-06-29 19:55 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/3403289.shtml)
-- 2026-06-29 19:46 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/817591943480.shtml)
-- 2026-06-29 19:59 - [周生如故](http://www.share.kurohicncr.top/Article/details/755214920842.shtml)
+- 2026-06-29 20:06 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/821270906.shtml)
+- 2026-06-29 20:08 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/171676092905.shtml)
+- 2026-06-29 20:06 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/49133128.shtml)
+- 2026-06-29 19:48 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/76983569.shtml)
+- 2026-06-29 20:09 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/5377092811.shtml)
+- 2026-06-29 20:05 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/6997658.shtml)
+- 2026-06-29 20:11 - [官方通报一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/406922585.shtml)
+- 2026-06-29 19:56 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/709872976851.shtml)
+- 2026-06-29 19:52 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/3392524.shtml)
+- 2026-06-29 20:01 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/70181661.shtml)
+- 2026-06-29 20:09 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/879498374.shtml)
+- 2026-06-29 20:04 - [郑钦文谈再战西尼亚科娃](http://www.share.minike.top/Article/details/31289.shtml)
+- 2026-06-29 19:48 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.kurohicncr.top/Article/details/71616123.shtml)
+- 2026-06-29 19:44 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/490944589.shtml)
+- 2026-06-29 19:43 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/932040.shtml)

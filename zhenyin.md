@@ -1,60 +1,60 @@
-# 恩施建始县召开2026年全县基层统战工作现场交流会
+# 3800公里最远西迁 39头江苏大丰麋鹿落户天山
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-【县市动态】建始县召开2026年全县基层统战工作现场交流会 4月24日，建始县召开2026年全县基层统战工作现场交流会，县委常委、统战部部长龙慧出席并讲话。各乡镇统战委员、统战干事，县委统战部、县民宗局、县工商联全体干部，县知联会、县新联会、光彩事业促进会会长、秘书长参加会议。 会上，业州镇、高坪镇、茅田乡分别作交流发言，分享基层统战工作经验做法。 会议强调2026年是“十五五
+6月13日晚6:45，经过三天两晚长途跋涉，39头来自江苏大丰麋鹿国家级自然保护区的麋鹿，顺利抵达新疆天山野生动物园，正式开启在天山脚下的迁地保护生活。 这是东西部携手开展野生动物保护丰富区域生物多样性的又一次重要实践，源自黄海之滨的麋鹿种群，在西域大地开启繁衍新生的新征程。 3800公里西迁创下麋鹿迁地保护最远纪录 这批麋鹿从黄海之滨大丰启程，全程3800公里，这也是国内迄今
 
 ## 正文
 
-【县市动态】建始县召开2026年全县基层统战工作现场交流会 4月24日，建始县召开2026年全县基层统战工作现场交流会，县委常委、统战部部长龙慧出席并讲话。
+6月13日晚6:45，经过三天两晚长途跋涉，39头来自江苏大丰麋鹿国家级自然保护区的麋鹿，顺利抵达新疆天山野生动物园，正式开启在天山脚下的迁地保护生活。
 
-各乡镇统战委员、统战干事，县委统战部、县民宗局、县工商联全体干部，县知联会、县新联会、光彩事业促进会会长、秘书长参加会议。
+这是东西部携手开展野生动物保护丰富区域生物多样性的又一次重要实践，源自黄海之滨的麋鹿种群，在西域大地开启繁衍新生的新征程。
 
-会上，业州镇、高坪镇、茅田乡分别作交流发言，分享基层统战工作经验做法。
+3800公里西迁创下麋鹿迁地保护最远纪录 这批麋鹿从黄海之滨大丰启程，全程3800公里，这也是国内迄今为止距离最远的一次麋鹿跨区域迁地保护行动，创下我国麋鹿迁地保护最远纪录。
 
-会议强调2026年是“十五五”开局之年，是推动统战工作高质量发展的重要之年，做好统战工作责任重大、意义深远。
+6月11日清晨7点，江苏大丰麋鹿国家级自然保护区工作人员为鹿群逐一完成疫苗接种，并挑选一头麋鹿佩戴GPS项圈，全时追踪其行进状态。
 
-全县统一战线要围绕主责主业做好思想政治引领工作、围绕铸牢中华民族共同体意识主线做好民族工作、围绕深化宗教事务治理专项行动做好宗教工作、围绕突出“两个健康”主题做好民营经济统战工作、围绕凝聚智慧力量做好党外知识分子和新的社会阶层人士工作、围绕激发活力做好基层统战工作、围绕以真心换真情做好港澳台侨工作、围绕提升多党合作制度效能做好民主党派工作。
+为最大程度减少惊扰，保护区专门设计“L”字形转运通道，配合挡板实现缓压引导，让麋鹿平稳步入运输车厢。
 
-会议要求 全县各级党委(党组)要深入学习贯彻党的二十届四中全会精神，全面落实习近平总书记关于做好新时代党的统一战线工作的重要思想，认真落实全国、全省、全州统战部长会议精神。
+“此次远行的39头麋鹿平均年龄为5岁，其中雄性13头、雌性26头，全部通过严格体检，身体状态良好。
 
-要切实履行主体责任，发挥职能优势，形成齐抓共管合力，提升大统战工作格局整体效能。
+”保护区工作人员介绍，考虑到麋鹿生性敏感胆小，极易产生应激反应，车厢内铺设软稻草、备足草料与饮用水，安排兽医全程随行。
 
-要进一步树牢底线思维，牢牢守住不发生系统性区域性风险的底线。
+长途运输全程，麋鹿得到专业管护。
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 20:01 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 20:03 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 19:53 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 19:54 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 20:02 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 20:01 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 20:01 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 20:01 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 19:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 19:54 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 19:56 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 19:54 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 20:03 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 19:58 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 20:03 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 19:42 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 19:59 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 20:05 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 20:08 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 19:46 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 19:42 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 20:05 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 19:54 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 19:45 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 19:45 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 19:45 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 19:42 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/63293.shtml)
-- 2026-06-29 19:54 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/73290.shtml)
-- 2026-06-29 19:44 - [我们的少年时代2](https://www.share.minike.top/Article/details/4361569.shtml)
-- 2026-06-29 19:53 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/29470600.shtml)
-- 2026-06-29 20:01 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/213158187182.shtml)
-- 2026-06-29 19:42 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/258938.shtml)
-- 2026-06-29 19:49 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/98116449.shtml)
-- 2026-06-29 20:03 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/8112712315.shtml)
-- 2026-06-29 19:51 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/2314704.shtml)
-- 2026-06-29 19:58 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/5594275780.shtml)
-- 2026-06-29 19:40 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/21664123.shtml)
-- 2026-06-29 19:41 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/344615.shtml)
-- 2026-06-29 19:41 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/84575.shtml)
-- 2026-06-29 20:03 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/746226792939.shtml)
-- 2026-06-29 19:39 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/558521085383.shtml)
+- 2026-06-29 19:59 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/445783362.shtml)
+- 2026-06-29 20:10 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/40095679984.shtml)
+- 2026-06-29 19:55 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/42197140277.shtml)
+- 2026-06-29 20:02 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/12835.shtml)
+- 2026-06-29 19:52 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/499668.shtml)
+- 2026-06-29 20:02 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/68586.shtml)
+- 2026-06-29 19:58 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/9541590858.shtml)
+- 2026-06-29 19:49 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/8527652.shtml)
+- 2026-06-29 20:10 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/17175840115.shtml)
+- 2026-06-29 20:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/16055285670.shtml)
+- 2026-06-29 19:55 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/94301092473.shtml)
+- 2026-06-29 19:46 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/30636627332.shtml)
+- 2026-06-29 20:11 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/384997180.shtml)
+- 2026-06-29 19:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/240656.shtml)
+- 2026-06-29 19:46 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/3583735115.shtml)

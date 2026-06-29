@@ -1,57 +1,57 @@
-# 5月起，这些新规将影响你我生活
+# 裕信银行否认德国商业银行关于要约收购异常申报行为的指控
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-新一周开启 本周五将进入5月 一批新规即将施行 涉及商业短信、外卖安全殡葬领域明码标价等 带你一起提前了解 全国新规 商业短信“未经同意不得发送” 5月1日起，新修订的《通信短信息服务管理规定》将正式施行。新规明确要求，未经用户明示同意，任何商家不得发送商业短信。 此外，新规对授权底线、退订机制与发送、端口与身份管理及全链条监管与处罚等几方面进行了规范和要求。 针对“幽灵外卖”
+德国商业银行此前称，未发现任何机构投资者就本次收购要约申报股份 裕信银行针对其收购这家德国银行要约最后一日存在异常股份申报行为的指控予以驳斥。 上周，德国商业银行称监测到与裕信银行收购要约相关的异常申报行为。在裕信银行披露本次收购要约股份接受比例达 10.95% 后，这家德国银行表示，其并未查到任何机构投资者申报股份参与本次要约，还补充称申报股份几乎全部来自与裕信银行存在关联的
 
 ## 正文
 
-新一周开启 本周五将进入5月 一批新规即将施行 涉及商业短信、外卖安全殡葬领域明码标价等 带你一起提前了解 全国新规 商业短信“未经同意不得发送” 5月1日起，新修订的《通信短信息服务管理规定》将正式施行。
+德国商业银行此前称，未发现任何机构投资者就本次收购要约申报股份 裕信银行针对其收购这家德国银行要约最后一日存在异常股份申报行为的指控予以驳斥。
 
-新规明确要求，未经用户明示同意，任何商家不得发送商业短信。
+上周，德国商业银行称监测到与裕信银行收购要约相关的异常申报行为。
 
-此外，新规对授权底线、退订机制与发送、端口与身份管理及全链条监管与处罚等几方面进行了规范和要求。
+在裕信银行披露本次收购要约股份接受比例达 10.95% 后，这家德国银行表示，其并未查到任何机构投资者申报股份参与本次要约，还补充称申报股份几乎全部来自与裕信银行存在关联的主体。
 
-针对“幽灵外卖”等顽疾 2则新规提出针对性举措 日前，市场监管总局对外发布2则新规，针对“幽灵外卖”等顽疾提出针对性举措。
+这家意大利银行于周一否认了市场有关 “股份实际申报量因借券机制存在水分” 的说法。
 
-其中，《网络食品销售经营者落实食品安全主体责任监督管理规定》将于5月20日起施行。
+该行表示：“申报股份一经提交即不可撤销，具备完整效力。
 
-新规直指网络餐饮外卖信息不透明、“幽灵外卖”、网络消费追责难、虚假营销等食品安全顽疾，提出针对性举措。
+” 裕信银行同时表示，若能在年度股东大会上获得足够股东支持，该行将有权提名监事会全部股东代表。
 
-明确实名登记 民用无人机新国标实施 5月1日起，全国将实施《民用无人驾驶航空器实名登记和激活要求》与《民用无人驾驶航空器系统运行识别规范》两项强制性国家标准‌，标志着无人机管理进入全流程可追溯时代。
-
-实名登记与激活‌：所有民用无人机必须在民用无人驾驶航空器综合管理平台(UOM)完成‌实名登记并激活‌。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 19:46 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 20:05 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 19:57 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 20:00 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 20:00 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 19:47 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 19:45 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 19:42 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 19:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 19:38 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 20:10 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 19:56 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 20:08 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 19:54 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 20:10 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 20:04 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 19:43 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 20:04 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 19:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 20:09 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 19:55 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 20:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 19:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:44 - [毒液2](http://www.share.minike.top/Article/details/479900161277.shtml)
-- 2026-06-29 19:56 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/031047406829.shtml)
-- 2026-06-29 19:38 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/004902946971.shtml)
-- 2026-06-29 20:05 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/30418.shtml)
-- 2026-06-29 20:01 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/660594.shtml)
-- 2026-06-29 19:37 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/102734670559.shtml)
-- 2026-06-29 19:39 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/1384353286.shtml)
-- 2026-06-29 19:41 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/115694926954.shtml)
-- 2026-06-29 19:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/18233.shtml)
-- 2026-06-29 19:46 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/4598813.shtml)
-- 2026-06-29 19:39 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/344624.shtml)
-- 2026-06-29 19:57 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/53411.shtml)
-- 2026-06-29 19:46 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/911361.shtml)
-- 2026-06-29 19:58 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/4200427681.shtml)
-- 2026-06-29 20:05 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/162630244487.shtml)
+- 2026-06-29 19:55 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/517643.shtml)
+- 2026-06-29 19:45 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/09427.shtml)
+- 2026-06-29 19:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/70145.shtml)
+- 2026-06-29 20:06 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/6454378978.shtml)
+- 2026-06-29 19:59 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/6617199704.shtml)
+- 2026-06-29 20:04 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/3544543.shtml)
+- 2026-06-29 19:54 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/5921399.shtml)
+- 2026-06-29 19:54 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/627269895661.shtml)
+- 2026-06-29 20:02 - [女生学医适合选什么专业](https://www.blog.minike.top/Article/details/856367.shtml)
+- 2026-06-29 19:47 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/425369372344.shtml)
+- 2026-06-29 19:56 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/871962952.shtml)
+- 2026-06-29 20:09 - [送你一朵小红花](https://www.blog.minike.top/Article/details/802505130871.shtml)
+- 2026-06-29 20:11 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/951292251136.shtml)
+- 2026-06-29 19:53 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/331766740.shtml)
+- 2026-06-29 19:55 - [一诺变着花样秀新驾照](http://www.share.kurohicncr.top/Article/details/773134237.shtml)

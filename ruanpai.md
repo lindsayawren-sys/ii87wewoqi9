@@ -1,60 +1,58 @@
-# （走进中国乡村）闽北古村借“云”重生 生态颜值变经济产值
+# 广东多地暴雨 部分列车停运
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新社福建顺昌4月26日电 题：闽北古村借“云”重生 生态颜值变经济产值 中新社记者 张丽君 地处闽北深山的福建省南平市顺昌县高阳乡大富村，近年来依托独特的高山云海资源与传统村落底蕴，探索文旅融合发展，助力乡村振兴。 大富村平均海拔762米，森林覆盖率超90%，年均有200余天可观赏云海，夏季气候清凉。然而，过去因交通不便、配套设施不足，村里优质的生态与古厝资源长期闲置，村民增
+中新社广州6月14日电 (记者 王坚)广东正在经历今年入汛以来最长的强降雨过程。13日至14日早晨，全省有164个镇街遭遇暴雨、大暴雨。14日至15日，京广铁路等部分列车停运。 广东气象部门介绍，气象水文监测显示，13日8时到14日8时，有28个镇街录得超过100毫米的大暴雨，有136个镇街录得50至100毫米的暴雨。其中，揭阳惠来县葵潭镇235毫米。 14日，广东持续强降雨。
 
 ## 正文
 
-中新社福建顺昌4月26日电 题：闽北古村借“云”重生 生态颜值变经济产值 中新社记者 张丽君 地处闽北深山的福建省南平市顺昌县高阳乡大富村，近年来依托独特的高山云海资源与传统村落底蕴，探索文旅融合发展，助力乡村振兴。
+中新社广州6月14日电 (记者 王坚)广东正在经历今年入汛以来最长的强降雨过程。
 
-大富村平均海拔762米，森林覆盖率超90%，年均有200余天可观赏云海，夏季气候清凉。
+13日至14日早晨，全省有164个镇街遭遇暴雨、大暴雨。
 
-然而，过去因交通不便、配套设施不足，村里优质的生态与古厝资源长期闲置，村民增收困难。
+14日至15日，京广铁路等部分列车停运。
 
-改变，始于对一片“云”的重新发现与盘活。
+广东气象部门介绍，气象水文监测显示，13日8时到14日8时，有28个镇街录得超过100毫米的大暴雨，有136个镇街录得50至100毫米的暴雨。
 
-高阳乡党委副书记余立钦日前接受记者采访时介绍，当地明确“云上大富”发展定位，修复古民居、古道，提升乡村整体风貌，并将旧礼堂改造为福建省知青历史文化第二博物馆。
+其中，揭阳惠来县葵潭镇235毫米。
 
-福建省摄影家协会会员黄延英回忆，多年前首次进村采风，便被壮丽的高山云海深深震撼。
+14日，广东持续强降雨。
 
-她坚持用镜头记录大富村的四季变化，并通过摄影展览、网络传播等方式，让这片“深闺之景”逐渐走入公众视野。
+粤北、珠三角和粤东市县多云间阴天有大雨到暴雨局部大暴雨，其中珠江口东侧沿海市县局部有特大暴雨，部分市县伴有短时强降水、8级局地10级的雷暴大风等强对流天气。
 
-随着知名度打开，摄影爱好者、写生团队和周边游客纷至沓来。
+受西南气流和切变线影响，粤东惠来县13日20时至14日12时出现暴雨到大暴雨，局部特大暴雨，全县平均雨量145.5毫米，有42个站点录得雨量超过100毫米。
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 19:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 19:58 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 20:02 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 19:56 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 19:56 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 19:52 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 20:03 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 19:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 20:02 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 20:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 20:05 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 19:54 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 19:46 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 20:08 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 19:57 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 19:50 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 19:42 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 20:08 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 20:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 19:46 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 20:02 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 20:03 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 20:02 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 19:47 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 19:43 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:58 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/003434.shtml)
-- 2026-06-29 19:52 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/759324318945.shtml)
-- 2026-06-29 19:39 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/74618096.shtml)
-- 2026-06-29 19:55 - [2026全国田径冠军赛江苏队4金收官](https://www.share.kurohicncr.top/Article/details/77323636.shtml)
-- 2026-06-29 20:03 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/9022587.shtml)
-- 2026-06-29 20:01 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/829980493904.shtml)
-- 2026-06-29 19:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/805139009.shtml)
-- 2026-06-29 19:56 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/7143631739.shtml)
-- 2026-06-29 20:05 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/619245755.shtml)
-- 2026-06-29 19:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/62531579.shtml)
-- 2026-06-29 19:55 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/41983910.shtml)
-- 2026-06-29 19:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/98733.shtml)
-- 2026-06-29 19:43 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/110665120906.shtml)
-- 2026-06-29 19:42 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/2223465.shtml)
-- 2026-06-29 20:05 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/96169.shtml)
+- 2026-06-29 19:46 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/8739269180.shtml)
+- 2026-06-29 19:51 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/94590.shtml)
+- 2026-06-29 19:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/441595220447.shtml)
+- 2026-06-29 19:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/682095.shtml)
+- 2026-06-29 19:53 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/4962084.shtml)
+- 2026-06-29 19:51 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/514503189840.shtml)
+- 2026-06-29 19:52 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/75076348296.shtml)
+- 2026-06-29 19:51 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/739866413267.shtml)
+- 2026-06-29 19:46 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/2870818.shtml)
+- 2026-06-29 19:52 - [无畏为自己的猫正名了](http://www.blog.minike.top/Article/details/3388868123.shtml)
+- 2026-06-29 19:52 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/7638729.shtml)
+- 2026-06-29 19:56 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/3665802870.shtml)
+- 2026-06-29 20:10 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/50182924702.shtml)
+- 2026-06-29 20:01 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/44335676.shtml)
+- 2026-06-29 20:00 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/8961058.shtml)

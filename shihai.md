@@ -1,58 +1,59 @@
-# 阿里投资的硅基流动联合创始人杨攀已离职，AI Infra创业定位愈加尴尬
+# 果纳半导体港股IPO：高溢价收购亏损企业却无业绩承诺 股权激励对象包含多名外部顾问
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-来源：智能纪元AGI 4月27日消息，智能纪元AGI独家获悉，阿里云和美团联合创始人王慧文投资的AI Infra公司硅基流动联合创始人、增长业务副总裁杨攀近期从硅基流动离职，正考虑再次创业。 目前该消息暂未对外官宣。 不过，目前杨攀的个人微信号名字上面还有#硅基流动 字样，或将等到硅基流动下月新一轮融资落地后正式官宣——一般来说，投资机构会与被投企业在联合创始人等高管稳定层面有
+出品：新浪财经上市公司研究院 作者：渚 5月29日，上海果纳半导体技术股份有限公司（以下简称“果纳半导体”）首次向联交所主板提交上市申请，国泰海通担任独家保荐人。 IPO前夕，手握千万级股权激励、负责核心晶圆传输业务的前执行董事兼COO冯启异任职仅两年便离职，其目前仍在上海竺世持有较大合伙权益，但招股书却对此语焉不详。此外，果纳半导体股权激励对象包含大量外部顾问，上海皓棠9名有
 
 ## 正文
 
-来源：智能纪元AGI 4月27日消息，智能纪元AGI独家获悉，阿里云和美团联合创始人王慧文投资的AI Infra公司硅基流动联合创始人、增长业务副总裁杨攀近期从硅基流动离职，正考虑再次创业。
+出品：新浪财经上市公司研究院 作者：渚 5月29日，上海果纳半导体技术股份有限公司（以下简称“果纳半导体”）首次向联交所主板提交上市申请，国泰海通担任独家保荐人。
 
-目前该消息暂未对外官宣。
+IPO前夕，手握千万级股权激励、负责核心晶圆传输业务的前执行董事兼COO冯启异任职仅两年便离职，其目前仍在上海竺世持有较大合伙权益，但招股书却对此语焉不详。
 
-不过，目前杨攀的个人微信号名字上面还有#硅基流动 字样，或将等到硅基流动下月新一轮融资落地后正式官宣——一般来说，投资机构会与被投企业在联合创始人等高管稳定层面有协议，要等新一轮融资或股改后才可以对外正式卸任。
+此外，果纳半导体股权激励对象包含大量外部顾问，上海皓棠9名有限合伙人中有8人为外部顾问。
 
-据智能纪元AGI独家获悉，当前硅基流动正接近完成新一轮融资。
+经营层面，果纳半导体两笔重大并购存在多项问题：其一，Waftech出现以价换量情况，产品售价、毛利率连续三年下滑，盈利质量走弱；其二，高溢价收购亏损企业芯导无锡，但核心专利储备薄弱，且未设置业绩承诺；其三，并购形成大额商誉，相关估值高度依赖未来业绩，标的若持续亏损、业绩不及预期，将大幅计提商誉减值，冲击公司利润。
 
-事实上，不止杨攀，高管流动最近已经成AI和具身智能行业的普遍现象了。
+递表前夕核心高管匆匆辞职 股权激励对象包含多名外部顾问 果纳半导体成立于2020年，主要从事半导体传输设备模块及零部件的研发、生产及销售，主要产品为EFEM（半导体设备前端模块）和Sorter（晶圆分拣设备）及零部件。
 
-比如，星海图联合创始人许华哲离职后创业做破壳机器人，DeepSeek核心作者郭达雅到字节Seed团队等。
+从资本化进程上看，果纳半导体的融资历程相当紧凑。
 
-但杨攀的重要性在于做硅基流动用户“增长”，而且今年AI龙虾热潮中，他频频代表硅基流动活跃和发声。
+2020年6月至2026年3月，果纳半导体相继完成天使轮融资、Pre-A轮融资、A轮融资、B轮融资、B+轮融资及C轮融资，累计募集资金4.22亿元，引入了鼎峰资本、中金私募等一众知名投资机构，以及苏州元之芯、上海金浦、扬州临芯等多个地方产业资本。
 
-所以，他的离职对于硅基流动下一步发展来说可能有一定影响。
+按照C轮每股5.98元的成本，果纳半导体本次IPO前的估值约为21.62亿元。
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 19:57 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 19:44 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 19:44 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 19:39 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 19:50 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 19:53 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 19:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 19:58 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 19:52 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 20:05 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 19:51 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 19:49 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 19:55 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 19:50 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 19:51 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 20:05 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 19:52 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 20:10 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 19:52 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 19:59 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 19:44 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 19:53 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 19:52 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 20:06 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/9326430.shtml)
-- 2026-06-29 20:03 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/549233.shtml)
-- 2026-06-29 19:59 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/125221072.shtml)
-- 2026-06-29 19:58 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/214516.shtml)
-- 2026-06-29 20:00 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/3878619757.shtml)
-- 2026-06-29 19:48 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/1347419.shtml)
-- 2026-06-29 19:51 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/436805841.shtml)
-- 2026-06-29 19:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/251378000463.shtml)
-- 2026-06-29 20:05 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/3351290465.shtml)
-- 2026-06-29 19:36 - [伊朗足球队将启程回国](http://www.blog.kurohicncr.top/Article/details/70297197.shtml)
-- 2026-06-29 19:51 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/958616885.shtml)
-- 2026-06-29 20:04 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.minike.top/Article/details/034722172.shtml)
-- 2026-06-29 19:51 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/7294633737.shtml)
-- 2026-06-29 19:47 - [爱很美味](https://www.share.minike.top/Article/details/3079628.shtml)
-- 2026-06-29 19:59 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/08471.shtml)
+- 2026-06-29 19:49 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/49419988711.shtml)
+- 2026-06-29 19:54 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/7293223166.shtml)
+- 2026-06-29 19:54 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/0593179.shtml)
+- 2026-06-29 20:09 - [起风了](https://www.share.minike.top/Article/details/10625919989.shtml)
+- 2026-06-29 19:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/110179.shtml)
+- 2026-06-29 19:48 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/89611312109.shtml)
+- 2026-06-29 19:59 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/51332315718.shtml)
+- 2026-06-29 20:10 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/353272076968.shtml)
+- 2026-06-29 19:48 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/32373121162.shtml)
+- 2026-06-29 19:43 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/71499.shtml)
+- 2026-06-29 20:04 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/3138683.shtml)
+- 2026-06-29 19:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/77892613420.shtml)
+- 2026-06-29 19:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/74463.shtml)
+- 2026-06-29 19:44 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/28558710.shtml)
+- 2026-06-29 19:57 - [本届世界杯已有5人涉性侵风波](http://www.blog.minike.top/Article/details/3993626192.shtml)

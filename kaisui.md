@@ -1,57 +1,56 @@
-# 中国《天鹅》“飞”进俄罗斯艺术殿堂
+# 自然资源部：采矿权人为矿区生态修复责任人
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科4月27日电 题：中国《天鹅》“飞”进俄罗斯艺术殿堂 中新社记者 田冰 “太棒了！主人公的成长经历完全戳中了我的内心。”当地时间26日，杂技剧《天鹅》在莫斯科大剧院的第四场演出刚一结束，望着舞台上谢幕的演员，旁边座位的俄罗斯姑娘奥莉加禁不住对记者感叹。 自24日始，3天连演4场，场场爆满，俄罗斯观众为中国艺术家的精彩演出毫不吝啬地送上掌声。 作为俄罗斯乃至世界古典文
+中新网北京6月15日电 (记者 刘文文)自然资源部国土空间生态修复司副司长卢丽华15日在北京指出，采矿权人为矿区生态修复责任人。 当日，《中华人民共和国矿产资源法实施条例》(简称《条例》)正式施行。新修订的矿产资源法实施即将迎来一周年，在此重要节点，自然资源部召开例行新闻发布会，介绍《条例》主要内容。 矿区生态修复是实现矿业绿色高质量发展与生态环境保护相统筹的关键举措。卢丽华表
 
 ## 正文
 
-中新社莫斯科4月27日电 题：中国《天鹅》“飞”进俄罗斯艺术殿堂 中新社记者 田冰 “太棒了！
+中新网北京6月15日电 (记者 刘文文)自然资源部国土空间生态修复司副司长卢丽华15日在北京指出，采矿权人为矿区生态修复责任人。
 
-主人公的成长经历完全戳中了我的内心。
+当日，《中华人民共和国矿产资源法实施条例》(简称《条例》)正式施行。
 
-”当地时间26日，杂技剧《天鹅》在莫斯科大剧院的第四场演出刚一结束，望着舞台上谢幕的演员，旁边座位的俄罗斯姑娘奥莉加禁不住对记者感叹。
+新修订的矿产资源法实施即将迎来一周年，在此重要节点，自然资源部召开例行新闻发布会，介绍《条例》主要内容。
 
-自24日始，3天连演4场，场场爆满，俄罗斯观众为中国艺术家的精彩演出毫不吝啬地送上掌声。
+矿区生态修复是实现矿业绿色高质量发展与生态环境保护相统筹的关键举措。
 
-作为俄罗斯乃至世界古典文化重要象征的莫斯科大剧院始建于1776年，是俄罗斯规模最大、历史最悠久的剧院之一，也是世界著名剧院之一。
+卢丽华表示，《条例》在新矿产资源法基础上，进一步细化了矿区生态修复相关制度安排。
 
-该剧院是众多经典剧作的首演地。
+第一，压实各方责任。
 
-1877年，芭蕾舞剧《天鹅湖》即在此首演。
+她指出，《条例》明确采矿权人为修复责任人，对采矿权转让中涉及修复事项弄虚作假的，其生态修复义务不因采矿权转让而免除；责任人灭失或无法确认的历史遗留废弃矿区，由政府负责治理。
 
-为庆祝莫斯科大剧院成立250周年，由中国广州市杂技艺术剧院创作演出的杂技剧《天鹅》受邀登上莫斯科大剧院舞台。
+第二，加强“谁损毁、谁治理”全链条监管。
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 19:50 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 19:54 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 19:45 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 19:48 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 19:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 19:38 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 19:36 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 19:53 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 19:50 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 19:58 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 20:06 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 19:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 20:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 19:56 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 19:59 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 20:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 19:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 19:50 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 20:09 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 19:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:36 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/529127789.shtml)
-- 2026-06-29 19:56 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/0135911283.shtml)
-- 2026-06-29 19:53 - [速度与激情9](https://www.share.minike.top/Article/details/7938472.shtml)
-- 2026-06-29 19:44 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/452873401661.shtml)
-- 2026-06-29 20:01 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/973950.shtml)
-- 2026-06-29 20:05 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/955251.shtml)
-- 2026-06-29 20:04 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/38459.shtml)
-- 2026-06-29 19:38 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/8190174.shtml)
-- 2026-06-29 20:05 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/684481012323.shtml)
-- 2026-06-29 19:42 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/1112877376.shtml)
-- 2026-06-29 19:39 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/95599625239.shtml)
-- 2026-06-29 19:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/512400246.shtml)
-- 2026-06-29 19:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/8982894.shtml)
-- 2026-06-29 19:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/12492.shtml)
-- 2026-06-29 20:00 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/89649498742.shtml)
+- 2026-06-29 20:06 - [女生每天戴耳机18小时突发耳聋](https://www.share.minike.top/Article/details/26601077283.shtml)
+- 2026-06-29 20:00 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/895946438468.shtml)
+- 2026-06-29 20:08 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/8483849.shtml)
+- 2026-06-29 20:03 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/74861993544.shtml)
+- 2026-06-29 19:58 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/14648284811.shtml)
+- 2026-06-29 19:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/4384038510.shtml)
+- 2026-06-29 20:07 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/0129306.shtml)
+- 2026-06-29 19:53 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/02612.shtml)
+- 2026-06-29 19:50 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/10245174332.shtml)
+- 2026-06-29 19:52 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/71449161637.shtml)
+- 2026-06-29 20:09 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/545208.shtml)
+- 2026-06-29 19:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/694787.shtml)
+- 2026-06-29 20:09 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/67933568021.shtml)
+- 2026-06-29 20:00 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/860285.shtml)
+- 2026-06-29 19:49 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/02252.shtml)

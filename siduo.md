@@ -1,59 +1,61 @@
-# 现场画面！白宫晚宴发生枪击事件
+# 中国驻东京旅游办事处参加“2026石川中国节”
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-白宫记协晚宴发生“安全事件” 一名嫌疑人被拘捕 新华社华盛顿4月25日电 美国媒体25日援引白宫记者协会晚宴现场记者的话说，当晚的宴会上发生“安全事件”，一名嫌疑人已被拘捕。 据美国媒体报道，美国总统特朗普参加白宫记者协会晚宴时，现场传出枪声，特朗普随后在安保人员护送下离开。 图片来自路透社 突发安全事件 特朗普紧急撤离白宫记者晚宴 当地时间25日，美国总统特朗普当晚参加白宫记
+中新网东京6月15日电 6月13日至14日，由“2026石川中国节”执行委员会主办、中国驻东京旅游办事处等单位支持的“2026石川中国节”在日本石川县金泽市成功举办。 活动期间，中国驻东京旅游办事处的展台成为本届“石川中国节”上一道亮丽的风景线。一本本精美的中国旅游图册在展台上铺展开来，将中国的壮丽山河、历史遗迹与世界遗产娓娓道来。为增强互动、拉近与当地民众的距离，展台还设置了
 
 ## 正文
 
-白宫记协晚宴发生“安全事件” 一名嫌疑人被拘捕 新华社华盛顿4月25日电 美国媒体25日援引白宫记者协会晚宴现场记者的话说，当晚的宴会上发生“安全事件”，一名嫌疑人已被拘捕。
+中新网东京6月15日电 6月13日至14日，由“2026石川中国节”执行委员会主办、中国驻东京旅游办事处等单位支持的“2026石川中国节”在日本石川县金泽市成功举办。
 
-据美国媒体报道，美国总统特朗普参加白宫记者协会晚宴时，现场传出枪声，特朗普随后在安保人员护送下离开。
+活动期间，中国驻东京旅游办事处的展台成为本届“石川中国节”上一道亮丽的风景线。
 
-图片来自路透社 突发安全事件 特朗普紧急撤离白宫记者晚宴 当地时间25日，美国总统特朗普当晚参加白宫记者协会晚宴，宴会上发生“安全事件”。
+一本本精美的中国旅游图册在展台上铺展开来，将中国的壮丽山河、历史遗迹与世界遗产娓娓道来。
 
-有消息称，现场传出“巨大声响”，特朗普在安保人员护送下离开。
+为增强互动、拉近与当地民众的距离，展台还设置了以熊猫周边为奖品的趣味抽奖，吸引男女老少纷纷排队一试身手。
 
-美总统特朗普及其夫人撤离晚宴现场 随后，有消息显示涉事枪手已身亡。
+工作人员细致地向当地日本民众介绍赴华旅游30天免签政策及最新的文旅相关资讯，耐心解答每一位咨询者的疑问。
 
-另有消息称，一名嫌疑人被拘捕。
+整个活动期间，展台前始终人头攒动，体现出当地民众对“中国之旅”的向往与热情。
 
-特勤局随后对该酒店实施了封锁。
+“中国节”系列品牌活动自2017年起在日本举办，是一项知名度高、影响力广泛的中日文化交流活动，旨在“向日本民众介绍中国，增进两国人民的相互理解及友好交流”。
 
-这场由白宫记者协会主办的晚宴预计将继续进行。
+此次活动首次走进石川县，缘于2024年日本能登半岛地震期间，不少中国企业与在日华侨华人向当地给予支援，使双方的交流与合作关系由此不断深化。
 
 ## 相关推荐
 
-- 2026-06-29 20:02 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 19:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 20:04 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 19:49 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 19:52 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 19:59 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 19:52 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 19:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 19:51 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 19:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 19:57 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 19:46 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 19:52 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 20:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 20:03 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 20:03 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 19:46 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 19:45 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 20:04 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 19:53 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 19:50 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 19:50 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 20:05 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 19:45 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 19:52 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 19:54 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 19:55 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 20:11 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:47 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/628206.shtml)
-- 2026-06-29 19:54 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/1003536.shtml)
-- 2026-06-29 20:03 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/475185.shtml)
-- 2026-06-29 19:37 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/5846180.shtml)
-- 2026-06-29 20:02 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/27558002436.shtml)
-- 2026-06-29 19:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/0742670430.shtml)
-- 2026-06-29 19:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/8172197.shtml)
-- 2026-06-29 20:04 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/030192.shtml)
-- 2026-06-29 19:37 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/8116865793.shtml)
-- 2026-06-29 19:59 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/0854307.shtml)
-- 2026-06-29 19:38 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/995998.shtml)
-- 2026-06-29 19:52 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/140006.shtml)
-- 2026-06-29 20:00 - [韩国小学生都来吐槽了](https://www.blog.minike.top/Article/details/31371.shtml)
-- 2026-06-29 19:51 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/124763327639.shtml)
-- 2026-06-29 19:48 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/914499.shtml)
+- 2026-06-29 20:04 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/066209.shtml)
+- 2026-06-29 20:05 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/178314938093.shtml)
+- 2026-06-29 19:58 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/87240979.shtml)
+- 2026-06-29 19:52 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/9480690375.shtml)
+- 2026-06-29 19:42 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/0231876266.shtml)
+- 2026-06-29 20:07 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/363070705.shtml)
+- 2026-06-29 20:11 - [华工科技龙虎榜数据](https://www.blog.minike.top/Article/details/1188722567.shtml)
+- 2026-06-29 19:48 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/8175363226.shtml)
+- 2026-06-29 19:57 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/445157750.shtml)
+- 2026-06-29 19:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/57855466569.shtml)
+- 2026-06-29 19:42 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.minike.top/Article/details/619885636.shtml)
+- 2026-06-29 19:49 - [高质量发展看新疆](http://www.share.minike.top/Article/details/4295782.shtml)
+- 2026-06-29 19:53 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.kurohicncr.top/Article/details/50153685.shtml)
+- 2026-06-29 20:09 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/90621891.shtml)
+- 2026-06-29 19:45 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/93852136238.shtml)

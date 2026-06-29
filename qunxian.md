@@ -1,61 +1,57 @@
-# 中芯国际继续大涨逾7%，规模最大港股通信息技术ETF（159131）强势涨超2%，资金加速申购3300万份
+# “雪龙”号完成返厂维修保养 今日出港
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-4月27日，港股硬科技再度发力，中芯国际继上周五飙涨逾10%后再度上涨逾7%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格冲高逾2%，资金持续涌入，实时申购3300万份。 银河证券指出，上周港股“能源避险与科技进攻”并行，地缘反复主导板块分化： 首先，4月24日，DeepSeek宣布全新系列模型DeepSeek-V4的预览版本正式上线并同步开源。
+今天(15日)，极地科考船“雪龙”号完成返厂维修保养，驶离中船集团江南造船厂码头。同时，一起返厂的“雪龙2”号也进入维修保养的最后阶段。后续，两艘船将按计划开展下一季度的北极科考航次。 和汽车一样，轮船在航行一定的时间之后，也会返厂进行保养维护，本次返厂的“雪龙”号和“雪龙2”号两艘科考船同步检修，所有维护保养项目都围绕接下来的北极科考任务展开。 “雪龙”号和“雪龙2”号是我国
 
 ## 正文
 
-4月27日，港股硬科技再度发力，中芯国际继上周五飙涨逾10%后再度上涨逾7%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格冲高逾2%，资金持续涌入，实时申购3300万份。
+今天(15日)，极地科考船“雪龙”号完成返厂维修保养，驶离中船集团江南造船厂码头。
 
-银河证券指出，上周港股“能源避险与科技进攻”并行，地缘反复主导板块分化： 首先，4月24日，DeepSeek宣布全新系列模型DeepSeek-V4的预览版本正式上线并同步开源。
+同时，一起返厂的“雪龙2”号也进入维修保养的最后阶段。
 
-AI芯片层，寒武纪宣布完成Day 0级别的适配，并将适配代码同步开源；华为（昇腾）确认与DeepSeek-V4完成深度适配，从底层算力保障模型高效运行。
+后续，两艘船将按计划开展下一季度的北极科考航次。
 
-其次，自2026年3月起，全球CPU市场已进入新一轮涨价通道。
+和汽车一样，轮船在航行一定的时间之后，也会返厂进行保养维护，本次返厂的“雪龙”号和“雪龙2”号两艘科考船同步检修，所有维护保养项目都围绕接下来的北极科考任务展开。
 
-消费电子领域CPU价格涨幅在5%—10%之间，而服务器CPU因需求更为旺盛，价格涨幅高达10%—20%。
+“雪龙”号和“雪龙2”号是我国极地科考的“双子星”，“雪龙”号就像极地科考的“大货车”，大宗补给、冰区救援、航道开拓等都是它的强项。
 
-最后，英特尔2026年Q1营收136亿美元远超指引。
+而“雪龙2”号最大亮点是“双向破冰”，独有的“月池”系统直通海水，可以让水下科考设备释放和回收更加便捷。
 
-得益于AI基础设施建设拉动，服务器CPU需求强劲复苏，CPU/GPU部署配比从1：8向1：4回升，其定制芯片（ASIC）年化收入已突破10亿美元。
+多年来，“雪龙”号和“雪龙2”号为我国南极站建设、北极航道探索和海洋科学研究做出了不可替代的贡献。
 
-投资策略上，银河证券认为科技板块主线建议聚焦半导体/硬件设备，中芯国际等龙头有望持续受益。
+(总台央视记者 崔霞 李宁)
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 19:36 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 20:05 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 19:37 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 19:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 20:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 19:37 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 20:03 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 19:52 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 19:43 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 19:38 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 19:41 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 20:03 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 19:44 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 19:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 19:53 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 20:06 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 20:05 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 19:43 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 19:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 19:53 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 19:47 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 19:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 20:07 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 20:06 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 19:43 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/128082808294.shtml)
-- 2026-06-29 20:03 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/37942.shtml)
-- 2026-06-29 19:45 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/849869063.shtml)
-- 2026-06-29 19:40 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/734948.shtml)
-- 2026-06-29 19:48 - [美人鱼](http://www.share.kurohicncr.top/Article/details/776541148.shtml)
-- 2026-06-29 19:42 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/70385.shtml)
-- 2026-06-29 19:52 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/603014.shtml)
-- 2026-06-29 19:44 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.kurohicncr.top/Article/details/363899543422.shtml)
-- 2026-06-29 20:02 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/2312874049.shtml)
-- 2026-06-29 19:59 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/005691686873.shtml)
-- 2026-06-29 19:53 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/36447222896.shtml)
-- 2026-06-29 19:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/6188255581.shtml)
-- 2026-06-29 20:00 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/699838035993.shtml)
-- 2026-06-29 19:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/8358034.shtml)
-- 2026-06-29 19:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/844477517275.shtml)
+- 2026-06-29 19:57 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/669968.shtml)
+- 2026-06-29 19:54 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/16608196392.shtml)
+- 2026-06-29 19:50 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/7096329.shtml)
+- 2026-06-29 20:04 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/02707.shtml)
+- 2026-06-29 20:00 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/399725189.shtml)
+- 2026-06-29 19:55 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/78567667.shtml)
+- 2026-06-29 19:58 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/949895.shtml)
+- 2026-06-29 19:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/6171722506.shtml)
+- 2026-06-29 20:01 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/329586.shtml)
+- 2026-06-29 19:42 - [网友晒14年前支教影像等来学生评论](https://www.share.minike.top/Article/details/1174578.shtml)
+- 2026-06-29 19:55 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/581798725.shtml)
+- 2026-06-29 20:09 - [东宫女主是不是顶级恋爱脑](http://www.share.minike.top/Article/details/390925398.shtml)
+- 2026-06-29 20:04 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/12181.shtml)
+- 2026-06-29 20:07 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/20685550423.shtml)
+- 2026-06-29 19:45 - [这一刀 会很帅](http://www.share.minike.top/Article/details/430957.shtml)

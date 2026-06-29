@@ -1,60 +1,56 @@
-# 福建永春重现古法晒书大典 千年文脉激活文旅新活力
+# （乡村行·看振兴）山西灵丘革新豆角种植方式 错峰上市盘活田间效益
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网福建永春4月25日电 (记者 孙虹)以“阅见永春·马上夺魁”为主题，2026年永春县魁星文化季晒书大会25日在知名侨乡福建永春魁星广场举行。活动循千年古礼复原传统晒书仪式，以敬书、沐手、拂尘、展卷、芸香护籍等完整仪轨，再现中华崇文重教传统，拉开“功夫永春马上夺魁”五一系列文旅活动大幕。 活动现场庄重雅致，分为肃立启礼·雅乐开篇、敬书沐手·古法晒书、文脉传薪·文旅启航三大篇
+中新网大同6月15日电 题：山西灵丘革新豆角种植方式 错峰上市盘活田间效益 作者 刘小红 张志华 山西大同灵丘县优化农业种植结构，革新传统露天豆角种植模式，引入设施大棚种植技术。通过大棚控温种植、错峰错季上市的方式，规避自然天气影响与集中上市低价难题，有效提升豆角种植产值，激活特色种植产业增收潜力。 初夏时节，灵丘县柳科乡柳科蔬菜园区划分两类豆角种植区域，设施大棚内部豆角藤蔓攀
 
 ## 正文
 
-中新网福建永春4月25日电 (记者 孙虹)以“阅见永春·马上夺魁”为主题，2026年永春县魁星文化季晒书大会25日在知名侨乡福建永春魁星广场举行。
+中新网大同6月15日电 题：山西灵丘革新豆角种植方式 错峰上市盘活田间效益 作者 刘小红 张志华 山西大同灵丘县优化农业种植结构，革新传统露天豆角种植模式，引入设施大棚种植技术。
 
-活动循千年古礼复原传统晒书仪式，以敬书、沐手、拂尘、展卷、芸香护籍等完整仪轨，再现中华崇文重教传统，拉开“功夫永春马上夺魁”五一系列文旅活动大幕。
+通过大棚控温种植、错峰错季上市的方式，规避自然天气影响与集中上市低价难题，有效提升豆角种植产值，激活特色种植产业增收潜力。
 
-活动现场庄重雅致，分为肃立启礼·雅乐开篇、敬书沐手·古法晒书、文脉传薪·文旅启航三大篇章。
+初夏时节，灵丘县柳科乡柳科蔬菜园区划分两类豆角种植区域，设施大棚内部豆角藤蔓攀附棚架生长，露天地块豆角幼苗生长进度滞后。
 
-开场舞蹈《儒风舞韵·尊师礼赞》尽显儒门礼仪之美；20名少年学子齐声诵读《大学》经典，童音清朗，文气悠然，为大典营造浓厚文化氛围。
+近年来，柳科乡调整种植结构，大力发展露天豆角种植，效益明显高于传统粮食作物。
 
-作为活动核心的古法晒书仪式上，主礼官、奉书官与执礼学子肃容正衣、焚香净心，嘉宾依次沐手诣位，以示对典籍的尊崇。
+据了解，露天种植模式受自然条件制约，旱涝、冰雹等气象灾害干扰作物收成。
 
-晒书人轻解书函、软毫拂尘、展页迎晷、芸香护书，每一步都遵循古制，动作舒缓恭敬，完整呈现“去尘蠹、纳清气、护典籍”的传统技艺内涵。
+露天豆角采收时间集中，上市时段重合，市场售价偏低，农户收入受到限制。
 
-仪式尾声，全场学子齐声高呼“晒书啦”，共同抖书迎日，以古朴仪式致敬先贤、守护文脉。
+今年，当地在园区建设了5座蔬菜大棚，总占地20亩，开展大棚豆角种植试验。
 
-“书籍是城市精神底色，此次晒书大会既是书香雅韵的文化盛宴，也是永春五一文旅活动的精彩开篇。
+柳科乡蔬菜园区大棚豆角种植负责人崔树明介绍，大棚可调控内部温度，农户提前开展播种作业，延后采收时间，错开露天豆角集中上市周期，稳定产品市场售价。
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 19:50 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 19:48 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 20:04 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 19:50 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 19:52 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 19:43 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 19:41 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 19:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 19:50 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 20:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 19:38 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 19:39 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 19:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 19:48 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 19:46 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 19:58 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 19:46 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 19:43 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 19:44 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 19:46 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 19:48 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 19:50 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 19:46 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/722017630185.shtml)
-- 2026-06-29 19:43 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/55057.shtml)
-- 2026-06-29 19:54 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/71074.shtml)
-- 2026-06-29 19:47 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/88838294180.shtml)
-- 2026-06-29 19:49 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/83503720775.shtml)
-- 2026-06-29 19:46 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/0462976.shtml)
-- 2026-06-29 19:53 - [欧洲安装一台空调要花近8000元](https://www.blog.kurohicncr.top/Article/details/82964484294.shtml)
-- 2026-06-29 19:41 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/503314.shtml)
-- 2026-06-29 19:36 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/2130932821.shtml)
-- 2026-06-29 19:55 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/939509329587.shtml)
-- 2026-06-29 20:06 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/815571402.shtml)
-- 2026-06-29 20:01 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/0762140.shtml)
-- 2026-06-29 19:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/728339396.shtml)
-- 2026-06-29 19:55 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/41965806.shtml)
-- 2026-06-29 19:53 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/229947362861.shtml)
+- 2026-06-29 19:55 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/0694817.shtml)
+- 2026-06-29 20:11 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/642039824.shtml)
+- 2026-06-29 19:52 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/2137066.shtml)
+- 2026-06-29 19:53 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/78571091269.shtml)
+- 2026-06-29 19:53 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/0889965.shtml)
+- 2026-06-29 19:43 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/1186385.shtml)
+- 2026-06-29 19:45 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/38593.shtml)
+- 2026-06-29 19:49 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/014079.shtml)
+- 2026-06-29 20:04 - [郑钦文谈再战西尼亚科娃](https://www.share.kurohicncr.top/Article/details/0598650.shtml)
+- 2026-06-29 19:46 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/7859320.shtml)
+- 2026-06-29 20:09 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/746559229902.shtml)
+- 2026-06-29 20:00 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/779439215.shtml)
+- 2026-06-29 19:50 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/151226.shtml)
+- 2026-06-29 20:00 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/806535287265.shtml)
+- 2026-06-29 19:59 - [周生如故](http://www.share.minike.top/Article/details/04180062.shtml)

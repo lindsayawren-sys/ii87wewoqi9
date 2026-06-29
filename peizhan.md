@@ -1,61 +1,60 @@
-# 阿联酋向巴基斯坦追讨35亿美元 分析认为巴基斯坦调解身份“惹恼”阿联酋
+# 马斯克预测SpaceX将在2031年前实现万亿美元营收 或涉嫌违反美股“静默期”规定
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-在资金紧张的巴基斯坦试图调解结束美国-以色列对伊朗的战争之际，阿联酋向其长期盟友提出了一项令人震惊的要求——立即偿还35亿美元。 阿布扎比本月提出的这一要求，可能会消耗巴基斯坦央行五分之一的外汇储备，并危及2024年达成的70亿美元国际货币基金组织（IMF）纾困计划。去年与伊斯兰堡签署了共同防御协议的沙特阿拉伯出手救援，提供了30亿美元的新央行存款，并将现有的50亿美元存款展期
+SpaceX首席执行官埃隆·马斯克日前在社交媒体上预测，该公司有望在2031年前实现年营收超过1万亿美元。由于SpaceX刚刚完成首次公开募股（IPO）上市，该言论引发市场高度关注，并因涉嫌违反美国证券交易委员会（SEC）关于IPO后“静默期”的法律规定而引发合规争议。 在这项引起争议的预测中，马斯克声称，如果SpaceX在2031年的营收未能突破1万亿美元，他将感到“意外”。
 
 ## 正文
 
-在资金紧张的巴基斯坦试图调解结束美国-以色列对伊朗的战争之际，阿联酋向其长期盟友提出了一项令人震惊的要求——立即偿还35亿美元。
+SpaceX首席执行官埃隆·马斯克日前在社交媒体上预测，该公司有望在2031年前实现年营收超过1万亿美元。
 
-阿布扎比本月提出的这一要求，可能会消耗巴基斯坦央行五分之一的外汇储备，并危及2024年达成的70亿美元国际货币基金组织（IMF）纾困计划。
+由于SpaceX刚刚完成首次公开募股（IPO）上市，该言论引发市场高度关注，并因涉嫌违反美国证券交易委员会（SEC）关于IPO后“静默期”的法律规定而引发合规争议。
 
-去年与伊斯兰堡签署了共同防御协议的沙特阿拉伯出手救援，提供了30亿美元的新央行存款，并将现有的50亿美元存款展期超过一年。
+在这项引起争议的预测中，马斯克声称，如果SpaceX在2031年的营收未能突破1万亿美元，他将感到“意外”。
 
-分析人士表示，阿布扎比的决定反映出其对伊斯兰堡日益不满。
+此前他还曾表示，该公司最早可能在2030年接近这一营收目标。
 
-查塔姆研究所副研究员Neil Quilliam表示，巴基斯坦在美国对伊朗战争中扮演调解者的角色也惹恼了这个海湾国家，因为阿联酋“目前看待事物是非黑即白的”。
+官方财报数据显示，SpaceX去年的总营收仅为187亿美元。
 
-“（从阿联酋的角度看）这里面没有中立可言，没有中间立场。
+马斯克的万亿美元远景规划，不仅远超公司当前实际业绩，也显著高于上市主承销商的预期。
 
-如果你在调解，那你恰好就处于中间立场，”他说。
+据媒体披露的测算数据，承销商高盛集团与摩根士丹利对SpaceX在2030年的营收预测分别仅为4740亿美元和3300亿美元。
 
-其背后是去年9月与伊斯兰堡签署防务协议的沙特阿拉伯与阿联酋之间日益紧张的局势。
+分析人士指出，马斯克在此敏感时间点发表前瞻性业绩预测，正面临潜在的法律风险。
 
 ## 相关推荐
 
-- 2026-06-29 19:57 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 20:04 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 19:54 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 20:03 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 19:45 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 19:36 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 19:46 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 19:56 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 20:01 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 20:03 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 19:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 19:59 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 19:46 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 19:42 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 19:50 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 19:59 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 19:44 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 20:11 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 19:50 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 19:45 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 19:55 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 19:50 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 19:44 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 19:46 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 19:46 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 20:08 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 20:11 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 20:08 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 19:46 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:38 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/1397461.shtml)
-- 2026-06-29 19:56 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/232833947.shtml)
-- 2026-06-29 20:03 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.kurohicncr.top/Article/details/78140331050.shtml)
-- 2026-06-29 19:37 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/922198466124.shtml)
-- 2026-06-29 19:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/203986.shtml)
-- 2026-06-29 19:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/215916.shtml)
-- 2026-06-29 19:41 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/9287882.shtml)
-- 2026-06-29 19:54 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/97139015.shtml)
-- 2026-06-29 19:40 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/2296000815.shtml)
-- 2026-06-29 19:38 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/7092816.shtml)
-- 2026-06-29 20:05 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/64682684.shtml)
-- 2026-06-29 19:58 - [歼-15型舰载机为何被歼-15T替代](http://www.share.minike.top/Article/details/746666563758.shtml)
-- 2026-06-29 19:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/96884977203.shtml)
-- 2026-06-29 19:48 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/41416.shtml)
-- 2026-06-29 19:59 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/02217635.shtml)
+- 2026-06-29 19:48 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/99474702482.shtml)
+- 2026-06-29 19:46 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/4276481.shtml)
+- 2026-06-29 19:58 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/89057937.shtml)
+- 2026-06-29 19:50 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/2875762338.shtml)
+- 2026-06-29 20:09 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/744056435.shtml)
+- 2026-06-29 20:09 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/174202015465.shtml)
+- 2026-06-29 19:48 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/233199382.shtml)
+- 2026-06-29 19:51 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/8758637461.shtml)
+- 2026-06-29 19:54 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/0569521512.shtml)
+- 2026-06-29 20:06 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/0982545187.shtml)
+- 2026-06-29 19:44 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/2550082.shtml)
+- 2026-06-29 19:52 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/5191967815.shtml)
+- 2026-06-29 19:49 - [《贺子珍》](https://www.share.minike.top/Article/details/978980.shtml)
+- 2026-06-29 19:55 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/333037219.shtml)
+- 2026-06-29 20:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/5362352.shtml)

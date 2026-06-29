@@ -1,52 +1,56 @@
-# 何立峰会见美国黑石集团董事长兼首席执行官苏世民
+# 微视频｜石窟镌史 文脉永续
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新社北京4月23日电 中共中央政治局委员、国务院副总理何立峰23日在人民大会堂会见美国黑石集团董事长兼首席执行官苏世民时表示，今年一季度中国经济实现良好开局，发展韧性和活力进一步彰显。中国将坚定不移扩大高水平对外开放，推动高质量发展，中国超大规模市场将为世界提供更大机遇和更多选择。欢迎包括黑石集团在内的更多外资企业继续深化对华合作，实现互利共赢。 苏世民表示，黑石集团珍视与中
+千古匠心，造就艺术宝库；代代守望，绵延文脉气韵。习近平总书记指出，我国四大石窟是中华文明的瑰宝，都具有重要的历史价值、文化价值。 几次考察石窟，习近平总书记格外强调遗产保护的重要价值。 大漠中的莫高窟，集建筑艺术、彩塑艺术、壁画艺术、佛教文化于一身，向世人展示着东西方文化交融汇聚的成果。 1987年，莫高窟被列入《世界遗产名录》。 山西大同武周山南麓，5万余尊石窟造像，在时光的
 
 ## 正文
 
-中新社北京4月23日电 中共中央政治局委员、国务院副总理何立峰23日在人民大会堂会见美国黑石集团董事长兼首席执行官苏世民时表示，今年一季度中国经济实现良好开局，发展韧性和活力进一步彰显。
+千古匠心，造就艺术宝库；代代守望，绵延文脉气韵。
 
-中国将坚定不移扩大高水平对外开放，推动高质量发展，中国超大规模市场将为世界提供更大机遇和更多选择。
+习近平总书记指出，我国四大石窟是中华文明的瑰宝，都具有重要的历史价值、文化价值。
 
-欢迎包括黑石集团在内的更多外资企业继续深化对华合作，实现互利共赢。
+几次考察石窟，习近平总书记格外强调遗产保护的重要价值。
 
-苏世民表示，黑石集团珍视与中国的合作关系，愿继续拓展在华业务，为推动美中经贸合作贡献力量。
+大漠中的莫高窟，集建筑艺术、彩塑艺术、壁画艺术、佛教文化于一身，向世人展示着东西方文化交融汇聚的成果。
 
-(完)
+1987年，莫高窟被列入《世界遗产名录》。
+
+山西大同武周山南麓，5万余尊石窟造像，在时光的长河中镌刻着文明的印记。
+
+2001年，云冈石窟被列入《世界遗产名录》。
+
+莫高窟东行三千里，麦积山石窟，自十六国后秦始，其营造历十余朝而不断。
 
 ## 相关推荐
 
-- 2026-06-29 19:43 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 19:44 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 19:44 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 19:50 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 20:05 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 19:48 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 19:57 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 19:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 20:02 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 20:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 20:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 19:40 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 19:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 20:06 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 19:59 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 19:47 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 19:42 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 19:47 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 20:01 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 20:02 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 19:51 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 20:04 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [送你一朵小红花](http://www.share.minike.top/Article/details/496077374679.shtml)
-- 2026-06-29 20:00 - [TOP Prada](http://www.share.minike.top/Article/details/7050780168.shtml)
-- 2026-06-29 19:45 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/5078412.shtml)
-- 2026-06-29 19:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/2214842994.shtml)
-- 2026-06-29 20:04 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/243482799.shtml)
-- 2026-06-29 20:03 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/910614276804.shtml)
-- 2026-06-29 20:02 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/71776310474.shtml)
-- 2026-06-29 19:37 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/6695967500.shtml)
-- 2026-06-29 19:44 - [TTG KSG](http://www.share.minike.top/Article/details/318773.shtml)
-- 2026-06-29 20:02 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/20813.shtml)
-- 2026-06-29 19:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/2228568615.shtml)
-- 2026-06-29 19:51 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/100630069253.shtml)
-- 2026-06-29 19:45 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/891590.shtml)
-- 2026-06-29 19:41 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/04999.shtml)
-- 2026-06-29 20:05 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/29954.shtml)
+- 2026-06-29 20:09 - [回顾世界杯争议事件](http://www.blog.minike.top/Article/details/861233.shtml)
+- 2026-06-29 19:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/1264393.shtml)
+- 2026-06-29 19:47 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/83082295938.shtml)
+- 2026-06-29 20:10 - [世界杯在中国观看最多的比赛](http://www.share.minike.top/Article/details/97447944106.shtml)
+- 2026-06-29 19:50 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/972606550100.shtml)
+- 2026-06-29 20:10 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/9442022934.shtml)
+- 2026-06-29 19:44 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/041867.shtml)
+- 2026-06-29 20:02 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/938905558025.shtml)
+- 2026-06-29 20:01 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/7255865.shtml)
+- 2026-06-29 20:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/7032857.shtml)
+- 2026-06-29 19:56 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/01056.shtml)
+- 2026-06-29 20:07 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/412506.shtml)
+- 2026-06-29 20:10 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/0551231.shtml)
+- 2026-06-29 20:11 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/55593.shtml)
+- 2026-06-29 19:56 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/453905.shtml)

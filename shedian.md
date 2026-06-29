@@ -1,52 +1,48 @@
-# 午评：国内期货主力合约涨多跌少 多晶硅跌超4%
+# 央行今日开展4495亿元7天期逆回购操作
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-4月27日早盘收盘，国内期货主力合约涨多跌少。氧化铝涨超3%，碳酸锂、丙烯、沪镍、乙二醇涨超2%，聚丙烯、PX0>对二甲苯（PX）、燃油、瓶片、PTA、棉花、甲醇、不锈钢、钯、焦煤、硅铁、铂、短纤涨超1%；下跌方面，多晶硅跌超4%，双胶纸、低硫燃油跌超1%，原木、生猪、豆一、合成橡胶跌近1%。 宏源期货分析师认为，整体来看，近期多晶硅因“反内卷”消息，盘面有所反弹，但基本面来看
+6月16日金融一线消息，央行今日开展4495亿元7天期逆回购操作，操作利率为1.40%，与此前持平。 责任编辑：秦艺
 
 ## 正文
 
-4月27日早盘收盘，国内期货主力合约涨多跌少。
+6月16日金融一线消息，央行今日开展4495亿元7天期逆回购操作，操作利率为1.40%，与此前持平。
 
-氧化铝涨超3%，碳酸锂、丙烯、沪镍、乙二醇涨超2%，聚丙烯、PX0>对二甲苯（PX）、燃油、瓶片、PTA、棉花、甲醇、不锈钢、钯、焦煤、硅铁、铂、短纤涨超1%；下跌方面，多晶硅跌超4%，双胶纸、低硫燃油跌超1%，原木、生猪、豆一、合成橡胶跌近1%。
-
-宏源期货分析师认为，整体来看，近期多晶硅因“反内卷”消息，盘面有所反弹，但基本面来看，过剩压力依旧较大，且终端需求是否能够传导至原料端亦有较大不确定性，再无进一步政策指引下，盘面再度承压下行，上周五多个合约触及跌停，后续持续关注政策落地情况。
-
-责任编辑：朱赫楠
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 19:47 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 20:02 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 20:01 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 19:58 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 19:46 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 19:39 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 19:52 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 19:46 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 19:51 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 20:05 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 19:41 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 19:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 19:57 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 19:50 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 19:58 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 20:10 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 19:54 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 20:10 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 20:00 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 19:56 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 19:53 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 20:07 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 20:09 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 20:02 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 20:11 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 20:01 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 19:54 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 19:46 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:47 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/60061727150.shtml)
-- 2026-06-29 19:53 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/247460.shtml)
-- 2026-06-29 19:51 - [斛珠夫人](https://www.share.minike.top/Article/details/040781882.shtml)
-- 2026-06-29 19:55 - [教育部高校学生资助热线7月1日开通](http://www.blog.kurohicncr.top/Article/details/9237592.shtml)
-- 2026-06-29 19:52 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/25440174.shtml)
-- 2026-06-29 20:03 - [天道](http://www.share.minike.top/Article/details/227697204.shtml)
-- 2026-06-29 19:43 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/6779174253.shtml)
-- 2026-06-29 19:42 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/542031.shtml)
-- 2026-06-29 19:56 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/970712528529.shtml)
-- 2026-06-29 19:43 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/4366456.shtml)
-- 2026-06-29 19:43 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/79297.shtml)
-- 2026-06-29 19:54 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/20016696301.shtml)
-- 2026-06-29 19:49 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/4736302144.shtml)
-- 2026-06-29 19:38 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/3660815.shtml)
-- 2026-06-29 19:42 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/9295669446.shtml)
+- 2026-06-29 19:56 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/7559724.shtml)
+- 2026-06-29 19:52 - [无畏为自己的猫正名了](http://www.blog.kurohicncr.top/Article/details/894708.shtml)
+- 2026-06-29 20:00 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/1784738.shtml)
+- 2026-06-29 19:42 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/562566.shtml)
+- 2026-06-29 20:01 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/391585479.shtml)
+- 2026-06-29 20:02 - [海清4次陪跑白玉兰](https://www.blog.minike.top/Article/details/29353852724.shtml)
+- 2026-06-29 20:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/259683.shtml)
+- 2026-06-29 20:01 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/40360.shtml)
+- 2026-06-29 19:42 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/59798.shtml)
+- 2026-06-29 20:05 - [一见倾心](http://www.share.minike.top/Article/details/1173202.shtml)
+- 2026-06-29 19:43 - [斗破苍穹](https://www.blog.minike.top/Article/details/38468.shtml)
+- 2026-06-29 19:56 - [一见倾心](https://www.share.kurohicncr.top/Article/details/8877090.shtml)
+- 2026-06-29 20:01 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/569952164.shtml)
+- 2026-06-29 19:51 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/06026.shtml)
+- 2026-06-29 19:51 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/2995529.shtml)

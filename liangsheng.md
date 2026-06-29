@@ -1,59 +1,50 @@
-# 美国西南航空CEO预警：高油价将持续全年
+# 台湾新党副主席：民进党别用哈哈镜扭曲大陆 让台青看见真实大陆
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-美国西南航空（Southwest Airlines）首席执行官鲍勃·乔丹（Bob Jordan）周四明确表示，预计今年剩余时间内，航空燃油价格将维持在高位。这一表态加剧了市场对该航司盈利能力的担忧，因其全年每股4美元的盈利目标正面临严峻挑战。 乔丹的言论发布之际，西南航空刚刚下调了第二季度盈利预期。公司预计该季度每股收益为35至65美分，低于分析师普遍预期的55美分，并将原因直
+发布时间：2026年06月13日 17:34 来源：中国新闻网 6月13日，第十八届海峡论坛大会在福建厦门举办，台湾新党副主席李胜峰接受采访时表示，民进党别用哈哈镜扭曲大陆！让台青看见真实大陆。(记者 路梅 制作 王雪尔） 责任编辑：【吉翔】
 
 ## 正文
 
-美国西南航空（Southwest Airlines）首席执行官鲍勃·乔丹（Bob Jordan）周四明确表示，预计今年剩余时间内，航空燃油价格将维持在高位。
+发布时间：2026年06月13日 17:34 来源：中国新闻网 6月13日，第十八届海峡论坛大会在福建厦门举办，台湾新党副主席李胜峰接受采访时表示，民进党别用哈哈镜扭曲大陆！
 
-这一表态加剧了市场对该航司盈利能力的担忧，因其全年每股4美元的盈利目标正面临严峻挑战。
+让台青看见真实大陆。
 
-乔丹的言论发布之际，西南航空刚刚下调了第二季度盈利预期。
-
-公司预计该季度每股收益为35至65美分，低于分析师普遍预期的55美分，并将原因直接归咎于不断上涨的燃油成本。
-
-受美伊冲突及霍尔木兹海峡关闭影响，国际油价持续飙升，WTI原油价格一度触及104美元/桶的历史高位。
-
-航空燃油成本随之大幅上涨，而西南航空在2025年初终止的燃油对冲计划，使其完全暴露于现货价格风险之下，缺乏有效的成本缓冲。
-
-尽管公司已通过改革商业模式，引入行李费和指定座位费等新收入来源以抵消部分压力，但乔丹承认，要实现全年盈利目标，仍需依赖燃油价格回落或收入表现超预期。
-
-目前，华尔街已纷纷下调对西南航空的业绩预测。
+(记者 路梅 制作 王雪尔） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 19:53 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 19:56 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 19:37 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 19:59 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 19:45 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 19:56 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 19:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 19:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 19:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 20:05 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 19:39 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 19:52 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 19:54 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 20:11 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 19:44 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 19:46 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 19:47 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 20:08 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 20:02 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 20:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 20:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 19:52 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 19:47 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 19:50 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 19:48 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 19:50 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 19:56 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/37148879.shtml)
-- 2026-06-29 19:43 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/628246977.shtml)
-- 2026-06-29 19:52 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/61432085324.shtml)
-- 2026-06-29 20:02 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/26090414.shtml)
-- 2026-06-29 19:41 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/90191.shtml)
-- 2026-06-29 19:45 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/386822751086.shtml)
-- 2026-06-29 19:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/9993708.shtml)
-- 2026-06-29 19:52 - [金牌调解](http://www.share.kurohicncr.top/Article/details/45545.shtml)
-- 2026-06-29 20:01 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/16419269445.shtml)
-- 2026-06-29 19:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/048689853121.shtml)
-- 2026-06-29 19:40 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/32977.shtml)
-- 2026-06-29 19:51 - [女生每天戴耳机18小时突发耳聋](https://www.share.kurohicncr.top/Article/details/805636613228.shtml)
-- 2026-06-29 19:49 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/42204776.shtml)
-- 2026-06-29 19:55 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/99723.shtml)
-- 2026-06-29 19:58 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/356776498.shtml)
+- 2026-06-29 20:00 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/50707739.shtml)
+- 2026-06-29 20:01 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/1683627847.shtml)
+- 2026-06-29 19:53 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/643162068.shtml)
+- 2026-06-29 20:04 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/611636.shtml)
+- 2026-06-29 20:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/194289.shtml)
+- 2026-06-29 20:02 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/328912.shtml)
+- 2026-06-29 19:47 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/15218856114.shtml)
+- 2026-06-29 19:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/73115330.shtml)
+- 2026-06-29 20:06 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/799413314212.shtml)
+- 2026-06-29 20:03 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/4732062333.shtml)
+- 2026-06-29 20:12 - [郑钦文谈再战西尼亚科娃](https://www.share.kurohicncr.top/Article/details/623372.shtml)
+- 2026-06-29 19:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/77308.shtml)
+- 2026-06-29 20:11 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/585699865680.shtml)
+- 2026-06-29 19:53 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/68008.shtml)
+- 2026-06-29 20:02 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/3293734676.shtml)

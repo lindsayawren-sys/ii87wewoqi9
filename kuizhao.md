@@ -1,57 +1,60 @@
-# 学习手记｜从总书记的改革“第一课”看实干开局
+# 2026年粤港澳大湾区龙舟邀请赛（阳山站）在清远举行
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-10年前，2016年4月25日，在安徽省滁州市凤阳县小岗村主持召开农村改革座谈会时，习近平总书记回忆起1978年到滁州实地调研包产到户的往事：“当时来我记了一本笔记，我还收藏着呢。印象很深刻，因为这是我改革开放以后，接触农村的可以说是改革的第一课。当时就是来学习。” 这本笔记，记录的不只是一次调研见闻，这堂“课”印刻着一位年轻学子对“改革为了谁、依靠谁”的深刻体悟。 从陕北高原
+中新网清远6月13日电 (记者 张璐)中国体育彩票·2026年粤港澳大湾区龙舟邀请赛(阳山站)暨第三届阳山县龙舟赛(简称“赛事”)13日在清远市阳山县城江滨东路连江河段开赛。18支龙舟队伍齐聚一江碧水之上，挥桨劈浪、奋勇争先，上演了一场水上版“速度与激情”。数万名市民游客齐聚江岸观赛助威，感受传统民俗与现代竞技交融的独特魅力。 当日，醒狮表演、桨板巡游轮番上演。龙头点睛仪式举行
 
 ## 正文
 
-10年前，2016年4月25日，在安徽省滁州市凤阳县小岗村主持召开农村改革座谈会时，习近平总书记回忆起1978年到滁州实地调研包产到户的往事：“当时来我记了一本笔记，我还收藏着呢。
+中新网清远6月13日电 (记者 张璐)中国体育彩票·2026年粤港澳大湾区龙舟邀请赛(阳山站)暨第三届阳山县龙舟赛(简称“赛事”)13日在清远市阳山县城江滨东路连江河段开赛。
 
-印象很深刻，因为这是我改革开放以后，接触农村的可以说是改革的第一课。
+18支龙舟队伍齐聚一江碧水之上，挥桨劈浪、奋勇争先，上演了一场水上版“速度与激情”。
 
-当时就是来学习。
+数万名市民游客齐聚江岸观赛助威，感受传统民俗与现代竞技交融的独特魅力。
 
-” 这本笔记，记录的不只是一次调研见闻，这堂“课”印刻着一位年轻学子对“改革为了谁、依靠谁”的深刻体悟。
+当日，醒狮表演、桨板巡游轮番上演。
 
-从陕北高原到燕赵大地，从闽东山海到之江两岸，回望习近平总书记的成长足迹，不少课堂就在基层，老师就是人民。
+龙头点睛仪式举行，嘉宾们手持朱砂笔为龙舟点睛，一笔落下，万象更新，祈愿山河无恙、风调雨顺、国泰民安。
 
-在梁家河，他与村民同吃同住同劳动，培养出不变的信念：“要为人民做实事！
+活动现场，随着一声令下，激昂的锣鼓声响彻连江两岸，平静的江面瞬间沸腾。
 
-”在正定，他于田间地头学会了和老百姓拉近距离、增进感情；在宁德，他在“四下基层”现场悟出“把心贴近人民”。
+一艘艘龙舟如蛟龙出水、踏浪腾空，参赛队员们身姿挺拔、士气高昂，伴随着整齐划一的鼓点节奏，挥桨击水、起落同步，桨影翻飞划破碧波，浪花飞溅激荡江流。
 
-习近平总书记的多个成长“第一课”，为全体党员干部树立和践行正确政绩观提供了生动范本。
+经过激烈的角逐，小江镇龙舟队斩获本地组冠军，广州市增城区新塘镇龙舟协会龙舟队获得邀请组冠军。
 
 ## 相关推荐
 
-- 2026-06-29 19:45 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 19:52 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 19:39 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 19:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 19:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 20:05 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 19:44 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 19:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 19:45 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 19:59 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 19:44 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 20:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 19:51 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 19:44 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 19:47 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 19:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 19:42 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 19:47 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 19:53 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 19:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 20:12 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 20:09 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 19:58 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 20:10 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 20:03 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/70974.shtml)
-- 2026-06-29 19:36 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/289072.shtml)
-- 2026-06-29 19:59 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/3606488.shtml)
-- 2026-06-29 19:50 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/44755.shtml)
-- 2026-06-29 19:58 - [周杰伦千禧年就有小卡了](http://www.share.kurohicncr.top/Article/details/2504356007.shtml)
-- 2026-06-29 19:36 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/257891.shtml)
-- 2026-06-29 19:41 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/1255614067.shtml)
-- 2026-06-29 19:54 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/8480053038.shtml)
-- 2026-06-29 19:47 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/2952280712.shtml)
-- 2026-06-29 19:49 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/008861498.shtml)
-- 2026-06-29 19:58 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/9305965.shtml)
-- 2026-06-29 19:36 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/48101979997.shtml)
-- 2026-06-29 19:48 - [小娘惹](https://www.blog.minike.top/Article/details/047710.shtml)
-- 2026-06-29 20:00 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/47831.shtml)
-- 2026-06-29 20:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/2534668727.shtml)
+- 2026-06-29 19:56 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/16613836.shtml)
+- 2026-06-29 20:03 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/65412358166.shtml)
+- 2026-06-29 20:04 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/28028297923.shtml)
+- 2026-06-29 19:55 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/3191573.shtml)
+- 2026-06-29 19:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/433173231.shtml)
+- 2026-06-29 19:58 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/36697578004.shtml)
+- 2026-06-29 19:43 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/79150879.shtml)
+- 2026-06-29 19:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/1924812.shtml)
+- 2026-06-29 19:44 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/31347493.shtml)
+- 2026-06-29 20:07 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.minike.top/Article/details/24159.shtml)
+- 2026-06-29 19:48 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/1182884906.shtml)
+- 2026-06-29 19:45 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/779384011.shtml)
+- 2026-06-29 20:10 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/1546675420.shtml)
+- 2026-06-29 20:05 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/46493114015.shtml)
+- 2026-06-29 19:57 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/51376.shtml)

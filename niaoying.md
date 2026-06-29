@@ -1,56 +1,61 @@
-# 跟着亚沙会游海南：在“国家海岸”领略海岛生态底色
+# “文明以止——希腊化时期的黄金艺术”特展开幕
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中新网三亚4月25日电 题：跟着亚沙会游海南：在“国家海岸”领略海岛生态底色 作者 张月和 三亚东部的“国家海岸”海棠湾，绵延十余公里的海岸线上高端酒店星罗棋布。与海岸线几近平行、相隔酒店带的海棠河生态公园，如今成为市民游客休闲打卡的城市新地标。漫步其中，草甸葱茏、树木苍翠，各色鲜花争相绽放。河海共生展现出的是海南岛发展的生态底色。 4月24日，参与第六届亚洲沙滩运动会报道的中
+中新社西安6月14日电 (记者 阿琳娜)“文明以止——希腊化时期的黄金艺术”特展14日在陕西历史博物馆开幕，展览汇聚希腊境内25家博物馆及考古机构的250件(套)珍贵金器与特色陶器，系统呈现希腊化时期黄金艺术的独特魅力与文明交融的风貌。 据了解，本次特展以“物”见“文明”，以“敬众神：神佑与王权”“礼人生：婚礼与葬仪”“藏万象：秘藏与传承”“融匠心：风尚与技艺”四大单元为叙事框
 
 ## 正文
 
-中新网三亚4月25日电 题：跟着亚沙会游海南：在“国家海岸”领略海岛生态底色 作者 张月和 三亚东部的“国家海岸”海棠湾，绵延十余公里的海岸线上高端酒店星罗棋布。
+中新社西安6月14日电 (记者 阿琳娜)“文明以止——希腊化时期的黄金艺术”特展14日在陕西历史博物馆开幕，展览汇聚希腊境内25家博物馆及考古机构的250件(套)珍贵金器与特色陶器，系统呈现希腊化时期黄金艺术的独特魅力与文明交融的风貌。
 
-与海岸线几近平行、相隔酒店带的海棠河生态公园，如今成为市民游客休闲打卡的城市新地标。
+据了解，本次特展以“物”见“文明”，以“敬众神：神佑与王权”“礼人生：婚礼与葬仪”“藏万象：秘藏与传承”“融匠心：风尚与技艺”四大单元为叙事框架，再现公元前323年至公元前30年希腊化时期的人文艺术与文明交融图景。
 
-漫步其中，草甸葱茏、树木苍翠，各色鲜花争相绽放。
+其中，“礼人生：婚礼与葬仪”单元以珠宝的社会功能为叙事主线。
 
-河海共生展现出的是海南岛发展的生态底色。
+它是新娘嫁妆中的珍贵品类，是日常佩戴的身份标识，是献给早逝孩童的最后守护，也是祭祀仪式中凡人通往神明的媒介。
 
-4月24日，参与第六届亚洲沙滩运动会报道的中外媒体记者走进海棠河生态公园，沉浸式感受三亚这座热带滨海城市的绿色发展成果。
+从生到死，从世俗到神圣，珠宝贯穿一个希腊化时期个体生命的完整历程。
 
-海棠河生态公园位于“国家海岸”海棠湾核心区域，是一座融合了生态修复、黎族文化与休闲运动的综合性城市绿廊。
+盘绕蛇形戒指、装饰着赫拉克勒斯结和缀珠流苏的珍贵头冠、鸽子垂饰的宝石耳环、雅典娜半身像发饰……黄金饰品中加入了“点缀”。
 
-公园以“生态+文化”为核心，通过蜿蜒的生态步道串联起湿地、雨林与花海，构建出一处集自然观光、亲子游乐与户外运动于一体的“天然氧吧”。
+印度的石榴石、埃及的紫水晶、中亚的青金石等经由密布商路汇聚于地中海，辅以珐琅与玻璃仿制技艺，共同造就了希腊化时代金饰特有的斑斓色彩，透过文物，也揭示了当时联通万邦的商贸网络。
 
-公园拥有广阔的水生生物栖息地，特色的石笼岸线与草滩湿地在退潮时呈现如镜面般的光滩美景，白鹭在浅滩间翩跹起舞，构成一幅宛如珠光落玉般的生态画卷。
+陕西历史博物馆馆长庞雅妮表示，光彩熠熠的黄金器物不仅是巧夺天工的艺术杰作，更是中希两大古典文明深情对话的友好信使，将引领观众从中感悟“文明以止，止于美、止于交融、止于永恒”背后的人类共通情感和精神文化共鸣。
 
 ## 相关推荐
 
-- 2026-06-29 19:43 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 19:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 19:38 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 19:57 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 19:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 19:48 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 19:59 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 19:41 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 19:37 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 19:45 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 19:57 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 19:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 20:02 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 19:49 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 19:42 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 19:51 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 19:50 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 19:43 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 19:45 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 20:04 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 20:08 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 19:55 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 19:42 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 19:42 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 20:07 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:43 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/2983827.shtml)
-- 2026-06-29 19:59 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/299108505751.shtml)
-- 2026-06-29 19:56 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/54831269.shtml)
-- 2026-06-29 19:40 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/22718.shtml)
-- 2026-06-29 19:57 - [法生态部长反对装空调却自己吹空调](https://www.share.minike.top/Article/details/9464498825.shtml)
-- 2026-06-29 19:37 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/023286462267.shtml)
-- 2026-06-29 20:05 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/3821692361.shtml)
-- 2026-06-29 19:49 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/0689564430.shtml)
-- 2026-06-29 19:40 - [男子40度高温下骑行严重晒伤](https://www.share.kurohicncr.top/Article/details/83465518748.shtml)
-- 2026-06-29 19:36 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/088647.shtml)
-- 2026-06-29 19:44 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/670192.shtml)
-- 2026-06-29 19:41 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/1390783.shtml)
-- 2026-06-29 19:54 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.kurohicncr.top/Article/details/1885989449.shtml)
-- 2026-06-29 20:05 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/909713.shtml)
-- 2026-06-29 20:04 - [官方通报一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/68400157824.shtml)
+- 2026-06-29 19:50 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/24497.shtml)
+- 2026-06-29 20:11 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/749830651.shtml)
+- 2026-06-29 20:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/2714722.shtml)
+- 2026-06-29 20:06 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/97036445469.shtml)
+- 2026-06-29 20:05 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/473739135324.shtml)
+- 2026-06-29 19:51 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/7594650.shtml)
+- 2026-06-29 20:07 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/3516818.shtml)
+- 2026-06-29 19:44 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/89247.shtml)
+- 2026-06-29 20:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/5647733086.shtml)
+- 2026-06-29 19:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/70729815668.shtml)
+- 2026-06-29 20:01 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/57859598677.shtml)
+- 2026-06-29 19:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/682459319956.shtml)
+- 2026-06-29 19:48 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/02541.shtml)
+- 2026-06-29 20:03 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/22761948567.shtml)
+- 2026-06-29 20:10 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/519800.shtml)

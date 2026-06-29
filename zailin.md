@@ -1,42 +1,49 @@
-# 打卡苏州连云港糖葫芦品种多多，最便宜的1元一串，中国传统甜品这么夯
+# 美加墨世界杯赛事预告：德国、荷兰凌晨首秀
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 07:51 来源：中国新闻网 责任编辑：【曹淼欣】
+中新网6月14日电 北京时间15日，美加墨世界杯将迎来四场小组赛争夺，分别为E组德国队对阵库拉索队、科特迪瓦队迎战厄瓜多尔队，F组荷兰队对阵日本队、瑞典队迎战突尼斯队。 日本队主教练森保一曾多次表态球队目标是世界杯冠军，他赛前强调，日本队要带着自信去挑战世界，首战面对荷兰将力争先进球并全取三分，不给对手机会。(完)
 
 ## 正文
 
-发布时间：2026年04月27日 07:51 来源：中国新闻网 责任编辑：【曹淼欣】
+中新网6月14日电 北京时间15日，美加墨世界杯将迎来四场小组赛争夺，分别为E组德国队对阵库拉索队、科特迪瓦队迎战厄瓜多尔队，F组荷兰队对阵日本队、瑞典队迎战突尼斯队。
+
+日本队主教练森保一曾多次表态球队目标是世界杯冠军，他赛前强调，日本队要带着自信去挑战世界，首战面对荷兰将力争先进球并全取三分，不给对手机会。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 20:03 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 19:44 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 20:01 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 19:42 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 19:53 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 19:58 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 20:03 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 19:51 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 19:37 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 19:58 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 20:03 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 19:44 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 19:46 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 19:45 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 19:52 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 20:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 20:00 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 19:48 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 19:42 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 19:53 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 19:57 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 19:42 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:58 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/570044074251.shtml)
-- 2026-06-29 19:53 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/7714393301.shtml)
-- 2026-06-29 19:42 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/22980654.shtml)
-- 2026-06-29 19:58 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/66199209.shtml)
-- 2026-06-29 20:04 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/6390294386.shtml)
-- 2026-06-29 19:39 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/36659.shtml)
-- 2026-06-29 19:48 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/5000356.shtml)
-- 2026-06-29 19:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/084948.shtml)
-- 2026-06-29 19:48 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/430392370079.shtml)
-- 2026-06-29 19:39 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/866270603.shtml)
-- 2026-06-29 20:02 - [AG 宫斗](http://www.blog.minike.top/Article/details/096477231788.shtml)
-- 2026-06-29 19:58 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/79040.shtml)
-- 2026-06-29 19:42 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/15137828.shtml)
-- 2026-06-29 19:39 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/55682233490.shtml)
-- 2026-06-29 20:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/04036430803.shtml)
+- 2026-06-29 20:05 - [叠纸](http://www.blog.kurohicncr.top/Article/details/43654578.shtml)
+- 2026-06-29 19:47 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/74413.shtml)
+- 2026-06-29 19:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/9310957956.shtml)
+- 2026-06-29 19:46 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/198685013735.shtml)
+- 2026-06-29 19:58 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/516729123259.shtml)
+- 2026-06-29 20:01 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.minike.top/Article/details/4295670900.shtml)
+- 2026-06-29 19:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/27351.shtml)
+- 2026-06-29 20:02 - [主力抛售电子和通信板块](https://www.share.kurohicncr.top/Article/details/4057648649.shtml)
+- 2026-06-29 20:04 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/16637224467.shtml)
+- 2026-06-29 19:57 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/995826662.shtml)
+- 2026-06-29 19:54 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/810111756773.shtml)
+- 2026-06-29 19:52 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/22222.shtml)
+- 2026-06-29 19:58 - [扫黑风暴](http://www.blog.minike.top/Article/details/8447929.shtml)
+- 2026-06-29 20:07 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/856570102843.shtml)
+- 2026-06-29 20:00 - [孙俪开QQ的蛮好生活](http://www.blog.minike.top/Article/details/520292972960.shtml)

@@ -1,59 +1,59 @@
-# 中金：周大福目标价降至15.86港元 维持“跑赢行业”评级
+# 霍尔木兹海峡何时能重开
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-中金公司发布研报称，维持周大福（01929）2026及2027财年每股盈利预测分别为0.9及0.96港元，并引入2028财年预测为1.02港元。考虑到行业估值有所回落，下调目标价11%至15.86港元，维持“跑赢行业”评级。 周大福公布截至3月止2026财年第四季营运情况，整体零售值同比微降1.5%。其中内地直营及批发同店销售分别同比增长0.2%及下降5.8%，港澳市场同店销售
+美国总统特朗普14日在社交媒体发文说，美伊协议“现在完成”，将开放霍尔木兹海峡。特朗普称，他正式批准开放霍尔木兹海峡，无需缴纳通行费，同时下令立即解除美国海军对伊朗港口的海上封锁。 伊朗最高国家安全委员会秘书处15日凌晨发表声明，正式宣布伊朗与美国已最终敲定关于“结束战争谈判”的谅解备忘录文本，并计划于19日正式签署。 霍尔木兹海峡能否真正重新开放、消除“梗阻”全面恢复通航需要
 
 ## 正文
 
-中金公司发布研报称，维持周大福（01929）2026及2027财年每股盈利预测分别为0.9及0.96港元，并引入2028财年预测为1.02港元。
+美国总统特朗普14日在社交媒体发文说，美伊协议“现在完成”，将开放霍尔木兹海峡。
 
-考虑到行业估值有所回落，下调目标价11%至15.86港元，维持“跑赢行业”评级。
+特朗普称，他正式批准开放霍尔木兹海峡，无需缴纳通行费，同时下令立即解除美国海军对伊朗港口的海上封锁。
 
-周大福公布截至3月止2026财年第四季营运情况，整体零售值同比微降1.5%。
+伊朗最高国家安全委员会秘书处15日凌晨发表声明，正式宣布伊朗与美国已最终敲定关于“结束战争谈判”的谅解备忘录文本，并计划于19日正式签署。
 
-其中内地直营及批发同店销售分别同比增长0.2%及下降5.8%，港澳市场同店销售同比增长40%，表现优于预期。
+霍尔木兹海峡能否真正重新开放、消除“梗阻”全面恢复通航需要多长时间已成为全球关注焦点。
 
-报告提到，4月以来周大福中国内地自营与加盟及港澳自营门店同店销售均同比正增长，管理层预期2027财年内地渠道净关店规模有望按季收窄，并预计港澳市场受惠于客流和需求改善，有望在同期保持良好增长。
+怎样才算真正开放 市场人士认为，美伊双方所称的霍尔木兹海峡开放只能算作“技术性开放”，市场期待的真正开放是“商业性开放”。
 
-此外，在海外市场，公司计划在拓展新市场及新渠道外，逐步推动海外电商业务发展。
+标普全球能源公司航运与金属部门负责人拉胡尔·卡普尔表示，市场严格区分“技术性开放”与“商业性开放”，后者依赖安全保障、保险成本回落与市场信心重建。
 
-责任编辑：卢昱君
+标普全球能源公司近日发布报告，综合业界普遍观点梳理霍尔木兹海峡开放所需条件。
+
+报告认为，只有满足通航规模恢复、停火观察确认、保险保障到位、航道安全达标、船队运营回归五大核心条件，国际市场才会认定霍尔木兹海峡真正开放。
 
 ## 相关推荐
 
-- 2026-06-29 19:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 19:37 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 19:51 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 19:40 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 19:46 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 19:41 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 19:53 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 19:58 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 19:58 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 19:53 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 20:01 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 19:37 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 19:49 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 19:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 19:39 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 19:49 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 20:01 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 19:49 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 19:52 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 19:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 19:50 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 20:10 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 19:53 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 20:02 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 19:53 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 19:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 19:49 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 20:03 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:40 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/56524.shtml)
-- 2026-06-29 19:55 - [千与千寻](http://www.share.minike.top/Article/details/1094031895.shtml)
-- 2026-06-29 20:04 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/68589.shtml)
-- 2026-06-29 19:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/8963562.shtml)
-- 2026-06-29 19:46 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/2477810.shtml)
-- 2026-06-29 19:44 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/1647224.shtml)
-- 2026-06-29 19:38 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/234827265943.shtml)
-- 2026-06-29 20:03 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/423425243148.shtml)
-- 2026-06-29 19:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/495559.shtml)
-- 2026-06-29 19:52 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/5275030257.shtml)
-- 2026-06-29 19:45 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/204060.shtml)
-- 2026-06-29 20:03 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/5898070799.shtml)
-- 2026-06-29 19:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/156065417.shtml)
-- 2026-06-29 20:01 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/8171056.shtml)
-- 2026-06-29 19:54 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.kurohicncr.top/Article/details/952723327.shtml)
+- 2026-06-29 20:10 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/02736972268.shtml)
+- 2026-06-29 19:42 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/081835.shtml)
+- 2026-06-29 19:52 - [王楚钦称抽签结果出来心情不好](http://www.share.kurohicncr.top/Article/details/789603587982.shtml)
+- 2026-06-29 19:55 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/6113702047.shtml)
+- 2026-06-29 20:07 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/0943111655.shtml)
+- 2026-06-29 19:54 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/2405218.shtml)
+- 2026-06-29 20:08 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/444935.shtml)
+- 2026-06-29 20:08 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/40196192.shtml)
+- 2026-06-29 20:02 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/4145199349.shtml)
+- 2026-06-29 19:55 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/94939450.shtml)
+- 2026-06-29 20:04 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/56787645521.shtml)
+- 2026-06-29 19:56 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/89844607532.shtml)
+- 2026-06-29 20:05 - [济南航空航天全面起势](http://www.share.minike.top/Article/details/411137358583.shtml)
+- 2026-06-29 20:05 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/0319705.shtml)
+- 2026-06-29 19:56 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/114397339624.shtml)

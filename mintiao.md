@@ -1,61 +1,57 @@
-# 华金证券：业绩期过后科技成长会高低切吗？
+# 3.08亿！苹果最大经销商爱施德“补票”
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:03 UTC+8
 
 ## 摘要
 
-来源：华金证券 复盘历史，业绩期过后科技成长内部多出现高低切，主要受前期涨幅、政策和产业趋势等因素驱动。（1）业绩期后科技行业内部多出现高低切。一是业绩期后5 月中上旬业绩对科技行业的指引性相对4 月变弱。二是5 年中业绩期后科技行业内部均出现了高低切。（2）业绩期后科技成长行业内部出现高低切主要受前期涨幅、政策和产业趋势、业绩等因素驱动。一是业绩期后科技成长中出现调整的行业主
+来源：企业上市 6月5日，苹果国内最大授权经销商——深圳市爱施德股份有限公司（股票代码：002416）发布公告称，公司近期依据国家税收法律法规要求，对涉税事项开展自查，需补缴企业所得税税款及滞纳金合计约3.08亿元。截至公告披露日，上述款项已全部缴纳完毕。 公告显示，此次补缴的企业所得税本金为1.85亿元，滞纳金为1.23亿元。按滞纳金每日万分之五计算，该笔税款欠缴时间约在3年
 
 ## 正文
 
-来源：华金证券 复盘历史，业绩期过后科技成长内部多出现高低切，主要受前期涨幅、政策和产业趋势等因素驱动。
+来源：企业上市 6月5日，苹果国内最大授权经销商——深圳市爱施德股份有限公司（股票代码：002416）发布公告称，公司近期依据国家税收法律法规要求，对涉税事项开展自查，需补缴企业所得税税款及滞纳金合计约3.08亿元。
 
-（1）业绩期后科技行业内部多出现高低切。
+截至公告披露日，上述款项已全部缴纳完毕。
 
-一是业绩期后5 月中上旬业绩对科技行业的指引性相对4 月变弱。
+公告显示，此次补缴的企业所得税本金为1.85亿元，滞纳金为1.23亿元。
 
-二是5 年中业绩期后科技行业内部均出现了高低切。
+按滞纳金每日万分之五计算，该笔税款欠缴时间约在3年以上，属于历史遗留问题。
 
-（2）业绩期后科技成长行业内部出现高低切主要受前期涨幅、政策和产业趋势、业绩等因素驱动。
+公司强调，本次补缴不涉及行政处罚，系企业主动自查整改行为。
 
-一是业绩期后科技成长中出现调整的行业主要受是前期涨幅较高、业绩已经充分反映的行业。
+国内最大的苹果经销商爱施德，自己查出过去少交了税，现在连本带“罚息”一共掏了3.08亿，这笔巨款会让公司今年的利润很难看，但好在已经彻底了结了。
 
-二是业绩期后科技成长中出现补涨的行业主要是前期涨幅较低、政策和产业趋势向上的行业：首先，5 月中上旬出现补涨的科技行业基本是在4 月涨幅后三的科技行业；其次，政策和产业趋势向上的科技成长行业可能出现补涨；最后，出现补涨的科技成长行业业绩增速排名相对靠后。
+拆解一下： 1． 到底发生了什么事？
 
-当前来看，业绩期过后科技成长短期可能出现高低切，医药、传媒、计算机、电新等可能出现补涨。
+公司自己内部查账，发现过去几年在税务上有问题，少缴了企业所得税。
 
 ## 相关推荐
 
-- 2026-06-29 19:45 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 19:43 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 20:00 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 20:05 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 19:44 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 19:54 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 20:04 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 19:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 20:03 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 19:47 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 19:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 19:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 19:59 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 19:43 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 19:55 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 20:02 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 20:03 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 20:09 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 19:56 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 20:04 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 19:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 19:47 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 19:49 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 19:48 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 19:58 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 19:46 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/730232774.shtml)
-- 2026-06-29 19:50 - [周生如故](https://www.share.minike.top/Article/details/561250627282.shtml)
-- 2026-06-29 19:50 - [青春环游记第三季](http://www.blog.minike.top/Article/details/86956.shtml)
-- 2026-06-29 19:57 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/5622984.shtml)
-- 2026-06-29 19:58 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/254749.shtml)
-- 2026-06-29 19:50 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/7408129.shtml)
-- 2026-06-29 19:39 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/58758544.shtml)
-- 2026-06-29 19:55 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/1077946.shtml)
-- 2026-06-29 19:53 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/06545.shtml)
-- 2026-06-29 19:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/85817.shtml)
-- 2026-06-29 19:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/80068659.shtml)
-- 2026-06-29 19:37 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/65985.shtml)
-- 2026-06-29 19:45 - [小娘惹](https://www.blog.minike.top/Article/details/58103212.shtml)
-- 2026-06-29 20:03 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/7344628.shtml)
-- 2026-06-29 20:01 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/7984683143.shtml)
+- 2026-06-29 19:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/759511095484.shtml)
+- 2026-06-29 20:01 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/86949366678.shtml)
+- 2026-06-29 19:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/757343.shtml)
+- 2026-06-29 19:53 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/695598.shtml)
+- 2026-06-29 19:44 - [爱很美味](http://www.share.minike.top/Article/details/1513943.shtml)
+- 2026-06-29 19:43 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/892918945039.shtml)
+- 2026-06-29 19:54 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/147842526106.shtml)
+- 2026-06-29 20:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/057107765508.shtml)
+- 2026-06-29 20:11 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/275173.shtml)
+- 2026-06-29 19:47 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/940068483070.shtml)
+- 2026-06-29 19:50 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/774510563.shtml)
+- 2026-06-29 19:55 - [葛军透露高考出题思路](https://www.blog.kurohicncr.top/Article/details/63159826162.shtml)
+- 2026-06-29 20:07 - [青春环游记第三季](http://www.share.minike.top/Article/details/23349958.shtml)
+- 2026-06-29 19:42 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/586461656334.shtml)
+- 2026-06-29 19:47 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/98628099.shtml)

@@ -1,51 +1,59 @@
-# 日本首相：目前无需编制额外预算
+# 麦收之后谋增收——河南南阳唐河、方城“三夏”一线探访
 
-> 更新时间：2026-06-29 20:06:03 UTC+8
+> 更新时间：2026-06-29 20:12:02 UTC+8
 
 ## 摘要
 
-日本首相高市早苗周一表示，现阶段暂无必要编制补充预算，以缓解中东冲突带来的经济冲击。高市早苗在国会发言时还指出，尽管霍尔木兹海峡实质封锁或导致日本原油及石油制品供应短缺，但政府不应出台抑制经济活动的相关举措。日本目前已通过补贴机制平抑汽油价格，且未推出燃油管控措施，体现出其以扶持脆弱经济复苏为核心的施政导向。责任编辑：王永生
+6月9日，河南省小麦大规模机收作业收官。今年，河南省小麦自5月28日开始大规模收获，至6月9日基本结束，累计收获8445万亩，约占种植面积的99.1%，机收率达到99.8%。麦收后种植户还面临哪些问题？记者来到河南省南阳市唐河县、方城县的麦收一线进行了采访。要抢收更要烘干 6月初的方城县，热风翻涌。地头上，农户梁彦亭正忙着指挥三轮车装粮。他告诉记者，今年亩产超过了1300斤，比
 
 ## 正文
 
-日本首相高市早苗周一表示，现阶段暂无必要编制补充预算，以缓解中东冲突带来的经济冲击。
+6月9日，河南省小麦大规模机收作业收官。
 
-高市早苗在国会发言时还指出，尽管霍尔木兹海峡实质封锁或导致日本原油及石油制品供应短缺，但政府不应出台抑制经济活动的相关举措。
+今年，河南省小麦自5月28日开始大规模收获，至6月9日基本结束，累计收获8445万亩，约占种植面积的99.1%，机收率达到99.8%。
 
-日本目前已通过补贴机制平抑汽油价格，且未推出燃油管控措施，体现出其以扶持脆弱经济复苏为核心的施政导向。
+麦收后种植户还面临哪些问题？
 
-责任编辑：王永生
+记者来到河南省南阳市唐河县、方城县的麦收一线进行了采访。
+
+要抢收更要烘干 6月初的方城县，热风翻涌。
+
+地头上，农户梁彦亭正忙着指挥三轮车装粮。
+
+他告诉记者，今年亩产超过了1300斤，比预想好得多。
+
+然而，一个现象引起了记者的注意：收割机刚卸粮，这些麦粒就被直接拉往几公里外的粮食收购点。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 19:42 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 19:45 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 20:02 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 19:56 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 19:42 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 19:56 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 19:44 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 19:55 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 20:00 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 19:52 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 19:50 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 19:59 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 19:47 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 19:46 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 19:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 19:55 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 20:12 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 19:49 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 19:57 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 19:50 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 19:55 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 19:58 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 19:54 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 20:00 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 19:51 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.kurohicncr.top/Article/details/277457629411.shtml)
-- 2026-06-29 19:50 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/78039.shtml)
-- 2026-06-29 19:56 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/58221863978.shtml)
-- 2026-06-29 19:38 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/913941745443.shtml)
-- 2026-06-29 19:41 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/129464.shtml)
-- 2026-06-29 20:02 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/14525275.shtml)
-- 2026-06-29 20:03 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/714503239.shtml)
-- 2026-06-29 19:55 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/313038.shtml)
-- 2026-06-29 19:59 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/5534611.shtml)
-- 2026-06-29 20:05 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/61605797.shtml)
-- 2026-06-29 19:50 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.minike.top/Article/details/430296952.shtml)
-- 2026-06-29 19:51 - [爱很美味](https://www.share.kurohicncr.top/Article/details/154916480234.shtml)
-- 2026-06-29 19:42 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/64686.shtml)
-- 2026-06-29 19:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/799104596.shtml)
-- 2026-06-29 19:41 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/72959314482.shtml)
+- 2026-06-29 20:04 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/9823433687.shtml)
+- 2026-06-29 19:57 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/53514087105.shtml)
+- 2026-06-29 19:47 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/87934432.shtml)
+- 2026-06-29 20:07 - [郑钦文谈再战西尼亚科娃](https://www.share.kurohicncr.top/Article/details/75535640825.shtml)
+- 2026-06-29 20:01 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/45059.shtml)
+- 2026-06-29 20:03 - [RAY评乘风2026总决赛](https://www.blog.kurohicncr.top/Article/details/55826.shtml)
+- 2026-06-29 19:47 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/79153.shtml)
+- 2026-06-29 19:53 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/252452932.shtml)
+- 2026-06-29 19:49 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/5072212783.shtml)
+- 2026-06-29 20:09 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/380829952670.shtml)
+- 2026-06-29 20:08 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/489000.shtml)
+- 2026-06-29 19:49 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/04406557.shtml)
+- 2026-06-29 19:51 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/8117396.shtml)
+- 2026-06-29 20:08 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/90025.shtml)
+- 2026-06-29 19:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/250950822.shtml)
