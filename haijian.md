@@ -1,49 +1,55 @@
-# 油价逼近100美元 美股期货小幅走高
+# 云南大理通报“执法队工作人员与商户发生冲突”
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-美国股指期货上涨0.3%至0.6%，交易员密切关注美伊再度冲突。美国4月新增就业11.5万人，4月失业率维持在4.3%。油价徘徊在100美元附近，Akamai Technologies在获得18亿美元的AI基础设施承诺后股价跳涨。责任编辑：张俊 SF065
+中新网6月2日电 据“大理融媒”微信公众号消息，云南省大理市人民政府新闻办公室发布情况通报，6月2日，媒体报道“执法队工作人员与商户发生冲突”相关内容引发关注。经核实，事发于2026年5月20日，公安机关已于次日(5月21日)进行处置。有关情况通报如下： 2026年5月20日上午9时许，大理镇综合行政执法队在银苍社区观音街开展占道经营执法过程中，发现部分商户存在占道经营行为，阻
 
 ## 正文
 
-美国股指期货上涨0.3%至0.6%，交易员密切关注美伊再度冲突。
+中新网6月2日电 据“大理融媒”微信公众号消息，云南省大理市人民政府新闻办公室发布情况通报，6月2日，媒体报道“执法队工作人员与商户发生冲突”相关内容引发关注。
 
-美国4月新增就业11.5万人，4月失业率维持在4.3%。
+经核实，事发于2026年5月20日，公安机关已于次日(5月21日)进行处置。
 
-油价徘徊在100美元附近，Akamai Technologies在获得18亿美元的AI基础设施承诺后股价跳涨。
+有关情况通报如下： 2026年5月20日上午9时许，大理镇综合行政执法队在银苍社区观音街开展占道经营执法过程中，发现部分商户存在占道经营行为，阻碍过往行人和车辆通行，存在较大安全隐患。
 
-责任编辑：张俊 SF065
+工作人员依法对占道经营行为进行劝导时，商户田某甲、田某乙、邓某某拒不配合，言语辱骂并多次推搡工作人员阻碍执法，双方情绪激动，发生肢体冲突。
+
+事发后，相关部门迅速介入调查。
+
+5月21日，公安机关依法对涉事双方作出处理：对大理镇综合行政执法队工作人员杨某、那某甲分别处以行政拘留10日并处罚款1000元，对工作人员那某乙处以行政拘留7日并处罚款700元，对工作人员贾某某处以行政拘留5日并处罚款500元；对商户田某甲处以行政拘留7日，对商户田某乙、邓某某分别处以行政拘留5日。
+
+大理镇按程序对涉事工作人员进行处理，并对综合行政执法队开展整顿教育。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 18:50 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 18:44 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 18:44 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 18:38 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 18:48 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 18:40 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 18:49 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 18:28 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 18:49 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 18:26 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 18:59 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 18:48 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 18:58 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 18:45 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 18:49 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 18:48 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 18:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 18:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 18:57 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 18:30 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 18:40 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/6343119.shtml)
-- 2026-06-29 18:49 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/61094924553.shtml)
-- 2026-06-29 18:39 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/30113727.shtml)
-- 2026-06-29 18:46 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/909052.shtml)
-- 2026-06-29 18:47 - [女生每天戴耳机18小时突发耳聋](http://www.share.kurohicncr.top/Article/details/722072546.shtml)
-- 2026-06-29 18:48 - [当我回母校教书](http://www.share.minike.top/Article/details/44456508476.shtml)
-- 2026-06-29 18:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/27624.shtml)
-- 2026-06-29 18:38 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/369139155536.shtml)
-- 2026-06-29 18:50 - [苹果回应恋与深空低分](http://www.share.minike.top/Article/details/906717478365.shtml)
-- 2026-06-29 18:24 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/6883668.shtml)
-- 2026-06-29 18:30 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/769830056.shtml)
-- 2026-06-29 18:30 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/98610.shtml)
-- 2026-06-29 18:34 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/2786491.shtml)
-- 2026-06-29 18:47 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/05074.shtml)
-- 2026-06-29 18:26 - [一生一世](https://www.blog.kurohicncr.top/Article/details/0144794229.shtml)
+- 2026-06-29 18:39 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/307892241644.shtml)
+- 2026-06-29 18:34 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/0165220.shtml)
+- 2026-06-29 18:42 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/51956238.shtml)
+- 2026-06-29 18:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/508549.shtml)
+- 2026-06-29 18:57 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/1547501.shtml)
+- 2026-06-29 18:43 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/922547767878.shtml)
+- 2026-06-29 18:36 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.kurohicncr.top/Article/details/108420.shtml)
+- 2026-06-29 18:33 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/5609762.shtml)
+- 2026-06-29 18:43 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/626212849.shtml)
+- 2026-06-29 18:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/262836788.shtml)
+- 2026-06-29 18:39 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/135294567462.shtml)
+- 2026-06-29 18:32 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/319515174391.shtml)
+- 2026-06-29 18:40 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/017899078.shtml)
+- 2026-06-29 18:43 - [主力抛售电子和通信板块](http://www.share.kurohicncr.top/Article/details/8581250.shtml)
+- 2026-06-29 18:45 - [速度与激情9](https://www.blog.minike.top/Article/details/089529457549.shtml)

@@ -1,60 +1,49 @@
-# 中国连续7年开展污染防治攻坚战成效考核
+# 国台办介绍台胞参与大陆微短剧创作3种途径
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月7日电 (记者 阮煜琳)中央生态环境保护督察工作领导小组办公室有关负责人7日对记者表示，在中央生态环境保护督察工作领导小组牵头组织下，连续7年开展污染防治攻坚战成效考核，成为推动生态环境质量持续改善的有力抓手。中共中央办公厅、国务院办公厅日前印发《美丽中国建设成效考核办法》(下称《考核办法》)。 据介绍，对各省(自治区、直辖市)党委和政府美丽中国建设成效的考核，主
+6月3日上午，国台办举行例行新闻发布会。记者：十项促进两岸交流合作的政策措施中，关于“台湾业者可以多种方式参与大陆微短剧创作”引发关注，请问台胞参与微短剧创作的方式和途径有哪些？ 国务院台办发言人朱凤莲介绍主要有三种途径：在闽投资设立广播电视节目制作经营公司；与大陆业者合拍共创；参与演出。
 
 ## 正文
 
-中新社北京5月7日电 (记者 阮煜琳)中央生态环境保护督察工作领导小组办公室有关负责人7日对记者表示，在中央生态环境保护督察工作领导小组牵头组织下，连续7年开展污染防治攻坚战成效考核，成为推动生态环境质量持续改善的有力抓手。
+6月3日上午，国台办举行例行新闻发布会。
 
-中共中央办公厅、国务院办公厅日前印发《美丽中国建设成效考核办法》(下称《考核办法》)。
+记者：十项促进两岸交流合作的政策措施中，关于“台湾业者可以多种方式参与大陆微短剧创作”引发关注，请问台胞参与微短剧创作的方式和途径有哪些？
 
-据介绍，对各省(自治区、直辖市)党委和政府美丽中国建设成效的考核，主要包括美丽中国建设责任落实情况。
-
-美丽中国建设年度主要目标完成情况，考核大气环境、水和海洋生态环境、土壤生态环境、固体废物污染防治和生态质量状况以及年度目标完成情况。
-
-美丽中国建设年度重点任务完成情况，资金使用绩效情况，以及民众满意程度。
-
-上述负责人表示，《考核办法》是中国生态环境领域又一部重要党内法规，是推动树立和践行正确政绩观的制度利器，是全面推进美丽中国建设的有力抓手，是健全生态环境治理体系的重要举措。
-
-考核采用百分制评分，根据评分情况，考核结果划分为优秀、良好、合格、不合格4个等级。
-
-省(自治区、直辖市)发生特别重大环境污染事件或者特别重大生态破坏事件的，年度考核结果不得确定为“良好”及以上。
+国务院台办发言人朱凤莲介绍主要有三种途径：在闽投资设立广播电视节目制作经营公司；与大陆业者合拍共创；参与演出。
 
 ## 相关推荐
 
-- 2026-06-29 18:33 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 18:41 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 18:52 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 18:29 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 18:24 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 18:34 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 18:24 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 18:51 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 18:24 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 18:49 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 18:43 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 18:37 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 18:40 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 18:24 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 18:50 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 18:32 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 18:37 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 18:50 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 18:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 18:34 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 18:53 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 18:53 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 18:38 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 18:56 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 18:59 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 18:47 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 18:56 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/365471156286.shtml)
-- 2026-06-29 18:31 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/58208382987.shtml)
-- 2026-06-29 18:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/121135952288.shtml)
-- 2026-06-29 18:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/094742147.shtml)
-- 2026-06-29 18:41 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/7997541080.shtml)
-- 2026-06-29 18:44 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/349702740.shtml)
-- 2026-06-29 18:29 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/67589.shtml)
-- 2026-06-29 18:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/405807.shtml)
-- 2026-06-29 18:24 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.minike.top/Article/details/11083.shtml)
-- 2026-06-29 18:26 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/799688.shtml)
-- 2026-06-29 18:41 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/15242.shtml)
-- 2026-06-29 18:38 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/4835711.shtml)
-- 2026-06-29 18:52 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/581667638.shtml)
-- 2026-06-29 18:52 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/23967.shtml)
-- 2026-06-29 18:26 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/66882039739.shtml)
+- 2026-06-29 18:58 - [小娘惹](http://www.share.kurohicncr.top/Article/details/9851166.shtml)
+- 2026-06-29 18:39 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/03551272.shtml)
+- 2026-06-29 18:56 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/0997617.shtml)
+- 2026-06-29 18:51 - [和周杰伦在演唱会合唱了](https://www.share.kurohicncr.top/Article/details/93515198.shtml)
+- 2026-06-29 18:42 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/998129.shtml)
+- 2026-06-29 18:34 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/14277547.shtml)
+- 2026-06-29 18:47 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/0054486076.shtml)
+- 2026-06-29 18:46 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/137118807878.shtml)
+- 2026-06-29 18:53 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/9753600376.shtml)
+- 2026-06-29 18:54 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/150439110525.shtml)
+- 2026-06-29 18:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/160084909.shtml)
+- 2026-06-29 18:36 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.minike.top/Article/details/042679179.shtml)
+- 2026-06-29 18:44 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/2545862654.shtml)
+- 2026-06-29 18:31 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/6502539959.shtml)
+- 2026-06-29 18:34 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/78820710342.shtml)

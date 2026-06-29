@@ -1,56 +1,59 @@
-# 鄂陕两地以山水为媒续写双向奔赴温暖情谊
+# 华泰|策略：港股解禁影响的定量化评估
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新网恩施5月8日电(税浪 葛魏 李晓庆)一场跨越千里的生死救援，两天之内升华为两座城市之间的温情“双向奔赴”。继7日湖北省恩施州宣布23个景区对陕西省汉中市民免票后，汉中市8日迅速“回礼”，面向恩施州全体市民推出同等文旅优惠政策。至此，鄂陕两地以山水为媒，为这段民间互助的故事写下温暖续章。 近日，陕西汉中洋县商贩吉耀仲在湖北咸丰售卖苹果时突发急性脑梗，生命垂危。咸丰县中医医院
+来源：华泰睿思 核心观点 市场近期对港股解禁冲击有所担忧，但缺乏定量化评估。我们对港股解禁案例实证研究发现，解禁对市场影响主要分为两个层面：1）指数层面，全年仅在部分窗口期对恒指存在1-2个点的前置压力，影响可控；2）解禁对个股冲击更大，但高度分化，未经筛选下解禁股风险规避胜率仅60.4%，期望收益5.1%。通过多因子模型筛选，压力最大组风险规避（沽空）胜率达72.5%，期望收
 
 ## 正文
 
-中新网恩施5月8日电(税浪 葛魏 李晓庆)一场跨越千里的生死救援，两天之内升华为两座城市之间的温情“双向奔赴”。
+来源：华泰睿思 核心观点 市场近期对港股解禁冲击有所担忧，但缺乏定量化评估。
 
-继7日湖北省恩施州宣布23个景区对陕西省汉中市民免票后，汉中市8日迅速“回礼”，面向恩施州全体市民推出同等文旅优惠政策。
+我们对港股解禁案例实证研究发现，解禁对市场影响主要分为两个层面：1）指数层面，全年仅在部分窗口期对恒指存在1-2个点的前置压力，影响可控；2）解禁对个股冲击更大，但高度分化，未经筛选下解禁股风险规避胜率仅60.4%，期望收益5.1%。
 
-至此，鄂陕两地以山水为媒，为这段民间互助的故事写下温暖续章。
+通过多因子模型筛选，压力最大组风险规避（沽空）胜率达72.5%，期望收益14.4%，与低压力组剪刀差20pct，展现出良好筛选效果。
 
-近日，陕西汉中洋县商贩吉耀仲在湖北咸丰售卖苹果时突发急性脑梗，生命垂危。
+2026年港股总解禁规模或达到约2万亿港元 2026年港股全年解禁市值约1.63万亿港元，较2025年增长约69%；若叠加年内新增IPO的递延解禁，总规模或升至1.8万亿至2万亿港元。
 
-咸丰县中医医院全力救治，全城居民更在19小时内自发买光8000余斤苹果。
+截至5月，仍有约1万亿港元待释放，已超过2025年全年水平（0.97万亿）。
 
-“你卸我千斤担，我邀你看河山。
+解禁压力高度集中在前20大标的以及软件板块。
 
-”为铭记这份恩情，汉中洋县率先发出邀约：自2026年5月7日起，洋县所有收费景区对恩施州市民实行一年内免门票。
+对港股总体而言，解禁压力前置定价，影响在低个位数 2014年沪港通开通至今的历史经验显示解禁对大盘产生实质性压制需要有足够大的供给规模。
 
-咸丰县紧随其后宣布，该县所有收费景区对洋县居民同样免票一年。
+规模达到历史前5%的极端区间对应恒指后续三个月收益率下滑约3.9个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 18:33 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 18:45 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 18:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 18:50 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 18:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 18:25 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 18:29 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 18:51 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 18:26 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 18:44 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 18:50 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 18:34 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 18:51 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 18:35 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 18:47 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 18:49 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 18:54 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 18:43 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 18:42 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 18:39 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 18:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 18:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:33 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/940675292557.shtml)
-- 2026-06-29 18:26 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/1097984298.shtml)
-- 2026-06-29 18:39 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/2171218838.shtml)
-- 2026-06-29 18:53 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/7934072066.shtml)
-- 2026-06-29 18:52 - [2026年，如果你有100万，你会怎么投资？](http://www.share.kurohicncr.top/Article/details/8187566479.shtml)
-- 2026-06-29 18:48 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/995599.shtml)
-- 2026-06-29 18:32 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/93706977346.shtml)
-- 2026-06-29 18:38 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/2506327.shtml)
-- 2026-06-29 18:36 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/44820362169.shtml)
-- 2026-06-29 18:25 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/6327920.shtml)
-- 2026-06-29 18:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/12361.shtml)
-- 2026-06-29 18:26 - [爱很美味](https://www.share.minike.top/Article/details/28533948235.shtml)
-- 2026-06-29 18:24 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/02725904.shtml)
-- 2026-06-29 18:40 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/94080458.shtml)
-- 2026-06-29 18:25 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/3882546997.shtml)
+- 2026-06-29 18:36 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/639835.shtml)
+- 2026-06-29 18:51 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/16614713592.shtml)
+- 2026-06-29 18:34 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/0974216.shtml)
+- 2026-06-29 18:35 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/021087.shtml)
+- 2026-06-29 18:35 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/557761139869.shtml)
+- 2026-06-29 18:52 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/362183934.shtml)
+- 2026-06-29 18:56 - [波兰创该国高温纪录](https://www.blog.minike.top/Article/details/16336.shtml)
+- 2026-06-29 18:54 - [歼-15型舰载机为何被歼-15T替代](http://www.blog.kurohicncr.top/Article/details/566588035515.shtml)
+- 2026-06-29 18:52 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/6886782.shtml)
+- 2026-06-29 18:48 - [朱必达辞去湖南人大常委会委员职务](http://www.share.minike.top/Article/details/922678203.shtml)
+- 2026-06-29 18:54 - [女生每天戴耳机18小时突发耳聋](http://www.share.minike.top/Article/details/1587643.shtml)
+- 2026-06-29 18:54 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/768700.shtml)
+- 2026-06-29 18:55 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.kurohicncr.top/Article/details/0399629049.shtml)
+- 2026-06-29 18:40 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/1309335.shtml)
+- 2026-06-29 18:45 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/447231306.shtml)

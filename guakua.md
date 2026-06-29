@@ -1,57 +1,42 @@
-# 凯撒文化（002425）股民索赔案持续推进，银江技术（300020）索赔案再提交法院立案
+# 大同—怀来—天津南特高压交流工程 完成关键施工作业 进入全面架线阶段
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海久诚律师事务所股票索赔律师许峰提示，凯撒文化（维权）（002425）虚假陈述引发的投资者索赔案还在继续推进。（许峰律师专栏） 许峰律师代理的凯撒文化投资者索赔案已多次向法院提交立案，目前正在等待法院的审核安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2024年12月5日，凯撒文化公告收到广东证
+发布时间：2026年06月03日 10:05 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海久诚律师事务所股票索赔律师许峰提示，凯撒文化（维权）（002425）虚假陈述引发的投资者索赔案还在继续推进。
-
-（许峰律师专栏） 许峰律师代理的凯撒文化投资者索赔案已多次向法院提交立案，目前正在等待法院的审核安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
-
-2024年12月5日，凯撒文化公告收到广东证监局出具的《行政处罚决定书》，经查明，凯撒文化为减少应收款的坏账损失，在与供应商开展业务过程中，将资金从公司或子公司经供应商流转至指定客户，相关客户按要求向公司或子公司回款。
-
-凯撒文化将收到的回款用以冲销应收款，2021年少提坏账准备15，246，742.47元，虚增利润15，246，742.47元，占当期披露利润总额的15.55%。
-
-凯撒文化2021年年度报告存在虚假记载。
-
-许峰律师认为，在2022年4月27日到2024年5月6日之间买入凯撒文化股票，并且在2024年5月6日后卖出或继续持有股票的投资者，目前还可发起索赔。
-
-（凯撒文化维权入口） 除了凯撒文化投资者索赔案持续推进，2026年5月6日，许峰律师代理的银江技术（300020）投资者索赔案再提交一次法院立案。
-
-许峰律师代理的银江技术投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，律师团队同步也还在继续接受其他投资者的索赔委托。
+发布时间：2026年06月03日 10:05 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 18:45 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 18:33 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 18:37 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 18:53 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 18:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 18:40 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 18:31 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 18:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 18:40 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 18:45 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 18:53 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 18:40 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 18:33 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 18:45 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 18:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 18:58 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 18:41 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 18:44 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 18:43 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 18:42 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 18:44 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:28 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/70310.shtml)
-- 2026-06-29 18:38 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/5248790520.shtml)
-- 2026-06-29 18:35 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/500474799795.shtml)
-- 2026-06-29 18:45 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/13191.shtml)
-- 2026-06-29 18:42 - [王俊凯命名方式](https://www.share.minike.top/Article/details/3866170.shtml)
-- 2026-06-29 18:49 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/23444524.shtml)
-- 2026-06-29 18:36 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/7677379.shtml)
-- 2026-06-29 18:40 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/41591.shtml)
-- 2026-06-29 18:44 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/89069.shtml)
-- 2026-06-29 18:30 - [东方风云榜](http://www.blog.minike.top/Article/details/6429350972.shtml)
-- 2026-06-29 18:33 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/0349509.shtml)
-- 2026-06-29 18:25 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/4918368229.shtml)
-- 2026-06-29 18:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/027701320902.shtml)
-- 2026-06-29 18:30 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/461428840522.shtml)
-- 2026-06-29 18:32 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/385672.shtml)
+- 2026-06-29 18:32 - [金刚川](https://www.blog.minike.top/Article/details/258011.shtml)
+- 2026-06-29 18:54 - [学者：建设性战略稳定重塑中美关系](https://www.blog.kurohicncr.top/Article/details/6764027.shtml)
+- 2026-06-29 18:59 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/87117.shtml)
+- 2026-06-29 18:57 - [王楚钦开门红](https://www.blog.minike.top/Article/details/158151303.shtml)
+- 2026-06-29 18:32 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/5032522271.shtml)
+- 2026-06-29 18:42 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/42069254.shtml)
+- 2026-06-29 18:50 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/0855965.shtml)
+- 2026-06-29 18:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/112343.shtml)
+- 2026-06-29 18:44 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/32914.shtml)
+- 2026-06-29 18:34 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/253660.shtml)
+- 2026-06-29 18:32 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/932021254.shtml)
+- 2026-06-29 18:33 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/21954.shtml)
+- 2026-06-29 18:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/0532929975.shtml)
+- 2026-06-29 18:35 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/3708994838.shtml)
+- 2026-06-29 18:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/3303796438.shtml)

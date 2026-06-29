@@ -1,57 +1,57 @@
-# 晚上睡前刷牙、刷牙后漱口竟都是错的 很多人都在“无效刷牙”
+# 探访河南农大智慧农场创新基地：从示范验证走向规模化应用
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-“每天刷牙，为什么牙齿还是坏了？”很多人总觉得只要每天刷牙就万事大吉。但你有没有想过，那些坚持了几十年的刷牙“老习惯”，可能从一开始就错了。 误区一：刷完牙马上漱口 相信大部分人刷完牙的第一件事，就是拿起杯子含口清水漱几下口吐掉。但真相是：这个再正常不过的动作恰恰让牙膏中最宝贵的护牙成分——氟，还没来得及发挥作用就被无情地冲掉了。 真正科学的做法是什么？2023年，中华口腔医学
+中新网漯河6月2日电 (记者 李超庆)初夏时节，“中原粮仓”河南正值“三夏”生产关键阶段。在河南漯河一块田地里，一架无人驾驶收割机穿梭往来，无人机在低空中巡田，地面上几乎见不到人影。 6月1日，河南农业大学智慧农场创新基地成立仪式暨漯河“三夏”智慧化生产观摩会在漯河举行。上述场景便是该智慧农场真实的一幕。 在观摩会现场，河南农业大学人工智能学院副教授汪强介绍了智慧农场“耕种管收
 
 ## 正文
 
-“每天刷牙，为什么牙齿还是坏了？
+中新网漯河6月2日电 (记者 李超庆)初夏时节，“中原粮仓”河南正值“三夏”生产关键阶段。
 
-”很多人总觉得只要每天刷牙就万事大吉。
+在河南漯河一块田地里，一架无人驾驶收割机穿梭往来，无人机在低空中巡田，地面上几乎见不到人影。
 
-但你有没有想过，那些坚持了几十年的刷牙“老习惯”，可能从一开始就错了。
+6月1日，河南农业大学智慧农场创新基地成立仪式暨漯河“三夏”智慧化生产观摩会在漯河举行。
 
-误区一：刷完牙马上漱口 相信大部分人刷完牙的第一件事，就是拿起杯子含口清水漱几下口吐掉。
+上述场景便是该智慧农场真实的一幕。
 
-但真相是：这个再正常不过的动作恰恰让牙膏中最宝贵的护牙成分——氟，还没来得及发挥作用就被无情地冲掉了。
+在观摩会现场，河南农业大学人工智能学院副教授汪强介绍了智慧农场“耕种管收”的全流程技术，耕种靠北斗导航，精度在三厘米以内，漏播自动报警；生长期有无人机定时巡田，指挥系统精准浇水、施肥、打药；收获季，无人驾驶农机一边收麦、一边测产，还能同步播种、灌溉。
 
-真正科学的做法是什么？
+“这套系统能省多少钱？
 
-2023年，中华口腔医学会明确指出：刷牙后，吐掉泡沫不要漱口。
+”汪强算了一笔账：按照2025年的数据，能节水31%、节肥20%、水肥管理人工减少80%，增产19.1%，每亩地能节本增效916元。
 
-这是因为牙膏里的氟化物能帮助我们坚固牙釉质，有效抵御细菌和酸的侵蚀，甚至能修复早期微小的蛀牙。
+河南是中国小麦生产第一大省，小麦播种面积连续多年稳定在8500万亩以上。
 
 ## 相关推荐
 
-- 2026-06-29 18:51 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 18:45 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 18:29 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 18:33 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 18:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 18:48 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 18:52 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 18:50 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 18:46 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 18:24 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 18:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 18:32 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 18:53 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 18:47 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 18:36 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 18:46 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 18:47 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 18:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 18:31 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 18:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 18:36 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 18:40 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:35 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/48536459.shtml)
-- 2026-06-29 18:32 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/430129.shtml)
-- 2026-06-29 18:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/81591692320.shtml)
-- 2026-06-29 18:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/0427577.shtml)
-- 2026-06-29 18:52 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/01393.shtml)
-- 2026-06-29 18:28 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/99487823377.shtml)
-- 2026-06-29 18:30 - [韩国小学生都来吐槽了](http://www.blog.kurohicncr.top/Article/details/1502585.shtml)
-- 2026-06-29 18:33 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/05252550003.shtml)
-- 2026-06-29 18:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/7829187.shtml)
-- 2026-06-29 18:46 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/8356987.shtml)
-- 2026-06-29 18:30 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/70552.shtml)
-- 2026-06-29 18:35 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/93914304.shtml)
-- 2026-06-29 18:51 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/123950272981.shtml)
-- 2026-06-29 18:45 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/5213983.shtml)
-- 2026-06-29 18:38 - [叠纸](http://www.blog.kurohicncr.top/Article/details/2460140800.shtml)
+- 2026-06-29 18:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/5550362.shtml)
+- 2026-06-29 18:40 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/04802639.shtml)
+- 2026-06-29 18:57 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/030632039.shtml)
+- 2026-06-29 18:44 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.minike.top/Article/details/31354.shtml)
+- 2026-06-29 18:42 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/093695.shtml)
+- 2026-06-29 18:56 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/1328205191.shtml)
+- 2026-06-29 18:50 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/0505951735.shtml)
+- 2026-06-29 18:42 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/950089.shtml)
+- 2026-06-29 18:48 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/373998976574.shtml)
+- 2026-06-29 18:34 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/96769540.shtml)
+- 2026-06-29 18:54 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/3084089162.shtml)
+- 2026-06-29 18:42 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/62582905200.shtml)
+- 2026-06-29 18:36 - [流金岁月](https://www.blog.minike.top/Article/details/1143416460.shtml)
+- 2026-06-29 18:56 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/506588.shtml)
+- 2026-06-29 18:48 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/651280.shtml)

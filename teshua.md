@@ -1,57 +1,60 @@
-# 中国国内贸易交易指引发布 助推内外贸一体化
+# SpaceX要求压低IPO承销费率 但华尔街投行仍有望分食5亿美元收入
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 (陶思阅)中国物流与采购联合会、中国商业联合会、中国纺织工业联合会、中国轻工业联合会、中国网络社会组织联合会等17家全国性行业协会商会8日在北京共同发布实施《国内贸易交易指引(试行)》(下称《指引》)。《指引》对订立交易合同、货物交付验收、账期及支付、争议解决等各环节进行了规定，反对滥用市场优势地位、商业贿赂、强制搭售等行为，为参与国内贸易的企业提供了可操
+马斯克旗下SpaceX正在与经手其IPO的华尔街投行谈判，希望支付极低的费率。不过，即便收费标准大幅压低，负责此次上市的银行仍有望从这场创纪录的IPO中获得约5亿美元收入。 马斯克旗下这家航天与人工智能集团计划于本月进行IPO，目标募资规模750亿美元，据知情人士透露，目前该公司正争取将承销费率压低至0.75%以下。尽管这一费率远低于通常水平，但仍将成为这些负责安排此次IPO的
 
 ## 正文
 
-中新社北京5月8日电 (陶思阅)中国物流与采购联合会、中国商业联合会、中国纺织工业联合会、中国轻工业联合会、中国网络社会组织联合会等17家全国性行业协会商会8日在北京共同发布实施《国内贸易交易指引(试行)》(下称《指引》)。
+马斯克旗下SpaceX正在与经手其IPO的华尔街投行谈判，希望支付极低的费率。
 
-《指引》对订立交易合同、货物交付验收、账期及支付、争议解决等各环节进行了规定，反对滥用市场优势地位、商业贿赂、强制搭售等行为，为参与国内贸易的企业提供了可操作、易落地的行为规范。
+不过，即便收费标准大幅压低，负责此次上市的银行仍有望从这场创纪录的IPO中获得约5亿美元收入。
 
-中国建筑材料流通协会会长秦占学把《指引》比作商海迷雾中的“灯塔”，可以让企业在发展中避开“暗礁”。
+马斯克旗下这家航天与人工智能集团计划于本月进行IPO，目标募资规模750亿美元，据知情人士透露，目前该公司正争取将承销费率压低至0.75%以下。
 
-此次参与《指引》发布的还有中国纺织品进出口商会、中国食品土畜进出口商会等从事进出口贸易的行业组织。
+尽管这一费率远低于通常水平，但仍将成为这些负责安排此次IPO的华尔街银行历史上最赚钱的上市项目之一。
 
-“内贸和外贸协会组织均参与到《指引》的发布和实施中，有利于持续提升国内贸易标准化、规范化、国际化水平。
+作为本次IPO的牵头行，高盛集团和摩根士丹利预计将从承销费用中获得比其他21家参与券商更大的份额。
 
-”中国机电产品进出口商会副会长石永红表示，《指引》的制定参照了国际贸易规则和惯例，能够帮助企业减少内外贸制度转化成本，也为外商进入中国市场提供良好环境。
+知情人士表示，上述数字仅反映SpaceX支付的基础承销费用，并未包含可能额外发放的奖励性费用。
 
-(完)
+由于讨论尚未公开信息，知情人士要求匿名。
+
+投资银行通常会对IPO收取4%至7%的承销费用，而此类IPO的募资规模平均不到10亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 18:42 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 18:32 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 18:28 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 18:51 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 18:31 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 18:26 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 18:36 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 18:33 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 18:32 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 18:28 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 18:43 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 18:29 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 18:31 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 18:36 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 18:50 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 18:57 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 18:34 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 18:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 18:37 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 18:46 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 18:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 18:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 18:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 18:31 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 18:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 18:48 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:51 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/0095937155.shtml)
-- 2026-06-29 18:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/72420618.shtml)
-- 2026-06-29 18:25 - [伊朗足球队将启程回国](http://www.blog.kurohicncr.top/Article/details/820176404.shtml)
-- 2026-06-29 18:32 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/8725426.shtml)
-- 2026-06-29 18:51 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/52598953954.shtml)
-- 2026-06-29 18:28 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/754933144331.shtml)
-- 2026-06-29 18:31 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/15903.shtml)
-- 2026-06-29 18:48 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/29121.shtml)
-- 2026-06-29 18:25 - [斗破苍穹](https://www.share.minike.top/Article/details/80649242.shtml)
-- 2026-06-29 18:36 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/8335948234.shtml)
-- 2026-06-29 18:49 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/217508005657.shtml)
-- 2026-06-29 18:32 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/06668359.shtml)
-- 2026-06-29 18:26 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/549607932.shtml)
-- 2026-06-29 18:48 - [沉睡花园](https://www.share.minike.top/Article/details/670873826591.shtml)
-- 2026-06-29 18:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/65467850.shtml)
+- 2026-06-29 18:53 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/76333689.shtml)
+- 2026-06-29 18:56 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/278705758.shtml)
+- 2026-06-29 18:33 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/927266244224.shtml)
+- 2026-06-29 18:56 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/29923408670.shtml)
+- 2026-06-29 18:40 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/776954.shtml)
+- 2026-06-29 18:50 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/489804746.shtml)
+- 2026-06-29 18:38 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/86721219.shtml)
+- 2026-06-29 18:44 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/684415191689.shtml)
+- 2026-06-29 18:45 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/22239372.shtml)
+- 2026-06-29 18:36 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/245253432704.shtml)
+- 2026-06-29 18:41 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/6464226.shtml)
+- 2026-06-29 18:58 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/824299.shtml)
+- 2026-06-29 18:54 - [扬名立万](https://www.blog.minike.top/Article/details/07978907378.shtml)
+- 2026-06-29 18:42 - [央视曝光涉黄App诈骗陷阱](https://www.blog.kurohicncr.top/Article/details/877145597109.shtml)
+- 2026-06-29 18:44 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/182560524.shtml)

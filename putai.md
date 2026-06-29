@@ -1,57 +1,61 @@
-# 俄罗斯同意延长停火并换俘 乌克兰称不会袭击红场阅兵
+# 欧洲议会贸易委员会批准与美国贸易协议 将交由议会全体表决
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-新华社莫斯科/基辅5月8日电(记者黄河 李东旭)俄罗斯总统助理乌沙科夫8日晚表示，俄方同意并支持美国总统特朗普提出的延长停火和俄乌交换被俘人员的方案。乌克兰总统泽连斯基下令，莫斯科红场9日举行的阅兵活动不会成为乌方攻击目标。乌沙科夫说，俄方同意美方将俄乌停火延长至5月11日的提议，并支持美方关于俄乌双方在11日前互换1000名被俘人员的提议。据他介绍，上述提议是俄美双方电话沟通
+欧盟议员初步批准了一项欧美贸易协议，为最终批准该协议扫清了障碍。美国总统唐纳德·特朗普此前就此设定最后期限，威胁逾期将征收新的关税。 欧洲议会贸易委员会周二为协议放行。几天前，欧盟谈判代表克服了长期存在的分歧，最终确定了文本。 欧洲议会全体会议定于6月16日就批准该协议进行投票表决。预计欧盟成员国将在此之后不久给予最终批准。 欧盟面临着实施这项跨大西洋贸易协定的紧迫期限，因为特
 
 ## 正文
 
-新华社莫斯科/基辅5月8日电(记者黄河 李东旭)俄罗斯总统助理乌沙科夫8日晚表示，俄方同意并支持美国总统特朗普提出的延长停火和俄乌交换被俘人员的方案。
+欧盟议员初步批准了一项欧美贸易协议，为最终批准该协议扫清了障碍。
 
-乌克兰总统泽连斯基下令，莫斯科红场9日举行的阅兵活动不会成为乌方攻击目标。
+美国总统唐纳德·特朗普此前就此设定最后期限，威胁逾期将征收新的关税。
 
-乌沙科夫说，俄方同意美方将俄乌停火延长至5月11日的提议，并支持美方关于俄乌双方在11日前互换1000名被俘人员的提议。
+欧洲议会贸易委员会周二为协议放行。
 
-据他介绍，上述提议是俄美双方电话沟通达成，“特朗普总统的上述提议特意选在卫国战争胜利81周年之际提出”。
+几天前，欧盟谈判代表克服了长期存在的分歧，最终确定了文本。
 
-泽连斯基在社交媒体发文称，在美方斡旋的谈判框架内，俄方同意与乌方互换战俘的方案，5月9日至11日也应实现停火。
+欧洲议会全体会议定于6月16日就批准该协议进行投票表决。
 
-他表示，释放战俘是俄乌冲突需要解决的关键人道主义问题之一，也是决定乌方立场的重要根据。
+预计欧盟成员国将在此之后不久给予最终批准。
 
-乌方正在持续努力让被囚禁的乌克兰人返回家园。
+欧盟面临着实施这项跨大西洋贸易协定的紧迫期限，因为特朗普此前誓言，如果欧盟在7月4日之前不批准，将对欧盟征收新的关税。
 
-他指示乌方团队立即为换俘做好一切必要准备。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 18:45 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 18:24 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 18:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 18:46 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 18:26 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 18:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 18:47 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 18:51 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 18:43 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 18:44 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 18:30 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 18:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 18:33 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 18:55 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 18:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 18:40 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 18:45 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 18:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 18:57 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 18:34 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 18:53 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 18:45 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 18:31 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 18:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 18:30 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 18:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:32 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/401592873.shtml)
-- 2026-06-29 18:30 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/74113396.shtml)
-- 2026-06-29 18:42 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/6117478875.shtml)
-- 2026-06-29 18:24 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/44932450926.shtml)
-- 2026-06-29 18:41 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/689834579.shtml)
-- 2026-06-29 18:51 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/101473446.shtml)
-- 2026-06-29 18:53 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/77714.shtml)
-- 2026-06-29 18:50 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/802909607572.shtml)
-- 2026-06-29 18:38 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/60033830861.shtml)
-- 2026-06-29 18:50 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/6190509.shtml)
-- 2026-06-29 18:34 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/68262.shtml)
-- 2026-06-29 18:50 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/90701570.shtml)
-- 2026-06-29 18:32 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/211254.shtml)
-- 2026-06-29 18:35 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/9017792901.shtml)
-- 2026-06-29 18:27 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/38910.shtml)
+- 2026-06-29 18:52 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/91131.shtml)
+- 2026-06-29 18:48 - [逃狱兄弟](http://www.share.minike.top/Article/details/50988.shtml)
+- 2026-06-29 18:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/95587766389.shtml)
+- 2026-06-29 18:49 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/64889882243.shtml)
+- 2026-06-29 18:30 - [周杰伦演唱会含星量](http://www.blog.kurohicncr.top/Article/details/90029.shtml)
+- 2026-06-29 18:57 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/764659894.shtml)
+- 2026-06-29 18:42 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/9605590057.shtml)
+- 2026-06-29 18:48 - [逃狱兄弟](https://www.blog.minike.top/Article/details/5099164427.shtml)
+- 2026-06-29 18:57 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/047808819.shtml)
+- 2026-06-29 18:57 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/87073.shtml)
+- 2026-06-29 18:55 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/6189993.shtml)
+- 2026-06-29 18:50 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/156732024353.shtml)
+- 2026-06-29 18:42 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/11294.shtml)
+- 2026-06-29 18:48 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/152875.shtml)
+- 2026-06-29 18:30 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/768705302671.shtml)

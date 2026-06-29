@@ -1,60 +1,60 @@
-# 日本民众举行集会 抗议高市政权扩军修宪
+# 金丝为骨塑珐琅 釉彩作魂续古风
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-7日，日本民间团体和部分民众在东京街头举行游行集会，反对高市政权解禁杀伤性武器出口、推动扩军修宪等一系列危险动向。 集会参加者：靠制造武器来恢复经济，这说明整个国家的经济政策正在开始向军事方向倾斜。我认为把武器送给他国去进行战争，这种事是（日本）绝对不应该做的。 集会参加者：现在高市所说的那些话，完全没有建立在对日本在二战期间做过什么的反省基础之上。对于那段历史，高市完全闭口不
+中新网宜昌6月3日电 题：金丝为骨塑珐琅 釉彩作魂续古风 作者 杨雪 宋莹 董晓斌 “这叫掐丝，是撑起整幅画的魂。”初夏时节，在湖北省兴山县格物空间非遗工坊，负责人谭玲一边教授体验者制作掐丝珐琅画，一边娓娓道出其中的门道。 掐丝珐琅画是国家级非物质文化遗产代表性项目景泰蓝的平面化创新，既延续了宫廷工艺的华贵质感，又适配现代审美，更贴合大众传播与日常体验。 今年47岁的谭玲自幼喜
 
 ## 正文
 
-7日，日本民间团体和部分民众在东京街头举行游行集会，反对高市政权解禁杀伤性武器出口、推动扩军修宪等一系列危险动向。
+中新网宜昌6月3日电 题：金丝为骨塑珐琅 釉彩作魂续古风 作者 杨雪 宋莹 董晓斌 “这叫掐丝，是撑起整幅画的魂。
 
-集会参加者：靠制造武器来恢复经济，这说明整个国家的经济政策正在开始向军事方向倾斜。
+”初夏时节，在湖北省兴山县格物空间非遗工坊，负责人谭玲一边教授体验者制作掐丝珐琅画，一边娓娓道出其中的门道。
 
-我认为把武器送给他国去进行战争，这种事是（日本）绝对不应该做的。
+掐丝珐琅画是国家级非物质文化遗产代表性项目景泰蓝的平面化创新，既延续了宫廷工艺的华贵质感，又适配现代审美，更贴合大众传播与日常体验。
 
-集会参加者：现在高市所说的那些话，完全没有建立在对日本在二战期间做过什么的反省基础之上。
+今年47岁的谭玲自幼喜好绘画，打下了扎实的功底。
 
-对于那段历史，高市完全闭口不谈。
+2018年，她在参观游览北京园博园时，被掐丝珐琅画金丝勾勒的灵动与釉彩斑斓的质感深深吸引，从此结缘。
 
-我对此感到非常怀疑，正因为没有认真反省过去，所以我非常担心日本会不会再次走上同样的道路。
+之后，谭玲赴北京学习掐丝珐琅画创作。
 
-集会参加者表示，日本应坚持和平宪法，而不是走向军事扩张的道路。
+由于制作工艺复杂，加上天然矿物釉料等耗材成本较高，求学之路困难重重。
 
-集会参加者：我认为日本正朝着战争一路狂奔。
+为此，她不断查阅书籍、走访珐琅艺人，潜心研习金丝掐制、釉料调配、点蓝封胶等技艺，最终熟练掌握了核心技法。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 18:39 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 18:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 18:40 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 18:26 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 18:52 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 18:50 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 18:54 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 18:29 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 18:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 18:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 18:44 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 18:50 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 18:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 18:32 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 18:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 18:43 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 18:54 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 18:47 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 18:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 18:58 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 18:34 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 18:35 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 18:39 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 18:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 18:40 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 18:39 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 18:53 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:34 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/91504.shtml)
-- 2026-06-29 18:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/020667766.shtml)
-- 2026-06-29 18:25 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/1372544.shtml)
-- 2026-06-29 18:36 - [金刚川](http://www.share.minike.top/Article/details/0731477.shtml)
-- 2026-06-29 18:48 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/034178431.shtml)
-- 2026-06-29 18:26 - [急先锋](https://www.blog.minike.top/Article/details/6634375.shtml)
-- 2026-06-29 18:30 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/87070642116.shtml)
-- 2026-06-29 18:44 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/054686039.shtml)
-- 2026-06-29 18:42 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/680833666904.shtml)
-- 2026-06-29 18:50 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/250872.shtml)
-- 2026-06-29 18:34 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/98873883.shtml)
-- 2026-06-29 18:25 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/93838.shtml)
-- 2026-06-29 18:40 - [急先锋](https://www.share.kurohicncr.top/Article/details/395622.shtml)
-- 2026-06-29 18:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/983371126377.shtml)
-- 2026-06-29 18:35 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/77838.shtml)
+- 2026-06-29 18:47 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/794923919.shtml)
+- 2026-06-29 18:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/514822478765.shtml)
+- 2026-06-29 18:37 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/2367045443.shtml)
+- 2026-06-29 18:53 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/816743.shtml)
+- 2026-06-29 18:40 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/56214030.shtml)
+- 2026-06-29 18:43 - [时光音乐会](https://www.blog.minike.top/Article/details/943616.shtml)
+- 2026-06-29 18:37 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/553955512080.shtml)
+- 2026-06-29 18:48 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/627034.shtml)
+- 2026-06-29 18:39 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.minike.top/Article/details/28451938.shtml)
+- 2026-06-29 18:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/27877.shtml)
+- 2026-06-29 18:41 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/491308374940.shtml)
+- 2026-06-29 18:34 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/144448.shtml)
+- 2026-06-29 18:57 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/897880.shtml)
+- 2026-06-29 18:51 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/039986439300.shtml)
+- 2026-06-29 18:57 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/8150070.shtml)

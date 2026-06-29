@@ -1,61 +1,60 @@
-# 广西实现县级中医医疗机构全覆盖 优质资源下沉基层
+# 孟加拉国外长卡利勒当选第81届联大主席
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月7日电(杨志雄 黄艳梅)广西壮族自治区中医药管理局局长黎甲文7日在新闻发布会上介绍，“十四五”时期，广西持续完善中医药服务网络，着力提升民众看中医、用中医的便利性和可及性。广西近五年新建了10家县级中医医院，县办公立中医医疗机构首次实现100%覆盖。 广西中医药(壮瑶医药)“十四五”发展情况新闻发布会当日在南宁举行。黎甲文介绍，“十四五”时期，广西坚持传承精华、守
+中新网6月3日电 综合外媒报道，当地时间6月2日，联合国大会选举孟加拉国外长卡利勒·拉赫曼为第81届联合国大会主席。 据报道，拉赫曼当天在联大投票中以99票成功当选。他将接替第80届联大主席安娜莱娜·贝尔伯克，后者为期一年的任期将于9月结束。 拉赫曼当选后表示，联合国面临着多重考验。他说，如今冲突频发带来深重苦难；全球发展成果根基脆弱、前景不明。此外，联合国正面临财政压力。他表
 
 ## 正文
 
-中新网南宁5月7日电(杨志雄 黄艳梅)广西壮族自治区中医药管理局局长黎甲文7日在新闻发布会上介绍，“十四五”时期，广西持续完善中医药服务网络，着力提升民众看中医、用中医的便利性和可及性。
+中新网6月3日电 综合外媒报道，当地时间6月2日，联合国大会选举孟加拉国外长卡利勒·拉赫曼为第81届联合国大会主席。
 
-广西近五年新建了10家县级中医医院，县办公立中医医疗机构首次实现100%覆盖。
+据报道，拉赫曼当天在联大投票中以99票成功当选。
 
-广西中医药(壮瑶医药)“十四五”发展情况新闻发布会当日在南宁举行。
+他将接替第80届联大主席安娜莱娜·贝尔伯克，后者为期一年的任期将于9月结束。
 
-黎甲文介绍，“十四五”时期，广西坚持传承精华、守正创新，强化服务体系内涵建设，优化人才培养机制，打造传承创新平台，推动中医药产业融合发展，全区中医药(壮瑶医药)传承创新发展取得显著成效，中医药服务可及性、便捷性显著提升。
+拉赫曼当选后表示，联合国面临着多重考验。
 
-“十四五”时期，广西中医年总诊疗人次数达到6003.52万人次，常住人口人均1.2次；全区县级以上中医类医院床位数达4.45万张，每千人口中医类医院床位数达0.9张，分别比“十三五”末增长17.72%、18.42%。
+他说，如今冲突频发带来深重苦难；全球发展成果根基脆弱、前景不明。
 
-广西持续健全完善中医药(壮瑶医药)政策体系，新修订的《广西壮族自治区中医药条例》正式施行，中医药(壮瑶医药)振兴发展重大工程持续推进，广西14个设区市成立或加挂中医药局。
+此外，联合国正面临财政压力。
 
-“十四五”时期，广西中医类医疗机构达2886个，比“十三五”增长35.2%；中医类医院达150家，其中三级甲等23家，11家县级中医医院达到三级标准。
+他表示：“这是我将与各位共同面对的挑战。
 
-广西在全区社区卫生服务中心和乡镇卫生院建设了1441个中医馆，实现全覆盖，并进入“从有到优”的新发展阶段。
+” 联合国大会是各成员国不分大小平等发声的联合国机构，每年9月世界领导人齐聚于此举行年度大会。
 
 ## 相关推荐
 
-- 2026-06-29 18:46 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 18:30 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 18:53 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 18:42 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 18:53 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 18:33 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 18:46 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 18:26 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 18:51 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 18:44 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 18:25 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 18:35 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 18:44 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 18:49 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 18:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 18:34 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 18:35 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 18:45 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 18:59 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 18:33 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 18:47 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 18:52 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 18:39 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 18:57 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 18:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 18:34 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 18:35 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 18:47 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 18:55 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/068366.shtml)
-- 2026-06-29 18:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/59009602.shtml)
-- 2026-06-29 18:28 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/500793880192.shtml)
-- 2026-06-29 18:30 - [官方通报一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/4519938.shtml)
-- 2026-06-29 18:49 - [速度与激情9](https://www.blog.minike.top/Article/details/4914932.shtml)
-- 2026-06-29 18:33 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/50406.shtml)
-- 2026-06-29 18:33 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/76253366582.shtml)
-- 2026-06-29 18:27 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/4326391.shtml)
-- 2026-06-29 18:37 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/22518.shtml)
-- 2026-06-29 18:46 - [德国医生在没有空调的手术室工作](http://www.share.kurohicncr.top/Article/details/978492.shtml)
-- 2026-06-29 18:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/9064911.shtml)
-- 2026-06-29 18:35 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/69405.shtml)
-- 2026-06-29 18:26 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/290453210450.shtml)
-- 2026-06-29 18:30 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/348084107381.shtml)
-- 2026-06-29 18:36 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/39408363.shtml)
+- 2026-06-29 18:50 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/132812416.shtml)
+- 2026-06-29 18:43 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/87552.shtml)
+- 2026-06-29 18:44 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/0679297696.shtml)
+- 2026-06-29 18:33 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.kurohicncr.top/Article/details/5667566540.shtml)
+- 2026-06-29 18:42 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/017016834909.shtml)
+- 2026-06-29 18:58 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/4625040408.shtml)
+- 2026-06-29 18:34 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/3056909.shtml)
+- 2026-06-29 18:56 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/56855875367.shtml)
+- 2026-06-29 18:42 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/89083554.shtml)
+- 2026-06-29 18:59 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/69773524152.shtml)
+- 2026-06-29 18:45 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/37800749181.shtml)
+- 2026-06-29 18:30 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/189256291833.shtml)
+- 2026-06-29 18:38 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/27705.shtml)
+- 2026-06-29 18:37 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/798760346.shtml)
+- 2026-06-29 18:39 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/94672.shtml)

@@ -1,55 +1,51 @@
-# 青海玛沁突发山体崩塌导致227国道部分路段中断
+# “78元一锅，变78元半斤” 丽江一餐厅诱骗消费者被罚1万元
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-新华社西宁5月8日电(记者王浡)记者从青海省交通运输厅获悉，受持续降雨天气影响，5月7日10时09分，G227张(掖)孟(连)公路青海段，果洛藏族自治州玛沁县拉加镇赞根村K748+500米处突发山体崩塌，造成道路全幅中断、车辆滞留，并引发道路交通安全事故。目前，该路段实行全幅封闭、双向交通阻断，暂不具备通行条件。据现场勘查核实，本次崩塌山体地势陡峭，山体近乎垂直呈90度，山体高
+中新网6月2日电(吴家驹)国家企业信用信息公示系统显示，近日，古城区新玖柒餐厅因利用虚假的或者使人误解的价格手段，诱骗消费者或者其他经营者与其进行交易的行为，被丽江古城区市场监督管理局罚款1万元。 主要违法事实显示，当事人于店铺门口醒目位置突出标注“腊排骨火锅78元/锅 赠送4个素菜”价格宣传标识，但其店内纸质菜单未将该“78元/锅腊排骨套餐”与店内其他“纳西腊排骨火锅”同类菜
 
 ## 正文
 
-新华社西宁5月8日电(记者王浡)记者从青海省交通运输厅获悉，受持续降雨天气影响，5月7日10时09分，G227张(掖)孟(连)公路青海段，果洛藏族自治州玛沁县拉加镇赞根村K748+500米处突发山体崩塌，造成道路全幅中断、车辆滞留，并引发道路交通安全事故。
+中新网6月2日电(吴家驹)国家企业信用信息公示系统显示，近日，古城区新玖柒餐厅因利用虚假的或者使人误解的价格手段，诱骗消费者或者其他经营者与其进行交易的行为，被丽江古城区市场监督管理局罚款1万元。
 
-目前，该路段实行全幅封闭、双向交通阻断，暂不具备通行条件。
+主要违法事实显示，当事人于店铺门口醒目位置突出标注“腊排骨火锅78元/锅 赠送4个素菜”价格宣传标识，但其店内纸质菜单未将该“78元/锅腊排骨套餐”与店内其他“纳西腊排骨火锅”同类菜品统一归类、并列公示，反而刻意将该低价腊排骨套餐菜品划分归类至“特色菌汤锅底”类目下进行摆放标注，刻意割裂同类菜品价格展示区域，刻意混淆菜品品类，致使消费者无法直观比对同类腊排骨火锅实际售价，极易对菜品品类及消费价格产生错误认知。
 
-据现场勘查核实，本次崩塌山体地势陡峭，山体近乎垂直呈90度，山体高度50余米，临路绵延长度200余米。
+该行为违反了《中华人民共和国价格法》第十四条第一款第(四)项“经营者不得有下列不正当价格行为：(四)利用虚假的或者使人误解的价格手段，诱骗消费者或者其他经营者与其进行交易；”之规定，属于利用使人误解的价格手段，诱骗消费者进店消费的行为。
 
-经无人机航拍勘查，山体表层覆盖30厘米厚度腐殖土，岩体风化裸露严重，山体顶部存在明显裂隙，地质结构稳定性较差。
+据媒体报道，今年5月，有游客反映，在丽江古城区一餐厅吃饭时遭遇不合理收费，店外广告牌上“腊排骨火锅”标注“78元/锅”，收费时却被告知“78元半斤”。
 
-本次崩塌起始于距地面2米位置，塌面贯通至山体顶部，塌方总量约2000立方米，受阻路段长度200米，导致双向滞留车辆50余辆。
-
-险情发生后，省、州、县各级交通、应急、自然资源、公安交警等部门快速响应、协同处置，目前，滞留车辆已全部疏散，现场正进行危岩体清理工作。
-
-据悉，该路段具体恢复通行时间将根据山体稳定性监测及抢险施工进度另行通告，交通运输部门将持续跟踪险情动态，及时发布最新处置进展，尽快抢通受损道路。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:52 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 18:37 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 18:45 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 18:44 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 18:25 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 18:53 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 18:36 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 18:39 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 18:35 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 18:39 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 18:35 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 18:36 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 18:50 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 18:32 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 18:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 18:43 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 18:57 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 18:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 18:34 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 18:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 18:51 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 18:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/88407.shtml)
-- 2026-06-29 18:36 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/884347.shtml)
-- 2026-06-29 18:51 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/3612813.shtml)
-- 2026-06-29 18:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/021644.shtml)
-- 2026-06-29 18:46 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/17164624.shtml)
-- 2026-06-29 18:33 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/65461.shtml)
-- 2026-06-29 18:53 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/79452125.shtml)
-- 2026-06-29 18:37 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/8362652.shtml)
-- 2026-06-29 18:25 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/300040.shtml)
-- 2026-06-29 18:27 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/351096024.shtml)
-- 2026-06-29 18:24 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/26914176311.shtml)
-- 2026-06-29 18:32 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/37535.shtml)
-- 2026-06-29 18:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/07904042.shtml)
-- 2026-06-29 18:28 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/515008.shtml)
-- 2026-06-29 18:30 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.kurohicncr.top/Article/details/16997490183.shtml)
+- 2026-06-29 18:51 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/963660776.shtml)
+- 2026-06-29 18:49 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/5167932.shtml)
+- 2026-06-29 18:56 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/184104747.shtml)
+- 2026-06-29 18:45 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/7365053.shtml)
+- 2026-06-29 18:44 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/76412884315.shtml)
+- 2026-06-29 18:37 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/07160.shtml)
+- 2026-06-29 18:46 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/06043.shtml)
+- 2026-06-29 18:35 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/932705.shtml)
+- 2026-06-29 18:38 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/07792551368.shtml)
+- 2026-06-29 18:32 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/07595886963.shtml)
+- 2026-06-29 18:51 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/28255.shtml)
+- 2026-06-29 18:41 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/2040048120.shtml)
+- 2026-06-29 18:55 - [啊啊啊](http://www.share.minike.top/Article/details/58960475.shtml)
+- 2026-06-29 18:43 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/504261.shtml)
+- 2026-06-29 18:35 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/36103.shtml)

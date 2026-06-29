@@ -1,55 +1,46 @@
-# “十五五”期间 武汉将亮相一批文旅新地标
+# 北京首都机场股份拟发行第二期短期融资券
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 20:55 来源：中国新闻网 5月8日，武汉市文化和旅游局党委书记、局长章建育在湖北省政府新闻办举行的“开局起步‘十五五’ 加力奋进建支点”系列新闻发布会武汉专场上表示，武汉将深入实施文化创新战略，加快把文化旅游业打造成为支柱产业，努力建设世界知名文化旅游目的地，绘就新时代的“江汉揽胜图”。 “十五五”期间，武汉将推出更多武汉原创、武汉制作、武
+北京首都机场股份（00694）公布，公司将启动第二期短期融资券（2026年第二期短期融资券）的发行工作。2026年第二期短期融资券的具体发行金额将于发行时厘定，票面利率及其他发行信息将在簿记建档完成后确定。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年05月08日 20:55 来源：中国新闻网 5月8日，武汉市文化和旅游局党委书记、局长章建育在湖北省政府新闻办举行的“开局起步‘十五五’ 加力奋进建支点”系列新闻发布会武汉专场上表示，武汉将深入实施文化创新战略，加快把文化旅游业打造成为支柱产业，努力建设世界知名文化旅游目的地，绘就新时代的“江汉揽胜图”。
+北京首都机场股份（00694）公布，公司将启动第二期短期融资券（2026年第二期短期融资券）的发行工作。
 
-“十五五”期间，武汉将推出更多武汉原创、武汉制作、武汉出品的精品力作和文旅品牌。
+2026年第二期短期融资券的具体发行金额将于发行时厘定，票面利率及其他发行信息将在簿记建档完成后确定。
 
-建好长江国家文化公园武汉段和长江博物馆，系统推进文物保护利用和文化遗产保护传承。
-
-加快建设武汉图书馆新馆、戏曲艺术中心、文学馆、文物考古保护展示中心等文化地标。
-
-串联黄鹤楼、古琴台、南岸嘴等核心资源，打造世界水准、武汉特色的“一桥两山”文旅新地标。
-
-(王梦媛） 责任编辑：【卢岩】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 18:41 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 18:46 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 18:51 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 18:29 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 18:43 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 18:24 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 18:49 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 18:42 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 18:36 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 18:52 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 18:38 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 18:38 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 18:53 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 18:42 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 18:57 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 18:36 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 18:57 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 18:52 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 18:54 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 18:51 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 18:48 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 18:56 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:51 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/75299714.shtml)
-- 2026-06-29 18:31 - [歼-15型舰载机为何被歼-15T替代](https://www.share.minike.top/Article/details/7865831964.shtml)
-- 2026-06-29 18:24 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/42768.shtml)
-- 2026-06-29 18:44 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/65558.shtml)
-- 2026-06-29 18:48 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/6842881.shtml)
-- 2026-06-29 18:25 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/89394.shtml)
-- 2026-06-29 18:33 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/739790208803.shtml)
-- 2026-06-29 18:35 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/15330.shtml)
-- 2026-06-29 18:37 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/68702.shtml)
-- 2026-06-29 18:29 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/65869270.shtml)
-- 2026-06-29 18:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/2053723495.shtml)
-- 2026-06-29 18:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/64937936757.shtml)
-- 2026-06-29 18:51 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/47160.shtml)
-- 2026-06-29 18:43 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/973802637.shtml)
-- 2026-06-29 18:26 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/372838477042.shtml)
+- 2026-06-29 18:36 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/010694100902.shtml)
+- 2026-06-29 18:38 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/6514928976.shtml)
+- 2026-06-29 18:47 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/23797160.shtml)
+- 2026-06-29 18:50 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/13579552.shtml)
+- 2026-06-29 18:48 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/25149230.shtml)
+- 2026-06-29 18:39 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/810577.shtml)
+- 2026-06-29 18:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/947520542.shtml)
+- 2026-06-29 18:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/1274179263.shtml)
+- 2026-06-29 18:40 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/279228770823.shtml)
+- 2026-06-29 18:50 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/008696281.shtml)
+- 2026-06-29 18:45 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/129831.shtml)
+- 2026-06-29 18:58 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/21136470.shtml)
+- 2026-06-29 18:54 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/25453.shtml)
+- 2026-06-29 18:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/797800949405.shtml)
+- 2026-06-29 18:43 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/3260494.shtml)

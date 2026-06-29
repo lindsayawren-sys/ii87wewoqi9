@@ -1,57 +1,57 @@
-# 高盛：ARM业绩小幅beat，但市场已price in，维持卖出评级
+# 康宝莱CFO将出席东海岸IDEAS会议 解读战略转型进展
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 ARM最新财季营收及利润小幅超预期，且下季EPS指引亮眼，但高盛仍维持“卖出”评级，目标价125美元隐含逾40%下行空间。高盛认为，市场在财报前已过度拉高预期，当前近百倍的市盈率严重透支了成长性。尽管授权收入强劲，但版权费收入不及预期，在估值偏高与市场预期抬升的双重压力下，股价短期内或维持震荡。ARM公布的最新季度业绩小幅超出市
+康宝莱公司周二宣布，首席财务官John DeSimone将于6月11日出席在东海岸举行的IDEAS会议并发表演讲。此次亮相正值这家营养品巨头完成多项战略布局、业绩持续改善的关键时期。 根据公司公告，DeSimone的演讲定于6月11日（周四）上午10时35分（美国东部时间）举行。投资者可通过康宝莱官网投资者关系页面观看现场网络直播，会议结束后回放将在网站上保留六个月。 此次会议
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 ARM最新财季营收及利润小幅超预期，且下季EPS指引亮眼，但高盛仍维持“卖出”评级，目标价125美元隐含逾40%下行空间。
+康宝莱公司周二宣布，首席财务官John DeSimone将于6月11日出席在东海岸举行的IDEAS会议并发表演讲。
 
-高盛认为，市场在财报前已过度拉高预期，当前近百倍的市盈率严重透支了成长性。
+此次亮相正值这家营养品巨头完成多项战略布局、业绩持续改善的关键时期。
 
-尽管授权收入强劲，但版权费收入不及预期，在估值偏高与市场预期抬升的双重压力下，股价短期内或维持震荡。
+根据公司公告，DeSimone的演讲定于6月11日（周四）上午10时35分（美国东部时间）举行。
 
-ARM公布的最新季度业绩小幅超出市场预期，但高盛认为投资者预期在财报发布前已高度抬升，此次超预期难以为股价提供额外支撑，维持对该股的卖出评级，目标价较当前市价隐含逾四成下行空间。
+投资者可通过康宝莱官网投资者关系页面观看现场网络直播，会议结束后回放将在网站上保留六个月。
 
-据追风交易台消息，高盛于2026年5月6日发布研究报告显示，ARM第四财季（FY4Q26）营收14.90亿美元，略超高盛预测的14.70亿美元及市场一致预期的14.74亿美元；不含股权激励的运营每股收益为0.60美元，高于高盛预测的0.58美元和市场预期的0.59美元。
+此次会议召开之际，康宝莱正处于战略转型的加速期。
 
-与此同时，公司对下一财季（FY1Q27E）的每股收益指引为0.40美元，较高盛及市场一致预期的0.36美元高出逾11%。
+公司5月发布的第一季度财报显示，净销售额达13亿美元，同比增长7.8%，超出此前指引；调整后EBITDA为1.757亿美元，同样超越预期。
 
-高盛分析师表示，鉴于ARM近期投资者日释放的偏多头展望，以及市场对CPU成长前景的普遍乐观情绪，投资者在财报发布前的预期已被显著抬高，小幅超预期的实际数据难以带来股价的进一步提振，预计该股短期内将维持震荡格局。
+亚太和拉美市场表现强劲，分别增长17.3%和17.1%，但中国市场销售额同比下降12%，成为唯一连续下滑的核心市场。
 
-高盛维持ARM卖出评级，12个月目标价为125美元。
+在战略层面，康宝莱近期完成了多项关键布局。
 
 ## 相关推荐
 
-- 2026-06-29 18:46 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 18:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 18:52 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 18:40 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 18:43 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 18:53 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 18:24 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 18:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 18:44 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 18:50 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 18:54 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 18:55 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 18:42 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 18:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 18:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 18:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 18:43 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 18:37 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 18:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 18:34 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 18:53 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 18:32 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:38 - [当我回母校教书](http://www.blog.minike.top/Article/details/70594241340.shtml)
-- 2026-06-29 18:52 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.kurohicncr.top/Article/details/9192316.shtml)
-- 2026-06-29 18:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/39241.shtml)
-- 2026-06-29 18:41 - [蔚来回应车漆洗车时被冲掉](https://www.blog.kurohicncr.top/Article/details/587198.shtml)
-- 2026-06-29 18:34 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/281312032204.shtml)
-- 2026-06-29 18:47 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/48874.shtml)
-- 2026-06-29 18:28 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/424425533690.shtml)
-- 2026-06-29 18:30 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/750845587540.shtml)
-- 2026-06-29 18:37 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/40449418.shtml)
-- 2026-06-29 18:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/235557358.shtml)
-- 2026-06-29 18:42 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/3493396.shtml)
-- 2026-06-29 18:29 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/6233846545.shtml)
-- 2026-06-29 18:51 - [沙丘](https://www.blog.kurohicncr.top/Article/details/813332892843.shtml)
-- 2026-06-29 18:37 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/87191.shtml)
-- 2026-06-29 18:28 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/558985612.shtml)
+- 2026-06-29 18:57 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/10562.shtml)
+- 2026-06-29 18:49 - [韩国小学生都来吐槽了](http://www.share.kurohicncr.top/Article/details/417957.shtml)
+- 2026-06-29 18:52 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/88633407233.shtml)
+- 2026-06-29 18:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/610331410.shtml)
+- 2026-06-29 18:40 - [沙特外交大臣将访华](http://www.share.minike.top/Article/details/4960016482.shtml)
+- 2026-06-29 18:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/078066224.shtml)
+- 2026-06-29 18:55 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/075773.shtml)
+- 2026-06-29 18:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/35239631644.shtml)
+- 2026-06-29 18:56 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/0445420.shtml)
+- 2026-06-29 18:41 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/22831373.shtml)
+- 2026-06-29 18:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/20684416563.shtml)
+- 2026-06-29 18:47 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/46011693.shtml)
+- 2026-06-29 18:53 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/889103.shtml)
+- 2026-06-29 18:45 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.kurohicncr.top/Article/details/7968665849.shtml)
+- 2026-06-29 18:37 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/59728001598.shtml)

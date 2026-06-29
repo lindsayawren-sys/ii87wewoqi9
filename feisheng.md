@@ -1,56 +1,61 @@
-# 京东“换牌”：拿下青岛资管控股权，退出北京资管股东行列
+# 文莱广西总商会会长郑作亮挖掘西部机遇 以侨为桥通东盟
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-近期，一则股东变更的工商登记信息，将京东集团在金融领域的最新布局推至台前。 4月28日，全国首家市级资产管理公司（AMC）——中信青岛资产管理有限公司（以下简称“中信青岛资管”）顺利完成公司章程备案及控股股东变更手续。京东科技通过其全资子公司网银在线（北京）商务服务有限公司，正式实现对该公司的控股，认缴出资额达20亿元，持股比例高达66.67%。 历时近一年的股权收购传闻，终于
+中新网重庆6月3日电 (记者 钟旖)“这一趟，我是带着‘任务’来的。”3日，正在四川成都参加2026“一带一路”华侨华人合作发展大会的文莱广西总商会会长郑作亮整理行装，启程奔赴重庆。根据计划，他将在重庆重点考察中医药、特色食品等产业，挖掘西部商机，力促多方贸易合作。 作为一名深耕中国与东盟经贸合作的海外华人，郑作亮在接受中新网记者专访时说，推动跨境合作向更高层次、更宽领域、更深
 
 ## 正文
 
-近期，一则股东变更的工商登记信息，将京东集团在金融领域的最新布局推至台前。
+中新网重庆6月3日电 (记者 钟旖)“这一趟，我是带着‘任务’来的。
 
-4月28日，全国首家市级资产管理公司（AMC）——中信青岛资产管理有限公司（以下简称“中信青岛资管”）顺利完成公司章程备案及控股股东变更手续。
+”3日，正在四川成都参加2026“一带一路”华侨华人合作发展大会的文莱广西总商会会长郑作亮整理行装，启程奔赴重庆。
 
-京东科技通过其全资子公司网银在线（北京）商务服务有限公司，正式实现对该公司的控股，认缴出资额达20亿元，持股比例高达66.67%。
+根据计划，他将在重庆重点考察中医药、特色食品等产业，挖掘西部商机，力促多方贸易合作。
 
-历时近一年的股权收购传闻，终于尘埃落定，这也是继2024年京东集团成功收购捷信消费金融公司、拿下消费金融牌照之后的又一大动作。
+作为一名深耕中国与东盟经贸合作的海外华人，郑作亮在接受中新网记者专访时说，推动跨境合作向更高层次、更宽领域、更深程度迈进，既是服务国家战略的必然要求，也是侨界人士应尽的责任担当。
 
-21世纪经济报道记者注意到，在选择控股地方AMC之时，京东悄然退出了北京资产管理公司的股东行列，不再持有该公司股权。
+从2021年助力广西武鸣沃柑首次出口至东盟市场，到将广西制药带向文莱，郑作亮在联通中国西部地区与东盟国家、推动优质产品合规出海、深化跨境经贸与人文交流牵线搭桥的道路上，愈发游刃有余。
 
-公开资料显示，此前京东科技曾持有北京资产管理公司15%的股权，位列第三大股东。
+“中国企业不缺好货，缺的往往是一把打开国际市场的‘钥匙’。
 
-历时一年，京东拿下地方AMC控股权 这宗备受市场关注的股权交易，始于2025年6月。
+”郑作亮认为，这把“钥匙”就是合规的认证体系，帮助企业迈过“认证”这道坎，正是侨商在共建“一带一路”中最具含金量的服务。
 
-2025年6月25日，中信集团通过上海联合产权交易所挂牌转让中信青岛资管66.67%的股权，转让底价为30.14亿元。
+郑作亮直言，在跨境贸易中，企业“走出去”既要有国际化的运营思维，也离不开国际商标注册、产品合规检测等配套前置工作，夯实产品出海合规基础。
 
 ## 相关推荐
 
-- 2026-06-29 18:41 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 18:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 18:40 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 18:44 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 18:25 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 18:32 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 18:48 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 18:41 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 18:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 18:40 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 18:47 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 18:37 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 18:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 18:31 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 18:47 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 18:46 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 18:41 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 18:48 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 18:58 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 18:51 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 18:54 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 18:46 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 18:58 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 18:51 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 18:42 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:30 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/6595941.shtml)
-- 2026-06-29 18:37 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/96936745.shtml)
-- 2026-06-29 18:31 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/088329099785.shtml)
-- 2026-06-29 18:39 - [扬名立万](http://www.share.minike.top/Article/details/641994498.shtml)
-- 2026-06-29 18:32 - [黄金也扛不住了](https://www.share.minike.top/Article/details/6001876149.shtml)
-- 2026-06-29 18:32 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/070541390132.shtml)
-- 2026-06-29 18:53 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/204709181412.shtml)
-- 2026-06-29 18:47 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.kurohicncr.top/Article/details/052786370735.shtml)
-- 2026-06-29 18:24 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/7934433.shtml)
-- 2026-06-29 18:24 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/4339355.shtml)
-- 2026-06-29 18:26 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/16214108674.shtml)
-- 2026-06-29 18:41 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/276686.shtml)
-- 2026-06-29 18:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/744182513999.shtml)
-- 2026-06-29 18:24 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/6390527.shtml)
-- 2026-06-29 18:32 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/76607286.shtml)
+- 2026-06-29 18:39 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/40913137973.shtml)
+- 2026-06-29 18:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/1025541751.shtml)
+- 2026-06-29 18:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/5194144.shtml)
+- 2026-06-29 18:44 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/005336.shtml)
+- 2026-06-29 18:57 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/590807715.shtml)
+- 2026-06-29 18:34 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/26595590.shtml)
+- 2026-06-29 18:41 - [时光音乐会](https://www.blog.minike.top/Article/details/75787828.shtml)
+- 2026-06-29 18:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/373173.shtml)
+- 2026-06-29 18:41 - [乔家的儿女](http://www.blog.minike.top/Article/details/2415783051.shtml)
+- 2026-06-29 18:51 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/093311831.shtml)
+- 2026-06-29 18:52 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/870050.shtml)
+- 2026-06-29 18:50 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.minike.top/Article/details/406724414069.shtml)
+- 2026-06-29 18:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/5330530.shtml)
+- 2026-06-29 18:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/89091.shtml)
+- 2026-06-29 18:47 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/236073638521.shtml)

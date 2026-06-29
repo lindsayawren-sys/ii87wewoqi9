@@ -1,53 +1,56 @@
-# 中创新航盘中涨超4% 一季度归母净利润同比增长62.1%
+# 中韩企业可持续发展交流会在首尔举行
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中创新航（03931）盘中涨超4%，截至发稿，股价微涨0.69%，现报34.84港元，成交额3014.32万港元。 近日，中创新航发布公告，2026年第一季度，营业总收入118.04亿元，同比增长71.2%；归属于母公司所有者的净利润3.73亿元，同比增长62.1%。 中金指出，中创新航出海加速推进，动力电池方面，公司持续突破现代、丰田等客户，订单伴随新车型量产、预计26-27
+专题：中韩企业可持续发展交流会 5月26日至28日，由新浪财经与洋河股份联合主办、中国国际商会协办的“可持续全球领导者大会海外专场”在韩国首尔举行。26日，中韩企业可持续发展交流会在首尔SK崔钟贤学术院成功举办。本次会议以绿色转型、技术赋能、共生共长为核心，汇聚中韩政商学界精英，围绕ESG实践、AI与绿色科技、文化IP可持续、产业协同创新等议题展开深度对话，共商中韩企业可持续发
 
 ## 正文
 
-中创新航（03931）盘中涨超4%，截至发稿，股价微涨0.69%，现报34.84港元，成交额3014.32万港元。
+专题：中韩企业可持续发展交流会 5月26日至28日，由新浪财经与洋河股份联合主办、中国国际商会协办的“可持续全球领导者大会海外专场”在韩国首尔举行。
 
-近日，中创新航发布公告，2026年第一季度，营业总收入118.04亿元，同比增长71.2%；归属于母公司所有者的净利润3.73亿元，同比增长62.1%。
+26日，中韩企业可持续发展交流会在首尔SK崔钟贤学术院成功举办。
 
-中金指出，中创新航出海加速推进，动力电池方面，公司持续突破现代、丰田等客户，订单伴随新车型量产、预计26-27年逐步释放；储能电池方面，公司25年在东欧、北欧、东亚，陆续突破储能订单，预计26年直接出口有望实现0-1突破；海外客户较好的影响有望带动公司盈利结构持续改善。
+本次会议以绿色转型、技术赋能、共生共长为核心，汇聚中韩政商学界精英，围绕ESG实践、AI与绿色科技、文化IP可持续、产业协同创新等议题展开深度对话，共商中韩企业可持续发展合作新未来。
 
-责任编辑：卢昱君
+SK集团崔钟贤学术院院长金裕锡、联合国前副秘书长金垣洙、新浪财经CEO邓庆旭、中国贸促会驻韩国代表处副总代表徐自强、社会价值研究院院长罗硕权、SKT ESG推进室室长严钟焕、知名编剧作家王小枪、台光EV CEO李成俊、全球报告倡议组织GRI前董事吕建中、洋河股份代表等嘉宾参会交流。
+
+会议由京华世家家族办公室董事长、北京大学战略研究所特约研究员聂俊峰主持。
+
+金裕锡表示，面对全球气候、供应链与地缘政治等多重挑战，可持续发展已成为人类共同面对的命题，中韩企业唯有凝聚智慧、共享经验，才能找到切实解决方案。
+
+崔钟贤学术院将持续搭建中韩学术与产业交流平台，推动绿色转型与ESG理念落地。
+
+邓庆旭指出，中韩企业在可持续发展领域互补性极强。
 
 ## 相关推荐
 
-- 2026-06-29 18:45 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 18:47 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 18:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 18:43 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 18:49 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 18:37 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 18:47 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 18:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 18:42 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 18:44 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 18:28 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 18:48 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 18:50 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 18:25 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 18:25 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 18:44 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 18:39 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 18:54 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 18:33 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 18:57 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 18:55 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 18:56 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 18:57 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 18:53 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 18:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/35068917.shtml)
-- 2026-06-29 18:25 - [时光音乐会](https://www.share.minike.top/Article/details/0035443.shtml)
-- 2026-06-29 18:44 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/2749061.shtml)
-- 2026-06-29 18:47 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/509131.shtml)
-- 2026-06-29 18:41 - [谢依霖夸杨幂靠谱](http://www.share.minike.top/Article/details/9329312635.shtml)
-- 2026-06-29 18:28 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/577389453.shtml)
-- 2026-06-29 18:24 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/386184658003.shtml)
-- 2026-06-29 18:51 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/8011663816.shtml)
-- 2026-06-29 18:49 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/7591409786.shtml)
-- 2026-06-29 18:40 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/7451241.shtml)
-- 2026-06-29 18:29 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/662378773876.shtml)
-- 2026-06-29 18:52 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/495311608894.shtml)
-- 2026-06-29 18:37 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/612163.shtml)
-- 2026-06-29 18:32 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/662725.shtml)
-- 2026-06-29 18:44 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/82146.shtml)
+- 2026-06-29 18:51 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/98890927.shtml)
+- 2026-06-29 18:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/96008231.shtml)
+- 2026-06-29 18:43 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/5611330.shtml)
+- 2026-06-29 18:35 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.minike.top/Article/details/136089.shtml)
+- 2026-06-29 18:59 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/94211870852.shtml)
+- 2026-06-29 18:55 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/82957316.shtml)
+- 2026-06-29 18:54 - [毒液2](https://www.share.minike.top/Article/details/22141602748.shtml)
+- 2026-06-29 18:30 - [V8](https://www.blog.minike.top/Article/details/9511666532.shtml)
+- 2026-06-29 18:56 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/49579362.shtml)
+- 2026-06-29 18:31 - [徐昕暂不参加NBA夏季联赛](https://www.blog.kurohicncr.top/Article/details/170824.shtml)
+- 2026-06-29 18:44 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/6580370.shtml)
+- 2026-06-29 18:39 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/7377176.shtml)
+- 2026-06-29 18:32 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/522624.shtml)
+- 2026-06-29 18:42 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/683630.shtml)
+- 2026-06-29 18:38 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/90515568086.shtml)

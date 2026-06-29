@@ -1,56 +1,59 @@
-# Insight续押日元还会再跌 干预只能短暂止血
+# TOPSTANDARDCORP拟折让20.0%配售共6250万股认购股份 净筹约990万港元
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-Insight Investment Management Ltd．预计，在近期干预措施的影响消退后日元将重新走弱，因此该公司维持日元空头部位。 管理约800亿美元资产的货币解决方案主管Francesca Fornasari在墨尔本接受采访时表示，若没有基本货币或财政政策的配合，外汇干预成功的几率相当低。她表示，日本央行在升息方面慢半拍，日本政府仍在维持其支出计划，这两点都对日
+TOPSTANDARDCORP（08510）发布公告，于2026年6月1日（联交所交易时段后），本公司（作为发行人）与各认购人订立两份独立认购协议，据此，认购人有条件同意认购而本公司有条件同意配发及发行合共6250万股认购股份，认购价为每股认购股份0.16港元。 假设于本公告日期至完成日期止期间，本公司已发行股本并无任何变动，则认购股份相当于（i）本公司于本公告日期现有已发行股
 
 ## 正文
 
-Insight Investment Management Ltd．预计，在近期干预措施的影响消退后日元将重新走弱，因此该公司维持日元空头部位。
+TOPSTANDARDCORP（08510）发布公告，于2026年6月1日（联交所交易时段后），本公司（作为发行人）与各认购人订立两份独立认购协议，据此，认购人有条件同意认购而本公司有条件同意配发及发行合共6250万股认购股份，认购价为每股认购股份0.16港元。
 
-管理约800亿美元资产的货币解决方案主管Francesca Fornasari在墨尔本接受采访时表示，若没有基本货币或财政政策的配合，外汇干预成功的几率相当低。
+假设于本公告日期至完成日期止期间，本公司已发行股本并无任何变动，则认购股份相当于（i）本公司于本公告日期现有已发行股本约26.2%；及（ii）本公司经配发及发行总认购股份扩大后的已发行股本约20.7%。
 
-她表示，日本央行在升息方面慢半拍，日本政府仍在维持其支出计划，这两点都对日元不利。
+每股认购股份0.16港元的认购价较股份于2026年6月1日在联交所所报的收市价每股0.2港元折让20.0%。
 
-Fornasari说，政府显然希望在日元兑美元汇率160的水准划出一道防线，但问题在于目前采取的政策不完全支持这一目标。
+假设所有认购股份获悉数认购，认购事项的所得款项总额为1000万港元。
 
-Insight Investment的看法呼应了越来越多市场参与者的观点，即在一连串疑似干预措施曾将日元兑美元汇率推升至最高155.04后，日元可能再次走弱。
+认购事项的所得款项净额（经扣除所有相关开支后）估计约为990万港元，相当于每股认购股份净价约 0.158港元。
 
-虽然官方尚未证实曾经进场干预，但知情人士表示，政府于4月30日进场，当时日元兑美元汇率跌破160——外界普遍认为这是红线。
+本公司拟透过配售事项筹集所得款项总额约1000万港元。
 
-此后，交易员也认为，汇率在5月1日、4日和6日突然波动，具有央行买入日元的特征。
+所得款项净额（经扣除相关费用及佣金后）拟用作以下用途： 采购及安装设备600万港元；采购蘑菇孢子100万港元；租金开支 100万港元；营运资金200万港元。
 
-目前日元兑美元汇率约为156.89。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 18:37 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 18:38 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 18:33 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 18:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 18:26 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 18:35 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 18:49 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 18:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 18:38 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 18:36 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 18:44 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 18:48 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 18:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 18:58 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 18:42 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 18:56 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 18:57 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 18:40 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 18:59 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 18:50 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 18:37 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 18:59 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:46 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/607770.shtml)
-- 2026-06-29 18:48 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/0254153473.shtml)
-- 2026-06-29 18:50 - [NBA交易](https://www.share.kurohicncr.top/Article/details/916056024.shtml)
-- 2026-06-29 18:41 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/56959678.shtml)
-- 2026-06-29 18:39 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/3475643.shtml)
-- 2026-06-29 18:50 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/94703187.shtml)
-- 2026-06-29 18:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/07026257.shtml)
-- 2026-06-29 18:48 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/0075024.shtml)
-- 2026-06-29 18:37 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/8466716012.shtml)
-- 2026-06-29 18:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/5139865.shtml)
-- 2026-06-29 18:44 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/14004612278.shtml)
-- 2026-06-29 18:42 - [和周杰伦在演唱会合唱了](https://www.blog.minike.top/Article/details/87401601.shtml)
-- 2026-06-29 18:27 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/16750033384.shtml)
-- 2026-06-29 18:28 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/359891693.shtml)
-- 2026-06-29 18:29 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/8708147.shtml)
+- 2026-06-29 18:58 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/72239175.shtml)
+- 2026-06-29 18:33 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/8862724007.shtml)
+- 2026-06-29 18:58 - [一生一世](http://www.blog.minike.top/Article/details/5816805.shtml)
+- 2026-06-29 18:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/4967557.shtml)
+- 2026-06-29 18:35 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/239206.shtml)
+- 2026-06-29 18:31 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/54898057397.shtml)
+- 2026-06-29 18:45 - [大学专业未来如何洗牌](http://www.blog.kurohicncr.top/Article/details/00276232432.shtml)
+- 2026-06-29 18:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/97414620490.shtml)
+- 2026-06-29 18:54 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/84363.shtml)
+- 2026-06-29 18:39 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/04698611.shtml)
+- 2026-06-29 18:52 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/16928.shtml)
+- 2026-06-29 18:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/00952710618.shtml)
+- 2026-06-29 18:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/75269193465.shtml)
+- 2026-06-29 18:56 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/93247214620.shtml)
+- 2026-06-29 18:38 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/3797759520.shtml)

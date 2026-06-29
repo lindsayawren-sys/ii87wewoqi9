@@ -1,59 +1,61 @@
-# 美官员称美国务院正在审查所有墨西哥驻美领事馆
+# 对随身登机行李收费，有依据吗
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-据美国方面7日消息，一名美国官员说，美国国务院正在对全部53个墨西哥驻美领事馆进行审查。在美墨关系紧张的背景下，此举可能导致一些外交机构关闭。 据悉，美国国务院负责全球公共事务的助理国务卿迪伦·约翰逊表示，“国务院正在不断审查美国外交关系的各个方面，以确保它们符合总统的‘美国优先’外交政策议程”。 此次审查正值美墨两国因安全合作和打击贩毒集团问题而关系日益紧张之际。美国司法部4
+近日有旅客反映带20寸行李箱登机，被部分航空公司要求支付费用，且不同航空公司执行标准不一。航空公司对随身登机行李收取费用是否有依据？旅客该如何知晓哪些航空服务包含在票价内，哪些要额外收费？就此，记者采访了有关航空公司和业内专家。根据中国民航局、国家发展改革委2017年印发的《民用航空国内运输市场价格行为规则》，以及交通运输部2021年公布的《公共航空运输旅客服务管理规定》等，随
 
 ## 正文
 
-据美国方面7日消息，一名美国官员说，美国国务院正在对全部53个墨西哥驻美领事馆进行审查。
+近日有旅客反映带20寸行李箱登机，被部分航空公司要求支付费用，且不同航空公司执行标准不一。
 
-在美墨关系紧张的背景下，此举可能导致一些外交机构关闭。
+航空公司对随身登机行李收取费用是否有依据？
 
-据悉，美国国务院负责全球公共事务的助理国务卿迪伦·约翰逊表示，“国务院正在不断审查美国外交关系的各个方面，以确保它们符合总统的‘美国优先’外交政策议程”。
+旅客该如何知晓哪些航空服务包含在票价内，哪些要额外收费？
 
-此次审查正值美墨两国因安全合作和打击贩毒集团问题而关系日益紧张之际。
+就此，记者采访了有关航空公司和业内专家。
 
-美国司法部4月29日对包括时任锡那罗亚州州长鲁本·罗查·莫亚在内的10名墨西哥现任和前任官员提起公诉，指控其与锡那罗亚贩毒集团勾结，协助毒品流入美国，并涉及武器犯罪和绑架等。
+根据中国民航局、国家发展改革委2017年印发的《民用航空国内运输市场价格行为规则》，以及交通运输部2021年公布的《公共航空运输旅客服务管理规定》等，随身行李规格、免费行李额及超限行李收费标准由航司依法自主制定并对外公布。
 
-此前，美国方面称，两名美国中央情报局特工4月在墨西哥北部的一次缉毒行动中遭遇车祸丧生。
+祥鹏航空有关负责人解释，航空公司可按不同票价，为购票旅客提供差异化服务。
 
-墨西哥政府表示，这两人并未获得在墨行动的授权。
+此次反映行李箱收费的旅客，购买的是该航空公司的普通经济舱机票，随身行李限1件、7公斤，尺寸不超过20×30×40厘米。
 
-墨西哥总统辛鲍姆公开要求美国政府对这起事件做出解释。
+如旅客选购公务舱机票，可携带2件行李、单件7公斤，尺寸放宽至20×40×55厘米；购买悦享经济舱或舒享经济舱机票，可携带1件7公斤行李，尺寸同样为20×40×55厘米。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 18:24 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 18:44 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 18:52 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 18:32 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 18:43 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 18:45 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 18:42 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 18:37 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 18:34 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 18:43 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 18:41 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 18:44 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 18:50 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 18:58 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 18:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 18:51 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 18:45 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 18:59 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 18:33 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 18:43 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 18:35 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 18:50 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 18:45 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 18:43 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 18:39 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 18:37 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 18:50 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:32 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/9432659.shtml)
-- 2026-06-29 18:31 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/57513.shtml)
-- 2026-06-29 18:39 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/97919.shtml)
-- 2026-06-29 18:37 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/100574444.shtml)
-- 2026-06-29 18:52 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/779712.shtml)
-- 2026-06-29 18:27 - [中方向委方追加1亿元援助](https://www.share.minike.top/Article/details/3478454433.shtml)
-- 2026-06-29 18:50 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/65795.shtml)
-- 2026-06-29 18:39 - [天道](http://www.blog.minike.top/Article/details/08403812391.shtml)
-- 2026-06-29 18:32 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/458947283.shtml)
-- 2026-06-29 18:31 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/8792569.shtml)
-- 2026-06-29 18:35 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/621657.shtml)
-- 2026-06-29 18:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/1074121801.shtml)
-- 2026-06-29 18:46 - [叠纸](http://www.share.minike.top/Article/details/2506578680.shtml)
-- 2026-06-29 18:24 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/8027718824.shtml)
-- 2026-06-29 18:28 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/67255850797.shtml)
+- 2026-06-29 18:32 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/00858.shtml)
+- 2026-06-29 18:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/670806591.shtml)
+- 2026-06-29 18:34 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/6209057668.shtml)
+- 2026-06-29 18:44 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/92149596.shtml)
+- 2026-06-29 18:51 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/1901807.shtml)
+- 2026-06-29 18:48 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/695768968148.shtml)
+- 2026-06-29 18:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/2334002762.shtml)
+- 2026-06-29 18:59 - [波兰创该国高温纪录](https://www.share.minike.top/Article/details/017888869.shtml)
+- 2026-06-29 18:32 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/320110653.shtml)
+- 2026-06-29 18:39 - [歼-15型舰载机为何被歼-15T替代](http://www.share.minike.top/Article/details/50555826.shtml)
+- 2026-06-29 18:39 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/54547317465.shtml)
+- 2026-06-29 18:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/677185604307.shtml)
+- 2026-06-29 18:55 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/96772.shtml)
+- 2026-06-29 18:48 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/16859.shtml)
+- 2026-06-29 18:30 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/23533942170.shtml)

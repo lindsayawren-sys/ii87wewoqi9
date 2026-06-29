@@ -1,59 +1,58 @@
-# 算力芯片掉头向下，寒武纪跌超5%，赛道过热了吗？中信证券：景气不止、行情不止
+# 美国佛罗里达州总检察长因AI危害起诉OpenAI
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-5月8日，国产芯片掉头下跌，寒武纪、海光信息跌超5%，华虹公司、中芯国际跌超4%，全“芯”布局芯片产业的科创芯片ETF华宝（589190）低开低走，场内价格一度跌逾3%，收跌2.73%。 节后三个交易日，科创芯片整体延续节前上攻态势，589190跟踪的上证科创板芯片指数区间累计上涨4.99%。拉长时间看，科创芯片指数4月以来涨幅超41%，较万得全A指数超额逾29个百分点。 注：
+针对人工智能（AI）聊天机器人被控存在安全缺失一事，各界反弹声浪日益高涨，而美国佛罗里达州对此发起了新一轮攻势，成为首个对OpenAI及其首席执行官山姆·奥特曼提起诉讼的州。 佛罗里达州总检察长詹姆斯·乌特迈尔（James Uthmeier）于周一提起诉讼，指控OpenAI和阿尔特曼明知产品不安全却执意发布，对该产品可能伤害用户的警告置若罔闻。 这份长达83页的诉状指控，Ope
 
 ## 正文
 
-5月8日，国产芯片掉头下跌，寒武纪、海光信息跌超5%，华虹公司、中芯国际跌超4%，全“芯”布局芯片产业的科创芯片ETF华宝（589190）低开低走，场内价格一度跌逾3%，收跌2.73%。
+针对人工智能（AI）聊天机器人被控存在安全缺失一事，各界反弹声浪日益高涨，而美国佛罗里达州对此发起了新一轮攻势，成为首个对OpenAI及其首席执行官山姆·奥特曼提起诉讼的州。
 
-节后三个交易日，科创芯片整体延续节前上攻态势，589190跟踪的上证科创板芯片指数区间累计上涨4.99%。
+佛罗里达州总检察长詹姆斯·乌特迈尔（James Uthmeier）于周一提起诉讼，指控OpenAI和阿尔特曼明知产品不安全却执意发布，对该产品可能伤害用户的警告置若罔闻。
 
-拉长时间看，科创芯片指数4月以来涨幅超41%，较万得全A指数超额逾29个百分点。
+这份长达83页的诉状指控，OpenAI放任ChatGPT协助和教唆大规模枪击案凶手、鼓励他人自杀、削弱用户的批判性思维能力，并让未成年人沉迷于这款伪装具备人类同情心的工具。
 
-注：上证科创板芯片指数近5个完整年度涨跌幅为2021年 6.87%，2022年 -33.69%，2023年 7.26%，2024年 34.52%，2025年 61.33%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
+该诉状称，“被告明知ChatGPT存在危险，却为了赢得AI军备竞赛、敛聚巨额财富而贪得无厌，正是这种无尽的渴求导致了这一系列危害。
 
-今日行情变脸，一方面或由于隔夜美股芯片股回撤，费城半导体指数跌超2.7%；另一方面，中东局势再起波折，压制市场风险偏好。
+” OpenAI未立即就该诉讼置评。
 
-回归板块基本面，在AI浪潮+全链涨价+国产替代等主线催化下，产业超级景气周期不改。
+OpenAI此前曾否认存在不当行为，并表示该公司正不断加强安全防护措施。
 
-机构亦展望乐观，中信证券指出，国产算力已进入正循环，DeepSeek V4深度适配，国产算力芯片逐步迎来从“能用”到“好用”的拐点，950PR出货在即，寒武纪、海光信息等一季报高增验证景气度，国产两存与先进制程扩产推动半导体设备国产化率持续提升。
+美国立法者、司法机构和公共利益团体日益担忧AI带来的个人和社会风险。
 
-* 展望5-6月，中信证券认为，模型进入周级迭代新阶段，预计年中将迎各主要模型公司大版本更新，商业化加速进入正循环。
+AI是史上发展最快的消费技术之一。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 18:30 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 18:53 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 18:34 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 18:37 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 18:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 18:41 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 18:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 18:49 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 18:28 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 18:35 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 18:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 18:40 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 18:53 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 18:59 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 18:38 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 18:50 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 18:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 18:53 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 18:48 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 18:57 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 18:33 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 18:47 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 18:42 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 18:38 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:31 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/70068210.shtml)
-- 2026-06-29 18:25 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/89469528637.shtml)
-- 2026-06-29 18:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/735355389069.shtml)
-- 2026-06-29 18:28 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/4023743110.shtml)
-- 2026-06-29 18:49 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/56760.shtml)
-- 2026-06-29 18:50 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/22071517103.shtml)
-- 2026-06-29 18:27 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/36679524.shtml)
-- 2026-06-29 18:28 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/97966355700.shtml)
-- 2026-06-29 18:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/773257.shtml)
-- 2026-06-29 18:46 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/83210218957.shtml)
-- 2026-06-29 18:53 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/77056.shtml)
-- 2026-06-29 18:31 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/6352618196.shtml)
-- 2026-06-29 18:40 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/8376617461.shtml)
-- 2026-06-29 18:46 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/952291137992.shtml)
-- 2026-06-29 18:51 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/69266671895.shtml)
+- 2026-06-29 19:00 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/362766896049.shtml)
+- 2026-06-29 18:55 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/1158752616.shtml)
+- 2026-06-29 18:50 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/3592881.shtml)
+- 2026-06-29 18:35 - [外交部谈对日出口管制措施](https://www.share.kurohicncr.top/Article/details/78104312624.shtml)
+- 2026-06-29 18:45 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/02349456306.shtml)
+- 2026-06-29 18:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/3593437.shtml)
+- 2026-06-29 18:57 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/0747966.shtml)
+- 2026-06-29 18:51 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/07090555.shtml)
+- 2026-06-29 18:45 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/59206.shtml)
+- 2026-06-29 18:43 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/12124.shtml)
+- 2026-06-29 18:50 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/731951586676.shtml)
+- 2026-06-29 18:35 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/24963608035.shtml)
+- 2026-06-29 18:44 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/975644006720.shtml)
+- 2026-06-29 18:47 - [女心理师](http://www.share.minike.top/Article/details/83702866267.shtml)
+- 2026-06-29 18:30 - [A股收评：科创50指数大涨4.61%](http://www.share.kurohicncr.top/Article/details/317758.shtml)

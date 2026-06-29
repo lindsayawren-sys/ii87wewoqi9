@@ -1,58 +1,52 @@
-# Anthropic推出Mythos引发网络安全“集体恐慌”
+# 美国能源部为两个稀土提取项目提供1.34亿美元资金
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-专家警示：相关威胁早已现实存在 核心要点 上月，全球各大银行、科技巨头及各国政府紧急行动，试图控制 Anthropic 新模型Mythos带来的风险。该模型能力极强，已挖掘出全球软件基础设施中数千个此前未知的安全漏洞。 但关键问题在于：各界如今恐慌的这种威胁，其实早已存在。 网络安全专家和 AI 研究人员向 CNBC 表示，Mythos 所能发现的软件漏洞，依靠市面上已有模型就
+美国能源部周二宣布，已选定路易斯安那州和俄克拉荷马州的两个项目，将提供1.34亿美元的资金，用于从废弃物中提取稀土元素。 这笔资金包括约6700万美元，用于科罗拉多矿业大学和ElementUSA公司牵头在路易斯安那州建设一座从铝土矿废料中提取和提炼稀土的工厂。 该工厂预计将进行商业规模的工艺测试，并每年从尾矿中生产150至1000吨稀土。 美国能源部还选定了凤凰尾矿公司（Pho
 
 ## 正文
 
-专家警示：相关威胁早已现实存在 核心要点 上月，全球各大银行、科技巨头及各国政府紧急行动，试图控制 Anthropic 新模型Mythos带来的风险。
+美国能源部周二宣布，已选定路易斯安那州和俄克拉荷马州的两个项目，将提供1.34亿美元的资金，用于从废弃物中提取稀土元素。
 
-该模型能力极强，已挖掘出全球软件基础设施中数千个此前未知的安全漏洞。
+这笔资金包括约6700万美元，用于科罗拉多矿业大学和ElementUSA公司牵头在路易斯安那州建设一座从铝土矿废料中提取和提炼稀土的工厂。
 
-但关键问题在于：各界如今恐慌的这种威胁，其实早已存在。
+该工厂预计将进行商业规模的工艺测试，并每年从尾矿中生产150至1000吨稀土。
 
-网络安全专家和 AI 研究人员向 CNBC 表示，Mythos 所能发现的软件漏洞，依靠市面上已有模型就能做到，包括 Anthropic 和 OpenAI 的旧版模型。
+美国能源部还选定了凤凰尾矿公司（Phoenix Tailings）的一个项目，与麻省理工学院合作，在俄克拉荷马州建造一座示范工厂，将工业废料转化为高纯度稀土金属，并建立一条新的国内供应路线。
 
-网络安全公司 watchTowr Labs 首席执行官本・哈里斯称：“整个行业眼下已经可以通过合理调度现有公开模型，复现出 Mythos 找出的同类漏洞，最终结果高度相似。
+今年5月，美国能源部选定稀土磁体制造商美国稀土公司作为试点项目，为其提供高达1930万美元的资金，用于一项旨在促进国内供应链的稀土加工试点项目。
 
-” Mythos 引发企业高管与政策制定者普遍焦虑，业界担忧由 AI 赋能的网络犯罪危险新时代即将来临。
-
-为降低不法分子获取该模型的风险，Anthropic 仅向少数美国企业有限开放，包括苹果、亚马逊、摩根大通、帕洛阿尔托网络等。
-
-即便采取了这一防护措施，特朗普政府仍因此考虑对未来 AI 模型实施全新的政府监管。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 18:40 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 18:34 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 18:44 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 18:30 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 18:33 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 18:24 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 18:50 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 18:31 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 18:53 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 18:46 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 18:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 18:37 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 18:37 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 18:54 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 18:40 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 18:42 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 18:31 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 18:43 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 18:56 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 18:44 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 18:47 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:28 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/2488007836.shtml)
-- 2026-06-29 18:46 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/0935969.shtml)
-- 2026-06-29 18:27 - [T1零封KC MSI](http://www.share.minike.top/Article/details/065689058.shtml)
-- 2026-06-29 18:28 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/429058398.shtml)
-- 2026-06-29 18:26 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/740829625.shtml)
-- 2026-06-29 18:45 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/91939.shtml)
-- 2026-06-29 18:43 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/77487208618.shtml)
-- 2026-06-29 18:38 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/96885.shtml)
-- 2026-06-29 18:27 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.minike.top/Article/details/124755779.shtml)
-- 2026-06-29 18:28 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/38492106.shtml)
-- 2026-06-29 18:35 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/897000575.shtml)
-- 2026-06-29 18:44 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/464319291998.shtml)
-- 2026-06-29 18:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/8324395.shtml)
-- 2026-06-29 18:45 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/157117.shtml)
-- 2026-06-29 18:46 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/805527924.shtml)
+- 2026-06-29 18:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/48171092.shtml)
+- 2026-06-29 18:34 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/02309589364.shtml)
+- 2026-06-29 18:30 - [V8](https://www.share.kurohicncr.top/Article/details/075177.shtml)
+- 2026-06-29 18:44 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/6391769.shtml)
+- 2026-06-29 18:49 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/1872861.shtml)
+- 2026-06-29 18:41 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/0461220.shtml)
+- 2026-06-29 18:48 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/45195935001.shtml)
+- 2026-06-29 18:51 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/459224195.shtml)
+- 2026-06-29 18:39 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/3804574.shtml)
+- 2026-06-29 18:46 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/9563039.shtml)
+- 2026-06-29 18:58 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/1948939.shtml)
+- 2026-06-29 18:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/0061479.shtml)
+- 2026-06-29 18:46 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/09725372297.shtml)
+- 2026-06-29 18:38 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/43283578156.shtml)
+- 2026-06-29 18:57 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/87248621.shtml)

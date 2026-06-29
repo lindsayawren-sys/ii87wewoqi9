@@ -1,51 +1,61 @@
-# 伊朗陆军总司令哈塔米：美方“会后悔的”
+# 英伟达联手加持、大厂扎堆投资！宇树科技“闪电”提交IPO注册
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据伊朗媒体8日报道，针对美方在波斯湾的冒险行径，伊朗陆军总司令哈塔米回应说，“他们会后悔的”。 据此前报道，当地时间5月7日，伊朗多地启动防空系统并击落“敌对飞行器”，伊朗武装部队称美军袭击油轮并空袭沿海地区，伊朗对美方军事舰艇实施反击，并称造成“重大损失”。 美国中央司令部则表示，美国海军导弹驱逐舰编队在穿越霍尔木兹海峡驶向阿曼湾之际，拦截了伊朗发起的“无端
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月2日晚间，上交所官网显示，宇树科技科创板IPO于6月1日过会，并于6月2日“闪电”提交注册。 回顾其上市进程，宇树科技的推进速度极为高效。宇树科技IPO申请于2026年3月20日获上交所正式受理，至6月1日上会并通过审议，全程仅用时73天。这一速度刷新了
 
 ## 正文
 
-中新网5月8日电 据伊朗媒体8日报道，针对美方在波斯湾的冒险行径，伊朗陆军总司令哈塔米回应说，“他们会后悔的”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据此前报道，当地时间5月7日，伊朗多地启动防空系统并击落“敌对飞行器”，伊朗武装部队称美军袭击油轮并空袭沿海地区，伊朗对美方军事舰艇实施反击，并称造成“重大损失”。
+6月2日晚间，上交所官网显示，宇树科技科创板IPO于6月1日过会，并于6月2日“闪电”提交注册。
 
-美国中央司令部则表示，美国海军导弹驱逐舰编队在穿越霍尔木兹海峡驶向阿曼湾之际，拦截了伊朗发起的“无端袭击”，并随即采取“自卫反击”行动。
+回顾其上市进程，宇树科技的推进速度极为高效。
+
+宇树科技IPO申请于2026年3月20日获上交所正式受理，至6月1日上会并通过审议，全程仅用时73天。
+
+这一速度刷新了2026年以来科创板IPO的审核纪录，也使其成为继长鑫科技之后，科创板IPO“预先审阅”机制落地以来的第二单标杆案例。
+
+在上市委审议会议上，宇树科技的首发申请被认定符合发行条件、上市条件和信息披露要求。
+
+招股书显示，宇树科技拟公开发行不低于4044.64万股，新股发行比例不低于10%，拟募资42.02亿元，投向智能机器人模型研发、机器人本体研发、新型智能机器人产品开发及智能机器人制造基地建设四大项目。
+
+2024年、2025年，宇树科技分别实现营业收入3.93亿元和16.99亿元，扣非净利润分别为7847.65万元和5.91亿元，增长态势显著。
 
 ## 相关推荐
 
-- 2026-06-29 18:38 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 18:51 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 18:42 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 18:42 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 18:38 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 18:33 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 18:40 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 18:28 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 18:32 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 18:39 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 18:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 18:25 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 18:36 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 18:43 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 18:24 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 18:38 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 18:46 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 18:40 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 18:52 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 18:31 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 18:44 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 18:51 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 18:39 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 18:33 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 18:44 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 18:36 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 18:45 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 18:53 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 18:55 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 18:47 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:29 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/0233048424.shtml)
-- 2026-06-29 18:30 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/1078260.shtml)
-- 2026-06-29 18:53 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/113937477194.shtml)
-- 2026-06-29 18:25 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/87271.shtml)
-- 2026-06-29 18:44 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/733286698.shtml)
-- 2026-06-29 18:25 - [永远有话聊的原因](http://www.blog.kurohicncr.top/Article/details/009874196.shtml)
-- 2026-06-29 18:52 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/1848783225.shtml)
-- 2026-06-29 18:50 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/799499.shtml)
-- 2026-06-29 18:30 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/688481435024.shtml)
-- 2026-06-29 18:32 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/47522.shtml)
-- 2026-06-29 18:24 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/29314553074.shtml)
-- 2026-06-29 18:32 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/68678.shtml)
-- 2026-06-29 18:38 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/169437.shtml)
-- 2026-06-29 18:52 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/69063.shtml)
-- 2026-06-29 18:48 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/57733441.shtml)
+- 2026-06-29 18:40 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/70944040787.shtml)
+- 2026-06-29 18:56 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/454095581990.shtml)
+- 2026-06-29 18:53 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/5914521.shtml)
+- 2026-06-29 18:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/923984288.shtml)
+- 2026-06-29 18:57 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/98032.shtml)
+- 2026-06-29 18:52 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/139076833.shtml)
+- 2026-06-29 18:30 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/03889851245.shtml)
+- 2026-06-29 18:47 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/054748459019.shtml)
+- 2026-06-29 18:37 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/378546970233.shtml)
+- 2026-06-29 18:40 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/076153610.shtml)
+- 2026-06-29 18:54 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/200945846833.shtml)
+- 2026-06-29 18:52 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/14120650339.shtml)
+- 2026-06-29 18:58 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/7898642.shtml)
+- 2026-06-29 18:31 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/85385.shtml)
+- 2026-06-29 18:44 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/57688348991.shtml)

@@ -1,57 +1,57 @@
-# 邓丽君生前旧物在河南郑州展出
+# 科技ETF资金大分化，这个赛道不到半年吸金近170亿
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-一年填上百张表？部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？它们又是如何做到的？友情提醒！最近真的不要穿这种颜色的衣服出门卖家因恶意退货多“拉黑”整个街道 律师：商家不能歧视性拒售人这一辈子，一定要去一趟万里茶道第一关！美科技巨头集体投身AI军备竞赛海底电缆成美以伊博弈关键变量全国已有13个省份全省实施中小
+年初至5月末，全市场800多只行业主题ETF年内合计净流入超1600亿元，从细分品类看，科技方向的ETF资金净流入遥遥领先。 科技的强势行情是年内资金流入的重要驱动力。以聚焦科技创新的宽基指数——创业板指和科创50为例，指数年内涨幅均超过25%，呈现出全面回暖态势。在细分的科技赛道中，截至5月末，中证半导体材料设备主题指数年内涨幅高达57.9%，上证科创板芯片指数年内上涨53.
 
 ## 正文
 
-一年填上百张表？
+年初至5月末，全市场800多只行业主题ETF年内合计净流入超1600亿元，从细分品类看，科技方向的ETF资金净流入遥遥领先。
 
-部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？
+科技的强势行情是年内资金流入的重要驱动力。
 
-它们又是如何做到的？
+以聚焦科技创新的宽基指数——创业板指和科创50为例，指数年内涨幅均超过25%，呈现出全面回暖态势。
 
-友情提醒！
+在细分的科技赛道中，截至5月末，中证半导体材料设备主题指数年内涨幅高达57.9%，上证科创板芯片指数年内上涨53.7%。
 
-最近真的不要穿这种颜色的衣服出门卖家因恶意退货多“拉黑”整个街道 律师：商家不能歧视性拒售人这一辈子，一定要去一趟万里茶道第一关！
+然而，在A股科技行情走强的背后，跟踪不同细分方向的指数ETF之间出现了显著的资金分化。
 
-美科技巨头集体投身AI军备竞赛海底电缆成美以伊博弈关键变量全国已有13个省份全省实施中小学春秋假夹娃娃成瘾？
+据统计，半导体材料设备指数以相关ETF年内169亿元的净流入，位居科技行业指数前列，通信设备指数以约112亿元的净流入紧随其后，中证软件指数净流入约62亿元，这三只指数相关ETF合计净流入超340亿元。
 
-香港拟修订《赌博条例》！
+与此同时，国证芯片指数相关ETF年内净流出104亿元，科创芯片指数净流出约88亿元，中证全指半导体指数净流出约87亿元。
 
-美国博主带老外组团“朝圣”中国电车，在车展集体破防：凭什么？
+资金在科技板块内部的选择高度分化——半导体产业链上游的材料设备环节持续吸金，而覆盖面更广的芯片指数则遭遇资金流出。
 
 ## 相关推荐
 
-- 2026-06-29 18:24 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 18:42 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 18:30 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 18:30 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 18:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 18:48 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 18:52 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 18:51 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 18:29 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 18:46 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 18:50 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 18:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 18:46 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 18:36 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 18:57 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 18:33 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 18:33 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 18:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 18:32 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 18:43 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 18:42 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 18:58 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:25 - [葛军透露高考出题思路](http://www.share.kurohicncr.top/Article/details/7109481.shtml)
-- 2026-06-29 18:42 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/03923.shtml)
-- 2026-06-29 18:36 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/289522182742.shtml)
-- 2026-06-29 18:31 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/280323.shtml)
-- 2026-06-29 18:50 - [主力抛售电子和通信板块](http://www.share.kurohicncr.top/Article/details/52529.shtml)
-- 2026-06-29 18:27 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/4913619.shtml)
-- 2026-06-29 18:52 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/46774151449.shtml)
-- 2026-06-29 18:24 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/647397.shtml)
-- 2026-06-29 18:28 - [小娘惹](http://www.share.kurohicncr.top/Article/details/80424785.shtml)
-- 2026-06-29 18:47 - [扬名立万](https://www.share.minike.top/Article/details/94231.shtml)
-- 2026-06-29 18:29 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/0856646530.shtml)
-- 2026-06-29 18:26 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/174808513808.shtml)
-- 2026-06-29 18:24 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/89581.shtml)
-- 2026-06-29 18:29 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/16411339710.shtml)
-- 2026-06-29 18:41 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/81935480.shtml)
+- 2026-06-29 18:57 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/57522247233.shtml)
+- 2026-06-29 18:50 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/7441094.shtml)
+- 2026-06-29 18:51 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/590738.shtml)
+- 2026-06-29 18:54 - [货车司机雨中帮交警挪树获表扬](https://www.share.minike.top/Article/details/5972443.shtml)
+- 2026-06-29 18:42 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/387962538611.shtml)
+- 2026-06-29 18:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/47404.shtml)
+- 2026-06-29 18:45 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/849788615.shtml)
+- 2026-06-29 18:38 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/0516751474.shtml)
+- 2026-06-29 18:57 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.minike.top/Article/details/764574265.shtml)
+- 2026-06-29 18:47 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/94963355262.shtml)
+- 2026-06-29 18:57 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/700255.shtml)
+- 2026-06-29 18:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/98685.shtml)
+- 2026-06-29 18:55 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/00100.shtml)
+- 2026-06-29 18:35 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/68677994604.shtml)
+- 2026-06-29 18:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/5677196.shtml)

@@ -1,58 +1,42 @@
-# 长期同时出现这4种胃部症状 莫当成“老胃病”硬扛
+# 以军要求黎巴嫩南部多地居民紧急撤离
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-进食哽噎、胃痛泛酸 许多人将其当作“老胃病”不予重视 直至症状持续加重 错失最佳治疗时机我国是消化道肿瘤大国 食管癌、胃癌 常年位居我国恶性肿瘤发病率、死亡率前列 很多患者确诊时已为晚期 核心原因就是对早期信号不重视 一拖再拖 胃镜检查是上消化道疾病的“照妖镜” 这4种症状同时出现且长期无法缓解时 要及时就医检查 别忽视 这4种症状可能是肿瘤的预警信号 普通胃病和肿瘤的核心区别
+发布时间：2026年06月02日 09:35 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-进食哽噎、胃痛泛酸 许多人将其当作“老胃病”不予重视 直至症状持续加重 错失最佳治疗时机我国是消化道肿瘤大国 食管癌、胃癌 常年位居我国恶性肿瘤发病率、死亡率前列 很多患者确诊时已为晚期 核心原因就是对早期信号不重视 一拖再拖 胃镜检查是上消化道疾病的“照妖镜” 这4种症状同时出现且长期无法缓解时 要及时就医检查 别忽视 这4种症状可能是肿瘤的预警信号 普通胃病和肿瘤的核心区别，从来不是有没有胃痛泛酸，而是症状能不能缓解、会不会进行性加重。
-
-日常饮食不当、胃炎、胃食管反流引发的胃痛、泛酸、腹胀，大多是偶发的，调整饮食、对症用药后，短时间内就能明显缓解，不会伴随全身症状。
-
-而需要高度警惕恶性肿瘤的信号，是这4种症状同时出现且长期无法缓解： 1.进食哽噎 最开始只是吃干饭哽噎，慢慢发展到吃软饭、流食都不畅，是食管、贲门肿瘤最典型的信号。
-
-2.胃痛泛酸 吃胃药、调理饮食后，症状没有任何好转，反而一天天加重。
-
-3.体重骤降 3个月内无刻意节食、减重的前提下，体重下降超过自身基线体重的10%。
-
-4.腹胀腹痛 腹痛多为隐痛、胀痛，没有明确诱因，持续不缓解。
-
-胃镜检查： 上消化道疾病的“照妖镜” 40岁是一个分水岭，患者在40岁以后胃癌的发病率会明显升高。
-
-建议大家在40岁之后都进行胃镜检查。
+发布时间：2026年06月02日 09:35 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 18:53 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 18:28 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 18:34 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 18:44 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 18:50 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 18:28 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 18:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 18:42 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 18:51 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 18:24 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 18:53 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 18:37 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 18:52 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 18:50 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 18:30 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 18:40 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 18:35 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 18:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 18:42 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 18:47 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 18:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:46 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/4044895008.shtml)
-- 2026-06-29 18:49 - [挪威王储妃长子2次强奸被判4年](https://www.share.kurohicncr.top/Article/details/19312.shtml)
-- 2026-06-29 18:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/21878878.shtml)
-- 2026-06-29 18:40 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/4491396077.shtml)
-- 2026-06-29 18:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/4858883.shtml)
-- 2026-06-29 18:32 - [疑似吴建豪老婆正脸照](https://www.share.kurohicncr.top/Article/details/279876.shtml)
-- 2026-06-29 18:30 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/47623.shtml)
-- 2026-06-29 18:40 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/050401.shtml)
-- 2026-06-29 18:51 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/763727353785.shtml)
-- 2026-06-29 18:37 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/977911652.shtml)
-- 2026-06-29 18:49 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/821391461805.shtml)
-- 2026-06-29 18:30 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/31175227.shtml)
-- 2026-06-29 18:48 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/59550.shtml)
-- 2026-06-29 18:52 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.minike.top/Article/details/443404170.shtml)
-- 2026-06-29 18:53 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/64295862382.shtml)
+- 2026-06-29 18:47 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/2280617.shtml)
+- 2026-06-29 18:54 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/867151876179.shtml)
+- 2026-06-29 18:43 - [绘画区你赢了](http://www.share.minike.top/Article/details/015574217142.shtml)
+- 2026-06-29 18:44 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.minike.top/Article/details/8738109431.shtml)
+- 2026-06-29 18:45 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/275178170.shtml)
+- 2026-06-29 18:51 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/2274351445.shtml)
+- 2026-06-29 18:48 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/743465846479.shtml)
+- 2026-06-29 18:36 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/41844.shtml)
+- 2026-06-29 18:40 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/514531353.shtml)
+- 2026-06-29 18:45 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/63283.shtml)
+- 2026-06-29 18:42 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/467143619.shtml)
+- 2026-06-29 18:31 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/029655887119.shtml)
+- 2026-06-29 18:52 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/17250.shtml)
+- 2026-06-29 18:30 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.minike.top/Article/details/128599939.shtml)
+- 2026-06-29 18:56 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/195900.shtml)

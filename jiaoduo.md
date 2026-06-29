@@ -1,44 +1,59 @@
-# 贵州省交通运输厅原一级巡视员章征宇接受审查调查
+# Anthropic已秘密提交美国IPO申请 估值近万亿美元
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据贵州省纪委监委消息：贵州省交通运输厅原一级巡视员章征宇涉嫌严重违纪违法，目前正接受贵州省纪委监委纪律审查和监察调查。
+人工智能巨头Anthropic周一表示，已秘密提交美国首次公开募股（IPO）申请，这可能成为华尔街人工智能热潮中的一个分水岭时刻。 此举将是一场高风险的考验，旨在检验投资者对这场重塑全球白领工作的AI革命的热情，能否与围绕这一蓬勃发展领域的高涨预期相匹配。 运营AI聊天机器人Claude的Anthropic并未披露此次发行的规模或条款。该公司于5月下旬以9650亿美元的投后估值
 
 ## 正文
 
-中新网5月8日电 据贵州省纪委监委消息：贵州省交通运输厅原一级巡视员章征宇涉嫌严重违纪违法，目前正接受贵州省纪委监委纪律审查和监察调查。
+人工智能巨头Anthropic周一表示，已秘密提交美国首次公开募股（IPO）申请，这可能成为华尔街人工智能热潮中的一个分水岭时刻。
+
+此举将是一场高风险的考验，旨在检验投资者对这场重塑全球白领工作的AI革命的热情，能否与围绕这一蓬勃发展领域的高涨预期相匹配。
+
+运营AI聊天机器人Claude的Anthropic并未披露此次发行的规模或条款。
+
+该公司于5月下旬以9650亿美元的投后估值筹集了65亿美元，从而在估值上超越了竞争对手OpenAI。
+
+这一迈向上市的关键步骤紧随SpaceX的巨额IPO之后。
+
+这家由埃隆·马斯克领导的公司正寻求以1.75万亿美元估值进行750亿美元的募资，有望改写历史纪录。
+
+竞争对手OpenAI和Anthropic已成为人工智能热潮的代表，这场热潮重塑了企业战略，引发了全球对计算能力和人才的争夺战，并将人工智能相关企业转变为市场上估值最高的公司之一。
+
+Anthropic的估值较今年2月已翻了一番多，当时该公司在一轮融资中筹集了300亿美元，估值为3800亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 18:51 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 18:40 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 18:26 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 18:45 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 18:49 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 18:44 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 18:34 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 18:26 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 18:40 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 18:36 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 18:40 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 18:44 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 18:41 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 18:56 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 18:41 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 18:30 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 18:44 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 18:45 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 18:48 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 18:59 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 18:39 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 18:48 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 18:41 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 18:41 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/171998403586.shtml)
-- 2026-06-29 18:38 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/6625867.shtml)
-- 2026-06-29 18:36 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/54194910211.shtml)
-- 2026-06-29 18:35 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/139718266535.shtml)
-- 2026-06-29 18:29 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/341370.shtml)
-- 2026-06-29 18:51 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/375767328163.shtml)
-- 2026-06-29 18:43 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/35141.shtml)
-- 2026-06-29 18:26 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/0826765.shtml)
-- 2026-06-29 18:45 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/83956241.shtml)
-- 2026-06-29 18:35 - [挪威王储妃长子2次强奸被判4年](https://www.share.kurohicncr.top/Article/details/95903622.shtml)
-- 2026-06-29 18:50 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/99111660262.shtml)
-- 2026-06-29 18:36 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/764814.shtml)
-- 2026-06-29 18:45 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/4540705385.shtml)
-- 2026-06-29 18:27 - [毒液2](http://www.share.kurohicncr.top/Article/details/6118010534.shtml)
-- 2026-06-29 18:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/33227485.shtml)
+- 2026-06-29 18:38 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/687508.shtml)
+- 2026-06-29 18:35 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/89052.shtml)
+- 2026-06-29 18:35 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/202503397.shtml)
+- 2026-06-29 18:40 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/34515656610.shtml)
+- 2026-06-29 18:31 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/151819289091.shtml)
+- 2026-06-29 18:46 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/5375807.shtml)
+- 2026-06-29 18:36 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/433248702349.shtml)
+- 2026-06-29 18:42 - [河南高院审委会原委员曲海滨被查](http://www.share.minike.top/Article/details/26736.shtml)
+- 2026-06-29 18:32 - [天道](https://www.share.kurohicncr.top/Article/details/37284.shtml)
+- 2026-06-29 18:35 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/99844.shtml)
+- 2026-06-29 18:34 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/085145070.shtml)
+- 2026-06-29 18:33 - [大马同意延长马航370残骸搜寻工作](http://www.blog.minike.top/Article/details/693216.shtml)
+- 2026-06-29 18:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/70332062518.shtml)
+- 2026-06-29 18:48 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/94587515.shtml)
+- 2026-06-29 18:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/5985336984.shtml)

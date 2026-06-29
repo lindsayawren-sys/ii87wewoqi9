@@ -1,56 +1,56 @@
-# 美元当前汇率已低于伊朗冲突爆发之初
+# SpaceX拟筹资750亿美元创美股上市纪录 与承销商谈判压低费率
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-美元已回吐冲突期间的全部涨幅。 衡量美元对16种一篮子货币走势的美元指数今日连续第三日走低，现已跌破2月27日冲突爆发前的点位。美元历来被视作避险货币，是投资者在地缘冲突与市场不确定性中的资金避风港，如今走出这般行情，实属反常。 但本轮局势下，美元走势截然不同。冲突爆发前，美元本就处于弱势承压状态：美国一系列政策决议加剧市场波动，包括特朗普政府发起贸易战、扬言干预美联储独立性等
+据知情人士透露，美国太空探索技术公司（SpaceX）正与负责其首次公开募股（IPO）的承销商行就削减服务费用进行谈判，计划将此次上市的承销费率压低至0.75%以下。 报道称，SpaceX计划于本月内完成首次公开募股，募集资金规模约750亿美元，折合企业估值约1.75万亿美元。如果这一计划顺利实施，将创下全球资本市场历史上规模最大的首次公开募股纪录。尽管费率可能大幅调低，但由于募
 
 ## 正文
 
-美元已回吐冲突期间的全部涨幅。
+据知情人士透露，美国太空探索技术公司（SpaceX）正与负责其首次公开募股（IPO）的承销商行就削减服务费用进行谈判，计划将此次上市的承销费率压低至0.75%以下。
 
-衡量美元对16种一篮子货币走势的美元指数今日连续第三日走低，现已跌破2月27日冲突爆发前的点位。
+报道称，SpaceX计划于本月内完成首次公开募股，募集资金规模约750亿美元，折合企业估值约1.75万亿美元。
 
-美元历来被视作避险货币，是投资者在地缘冲突与市场不确定性中的资金避风港，如今走出这般行情，实属反常。
+如果这一计划顺利实施，将创下全球资本市场历史上规模最大的首次公开募股纪录。
 
-但本轮局势下，美元走势截然不同。
+尽管费率可能大幅调低，但由于募资基数庞大，由全球顶级投资银行组成的承销团预计仍将斩获总计约5亿美元的承销收入。
 
-冲突爆发前，美元本就处于弱势承压状态：美国一系列政策决议加剧市场波动，包括特朗普政府发起贸易战、扬言干预美联储独立性等；叠加美联储去年连续降息，对冲基金及各类投资者大举增持美元空头头寸，多重因素共同拖累美元走软。
+目前，高盛集团、摩根士丹利、美银证券、花旗集团和摩根大通担任此次IPO的联合账簿管理人，并领导一个由20余家全球投资银行组成的承销银团。
 
-冲突爆发初期，市场避险需求一度短暂扭转颓势。
+其中，作为联席主承销商的高盛集团与摩根士丹利预计将获得大部分佣金份额。
 
-投资者平仓美元空头仓位，并开始押注美联储可能加息——加息通常会提升美元资产吸引力，进而提振美元。
+截至目前，SpaceX和摩根士丹利尚未就此发表评论，高盛集团则拒绝发表评论。
 
-彼时美元指数一度冲高2.7%。
+根据目前披露的上市日程，SpaceX计划于6月4日正式启动面向机构投资者的路演宣传，并最早于6月12日正式在证券交易所挂牌上市。
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 18:24 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 18:29 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 18:25 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 18:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 18:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 18:30 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 18:33 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 18:30 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 18:26 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 18:47 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 18:35 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 18:54 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 18:47 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 18:49 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 18:35 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 18:59 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 18:54 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 18:42 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 18:31 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:40 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/45623.shtml)
-- 2026-06-29 18:44 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/93772350754.shtml)
-- 2026-06-29 18:49 - [周生如故](http://www.blog.minike.top/Article/details/47636512.shtml)
-- 2026-06-29 18:28 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/784933.shtml)
-- 2026-06-29 18:49 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/495581869.shtml)
-- 2026-06-29 18:41 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/84641398.shtml)
-- 2026-06-29 18:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/365035.shtml)
-- 2026-06-29 18:38 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/35208290.shtml)
-- 2026-06-29 18:53 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/13874285749.shtml)
-- 2026-06-29 18:38 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/76758251470.shtml)
-- 2026-06-29 18:43 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/7693781.shtml)
-- 2026-06-29 18:29 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/169168.shtml)
-- 2026-06-29 18:52 - [斗破苍穹](https://www.blog.minike.top/Article/details/0530072567.shtml)
-- 2026-06-29 18:49 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/12901.shtml)
-- 2026-06-29 18:44 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/817276485903.shtml)
+- 2026-06-29 18:53 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/99800.shtml)
+- 2026-06-29 18:56 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/029013286722.shtml)
+- 2026-06-29 18:42 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/5551297851.shtml)
+- 2026-06-29 18:40 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/25932722496.shtml)
+- 2026-06-29 18:30 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/1334158.shtml)
+- 2026-06-29 18:39 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/1000225606.shtml)
+- 2026-06-29 18:30 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/0371521.shtml)
+- 2026-06-29 18:41 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/772989882.shtml)
+- 2026-06-29 18:34 - [斗破苍穹](https://www.blog.minike.top/Article/details/94378688.shtml)
+- 2026-06-29 18:33 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/3276266.shtml)
+- 2026-06-29 18:42 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/27674536.shtml)
+- 2026-06-29 18:57 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/267788.shtml)
+- 2026-06-29 18:58 - [大学专业未来如何洗牌](http://www.blog.minike.top/Article/details/00837652333.shtml)
+- 2026-06-29 18:43 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/3467294.shtml)
+- 2026-06-29 18:48 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/602818511.shtml)

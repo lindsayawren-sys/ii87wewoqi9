@@ -1,58 +1,60 @@
-# 地方动态 | 许昆林在沈阳调研数字经济发展
+# 网约车乘客“开门杀”撞伤他人，保险如何赔付
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国家数据局 5月6日，辽宁省委书记许昆林深入沈阳市的园区、企业，专题调研数字经济发展。他强调，要深入学习贯彻习近平总书记关于数字经济发展的重要论述和关于辽宁的重要讲话重要指示精神，抢抓人工智能发展机遇，强化应用牵引、场景赋能、生态协同，加快壮大数字核心产业，大力推动数实深度融合，更好支撑新质生产力发展
+机动车在道路上因开车门致他人损害的事故时有发生，这种情形俗称“开门杀”，往往因行为人的疏忽引发，造成的后果却可能非常严重。乘客乘坐网约车时因“开门杀”造成他人损害，承保网约车的保险公司应如何承担赔偿责任？2026年5月中旬，北京市东城区人民法院公布一起涉“开门杀”的交通事故责任纠纷案。法院审理认定，保险公司应在交强险限额内对被侵权人进行赔偿，超出交强险赔付范围部分，由驾驶员和乘
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+机动车在道路上因开车门致他人损害的事故时有发生，这种情形俗称“开门杀”，往往因行为人的疏忽引发，造成的后果却可能非常严重。
 
-来源：国家数据局 5月6日，辽宁省委书记许昆林深入沈阳市的园区、企业，专题调研数字经济发展。
+乘客乘坐网约车时因“开门杀”造成他人损害，承保网约车的保险公司应如何承担赔偿责任？
 
-他强调，要深入学习贯彻习近平总书记关于数字经济发展的重要论述和关于辽宁的重要讲话重要指示精神，抢抓人工智能发展机遇，强化应用牵引、场景赋能、生态协同，加快壮大数字核心产业，大力推动数实深度融合，更好支撑新质生产力发展。
+2026年5月中旬，北京市东城区人民法院公布一起涉“开门杀”的交通事故责任纠纷案。
 
-省委书记许昆林来到沈阳国际软件园，了解园区运营模式、产业发展等情况。
+法院审理认定，保险公司应在交强险限额内对被侵权人进行赔偿，超出交强险赔付范围部分，由驾驶员和乘客各自承担50%。
 
-沈阳国际软件园是软件和新一代信息技术产业的专业化园区，入驻企业1750余家，成功培育412家国家级高新技术企业。
+突发事故引发多方分歧 2025年3月的一个早上，陈某照常驾驶电动自行车上班。
 
-许昆林深入了解园区运营模式、服务功能和产业发展等情况，察看二期项目——数字经济产业园建设进展，希望园区立足全生命周期服务企业成长，构建创新链、产业链、资金链、人才链深度融合的孵化赋能体系，绘制产业图谱，精准招引、适配项目企业，积极引入创投基金等耐心资本，实现“上下楼就是上下游、产业园就是生态圈”。
+行至东城区某大厦门口处时，恰逢夏某某驾驶的网约车停车。
 
-省委书记许昆林在沈阳美行科技有限公司与研发人员亲切交流。
+乘客王某未观察后方就打开车门，将途经此处的陈某撞倒。
 
-随后，许昆林来到园区内的沈阳美行科技有限公司，察看智能网联导航、“车路云一体化”以及法库低空经济先行先试项目等产品，了解技术创新、产业研发推广情况，鼓励企业深耕车路空城多场景融合创新，积极应用人工智能等新技术，以优质产品和服务不断提高核心竞争力。
+陈某连人带车摔倒在地，电动自行车受损，陈某亦因此摔伤。
 
 ## 相关推荐
 
-- 2026-06-29 18:27 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 18:32 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 18:44 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 18:49 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 18:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 18:36 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 18:28 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 18:53 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 18:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 18:48 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 18:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 18:37 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 18:32 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 18:31 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 18:39 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 18:34 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 18:46 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 18:53 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 18:45 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 18:52 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 18:57 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 18:31 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 18:58 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 18:32 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 18:56 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 18:59 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:49 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/660528031226.shtml)
-- 2026-06-29 18:37 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/94992238784.shtml)
-- 2026-06-29 18:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/20833710.shtml)
-- 2026-06-29 18:52 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/880630570015.shtml)
-- 2026-06-29 18:37 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/04025088761.shtml)
-- 2026-06-29 18:50 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/32206500820.shtml)
-- 2026-06-29 18:35 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/94469.shtml)
-- 2026-06-29 18:39 - [沙丘](https://www.share.minike.top/Article/details/62601.shtml)
-- 2026-06-29 18:35 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/38420865.shtml)
-- 2026-06-29 18:39 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/9733731145.shtml)
-- 2026-06-29 18:30 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/82695372.shtml)
-- 2026-06-29 18:47 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/50869605.shtml)
-- 2026-06-29 18:35 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/49724.shtml)
-- 2026-06-29 18:48 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.minike.top/Article/details/1752337.shtml)
-- 2026-06-29 18:30 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/25517868709.shtml)
+- 2026-06-29 18:56 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/2060512.shtml)
+- 2026-06-29 18:43 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/219199.shtml)
+- 2026-06-29 18:48 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/13937.shtml)
+- 2026-06-29 18:40 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/566027.shtml)
+- 2026-06-29 18:51 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/0732357.shtml)
+- 2026-06-29 18:37 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/085807.shtml)
+- 2026-06-29 18:36 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/25703.shtml)
+- 2026-06-29 18:58 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/3849627.shtml)
+- 2026-06-29 18:53 - [我和我的家乡](https://www.share.minike.top/Article/details/307895271495.shtml)
+- 2026-06-29 18:38 - [天道](https://www.share.kurohicncr.top/Article/details/076287206373.shtml)
+- 2026-06-29 18:51 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/33942381.shtml)
+- 2026-06-29 18:32 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/184384061955.shtml)
+- 2026-06-29 18:45 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/19706588.shtml)
+- 2026-06-29 18:43 - [河南高院审委会原委员曲海滨被查](http://www.share.minike.top/Article/details/47523098.shtml)
+- 2026-06-29 18:45 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/900506645.shtml)

@@ -1,58 +1,56 @@
-# 利润增长靠“节流”与“投资”，张家港行增利不增收的情况还要持续多久
+# 营收连降3年，市值2个月翻倍，力量钻石靠“散热”翻身？
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-来源：华夏时报 在利息收入持续缩水的背景下，张家港行（002839.SZ）营业收入的增长终于难以为继。2026年一季度，该行营业收入同比下滑4.43%。 然而，利润端却呈现出另一番景象——同期归母净利润逆势增长了2.50%。这与2025年营收仅微增0.75%，归母净利润却增长5.35%的走势一脉相承。营收与利润之间的“剪刀差”不仅没有收窄，反而在持续扩大。 “增利不增收”背后，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 “钻石恒久远，一颗永流传。”你知道吗？金刚石除了可以加工成象征爱情的钻石，如今还能给AI芯片和数据中心“散热”。 近日，金刚石材料板块大涨，一度位列A股行业板块涨幅榜第一。其中，力量钻石5月29日盘中股价一度涨至89.74元，总市值一度突破230亿元，2个月
 
 ## 正文
 
-来源：华夏时报 在利息收入持续缩水的背景下，张家港行（002839.SZ）营业收入的增长终于难以为继。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-2026年一季度，该行营业收入同比下滑4.43%。
+来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 “钻石恒久远，一颗永流传。
 
-然而，利润端却呈现出另一番景象——同期归母净利润逆势增长了2.50%。
+”你知道吗？
 
-这与2025年营收仅微增0.75%，归母净利润却增长5.35%的走势一脉相承。
+金刚石除了可以加工成象征爱情的钻石，如今还能给AI芯片和数据中心“散热”。
 
-营收与利润之间的“剪刀差”不仅没有收窄，反而在持续扩大。
+近日，金刚石材料板块大涨，一度位列A股行业板块涨幅榜第一。
 
-“增利不增收”背后，是张家港行用非息端的投资收益和成本端的精细化管理，对冲主营利息收入下滑的逻辑。
+其中，力量钻石5月29日盘中股价一度涨至89.74元，总市值一度突破230亿元，2个月时间翻倍，随后有所回落。
 
-2025年，该行利息净收入同比下滑10.16%，但凭借投资收益增长8.95%、公允价值变动收益由亏转盈，以及业务及管理费的微降，最终守住了利润正增长。
+截至6月2日收盘，公司最新股价75.81元，总市值为197.3亿元。
 
-2026年一季度，这一逻辑继续上演——利息净收入仅微增0.79%，公允价值变动收益由盈转亏，但通过将业务及管理费大幅削减18.98%，归母净利润依然录得2.50%的正增长。
+这场行情的升温，与央视新闻对金刚石散热应用的报道有关，让沉寂已久的金刚石材料赛道重新回到聚光灯下。
 
 ## 相关推荐
 
-- 2026-06-29 18:47 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 18:52 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 18:40 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 18:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 18:42 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 18:49 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 18:41 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 18:38 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 18:47 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 18:33 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 18:29 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 18:32 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 18:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 18:49 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 18:41 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 18:49 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 18:55 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 18:30 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 18:50 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 18:32 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 18:43 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 18:37 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:40 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/75719857149.shtml)
-- 2026-06-29 18:26 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/61950749.shtml)
-- 2026-06-29 18:38 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/8480660.shtml)
-- 2026-06-29 18:35 - [天道](https://www.share.minike.top/Article/details/04628.shtml)
-- 2026-06-29 18:25 - [网红小徐直播时突遇地震](https://www.blog.kurohicncr.top/Article/details/089675712.shtml)
-- 2026-06-29 18:25 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/042333.shtml)
-- 2026-06-29 18:27 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/746203274.shtml)
-- 2026-06-29 18:30 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/920642763445.shtml)
-- 2026-06-29 18:30 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/62211988904.shtml)
-- 2026-06-29 18:38 - [官方通报一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/360256484.shtml)
-- 2026-06-29 18:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/079705.shtml)
-- 2026-06-29 18:43 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/0563116.shtml)
-- 2026-06-29 18:44 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/976904201087.shtml)
-- 2026-06-29 18:50 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/264166695272.shtml)
-- 2026-06-29 18:25 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/1750481593.shtml)
+- 2026-06-29 18:43 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/67157038.shtml)
+- 2026-06-29 18:59 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/5519248332.shtml)
+- 2026-06-29 18:47 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/1828100490.shtml)
+- 2026-06-29 18:55 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/51167829482.shtml)
+- 2026-06-29 18:32 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/20661982.shtml)
+- 2026-06-29 18:49 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/944829.shtml)
+- 2026-06-29 18:40 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/79908536.shtml)
+- 2026-06-29 18:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/03584090803.shtml)
+- 2026-06-29 18:52 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/76939.shtml)
+- 2026-06-29 18:43 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/791544262.shtml)
+- 2026-06-29 18:46 - [时光音乐会](http://www.share.minike.top/Article/details/0792950.shtml)
+- 2026-06-29 18:58 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/6969582.shtml)
+- 2026-06-29 18:53 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/637539653815.shtml)
+- 2026-06-29 18:59 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/2601535263.shtml)
+- 2026-06-29 18:45 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/713506.shtml)

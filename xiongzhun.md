@@ -1,57 +1,58 @@
-# 新闻1+1丨“五一”消费市场活力如何延续？
+# B站毕业歌会首次牵手北京环球度假区，线上观看人次突破6300万创新高
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-五一假期结束，除了旅游产品的提质升级，还有消费市场的持续增长。5月7日，文化和旅游部公布“五一”假期出游总花费同比增长2.9%，国家税务总局的消费数据也显示，五一假期服务消费增长快速，商品消费稳中有升。这个假期的消费市场，展现了哪些新特点？假日集中释放的消费活力，又怎样形成常态化的持续增长？“五一”假期 人们愿意把钱花在哪 中国社会科学院财经战略研究院市场流通与消费研究室主任
+5月30日晚，随着《海阔天空》万人合唱的旋律响彻广州大学城体育中心体育馆，《永远22！2026bilibili毕业歌会》(以下简称B站毕业歌会)正式落下帷幕。这是B站毕业歌会连续举办的第六年，也是规模最大的一届。数据显示，今年歌会首次落地广州大学城，现场观众近3万人，线上预约人数突破360万，直播最高同时在线观看人次超6300万，均刷新历届纪录。相比于单纯的演出规模增长，更值得
 
 ## 正文
 
-五一假期结束，除了旅游产品的提质升级，还有消费市场的持续增长。
+5月30日晚，随着《海阔天空》万人合唱的旋律响彻广州大学城体育中心体育馆，《永远22！
 
-5月7日，文化和旅游部公布“五一”假期出游总花费同比增长2.9%，国家税务总局的消费数据也显示，五一假期服务消费增长快速，商品消费稳中有升。
+2026bilibili毕业歌会》(以下简称B站毕业歌会)正式落下帷幕。
 
-这个假期的消费市场，展现了哪些新特点？
+这是B站毕业歌会连续举办的第六年，也是规模最大的一届。
 
-假日集中释放的消费活力，又怎样形成常态化的持续增长？
+数据显示，今年歌会首次落地广州大学城，现场观众近3万人，线上预约人数突破360万，直播最高同时在线观看人次超6300万，均刷新历届纪录。
 
-“五一”假期 人们愿意把钱花在哪 中国社会科学院财经战略研究院市场流通与消费研究室主任 依绍华：今年五一假期消费最明显的特点，是服务消费呈现快速爆发式的增长。
+相比于单纯的演出规模增长，更值得关注的是，经过六年发展，毕业歌会正在从一场毕业晚会，逐渐成长为覆盖线上线下、连接高校群体的毕业季文化IP。
 
-除此之外，夜经济、体验消费都呈现出快速的比较突出的增长。
+让大学生成为主角：千人共演、万人合唱的青春歌会 本届毕业歌会汇聚了李宇春、大张伟、古巨基、容祖儿、沙一汀等歌手，带来《送别》《想唱就唱》《第一天》《情歌王》《海阔天空》等广受年轻人喜爱的歌曲，引发现场观众齐声合唱。
 
-除此之外，我们现在的服务消费由简单的打卡式消费向深度体验式消费转变。
+由于首次来到广州，歌会还特别融入大湾区文化元素，《嘉禾望岗(粤语版)》《爱与诚》《世上只有》等经典粤语歌曲接连上演，为现场观众带来浓厚的城市记忆与情感共鸣。
 
-从简单的买服务向买体验、买情绪价值消费转变。
+过去，大型晚会中的年轻人更多是观众，而今年B站毕业歌会最具代表性的变化之一，是让大学生成为舞台的一部分。
 
 ## 相关推荐
 
-- 2026-06-29 18:52 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 18:50 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 18:51 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 18:43 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 18:41 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 18:45 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 18:28 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 18:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 18:49 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 18:52 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 18:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 18:47 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 18:45 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 18:39 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 18:46 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 18:44 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 18:47 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 18:59 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 18:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 18:35 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 18:58 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 18:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 18:52 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:51 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/82288307.shtml)
-- 2026-06-29 18:44 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/13541970368.shtml)
-- 2026-06-29 18:36 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/276199795973.shtml)
-- 2026-06-29 18:35 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/686149.shtml)
-- 2026-06-29 18:38 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/23787615040.shtml)
-- 2026-06-29 18:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/1335454716.shtml)
-- 2026-06-29 18:38 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/9487543712.shtml)
-- 2026-06-29 18:46 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/36288.shtml)
-- 2026-06-29 18:30 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/434738.shtml)
-- 2026-06-29 18:30 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/53454.shtml)
-- 2026-06-29 18:50 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/415098382534.shtml)
-- 2026-06-29 18:33 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/85334775149.shtml)
-- 2026-06-29 18:53 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/283260.shtml)
-- 2026-06-29 18:37 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/1084930204.shtml)
-- 2026-06-29 18:40 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/1982532.shtml)
+- 2026-06-29 18:36 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/9560487.shtml)
+- 2026-06-29 18:47 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/743824545460.shtml)
+- 2026-06-29 18:49 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/19134459852.shtml)
+- 2026-06-29 18:48 - [啊啊啊](http://www.share.minike.top/Article/details/34810886.shtml)
+- 2026-06-29 18:51 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/033618.shtml)
+- 2026-06-29 18:55 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/248329.shtml)
+- 2026-06-29 18:37 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/899687.shtml)
+- 2026-06-29 18:44 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/87560.shtml)
+- 2026-06-29 18:59 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/09509229.shtml)
+- 2026-06-29 18:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/7574997975.shtml)
+- 2026-06-29 18:56 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/92697.shtml)
+- 2026-06-29 18:30 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/45276.shtml)
+- 2026-06-29 18:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/2619462753.shtml)
+- 2026-06-29 18:36 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/2103279109.shtml)
+- 2026-06-29 18:35 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/96083145160.shtml)

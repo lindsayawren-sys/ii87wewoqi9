@@ -1,57 +1,61 @@
-# 央行连续18个月增持黄金！4月外汇储备再回3.4万亿美元
+# 山城一刻钟，与美好生活相遇
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-国家外汇管理局（下称外汇局）5月7日发布的最新统计数据显示，截至2026年4月末，我国外汇储备规模为34105亿美元，较3月末上升684亿美元，升幅为2.05%。目前，外汇储备规模保持在十年来规模水平高位，并已连续9个月稳定在3.3万亿美元之上。 “过去一个月，海外主要经济体货币政策预期转向，美元指数高位回调，主要非美元货币和资产价格上涨、估值修复，为我国外汇储备规模带来明显估
+重庆将扩容建设300个“15分钟高品质生活服务圈” 山城一刻钟，与美好生活相遇(探访) 人民日报记者 王欣悦 公交车开到家门口，步行几分钟就能办理医保手续，不出社区便可体验多彩的公共文化服务……重庆正在推进“15分钟高品质生活服务圈”建设，及时响应群众所需，推动公共服务向社区延伸、向品质升级，让“15分钟”照见美好生活。国务院近日印发的《城市更新“十五五”规划》中提出，完善城市
 
 ## 正文
 
-国家外汇管理局（下称外汇局）5月7日发布的最新统计数据显示，截至2026年4月末，我国外汇储备规模为34105亿美元，较3月末上升684亿美元，升幅为2.05%。
+重庆将扩容建设300个“15分钟高品质生活服务圈” 山城一刻钟，与美好生活相遇(探访) 人民日报记者 王欣悦 公交车开到家门口，步行几分钟就能办理医保手续，不出社区便可体验多彩的公共文化服务……重庆正在推进“15分钟高品质生活服务圈”建设，及时响应群众所需，推动公共服务向社区延伸、向品质升级，让“15分钟”照见美好生活。
 
-目前，外汇储备规模保持在十年来规模水平高位，并已连续9个月稳定在3.3万亿美元之上。
+国务院近日印发的《城市更新“十五五”规划》中提出，完善城市社区嵌入式服务设施，推动一刻钟便民生活圈建设扩围升级。
 
-“过去一个月，海外主要经济体货币政策预期转向，美元指数高位回调，主要非美元货币和资产价格上涨、估值修复，为我国外汇储备规模带来明显估值效应和账面增值。
+按照以点带面、全面推进的原则，重庆正在推进“15分钟高品质生活服务圈”建设，“十五五”时期将扩容建设300个“15分钟高品质生活服务圈”，优化养老、托幼、教育、医疗等资源供给。
 
-”国家金融与发展实验室特聘高级研究员庞溟对证券时报记者说，4月外汇储备规模的增加，既有市场价格因素的推动，也体现出我国在全球金融环境复杂背景下的韧性。
+“15分钟高品质生活服务圈”怎么建？
 
-当天更新的官方储备资产数据还显示，2026年4月末，官方黄金储备为7464万盎司，较上月末增加26万盎司。
+其中的生活体验怎么样？
 
-目前，中国央行已连续18个月增持黄金。
+记者前往重庆3个社区实地探访。
 
-4月外汇储备再回3.4万亿美元 2026年4月，受宏观经济数据、主要经济体货币政策及预期等因素影响，美元指数下跌，全球主要金融资产价格表现有所分化。
+群众所需及时掌握 上学、购物，15分钟内就能到 “原来每天送孩子特别着急，现在坐公交方便多了！
 
-在汇率折算和资产价格变化等因素综合作用下，4月外汇储备规模上升，再次站上3.4万亿美元水平。
+”早上8点，市民唐雪琴带着两个孩子来到小区对面的公交站，登上一辆653路公交车，没坐几站，便到了两江新区人民小学。
 
 ## 相关推荐
 
-- 2026-06-29 18:43 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 18:24 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 18:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 18:41 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 18:45 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 18:50 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 18:30 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 18:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 18:30 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 18:31 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 18:51 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 18:38 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 18:34 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 18:40 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 18:56 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 18:53 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 18:34 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 18:37 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 18:46 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 18:50 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 18:50 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 18:36 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 18:44 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 18:54 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 18:50 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 18:43 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/251229.shtml)
-- 2026-06-29 18:53 - [倪春青跨市履新苏州市委组织部部长](https://www.share.kurohicncr.top/Article/details/4965913993.shtml)
-- 2026-06-29 18:49 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/90141911.shtml)
-- 2026-06-29 18:38 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/30271786515.shtml)
-- 2026-06-29 18:37 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/3112723.shtml)
-- 2026-06-29 18:40 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/81965106.shtml)
-- 2026-06-29 18:39 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/2491163198.shtml)
-- 2026-06-29 18:43 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/22940.shtml)
-- 2026-06-29 18:29 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/0578995.shtml)
-- 2026-06-29 18:47 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/477082402508.shtml)
-- 2026-06-29 18:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/486560.shtml)
-- 2026-06-29 18:37 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/372141802049.shtml)
-- 2026-06-29 18:49 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/205152672.shtml)
-- 2026-06-29 18:44 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/1807810.shtml)
-- 2026-06-29 18:49 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/15237475.shtml)
+- 2026-06-29 18:53 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/9937965129.shtml)
+- 2026-06-29 18:46 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/28345.shtml)
+- 2026-06-29 18:45 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/5095964.shtml)
+- 2026-06-29 18:32 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/6431985.shtml)
+- 2026-06-29 18:47 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/903855972.shtml)
+- 2026-06-29 18:58 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/8479185.shtml)
+- 2026-06-29 18:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/56899.shtml)
+- 2026-06-29 18:50 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/26105864.shtml)
+- 2026-06-29 18:44 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/9668246.shtml)
+- 2026-06-29 18:51 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/999581969203.shtml)
+- 2026-06-29 18:30 - [绘画区你赢了](http://www.blog.minike.top/Article/details/48865017740.shtml)
+- 2026-06-29 18:51 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/090521317819.shtml)
+- 2026-06-29 18:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/70787682531.shtml)
+- 2026-06-29 18:31 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/53446277971.shtml)
+- 2026-06-29 18:48 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/6185460.shtml)

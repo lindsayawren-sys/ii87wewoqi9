@@ -1,56 +1,56 @@
-# “对话知音·弦歌雅韵”音乐会在悉尼举行
+# 广州南沙发布楼市新政 补贴最高可达17万元
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新网悉尼5月7日电 “对话知音·弦歌雅韵”琵琶π室内乐团专场音乐会6日晚在澳大利亚悉尼举行，吸引350余名观众到场观看。 该音乐会由悉尼中国文化中心与中外文化和旅游交流中心共同主办。中国驻悉尼总领事王愚、澳中友好协会新南威尔士州分会主席皮特·怀泽尔(Peter Weitzel)、中国驻悉尼总领事馆文化参赞乐利文、悉尼中国文化中心副主任袁伟、中国驻悉尼旅游办事处副主任赵凤、澳大
+中新社广州6月2日电 (记者 王坚)《关于进一步推动南沙区房地产市场高质量发展的实施意见》(下称“南十条”)2日在广州南沙区发布。“南十条”提出，向符合条件的参与南沙区住房“以旧换新”的居民个人发放专项补贴，南沙区的补贴和广州市的补贴可以叠加，各项补贴累计最高可达17万元(人民币，下同)。南沙区政府介绍，“南十条”旨在更好激发住房消费活力，优化住房供应结构，提升居住配套品质，加
 
 ## 正文
 
-中新网悉尼5月7日电 “对话知音·弦歌雅韵”琵琶π室内乐团专场音乐会6日晚在澳大利亚悉尼举行，吸引350余名观众到场观看。
+中新社广州6月2日电 (记者 王坚)《关于进一步推动南沙区房地产市场高质量发展的实施意见》(下称“南十条”)2日在广州南沙区发布。
 
-该音乐会由悉尼中国文化中心与中外文化和旅游交流中心共同主办。
+“南十条”提出，向符合条件的参与南沙区住房“以旧换新”的居民个人发放专项补贴，南沙区的补贴和广州市的补贴可以叠加，各项补贴累计最高可达17万元(人民币，下同)。
 
-中国驻悉尼总领事王愚、澳中友好协会新南威尔士州分会主席皮特·怀泽尔(Peter Weitzel)、中国驻悉尼总领事馆文化参赞乐利文、悉尼中国文化中心副主任袁伟、中国驻悉尼旅游办事处副主任赵凤、澳大利亚水彩画协会主席大卫·范·纽恩(David van Nunen)等出席。
+南沙区政府介绍，“南十条”旨在更好激发住房消费活力，优化住房供应结构，提升居住配套品质，加快构建供需匹配、品质优先、职住平衡、治理高效的发展新格局。
 
-王愚在致辞中表示，琵琶源自古代丝绸之路并逐渐发展成为中国传统音乐的瑰宝，其发展历程生动诠释了不同文明交流互鉴、融合发展的深刻内涵。
+“南十条”提出，将面向居民开展“收旧房、换新房”活动，收房范围为广州市全域，购买新房需位于南沙区内，“旧房”收购款可直接抵扣“新房”购房款，同时对参与南沙区住房“以旧换新”的居民个人发放专项补贴，按“新房”总价的1%给予补贴，单套最高2万元，补贴总额3000万元，用完即止。
 
-音乐是跨越国界沟通心灵的共同语言，希望以此次音乐会为契机，进一步推动中澳人文交流，增进两国人民互相理解与友谊。
+南沙区的补贴和市级补贴可以叠加。
 
-琵琶π室内乐团由中国音乐学院著名演奏家和青年艺术家组成。
+同时，“南十条”提出建立健全“政府引导、国企主导、社会参与”收储机制，以需定购，重点收储区位适配、户型合理、配套完善的存量商品住房及符合条件的商办用房，鼓励转化为人才公寓、市场化长租公寓，提供给有需要的新市民和年轻人。
 
-演出不仅带来《十面埋伏》《春江花月夜》等极具传统魅力的经典佳作，还呈现了《夏》《晓雾》等当代原创作品。
+此外，“南十条”还提出，未来三年内，对于南沙征收及城市更新等安置需求，依托房票安置、收购存量商品房等市场化方式解决安置需求，并研究拓宽房票使用范畴，切实将安置需求转化为去库存的增长动能。
 
-乐团特别邀请澳大利亚著名音乐家约翰·休伊(John Huie)共同演绎澳大利亚名曲《博塔尼湾》(Botany Bay)，引发全场观众共鸣。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 18:51 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 18:29 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 18:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 18:34 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 18:47 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 18:36 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 18:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 18:24 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 18:45 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 18:36 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 18:42 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 18:56 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 18:56 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 18:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 18:39 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 18:57 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 18:50 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 18:59 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 18:51 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/318831976869.shtml)
-- 2026-06-29 18:40 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/334806566.shtml)
-- 2026-06-29 18:45 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/3267021227.shtml)
-- 2026-06-29 18:46 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/51645.shtml)
-- 2026-06-29 18:42 - [AG 宫斗](https://www.blog.minike.top/Article/details/2512326.shtml)
-- 2026-06-29 18:25 - [伊朗足球队将启程回国](http://www.share.minike.top/Article/details/875233.shtml)
-- 2026-06-29 18:38 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/88126.shtml)
-- 2026-06-29 18:43 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/194279425.shtml)
-- 2026-06-29 18:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/6668239770.shtml)
-- 2026-06-29 18:48 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/995690.shtml)
-- 2026-06-29 18:36 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/079096502.shtml)
-- 2026-06-29 18:44 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/67739537098.shtml)
-- 2026-06-29 18:35 - [两老人多次到一洗车店泼粪](http://www.share.kurohicncr.top/Article/details/2954991606.shtml)
-- 2026-06-29 18:38 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/33062.shtml)
-- 2026-06-29 18:26 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/476572.shtml)
+- 2026-06-29 18:43 - [中国空间站为什么要升级扩容](http://www.share.minike.top/Article/details/407418008454.shtml)
+- 2026-06-29 18:51 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/99091.shtml)
+- 2026-06-29 18:36 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/32317283.shtml)
+- 2026-06-29 18:42 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/311080377574.shtml)
+- 2026-06-29 18:44 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/70019.shtml)
+- 2026-06-29 18:52 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/2811490599.shtml)
+- 2026-06-29 18:44 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/9031463787.shtml)
+- 2026-06-29 18:49 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/70810.shtml)
+- 2026-06-29 18:48 - [沙丘](http://www.blog.minike.top/Article/details/3058680.shtml)
+- 2026-06-29 18:48 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/56093660971.shtml)
+- 2026-06-29 18:59 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/8941372130.shtml)
+- 2026-06-29 18:40 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/029869.shtml)
+- 2026-06-29 18:39 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/3379983484.shtml)
+- 2026-06-29 18:53 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/45923499849.shtml)
+- 2026-06-29 18:42 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/6090742635.shtml)

@@ -1,57 +1,50 @@
-# 特朗普政府正寻求重启“自由计划” 最早可能在本周实施
+# 伊媒：霍尔木兹海峡通行许可已开放申请
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-当地时间5月7日，央视记者获悉，美国官员称，特朗普政府目前正寻求重启利用海空力量支援护送商船穿越霍尔木兹海峡的“自由计划”行动。目前尚不清楚重启的具体时间，不过国防部官员给出的时间表显示，最早可能就在本周。美国此次旨在强行打通海峡的军事行动，依赖于庞大的机群来保护商船免受伊朗导弹和无人机的攻击，因此沙特和科威特的军事基地及领空对于该行动的顺利实施至关重要。美国和沙特官员透露，沙
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月2日电伊朗媒体2日报道称，霍尔木兹海峡船舶通行许可申请系统已全面开放，全球船东和船长可在全天24小时任何时段提交通行申请。 据报道，船方可通过管理机构设立的电子系统提交霍尔木兹海峡通航申请。审核通过后，船舶将获得通行许可。（完）责任编辑：宋雅芳
 
 ## 正文
 
-当地时间5月7日，央视记者获悉，美国官员称，特朗普政府目前正寻求重启利用海空力量支援护送商船穿越霍尔木兹海峡的“自由计划”行动。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-目前尚不清楚重启的具体时间，不过国防部官员给出的时间表显示，最早可能就在本周。
+新华社德黑兰6月2日电伊朗媒体2日报道称，霍尔木兹海峡船舶通行许可申请系统已全面开放，全球船东和船长可在全天24小时任何时段提交通行申请。
 
-美国此次旨在强行打通海峡的军事行动，依赖于庞大的机群来保护商船免受伊朗导弹和无人机的攻击，因此沙特和科威特的军事基地及领空对于该行动的顺利实施至关重要。
+据报道，船方可通过管理机构设立的电子系统提交霍尔木兹海峡通航申请。
 
-美国和沙特官员透露，沙特阿拉伯和科威特已解除此前对美军使用其基地及领空施加的限制。
+审核通过后，船舶将获得通行许可。
 
-此举消除了曾阻碍特朗普政府护送船只穿越霍尔木兹海峡努力的一大障碍。
-
-美方于中东当地时间4日上午在霍尔木兹海峡启动所谓“自由计划”行动，“引导”被困船只驶离海峡，该行动从启动到暂停仅持续不到48小时。
-
-据美国媒体6日报道，由于该行动未提前与海湾盟友协调，引发沙特阿拉伯方面不满，美国总统特朗普不得不“突然180度大转弯”，叫停“自由计划”，以便美方在关键空域的军事准入权能够得以恢复。
-
-(央视记者 徐德智)
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 18:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 18:53 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 18:36 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 18:30 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 18:28 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 18:51 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 18:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 18:34 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 18:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 18:48 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 18:54 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 18:47 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 18:32 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 18:36 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 18:50 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 18:43 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 18:50 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 18:54 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 18:48 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 18:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:34 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/6624285.shtml)
-- 2026-06-29 18:46 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/383424.shtml)
-- 2026-06-29 18:38 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/312616467545.shtml)
-- 2026-06-29 18:39 - [2026年，如果你有100万，你会怎么投资？](http://www.share.kurohicncr.top/Article/details/54697330119.shtml)
-- 2026-06-29 18:51 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/911415217.shtml)
-- 2026-06-29 18:27 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/165372161.shtml)
-- 2026-06-29 18:48 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/85030.shtml)
-- 2026-06-29 18:49 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.kurohicncr.top/Article/details/68771756967.shtml)
-- 2026-06-29 18:28 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/473723.shtml)
-- 2026-06-29 18:27 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/2015221861.shtml)
-- 2026-06-29 18:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/414089094416.shtml)
-- 2026-06-29 18:46 - [学者：建设性战略稳定重塑中美关系](https://www.blog.kurohicncr.top/Article/details/374068.shtml)
-- 2026-06-29 18:37 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/706199046064.shtml)
-- 2026-06-29 18:25 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/556885034543.shtml)
-- 2026-06-29 18:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/5113576038.shtml)
+- 2026-06-29 18:42 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/108060.shtml)
+- 2026-06-29 18:34 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/905231921.shtml)
+- 2026-06-29 18:53 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/5709341.shtml)
+- 2026-06-29 18:56 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/89824808796.shtml)
+- 2026-06-29 18:42 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/3391510476.shtml)
+- 2026-06-29 18:51 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/5426641.shtml)
+- 2026-06-29 18:52 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/839495.shtml)
+- 2026-06-29 18:37 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.minike.top/Article/details/94913640867.shtml)
+- 2026-06-29 18:55 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/608976308.shtml)
+- 2026-06-29 18:42 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/649878.shtml)
+- 2026-06-29 18:52 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/056056.shtml)
+- 2026-06-29 18:56 - [王俊凯命名方式](https://www.share.minike.top/Article/details/15320.shtml)
+- 2026-06-29 18:53 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/541065.shtml)
+- 2026-06-29 18:35 - [四川地震前夕 街头电线上站满燕子](https://www.blog.minike.top/Article/details/456857365106.shtml)
+- 2026-06-29 18:47 - [德国医生在没有空调的手术室工作](https://www.blog.kurohicncr.top/Article/details/1278978.shtml)

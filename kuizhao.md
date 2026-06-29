@@ -1,61 +1,61 @@
-# 宁夏单位GDP建设用地使用面积“十四五”以来累计下降超20%
+# 响应投资者呼声，巴菲特接班人两天豪掷168亿美元投资AI和房地产
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新网银川5月8日电 (记者 于晶)5月8日，记者从宁夏回族自治区自然资源厅获悉，围绕先行区建设、落实全面节约战略，宁夏单位GDP建设用地使用面积实现稳步下降。2025年，该指标达每公顷68.63亿元，同比下降4.16%，超额完成2.1%的年度目标。“十四五”以来，累计下降20.93%，土地资源配置效率和利用效益显著提升。近年来，宁夏持续强化建设项目用地标准审核，出台《宁夏建设
+伯克希尔哈撒韦过去两天公布了自新CEO格雷格·阿贝尔上任以来最大的两笔交易，豪掷168亿美元，一部分用于收购住宅建筑商泰勒・莫里森家居公司，另一部分助力谷歌布局人工智能业务。 这些投资或许能够帮助满足投资者的诉求。自今年1月接替沃伦・巴菲特出任CEO以来，投资者一直希望阿贝尔能够更多地使用伯克希尔的闲置现金。 许多投资者和分析师表示，伯克希尔哈撒韦高达3802亿美元的现金储备（
 
 ## 正文
 
-中新网银川5月8日电 (记者 于晶)5月8日，记者从宁夏回族自治区自然资源厅获悉，围绕先行区建设、落实全面节约战略，宁夏单位GDP建设用地使用面积实现稳步下降。
+伯克希尔哈撒韦过去两天公布了自新CEO格雷格·阿贝尔上任以来最大的两笔交易，豪掷168亿美元，一部分用于收购住宅建筑商泰勒・莫里森家居公司，另一部分助力谷歌布局人工智能业务。
 
-2025年，该指标达每公顷68.63亿元，同比下降4.16%，超额完成2.1%的年度目标。
+这些投资或许能够帮助满足投资者的诉求。
 
-“十四五”以来，累计下降20.93%，土地资源配置效率和利用效益显著提升。
+自今年1月接替沃伦・巴菲特出任CEO以来，投资者一直希望阿贝尔能够更多地使用伯克希尔的闲置现金。
 
-近年来，宁夏持续强化建设项目用地标准审核，出台《宁夏建设项目节地评价规程(试行)》《宁夏建设用地控制指标(2024年版)》等一系列政策文件，实现土地使用标准在建设项目预审、报批等环节全覆盖。
+许多投资者和分析师表示，伯克希尔哈撒韦高达3802亿美元的现金储备（截至3月31日）拖累了这家总部位于内布拉斯加州奥马哈的综合企业集团的股价。
 
-对投资强度及容积率不达标的项目坚决核减用地规模，并通过影像、3D模型等技术手段充分论证用地合理性。
+该公司的股价较2025年5月创下的历史高点下跌了13%，而同期标普500指数上涨了34%。
 
-“十四五”以来，宁夏共核减不合理用地5531.16亩，集约保障了3个国家级抽水蓄能项目用地。
+加州科斯塔梅萨市切克资本管理公司（Check Capital Management）总裁史蒂文・切克表示：“所有人都在等着格雷格走出沃伦・巴菲特的光环，施展自己的投资手笔，如今我们终于看到了。
 
-在灵武市马家滩镇，宁夏华电宁东风电场“以大代小”增容更新项目成为节地典型案例。
+这令人鼓舞。
 
-企业拆除68台1.5兆瓦旧机组，利用原有风机机位、线路和升压站，新装30台6.7兆瓦机组，已审批建设用地从约639亩缩减至20.83亩，年发电量从2亿千瓦时增至6.9亿千瓦时，提升近3.5倍，入选全国第四批节地技术和节地模式案例。
+” 该公司管理着 24 亿美元资产，其中逾 7 亿美元投向伯克希尔的股票与期权产品。
 
 ## 相关推荐
 
-- 2026-06-29 18:37 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 18:24 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 18:35 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 18:38 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 18:48 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 18:24 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 18:27 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 18:28 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 18:36 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 18:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 18:36 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 18:46 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 18:41 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 18:32 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 18:45 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 18:57 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 18:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 18:48 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 18:55 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 18:31 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 18:42 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 18:53 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 18:58 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 18:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 18:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 18:38 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 18:46 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 18:44 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 18:53 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 18:45 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:41 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/7989274.shtml)
-- 2026-06-29 18:25 - [天道](https://www.share.minike.top/Article/details/05620371392.shtml)
-- 2026-06-29 18:37 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/893874.shtml)
-- 2026-06-29 18:50 - [女心理师](https://www.blog.kurohicncr.top/Article/details/9116586211.shtml)
-- 2026-06-29 18:39 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.minike.top/Article/details/58118.shtml)
-- 2026-06-29 18:35 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/97245827.shtml)
-- 2026-06-29 18:49 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/401850509.shtml)
-- 2026-06-29 18:36 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/050277469.shtml)
-- 2026-06-29 18:49 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/259037447786.shtml)
-- 2026-06-29 18:49 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/988304866721.shtml)
-- 2026-06-29 18:26 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/17369905.shtml)
-- 2026-06-29 18:42 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/784899138.shtml)
-- 2026-06-29 18:39 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/602528612548.shtml)
-- 2026-06-29 18:53 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/29288415.shtml)
-- 2026-06-29 18:50 - [沙丘](http://www.share.kurohicncr.top/Article/details/449216125.shtml)
+- 2026-06-29 18:56 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/3124471.shtml)
+- 2026-06-29 18:41 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/30965.shtml)
+- 2026-06-29 18:32 - [世界杯在中国观看最多的比赛](http://www.share.minike.top/Article/details/60370376507.shtml)
+- 2026-06-29 18:54 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/57076.shtml)
+- 2026-06-29 18:34 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/43278.shtml)
+- 2026-06-29 18:50 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/9324248.shtml)
+- 2026-06-29 18:35 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/39849619269.shtml)
+- 2026-06-29 18:48 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/09670.shtml)
+- 2026-06-29 18:59 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/97630.shtml)
+- 2026-06-29 18:41 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/63348376.shtml)
+- 2026-06-29 18:56 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/7321802175.shtml)
+- 2026-06-29 18:49 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/018717.shtml)
+- 2026-06-29 18:40 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/372596.shtml)
+- 2026-06-29 18:38 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/56582542.shtml)
+- 2026-06-29 18:50 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/40100.shtml)

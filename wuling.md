@@ -1,61 +1,58 @@
-# 金牛名将程洲新品首发，国泰鑫澄十问十答
+# 西北首家Apple Store要来了？
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-5月6日，万得偏股混合型基金指数（885001.WI）再创新高，一举突破2021年历史高点。这一信号不仅意味着主动偏股基金的平均收益重回巅峰，更凸显专业投资力量在市场轮动行情中的独特优势。 相比于普通投资者容易受情绪左右、难以精准研判行业轮动、甄别优质个股，优秀基金经理依托专业投研体系，具备精选优质个股、动态调节仓位、严格控制组合回撤等多重优势，在震荡分化的市场中积极捕捉结构性
+每经记者|张文瑜 每经编辑|贺娟娟 西安传闻已久的Apple Store，这次可能真的要来了。 6月1日，陕西政务服务网显示，名称为“西安万象城购物中心苹果店室内装修及幕墙改造工程”的项目正在进行申报。 该项目建设单位为苹果电子产品商贸（北京）有限公司，即苹果在中国大陆的官方运营主体，建设地址位于西安市曲江新区西安万象城购物中心一层，项目类型为一般社会投资装饰装修类项目。 目前
 
 ## 正文
 
-5月6日，万得偏股混合型基金指数（885001.WI）再创新高，一举突破2021年历史高点。
+每经记者|张文瑜 每经编辑|贺娟娟 西安传闻已久的Apple Store，这次可能真的要来了。
 
-这一信号不仅意味着主动偏股基金的平均收益重回巅峰，更凸显专业投资力量在市场轮动行情中的独特优势。
+6月1日，陕西政务服务网显示，名称为“西安万象城购物中心苹果店室内装修及幕墙改造工程”的项目正在进行申报。
 
-相比于普通投资者容易受情绪左右、难以精准研判行业轮动、甄别优质个股，优秀基金经理依托专业投研体系，具备精选优质个股、动态调节仓位、严格控制组合回撤等多重优势，在震荡分化的市场中积极捕捉结构性机会，为投资者持续赚取企业成长与专业定价带来的超额收益。
+该项目建设单位为苹果电子产品商贸（北京）有限公司，即苹果在中国大陆的官方运营主体，建设地址位于西安市曲江新区西安万象城购物中心一层，项目类型为一般社会投资装饰装修类项目。
 
-在此市场节点，国泰基金资深基金经理程洲全新力作——国泰鑫澄混合基金（A类：027187 C类：027188）即将于5月18日-5月29日正式首发。
+目前，在万象城地标“生命之树”附近，确实有一处大型围挡门店处于施工状态。
 
-关于这位实力老将及新品介绍，我们整理了十大核心问题，为您逐一解答。
+《每日经济新闻》记者向曲江住建局求证，对方表示万象城确实要开一家苹果店，目前正在办理施工许可。
 
-程洲是国泰基金主动权益投资三部负责人、国泰鑫澄拟任基金经理，三个关键词带你快速了解他： 1）投资元老。
+“但具体是否为直营店，我们不好辨认，许多信息涉及保密，不便对外透露。
 
-他拥有26年投研经验和18年基金管理经验，在全市场数千名基金经理中，管理年限与之相仿的仅30余人，是市场中少有的穿越多轮牛熊的“常青树”。
+” 种种迹象表明，西北区域或迎来首家Apple Store！
 
-2）双十二基金经理。
+西安万象城于2024年12月开业，彼时坊间就已传出Apple Store可能落地的消息。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 18:41 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 18:37 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 18:34 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 18:51 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 18:24 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 18:24 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 18:38 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 18:28 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 18:45 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 18:41 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 18:43 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 18:44 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 18:45 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 18:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 18:52 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 18:30 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 18:57 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 18:38 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 18:44 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 18:47 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 18:34 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 18:50 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 18:58 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 18:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 18:40 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 18:37 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:31 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/529408944.shtml)
-- 2026-06-29 18:35 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/5050611569.shtml)
-- 2026-06-29 18:43 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/740777086.shtml)
-- 2026-06-29 18:38 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/847212140.shtml)
-- 2026-06-29 18:51 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/365088924800.shtml)
-- 2026-06-29 18:48 - [四川地震前夕 街头电线上站满燕子](https://www.blog.minike.top/Article/details/6916206.shtml)
-- 2026-06-29 18:46 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/5977029856.shtml)
-- 2026-06-29 18:47 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/67728162923.shtml)
-- 2026-06-29 18:26 - [青春环游记第三季](https://www.blog.minike.top/Article/details/31075.shtml)
-- 2026-06-29 18:33 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/4368847.shtml)
-- 2026-06-29 18:36 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/947347.shtml)
-- 2026-06-29 18:43 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/71397332478.shtml)
-- 2026-06-29 18:48 - [金刚川](http://www.share.minike.top/Article/details/302967.shtml)
-- 2026-06-29 18:51 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/6221100.shtml)
-- 2026-06-29 18:31 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/1322827.shtml)
+- 2026-06-29 18:42 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/9656566452.shtml)
+- 2026-06-29 18:49 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/080668000443.shtml)
+- 2026-06-29 18:45 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.kurohicncr.top/Article/details/76668.shtml)
+- 2026-06-29 18:30 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/317719.shtml)
+- 2026-06-29 18:33 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/9732665.shtml)
+- 2026-06-29 18:54 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/1526667.shtml)
+- 2026-06-29 18:31 - [德国医生在没有空调的手术室工作](https://www.blog.kurohicncr.top/Article/details/491928277992.shtml)
+- 2026-06-29 18:58 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/8734732.shtml)
+- 2026-06-29 18:53 - [官媒首曝六代机？大V解读](http://www.share.kurohicncr.top/Article/details/44537.shtml)
+- 2026-06-29 18:47 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/193130.shtml)
+- 2026-06-29 18:51 - [看大国重器“云端穿针引线”](http://www.share.minike.top/Article/details/69483.shtml)
+- 2026-06-29 18:59 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/362912839751.shtml)
+- 2026-06-29 18:47 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/31860720.shtml)
+- 2026-06-29 18:50 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/068155.shtml)
+- 2026-06-29 18:32 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/3098734138.shtml)

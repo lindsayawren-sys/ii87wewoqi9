@@ -1,59 +1,55 @@
-# CoreWeave一季度末签约总电力容量3.5吉瓦 年内股价涨近80%
+# *ST节能：收到证监会立案告知书
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-CoreWeave于周四公布一季度财报，营收超出分析师预期。 以下为公司业绩与伦敦证券交易所集团（LSEG）市场一致预期对比： 每股收益：亏损1.40美元，该数据或不具备与市场预期的可比性。 营收：20.8亿美元，市场预期19.7亿美元。 公司公告显示，本季度营收同比翻倍以上，去年同期为9.818亿美元；净亏损从上年同期的3.15亿美元（每股亏损1.49美元）扩大至7.40亿美
+中新网北京6月2日电 (记者 陈康亮)神雾节能股份有限公司(下称*ST节能)2日发布公告称，公司当天收到中国证监会《立案告知书》，因公司涉嫌信息披露违法违规，根据相关法律法规，中国证监会决定对公司立案。 *ST节能表示，在立案调查期间，公司将积极配合中国证监会的调查工作，并严格按照相关规定履行信息披露义务。 公开资料显示，*ST节能的主营业务为工业节能环保技术与资源综合利用技术
 
 ## 正文
 
-CoreWeave于周四公布一季度财报，营收超出分析师预期。
+中新网北京6月2日电 (记者 陈康亮)神雾节能股份有限公司(下称*ST节能)2日发布公告称，公司当天收到中国证监会《立案告知书》，因公司涉嫌信息披露违法违规，根据相关法律法规，中国证监会决定对公司立案。
 
-以下为公司业绩与伦敦证券交易所集团（LSEG）市场一致预期对比： 每股收益：亏损1.40美元，该数据或不具备与市场预期的可比性。
+*ST节能表示，在立案调查期间，公司将积极配合中国证监会的调查工作，并严格按照相关规定履行信息披露义务。
 
-营收：20.8亿美元，市场预期19.7亿美元。
+公开资料显示，*ST节能的主营业务为工业节能环保技术与资源综合利用技术的研发与推广。
 
-公司公告显示，本季度营收同比翻倍以上，去年同期为9.818亿美元；净亏损从上年同期的3.15亿美元（每股亏损1.49美元）扩大至7.40亿美元。
+财报显示，2026年第一季度，公司实现营业总收入约2967.24万元，同比增长121.29%；归母净利润亏损约100.15万元。
 
-截至一季度末，公司签约总电力容量约3.5吉瓦，营收积压订单高达994亿美元。
-
-CoreWeave联合创始人兼首席执行官Mike Intrator在分析师电话会议上表示：“我们已迈入超大规模发展阶段。
-
-” 在营收暴涨的同时，运营支出增速更快。
-
-本季度技术与基础设施成本飙升127%，至12.7亿美元；销售及市场费用增长超5倍，达6900万美元。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:24 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 18:26 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 18:27 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 18:31 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 18:51 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 18:44 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 18:44 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 18:41 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 18:39 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 18:51 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 18:27 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 18:34 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 18:51 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 18:42 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 18:33 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 18:54 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 18:37 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 18:36 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 18:59 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 18:30 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 18:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 18:50 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 18:59 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 18:39 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 18:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 18:53 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 18:46 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 18:48 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:49 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/0385764785.shtml)
-- 2026-06-29 18:33 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/0169539.shtml)
-- 2026-06-29 18:38 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/64451.shtml)
-- 2026-06-29 18:26 - [美人鱼](https://www.blog.minike.top/Article/details/7299487.shtml)
-- 2026-06-29 18:39 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/372375665875.shtml)
-- 2026-06-29 18:41 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/882966188.shtml)
-- 2026-06-29 18:33 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/0357854.shtml)
-- 2026-06-29 18:52 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/84628372.shtml)
-- 2026-06-29 18:29 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/9873072082.shtml)
-- 2026-06-29 18:39 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/304165048.shtml)
-- 2026-06-29 18:53 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/9341510.shtml)
-- 2026-06-29 18:54 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/83849.shtml)
-- 2026-06-29 18:40 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/49315210984.shtml)
-- 2026-06-29 18:50 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/25184104.shtml)
-- 2026-06-29 18:28 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/546676.shtml)
+- 2026-06-29 18:52 - [永远有话聊的原因](https://www.share.kurohicncr.top/Article/details/5006835644.shtml)
+- 2026-06-29 18:33 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/53742.shtml)
+- 2026-06-29 18:46 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/62204.shtml)
+- 2026-06-29 18:49 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/625874966.shtml)
+- 2026-06-29 18:37 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/20002807.shtml)
+- 2026-06-29 18:41 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/16046755218.shtml)
+- 2026-06-29 18:56 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/175240974.shtml)
+- 2026-06-29 18:42 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/7344005781.shtml)
+- 2026-06-29 18:54 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/11968017263.shtml)
+- 2026-06-29 18:32 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/3827839067.shtml)
+- 2026-06-29 18:51 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/09052759337.shtml)
+- 2026-06-29 18:48 - [V8](https://www.blog.minike.top/Article/details/1052972140.shtml)
+- 2026-06-29 18:33 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/232235.shtml)
+- 2026-06-29 18:43 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/317012830.shtml)
+- 2026-06-29 18:44 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/1608428358.shtml)

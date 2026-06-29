@@ -1,60 +1,60 @@
-# 受贿1.89亿余元！重庆市委原常委陆克华一审被判死缓
+# 强势反弹！002384，午后涨停
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-2026年5月8日，四川省泸州市中级人民法院一审公开宣判重庆市委原常委、政法委原书记陆克华受贿案，对被告人陆克华以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的陆克华受贿所得财物及孳息依法上缴国库，不足部分继续追缴。 经审理查明：1997年至2024年，被告人陆克华利用担任原建设部房地产业司市场管理处处长、住宅产业化促进中心主任，住房和城乡建
+昨日跳水跌停的东山精密（002384）盘中重拾升势，午后再度封涨停。今年以来，该股已累计大涨近150%。 具体来看，东山精密2日午后封住涨停，截至收盘，该股报210.93元/股，成交超220亿元。昨日，该股盘中跳水跌停。 据了解，该股昨日突然跳水，或是受一些市场传闻影响。昨日，市场流传多条关于公司经营与并购业务的负面传言，内容涉及公司收购索尔思项目进展受阻、海外大客户订单交付出
 
 ## 正文
 
-2026年5月8日，四川省泸州市中级人民法院一审公开宣判重庆市委原常委、政法委原书记陆克华受贿案，对被告人陆克华以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的陆克华受贿所得财物及孳息依法上缴国库，不足部分继续追缴。
+昨日跳水跌停的东山精密（002384）盘中重拾升势，午后再度封涨停。
 
-经审理查明：1997年至2024年，被告人陆克华利用担任原建设部房地产业司市场管理处处长、住宅产业化促进中心主任，住房和城乡建设部城市建设司司长、副部长，重庆市政府副市长，重庆市委常委、市政府副市长，重庆市委常委、政法委书记等职务上的便利以及职权、地位形成的便利条件，为他人在工程承揽、项目评审、资质审查等事项上提供帮助，非法收受财物共计折合人民币1.89亿余元。
+今年以来，该股已累计大涨近150%。
 
-泸州市中级人民法院认为，被告人陆克华的行为构成受贿罪。
+具体来看，东山精密2日午后封住涨停，截至收盘，该股报210.93元/股，成交超220亿元。
 
-陆克华受贿数额特别巨大，并使国家和人民利益遭受特别重大损失，论罪应当判处死刑。
+昨日，该股盘中跳水跌停。
 
-鉴于其受贿犯罪中有未遂情节；到案后如实供述自己罪行，主动交代办案机关尚未掌握的绝大部分受贿事实；认罪悔罪，积极退赃，受贿所得财物及孳息大部分已追缴，具有法定、酌定从宽处罚情节，对其判处死刑，可不立即执行。
+据了解，该股昨日突然跳水，或是受一些市场传闻影响。
 
-法庭遂作出上述判决。
+昨日，市场流传多条关于公司经营与并购业务的负面传言，内容涉及公司收购索尔思项目进展受阻、海外大客户订单交付出现问题、核心业务发展不及预期等内容。
 
-据悉，泸州市中级人民法院于2026年1月15日公开开庭审理了该案。
+对此，有券商研究员称，公司业务一切进展顺利，索尔思早已经于2025年正式完成交割+并表+控制权的转移，不存在收购风险。
 
-庭审中，检察机关出示了相关证据，被告人陆克华及其辩护人进行了质证，控辩双方在法庭的主持下充分发表了意见，陆克华进行了最后陈述，并当庭表示认罪悔罪。
+收购已经全部落地，财务也已经于去年10月并表。
 
 ## 相关推荐
 
-- 2026-06-29 18:33 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 18:49 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 18:39 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 18:49 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 18:30 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 18:28 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 18:53 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 18:48 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 18:43 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 18:26 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 18:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 18:29 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 18:39 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 18:40 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 18:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 18:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 18:36 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 18:42 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 18:33 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 18:39 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 18:51 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 18:39 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 18:44 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 18:44 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 18:44 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 18:52 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 18:49 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 18:33 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:27 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/42321.shtml)
-- 2026-06-29 18:50 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/31070672603.shtml)
-- 2026-06-29 18:32 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/45446180202.shtml)
-- 2026-06-29 18:40 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/78518191606.shtml)
-- 2026-06-29 18:29 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/86932724861.shtml)
-- 2026-06-29 18:26 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/589386731140.shtml)
-- 2026-06-29 18:40 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.minike.top/Article/details/4821105.shtml)
-- 2026-06-29 18:49 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/89439472834.shtml)
-- 2026-06-29 18:48 - [沙丘](http://www.share.kurohicncr.top/Article/details/96720837661.shtml)
-- 2026-06-29 18:34 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/514453789.shtml)
-- 2026-06-29 18:36 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/626076262.shtml)
-- 2026-06-29 18:28 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/784587642.shtml)
-- 2026-06-29 18:41 - [天道](https://www.blog.kurohicncr.top/Article/details/04776.shtml)
-- 2026-06-29 18:30 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/9150418.shtml)
-- 2026-06-29 18:33 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/528255.shtml)
+- 2026-06-29 18:58 - [大马同意延长马航370残骸搜寻工作](http://www.blog.kurohicncr.top/Article/details/283135348455.shtml)
+- 2026-06-29 18:40 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/7409016315.shtml)
+- 2026-06-29 18:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/802381.shtml)
+- 2026-06-29 18:33 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/79135458982.shtml)
+- 2026-06-29 18:58 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/88537543.shtml)
+- 2026-06-29 18:47 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.minike.top/Article/details/5035989141.shtml)
+- 2026-06-29 18:44 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/865560.shtml)
+- 2026-06-29 18:40 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/193940575.shtml)
+- 2026-06-29 18:41 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/598677958.shtml)
+- 2026-06-29 18:58 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/13153116.shtml)
+- 2026-06-29 18:30 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/07028040535.shtml)
+- 2026-06-29 18:49 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/04643818.shtml)
+- 2026-06-29 18:40 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/95730.shtml)
+- 2026-06-29 18:54 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/9899467663.shtml)
+- 2026-06-29 18:51 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/798907325.shtml)

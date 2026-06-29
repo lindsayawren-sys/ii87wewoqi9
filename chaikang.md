@@ -1,60 +1,59 @@
-# 一季度净亏6204万，太平老将掌舵大家养老能否破局？
+# Meta平台全球升级青少年内容管控，Instagram上线新工具优化推送内容多样性
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-来源：燕梳师院 谈及大家养老，可将它形容为“名不见经传”的“大公司”，前身为2013年底成立的安邦养老，后由大家保险集团接手并更名，背靠中国保险保障基金的加持，一度被寄予厚望，被视为养老金融领域的一支重要力量。 然而，从安邦时代到大家时代，这条转型之路远比想象中崎岖。近年来，公司经营底色难言乐观，在非上市人身险公司的榜单上，亏损排名始终靠前。同时，一位太平“老将”作为临时负责人
+Meta周二宣布，将在全球范围内升级Instagram、脸书（Facebook）及聊天软件Messenger的青少年账号内容管控设置，保障未成年用户浏览适配其年龄段的内容体验。当下各大社交媒体平台因未成年人身心健康与使用安全问题，正受到监管层面愈发严苛的审查。 该管控项目于去年10月率先在部分国家落地，初衷是阻拦未成年人接触不良不适内容。与此同时，Meta官宣将在Instagr
 
 ## 正文
 
-来源：燕梳师院 谈及大家养老，可将它形容为“名不见经传”的“大公司”，前身为2013年底成立的安邦养老，后由大家保险集团接手并更名，背靠中国保险保障基金的加持，一度被寄予厚望，被视为养老金融领域的一支重要力量。
+Meta周二宣布，将在全球范围内升级Instagram、脸书（Facebook）及聊天软件Messenger的青少年账号内容管控设置，保障未成年用户浏览适配其年龄段的内容体验。
 
-然而，从安邦时代到大家时代，这条转型之路远比想象中崎岖。
+当下各大社交媒体平台因未成年人身心健康与使用安全问题，正受到监管层面愈发严苛的审查。
 
-近年来，公司经营底色难言乐观，在非上市人身险公司的榜单上，亏损排名始终靠前。
+该管控项目于去年10月率先在部分国家落地，初衷是阻拦未成年人接触不良不适内容。
 
-同时，一位太平“老将”作为临时负责人的身份走上台前，给市场注入了新动力。
+与此同时，Meta官宣将在Instagram内测一项新功能，丰富青少年首页推送内容品类，避免其反复刷到同类主题内容。
 
-01 一季度净亏6204万 4月29日，大家养老披露了2026年第一季度偿付能力报告。
+今年4月，Meta曾向投资者预警：欧美两地针对社交媒体侵害青少年相关问题出台的法律法规与监管整治，或对公司经营业绩与财务表现造成重大负面影响。
 
-报告显示，前三个月，公司实现保险业务收入约3.98亿元，但净亏损6204.39万元。
+在一项具有里程碑意义的诉讼判决中，洛杉矶陪审团于3月25日裁定，Meta与Alphabet存在过失，两家企业打造的社交媒体产品会对青少年身心健康造成损害；一名现年20岁的女性用户自述幼年沉迷社交媒体成瘾，陪审团裁定两家公司合计向其赔付600万美元。
 
-基于此，该季度的净资产收益率降至-1.94%，总资产收益率为-0.59%，基本每股收益表现为-0.019元。
+Meta表示，针对13周岁以上用户、可过滤青少年不适内容的分级管控现已设为青少年账号系统默认配置。
 
-从利润表结构来看，导致亏损的表层原因是“公允价值变动损益”等项目受市场波动影响产生了浮亏。
+官方补充，一款管控力度更强的‘受限内容模式’将于今年晚些时候登陆脸书与Messenger，进一步收紧内容浏览权限。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 18:48 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 18:41 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 18:43 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 18:24 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 18:42 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 18:50 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 18:36 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 18:29 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 18:33 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 18:39 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 18:25 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 18:26 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 18:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 18:46 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 18:54 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 18:57 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 18:51 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 18:47 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 18:47 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 18:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 18:55 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 18:57 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 18:49 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 18:36 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 18:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 18:49 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:34 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/797122897.shtml)
-- 2026-06-29 18:50 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/447184777.shtml)
-- 2026-06-29 18:33 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/14529708.shtml)
-- 2026-06-29 18:37 - [叠纸](http://www.share.minike.top/Article/details/467834090060.shtml)
-- 2026-06-29 18:41 - [未成年少女长期吸毒导致卧床不起](http://www.share.kurohicncr.top/Article/details/06633465.shtml)
-- 2026-06-29 18:54 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/344124478616.shtml)
-- 2026-06-29 18:48 - [挪威王储妃长子2次强奸被判4年](https://www.share.kurohicncr.top/Article/details/4977476.shtml)
-- 2026-06-29 18:31 - [当家电外通风口出现鸟窝](http://www.share.minike.top/Article/details/462525.shtml)
-- 2026-06-29 18:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/1973701.shtml)
-- 2026-06-29 18:37 - [TOP Prada](https://www.blog.minike.top/Article/details/471165568410.shtml)
-- 2026-06-29 18:39 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/097055.shtml)
-- 2026-06-29 18:42 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/7376647126.shtml)
-- 2026-06-29 18:45 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/039520.shtml)
-- 2026-06-29 18:38 - [V8](https://www.share.kurohicncr.top/Article/details/94620.shtml)
-- 2026-06-29 18:45 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/16307835889.shtml)
+- 2026-06-29 18:47 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/73046.shtml)
+- 2026-06-29 18:31 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/210103849.shtml)
+- 2026-06-29 18:36 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/66263811.shtml)
+- 2026-06-29 18:42 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/67904170227.shtml)
+- 2026-06-29 18:34 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/064291364.shtml)
+- 2026-06-29 18:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/72245.shtml)
+- 2026-06-29 18:35 - [看大国重器“云端穿针引线”](http://www.blog.kurohicncr.top/Article/details/064235053110.shtml)
+- 2026-06-29 18:37 - [一见倾心](https://www.share.kurohicncr.top/Article/details/15056.shtml)
+- 2026-06-29 18:36 - [我和我的家乡](https://www.share.minike.top/Article/details/570606.shtml)
+- 2026-06-29 18:57 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/69058871203.shtml)
+- 2026-06-29 18:40 - [急先锋](http://www.share.kurohicncr.top/Article/details/9213574712.shtml)
+- 2026-06-29 18:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/0760038.shtml)
+- 2026-06-29 18:59 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/584326.shtml)
+- 2026-06-29 18:46 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/44461420844.shtml)
+- 2026-06-29 18:32 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/47044573.shtml)

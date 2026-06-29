@@ -1,60 +1,48 @@
-# 交通银行中高层调整 涉及多家省分行和交银国际信托
+# 支教结束6年后，女孩回到新疆库尔勒为两所学校捐赠10万元：孩子们眼里的光照亮了我！
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-来源：金融人事mini 4月29日，交通银行披露2026年一季报。今年1-3月，交行实现营业收入696.18亿元，同比增长4.89%；归母净利润261.62亿元，同比增长3.11%。截至一季度末，交行资产总额162，729.60亿元，较上年末增长4.66%。 同日，交行发布董事会决议公告，其中，提请股东会选举原建行首席信息官金磐石、原太保寿险董事长潘艳红为独立董事；聘任刘雷为交
+发布时间：2026年06月02日 23:04 来源：中国新闻网 支教结束6年后，女孩回到新疆库尔勒为两所学校捐赠10万元：孩子们眼里的光照亮了我！ 责任编辑：【翟璐】
 
 ## 正文
 
-来源：金融人事mini 4月29日，交通银行披露2026年一季报。
+发布时间：2026年06月02日 23:04 来源：中国新闻网 支教结束6年后，女孩回到新疆库尔勒为两所学校捐赠10万元：孩子们眼里的光照亮了我！
 
-今年1-3月，交行实现营业收入696.18亿元，同比增长4.89%；归母净利润261.62亿元，同比增长3.11%。
-
-截至一季度末，交行资产总额162，729.60亿元，较上年末增长4.66%。
-
-同日，交行发布董事会决议公告，其中，提请股东会选举原建行首席信息官金磐石、原太保寿险董事长潘艳红为独立董事；聘任刘雷为交行首席信息官，待其任职获准后，副行长钱斌将不再兼任首席信息官。
-
-一、新任首席信息官 刘雷，1972年生，华东理工大学工学学士，工程师，自2025年起任交行金融科技部总经理、金融科技创新研究院院长。
-
-曾任交行数字化转型办公室主任，软件开发中心总经理，期间兼任交银金科董事长、总裁、交银金科筹建组副组长；软件开发中心（上海）总经理，软件开发中心副总经理、总经理助理，软件开发中心总工程师办公室高级经理、开发一部高级经理等职务。
-
-据年报介绍，交行持续强化数字金融顶层设计，成立数智化经营中心，提升集中集约效能；深化数字技术和数据要素创新应用，部署AI智能体助手超2，500个，覆盖精准营销、风险防控、业务流程再造、基层减负等场景。
-
-2025年，交行金融科技投入123.42亿元，同比上升6.81%；为营业收入的5.78%，同比上升0.32个百分点。
+责任编辑：【翟璐】
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 18:27 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 18:51 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 18:35 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 18:36 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 18:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 18:51 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 18:52 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 18:51 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 18:33 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 18:37 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 18:47 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 18:48 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 18:54 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 18:52 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 18:57 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 18:48 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 18:53 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 18:58 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 18:30 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 18:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 18:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 18:46 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 18:59 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 18:44 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 18:55 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 18:50 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 18:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:25 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/217668.shtml)
-- 2026-06-29 18:40 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/161781087.shtml)
-- 2026-06-29 18:40 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/11967.shtml)
-- 2026-06-29 18:30 - [急先锋](http://www.share.minike.top/Article/details/1557511.shtml)
-- 2026-06-29 18:49 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/425657193.shtml)
-- 2026-06-29 18:50 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/28166731368.shtml)
-- 2026-06-29 18:30 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/154747312085.shtml)
-- 2026-06-29 18:38 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/7324556667.shtml)
-- 2026-06-29 18:40 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/5488038.shtml)
-- 2026-06-29 18:45 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/036554674.shtml)
-- 2026-06-29 18:37 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/576593.shtml)
-- 2026-06-29 18:53 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/303442986790.shtml)
-- 2026-06-29 18:44 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/742026278899.shtml)
-- 2026-06-29 18:33 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/50237.shtml)
-- 2026-06-29 18:36 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/13050775680.shtml)
+- 2026-06-29 18:41 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/289833463.shtml)
+- 2026-06-29 18:38 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/18109.shtml)
+- 2026-06-29 18:46 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/44001372375.shtml)
+- 2026-06-29 18:48 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/735413873744.shtml)
+- 2026-06-29 18:53 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/85046727.shtml)
+- 2026-06-29 18:50 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/1026112419.shtml)
+- 2026-06-29 18:47 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/98225.shtml)
+- 2026-06-29 18:56 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/12840.shtml)
+- 2026-06-29 18:53 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/696920.shtml)
+- 2026-06-29 18:43 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/678435474.shtml)
+- 2026-06-29 18:32 - [一见倾心](http://www.share.minike.top/Article/details/163197881.shtml)
+- 2026-06-29 18:40 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/53374.shtml)
+- 2026-06-29 18:41 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/06970086.shtml)
+- 2026-06-29 18:59 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/6528203.shtml)
+- 2026-06-29 18:58 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/267598507219.shtml)

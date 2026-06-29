@@ -1,57 +1,56 @@
-# 特斯拉与亚马逊有望领涨工业板块
+# 两部门开展2026年“才聚文旅 职引未来”人才招聘专项行动
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-当投资者想到特斯拉和亚马逊时，通常会联想到电动汽车和电商，但这两家公司的另一共同点常被忽视——它们都是工业综合集团。随着制造业回暖和资本支出周期加速，特斯拉和亚马逊的工业业务有望领涨工业板块。 特斯拉：不止是汽车 特斯拉的工业属性常常被其汽车业务所掩盖。公司位于德克萨斯州和德国的超级工厂每年生产数百万个4680电池单元、数千台Optimus机器人和数十套Megapack储能系统
+日前，教育部、文化和旅游部印发通知，面向文旅行业各类用人单位、高校应届毕业生及离校2年内未就业毕业生，联合开展2026年“才聚文旅 职引未来”人才招聘专项行动，5月—7月、9月—11月分两批次开展。 1、组织系列专场招聘 国家大学生就业服务平台(https://www.ncss.cn)设立“全国文旅行业面向高校毕业生网上招聘”专区，集中归集发布各地文旅行业用人单位岗位招聘信息。
 
 ## 正文
 
-当投资者想到特斯拉和亚马逊时，通常会联想到电动汽车和电商，但这两家公司的另一共同点常被忽视——它们都是工业综合集团。
+日前，教育部、文化和旅游部印发通知，面向文旅行业各类用人单位、高校应届毕业生及离校2年内未就业毕业生，联合开展2026年“才聚文旅 职引未来”人才招聘专项行动，5月—7月、9月—11月分两批次开展。
 
-随着制造业回暖和资本支出周期加速，特斯拉和亚马逊的工业业务有望领涨工业板块。
+1、组织系列专场招聘 国家大学生就业服务平台(https://www.ncss.cn)设立“全国文旅行业面向高校毕业生网上招聘”专区，集中归集发布各地文旅行业用人单位岗位招聘信息。
 
-特斯拉：不止是汽车 特斯拉的工业属性常常被其汽车业务所掩盖。
+支持各地各高校和文旅企事业单位开展直播带岗、视频双选会、企业云宣讲等活动。
 
-公司位于德克萨斯州和德国的超级工厂每年生产数百万个4680电池单元、数千台Optimus机器人和数十套Megapack储能系统。
+主动邀请文旅领域用人单位进校招聘或联合举办区域性、行业性专场招聘会。
 
-特斯拉的能源存储业务一季度营收同比增长80%，毛利率超过20%，高于汽车业务的15%，市场似乎尚未充分定价储能业务的长期潜力。
+鼓励结合文旅消费促进、产业供需对接等各类文旅活动，组织人才供需对接，探索高校毕业生招聘会进景区、旅游休闲街区、夜间文旅消费集聚区、文化产业园区。
 
-亚马逊：物流机器的价值 亚马逊的物流网络本身就是一台巨大的工业机器。
+针对季节性用工需求，举办“小而优、专而精”的专项招聘活动，健全区域就业协作机制，推进校企对接、就业信息共享。
 
-公司运营着超过200个分拣中心和150架货运飞机。
+2、做好定向访企拓岗结合开展高校书记校长“访企拓岗”行动，组织学科专业对口高校校院两级领导班子成员，主动走进文化产业园区、大型文旅项目、重点文旅企业及景区、夜间文旅消费集聚区等，深入开展定向访企拓岗。
 
-亚马逊的履约费用2025年占总营收的约16%，随着机器人技术的应用，管理层预计到2028年可将这一比例降至13%。
+重点挖掘旅游演艺、游戏动漫、数字文旅、沉浸式体验、文化创意设计、非遗保护传承、艺术表演、新媒体营销、文旅投融资、文旅供应链金融等领域人才需求，鼓励将访企拓岗与招商引资、项目调研相结合，实现产业发展与人才引进互促共进。
 
 ## 相关推荐
 
-- 2026-06-29 18:47 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 18:50 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 18:49 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 18:44 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 18:26 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 18:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 18:30 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 18:45 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 18:48 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 18:24 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 18:26 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 18:47 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 18:34 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 18:55 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 18:57 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 18:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 18:56 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 18:46 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 18:42 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 18:51 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 18:56 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:36 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/432963.shtml)
-- 2026-06-29 18:47 - [沙丘](http://www.blog.kurohicncr.top/Article/details/027933623.shtml)
-- 2026-06-29 18:34 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/836861737.shtml)
-- 2026-06-29 18:32 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/50669.shtml)
-- 2026-06-29 18:51 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/999514854532.shtml)
-- 2026-06-29 18:42 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/193902.shtml)
-- 2026-06-29 18:45 - [5万块的威力](http://www.share.minike.top/Article/details/45078221.shtml)
-- 2026-06-29 18:26 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/98185.shtml)
-- 2026-06-29 18:27 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/6642974254.shtml)
-- 2026-06-29 18:41 - [歼-15型舰载机为何被歼-15T替代](http://www.blog.minike.top/Article/details/493564385368.shtml)
-- 2026-06-29 18:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/01344564.shtml)
-- 2026-06-29 18:43 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/523325697830.shtml)
-- 2026-06-29 18:39 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/28969733051.shtml)
-- 2026-06-29 18:27 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/819620.shtml)
-- 2026-06-29 18:35 - [逃狱兄弟](http://www.blog.minike.top/Article/details/39943.shtml)
+- 2026-06-29 18:30 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/6065225.shtml)
+- 2026-06-29 18:45 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/75286506255.shtml)
+- 2026-06-29 18:46 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/3707911.shtml)
+- 2026-06-29 18:52 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/522307165.shtml)
+- 2026-06-29 18:30 - [美人鱼](https://www.share.minike.top/Article/details/198593313.shtml)
+- 2026-06-29 18:45 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/2694572.shtml)
+- 2026-06-29 18:49 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/918607996.shtml)
+- 2026-06-29 18:37 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/991628374530.shtml)
+- 2026-06-29 18:36 - [扩军害了世界杯吗](https://www.blog.minike.top/Article/details/568958676.shtml)
+- 2026-06-29 18:34 - [歼-15型舰载机为何被歼-15T替代](http://www.blog.minike.top/Article/details/823515506584.shtml)
+- 2026-06-29 18:57 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/08023650369.shtml)
+- 2026-06-29 18:45 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/769472.shtml)
+- 2026-06-29 18:47 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/620063.shtml)
+- 2026-06-29 18:35 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/871483218816.shtml)
+- 2026-06-29 18:39 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/01737483.shtml)

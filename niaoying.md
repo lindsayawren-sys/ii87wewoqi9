@@ -1,58 +1,56 @@
-# Peloton股价飙涨如2020年再现，涨势能否持续？
+# 尾盘：美股涨跌不一 道指与标普指数创盘中新高
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-Peloton股价周四飙升，因这家联网健身公司交出超出预期的季度成绩单，并上调全年业绩指引。市场欢呼其王者归来，但在亮眼数字背后，投资者同样看到了增长动能的隐忧。 财报数据显示，Peloton第三财季营收达6.31亿美元，同比增长1%，超出分析师预期的6.18亿美元，结束了连续多季的下滑态势。更受瞩目的是，公司实现净利润2640万美元，较去年同期4770万美元亏损大幅扭亏为盈。
+北京时间6月3日凌晨，美股周二尾盘涨跌不，道指与标普500指数再创盘中新高。交易员密切关注美伊关系最新进展以及主要科技股的走势。 道指涨224.87点，涨幅为0.44%，报51303.75点；纳指跌34.41点，跌幅为0.13%，报27052.40点；标普500指数涨4.18点，涨幅为0.06%，报7604.14点。 Marvell Technology大涨15%，此前英伟达C
 
 ## 正文
 
-Peloton股价周四飙升，因这家联网健身公司交出超出预期的季度成绩单，并上调全年业绩指引。
+北京时间6月3日凌晨，美股周二尾盘涨跌不，道指与标普500指数再创盘中新高。
 
-市场欢呼其王者归来，但在亮眼数字背后，投资者同样看到了增长动能的隐忧。
+交易员密切关注美伊关系最新进展以及主要科技股的走势。
 
-财报数据显示，Peloton第三财季营收达6.31亿美元，同比增长1%，超出分析师预期的6.18亿美元，结束了连续多季的下滑态势。
+道指涨224.87点，涨幅为0.44%，报51303.75点；纳指跌34.41点，跌幅为0.13%，报27052.40点；标普500指数涨4.18点，涨幅为0.06%，报7604.14点。
 
-更受瞩目的是，公司实现净利润2640万美元，较去年同期4770万美元亏损大幅扭亏为盈。
+Marvell Technology大涨15%，此前英伟达CEO黄仁勋表示，这家半导体公司有望成为下一家万亿美元市值的公司。
 
-自由现金流同比激增59%至1.51亿美元，调整后EBITDA增长41%至1.26亿美元。
+黄仁勋指出：“当你把一个计算问题分解成许多部分，并分布到整个数据中心时，连接性是必不可少的。
 
-同期，Peloton宣布与Spotify达成全球合作协议，将逾1400堂健身课程引入该音乐流媒体平台，意图开拓高毛利的非硬件收入来源。
+这就是Marvell如此重要的原因。
 
-同时，公司上调全年自由现金流预期至约3.5亿美元。
+” 费城半导体指数上涨4%。
 
-股价狂飙背后，Peloton的核心指标并非无懈可击。
+此外，慧与科技股价飙升17%，此前这家科技公司对本季度发布了乐观展望，并上调了全年业绩指引，远超华尔街预期。
 
 ## 相关推荐
 
-- 2026-06-29 18:33 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 18:32 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 18:29 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 18:47 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 18:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 18:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 18:31 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 18:34 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 18:38 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 18:24 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 18:39 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 18:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 18:54 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 18:56 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 18:54 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 18:53 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 18:31 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 18:41 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 18:32 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 18:45 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 18:36 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 18:34 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:42 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/055393.shtml)
-- 2026-06-29 18:43 - [王俊凯命名方式](http://www.share.minike.top/Article/details/48209823.shtml)
-- 2026-06-29 18:40 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/5921675.shtml)
-- 2026-06-29 18:53 - [沉睡花园](http://www.share.minike.top/Article/details/26880.shtml)
-- 2026-06-29 18:49 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/964444.shtml)
-- 2026-06-29 18:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/505828723.shtml)
-- 2026-06-29 18:49 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/8216945583.shtml)
-- 2026-06-29 18:42 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/1351036003.shtml)
-- 2026-06-29 18:47 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/0601450.shtml)
-- 2026-06-29 18:46 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/99569.shtml)
-- 2026-06-29 18:50 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/255406205208.shtml)
-- 2026-06-29 18:41 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/3081984.shtml)
-- 2026-06-29 18:34 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/79555721601.shtml)
-- 2026-06-29 18:34 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/30730521704.shtml)
-- 2026-06-29 18:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/678493.shtml)
+- 2026-06-29 18:35 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/1311050919.shtml)
+- 2026-06-29 18:50 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/02545315.shtml)
+- 2026-06-29 18:41 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/44317306.shtml)
+- 2026-06-29 18:58 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/8290243.shtml)
+- 2026-06-29 18:58 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/347763537.shtml)
+- 2026-06-29 18:55 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/1038477380.shtml)
+- 2026-06-29 18:30 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/77176.shtml)
+- 2026-06-29 18:53 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/774277.shtml)
+- 2026-06-29 18:44 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/02647.shtml)
+- 2026-06-29 18:37 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/478237.shtml)
+- 2026-06-29 18:54 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/173128196409.shtml)
+- 2026-06-29 18:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/7783139.shtml)
+- 2026-06-29 18:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/9875478.shtml)
+- 2026-06-29 18:51 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/89218.shtml)
+- 2026-06-29 18:45 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/52599041674.shtml)

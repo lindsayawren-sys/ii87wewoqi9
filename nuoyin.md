@@ -1,61 +1,59 @@
-# 地缘冲突加剧市场波动，壳牌一季度利润超预期
+# 好评中国｜一场“东北超”何以让文旅“破圈”
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-壳牌公布的一季度业绩显示，由于中东冲突推高能源价格并加剧市场波动，其交易业务表现强劲，带动季度利润超出市场预期。 这家能源巨头在财报中披露，一季度调整后净利润为69.2亿美元，同比增长24%，高于分析师预期的61亿美元。壳牌宣布将季度股息提高5%至每股0.3906美元，同时将股票回购规模从此前的35亿美元下调至30亿美元。 自2月底美伊冲突爆发以来，布伦特原油价格已上涨逾50%
+足球的魅力，究竟在哪里？ 对于很多球迷来说，是90分钟里屏住呼吸的紧张，是进球瞬间爆发的狂喜，是终场哨响后或释然或遗憾的叹息。但如果有人告诉你，一场足球赛的真正“剧情”，从终场哨响后才刚刚开始，你信不信？ 5月31日，2026年东北地区城市足球联赛(东北超)长春赛区第二轮比赛，在长春奥林匹克公园体育场激情上演。长春队主场迎战大连队，场内呐喊如潮，激情四溢。在赛场之外，上演了另一
 
 ## 正文
 
-壳牌公布的一季度业绩显示，由于中东冲突推高能源价格并加剧市场波动，其交易业务表现强劲，带动季度利润超出市场预期。
+足球的魅力，究竟在哪里？
 
-这家能源巨头在财报中披露，一季度调整后净利润为69.2亿美元，同比增长24%，高于分析师预期的61亿美元。
+对于很多球迷来说，是90分钟里屏住呼吸的紧张，是进球瞬间爆发的狂喜，是终场哨响后或释然或遗憾的叹息。
 
-壳牌宣布将季度股息提高5%至每股0.3906美元，同时将股票回购规模从此前的35亿美元下调至30亿美元。
+但如果有人告诉你，一场足球赛的真正“剧情”，从终场哨响后才刚刚开始，你信不信？
 
-自2月底美伊冲突爆发以来，布伦特原油价格已上涨逾50%。
+5月31日，2026年东北地区城市足球联赛(东北超)长春赛区第二轮比赛，在长春奥林匹克公园体育场激情上演。
 
-霍尔木兹海峡的有效关闭，以及卡塔尔拉斯拉凡液化天然气基地的设施受损，均对壳牌的产量造成冲击。
+长春队主场迎战大连队，场内呐喊如潮，激情四溢。
 
-壳牌一季度油气总产量较上季度下降4%，并预计二季度产量将继续受中东局势影响。
+在赛场之外，上演了另一场更值得玩味的“加时赛”，一场关于城市文旅的“加时赛”。
 
-此前，壳牌已预警其交易业务将表现强劲。
+“看一场球”之外的惊喜，藏着长春文旅的“小心思”。
 
-财报显示，化工及产品部门的调整后利润达19.3亿美元，较去年同期的4.49亿美元大幅攀升。
+在长春奥林匹克公园体育场外，长春文旅特色展区成为有“内容”的存在，这里有一幕幕让人忍不住掏出手机、掏出钱包的“沉浸式体验”。
 
 ## 相关推荐
 
-- 2026-06-29 18:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 18:33 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 18:38 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 18:52 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 18:37 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 18:49 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 18:27 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 18:50 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 18:52 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 18:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 18:25 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 18:37 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 18:44 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 18:49 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 18:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 18:39 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 18:47 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 18:57 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 18:39 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 18:39 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 18:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 18:41 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 18:35 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 18:50 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 18:46 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 18:47 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 18:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 18:46 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:43 - [毒液2](http://www.share.minike.top/Article/details/803304933189.shtml)
-- 2026-06-29 18:45 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/5815958795.shtml)
-- 2026-06-29 18:24 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/60408923.shtml)
-- 2026-06-29 18:50 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/92876.shtml)
-- 2026-06-29 18:26 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/4908752891.shtml)
-- 2026-06-29 18:50 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/133319639.shtml)
-- 2026-06-29 18:33 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/7531631686.shtml)
-- 2026-06-29 18:35 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/74048111319.shtml)
-- 2026-06-29 18:44 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/2039843.shtml)
-- 2026-06-29 18:37 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/374477.shtml)
-- 2026-06-29 18:24 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/612852980.shtml)
-- 2026-06-29 18:36 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/47670.shtml)
-- 2026-06-29 18:47 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/39070450.shtml)
-- 2026-06-29 18:31 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/1269083.shtml)
-- 2026-06-29 18:45 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/3869024183.shtml)
+- 2026-06-29 18:33 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/9212446.shtml)
+- 2026-06-29 18:37 - [速度与激情9](http://www.blog.minike.top/Article/details/16477.shtml)
+- 2026-06-29 18:38 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/318539.shtml)
+- 2026-06-29 18:39 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/497310.shtml)
+- 2026-06-29 18:43 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/415017.shtml)
+- 2026-06-29 18:36 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/61420.shtml)
+- 2026-06-29 18:49 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/55131991880.shtml)
+- 2026-06-29 18:30 - [女心理师](http://www.share.kurohicncr.top/Article/details/79270.shtml)
+- 2026-06-29 18:42 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/0944217529.shtml)
+- 2026-06-29 18:30 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/451810930.shtml)
+- 2026-06-29 18:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/7698451206.shtml)
+- 2026-06-29 18:58 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/71895679.shtml)
+- 2026-06-29 18:51 - [沙特外交大臣将访华](http://www.share.minike.top/Article/details/2408972551.shtml)
+- 2026-06-29 18:31 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/9325349254.shtml)
+- 2026-06-29 18:46 - [谢依霖夸杨幂靠谱](http://www.share.minike.top/Article/details/0463912.shtml)

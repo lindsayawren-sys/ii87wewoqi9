@@ -1,57 +1,47 @@
-# 【在希望的田野上】新技术新装备助力农业生产
+# 河源海关综合技术服务中心2026年试剂耗材采购中标公告
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：农忙时节，各地因地制宜，广泛采用新技术、新装备、新方法节本增效，为丰产丰收打下基础。 眼下，黑龙江玉米、大豆等旱田作物播种进入高峰。在鹤山农场第六管理区，新型起垄施肥机正在作业，它带来的四行双层施肥新方法，能够实现均匀施肥、分期用肥。 现在，在广袤的黑土地，各种高性能播种机、施肥机联合作业，进一步提升了播种质量和效率。截至5月8日，黑龙江旱田作物播种已超
+一、项目编号：2026hyhg002(招标文件编号：2026hyhg002) 二、项目名称：河源海关综合技术服务中心2026年试剂耗材采购 三、中标(成交)信息 供应商名称：广州维伯鑫生物科技有限公司供应商地址：广州市黄埔区田园路83号701房 中标(成交)金额：11.7545000(万元) 四、主要标的信息 序号 供应商名称 货物名称 货物品牌 货物型号 货物数量 货物单价(
 
 ## 正文
 
-央视网消息(新闻联播)：农忙时节，各地因地制宜，广泛采用新技术、新装备、新方法节本增效，为丰产丰收打下基础。
+一、项目编号：2026hyhg002(招标文件编号：2026hyhg002) 二、项目名称：河源海关综合技术服务中心2026年试剂耗材采购 三、中标(成交)信息 供应商名称：广州维伯鑫生物科技有限公司供应商地址：广州市黄埔区田园路83号701房 中标(成交)金额：11.7545000(万元) 四、主要标的信息 序号 供应商名称 货物名称 货物品牌 货物型号 货物数量 货物单价(元) 1 广州维伯鑫生物科技有限公司 试剂耗材 详见报价清单 详见报价清单 详见报价清单 详见报价清单 五、评审专家(单一来源采购人员)名单： 彭首创、张尔丹、王国胜、潘培彦 六、代理服务收费标准及金额： 本项目代理费收费标准：0 本项目代理费总金额：0.000000 万元(人民币) 七、公告期限 自本公告发布之日起1个工作日。
 
-眼下，黑龙江玉米、大豆等旱田作物播种进入高峰。
+八、其它补充事宜 九、凡对本次公告内容提出询问，请按以下方式联系。
 
-在鹤山农场第六管理区，新型起垄施肥机正在作业，它带来的四行双层施肥新方法，能够实现均匀施肥、分期用肥。
-
-现在，在广袤的黑土地，各种高性能播种机、施肥机联合作业，进一步提升了播种质量和效率。
-
-截至5月8日，黑龙江旱田作物播种已超8200万亩。
-
-四川油菜开始集中收获。
-
-记者在达州宣汉县看到，连片油菜呈淡黄色，还是七八分成熟时，收割机就已经进场作业，开始收割。
-
-这样的变化来自当地的实践探索。
+1.采购人信息 名 称：河源海关综合技术服务中心 地址：河源大道北231号 联系方式：潘先生 、07623377139、275603436@qq.com 2.项目联系方式 项目联系人：潘先生 电 话：0762377139
 
 ## 相关推荐
 
-- 2026-06-29 18:37 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 18:28 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 18:27 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 18:39 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 18:31 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 18:39 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 18:41 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 18:28 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 18:28 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 18:25 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 18:49 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 18:53 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 18:37 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 18:33 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 18:44 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 18:38 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 18:37 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 18:45 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 18:36 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 18:37 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 18:52 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 18:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:28 - [许建琼任湖南省检察院副检察长](https://www.share.minike.top/Article/details/18999351.shtml)
-- 2026-06-29 18:27 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/48537.shtml)
-- 2026-06-29 18:28 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/792632659755.shtml)
-- 2026-06-29 18:47 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/1403107779.shtml)
-- 2026-06-29 18:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/238146541326.shtml)
-- 2026-06-29 18:53 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/888538.shtml)
-- 2026-06-29 18:34 - [断骨增高灰产拉一人提成1.5万元](https://www.share.kurohicncr.top/Article/details/2090227.shtml)
-- 2026-06-29 18:30 - [A股收评：科创50指数大涨4.61%](http://www.share.kurohicncr.top/Article/details/46925328135.shtml)
-- 2026-06-29 18:38 - [起风了](https://www.blog.kurohicncr.top/Article/details/747772811.shtml)
-- 2026-06-29 18:25 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/129496622.shtml)
-- 2026-06-29 18:46 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.minike.top/Article/details/4167023.shtml)
-- 2026-06-29 18:29 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/16958092594.shtml)
-- 2026-06-29 18:39 - [沙丘](http://www.share.minike.top/Article/details/1256500.shtml)
-- 2026-06-29 18:41 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/724447053986.shtml)
-- 2026-06-29 18:26 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/3813193.shtml)
+- 2026-06-29 18:50 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/73729946931.shtml)
+- 2026-06-29 18:51 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/89202004511.shtml)
+- 2026-06-29 18:41 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/782144667467.shtml)
+- 2026-06-29 18:44 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/158125167.shtml)
+- 2026-06-29 18:40 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/68070797.shtml)
+- 2026-06-29 18:50 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/592235.shtml)
+- 2026-06-29 18:41 - [医药生物行业今日涨5.91%](https://www.share.minike.top/Article/details/82755139.shtml)
+- 2026-06-29 18:46 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/899697284524.shtml)
+- 2026-06-29 18:47 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/10960800.shtml)
+- 2026-06-29 18:31 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/6346891.shtml)
+- 2026-06-29 18:47 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/64566.shtml)
+- 2026-06-29 18:55 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/496206.shtml)
+- 2026-06-29 18:53 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/9544948.shtml)
+- 2026-06-29 18:50 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/150863163.shtml)
+- 2026-06-29 18:49 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/255348.shtml)

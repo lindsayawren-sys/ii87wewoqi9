@@ -1,59 +1,56 @@
-# 刚刚，财政部、证监会发布
+# 确定时间！老虎自6月12日起暂停存量账户在中国境内入金、买入服务
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-来源：中国基金报 两家内地会计师事务所获准从事H股企业审计 经财政部、中国证监会内地会计师事务所从事H股企业审计业务审核推荐委员会审核认可，并经香港监管机构确认，容诚会计师事务所（特殊普通合伙）、天职国际会计师事务所（特殊普通合伙）获准自2026年5月15日起，可以本所名义在香港资本市场为符合条件的H股公司出具审计报告。 增补两家内地会计师事务所从事H股企业审计业务，对于降低内
+暂停在境内交易服务。 跨境券商内地存量业务清理开始有了明确时间表。6月2日晚间，老虎国际发布通知，宣布将对存量投资者账户在中国境内的服务进行相应调整。 通知称，自北京时间2026年6月12日起，老虎国际将暂停在境内交易服务：暂停股票等所有品种的新开仓、加仓交易，仅支持卖出、平仓操作；同时暂停在境内资金划转服务：暂停资金转入，转出功能保持正常。 老虎国际称，上述调整系为落实2年集
 
 ## 正文
 
-来源：中国基金报 两家内地会计师事务所获准从事H股企业审计 经财政部、中国证监会内地会计师事务所从事H股企业审计业务审核推荐委员会审核认可，并经香港监管机构确认，容诚会计师事务所（特殊普通合伙）、天职国际会计师事务所（特殊普通合伙）获准自2026年5月15日起，可以本所名义在香港资本市场为符合条件的H股公司出具审计报告。
+暂停在境内交易服务。
 
-增补两家内地会计师事务所从事H股企业审计业务，对于降低内地企业在港上市成本、推动两地资本市场互联互通、促进香港融入国家发展大局具有积极而深远的意义，将有助于进一步深化内地与香港会计交流合作，推动两地会计行业共同发展。
+跨境券商内地存量业务清理开始有了明确时间表。
 
-财政部、中国证监会将根据内地与香港有关监管要求，对获准从事H股企业审计业务的会计师事务所进行严格管理，确保持续符合要求，推动其高质量完成H股企业审计业务。
+6月2日晚间，老虎国际发布通知，宣布将对存量投资者账户在中国境内的服务进行相应调整。
 
-财政部、中国证监会有关部门负责人就两家内地会计师事务所获准从事H股企业审计业务答记者问 2026年5月8日，财政部、中国证监会与香港会计及财务汇报局公布了增补从事H股企业审计业务的2家内地会计师事务所名单。
+通知称，自北京时间2026年6月12日起，老虎国际将暂停在境内交易服务：暂停股票等所有品种的新开仓、加仓交易，仅支持卖出、平仓操作；同时暂停在境内资金划转服务：暂停资金转入，转出功能保持正常。
 
-日前，财政部、中国证监会有关部门负责人就增补工作有关问题回答了记者的提问。
+老虎国际称，上述调整系为落实2年集中整治期的行业监管要求，推动跨境证券业务规范发展，并强调本次调整不会影响为存量投资者在境外提供服务，也不影响全体客户现有资产安全，客户可正常查询账户、持有及卖出已有持仓。
 
-一、请介绍一下内地会计师事务所增补从事H股企业审计业务的背景和意义。
+此前5月22日，中国证监会宣布对富途、老虎、长桥境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。
 
-答：推动内地会计师事务所从事H股企业审计业务是深化内地与香港会计交流合作的重要举措。
+同日，证监会等八部门联合印发《综合整治非法跨境证券期货基金经营活动实施方案》（下称《实施方案》），对内地存量非法业务制定了2年集中整治期。
 
-2010年12月，财政部、中国证监会首次向香港监管机构推荐了12家可以本所名义从事H股企业审计业务的内地会计师事务所（以下简称H股会计师事务所）。
+《实施方案》要求，集中整治期内，禁止境外机构为存量投资者在境内非法提供买入交易、转入资金等服务，只允许单向卖出交易并转出资金。
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 18:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 18:51 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 18:45 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 18:39 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 18:50 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 18:43 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 18:29 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 18:51 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 18:24 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 18:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 18:36 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 18:48 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 18:57 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 18:57 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 18:52 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 18:37 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 18:33 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 18:35 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 18:53 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 18:47 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 18:37 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 18:45 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:44 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/81166251.shtml)
-- 2026-06-29 18:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/08426.shtml)
-- 2026-06-29 18:30 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/7870869.shtml)
-- 2026-06-29 18:32 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/09814179635.shtml)
-- 2026-06-29 18:37 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/95429172728.shtml)
-- 2026-06-29 18:53 - [天道](http://www.share.kurohicncr.top/Article/details/938639625340.shtml)
-- 2026-06-29 18:34 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/0723593323.shtml)
-- 2026-06-29 18:28 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/2645547839.shtml)
-- 2026-06-29 18:26 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/644153125.shtml)
-- 2026-06-29 18:46 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/55716.shtml)
-- 2026-06-29 18:36 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/834993683.shtml)
-- 2026-06-29 18:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/8144273583.shtml)
-- 2026-06-29 18:26 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/8961717322.shtml)
-- 2026-06-29 18:26 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/4833695686.shtml)
-- 2026-06-29 18:33 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/6696429.shtml)
+- 2026-06-29 18:50 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/3992136.shtml)
+- 2026-06-29 18:44 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/59617344557.shtml)
+- 2026-06-29 18:39 - [叠纸客服回应恋与深空新角色争议](http://www.blog.kurohicncr.top/Article/details/6863283264.shtml)
+- 2026-06-29 18:59 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/727230.shtml)
+- 2026-06-29 18:58 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/710752705639.shtml)
+- 2026-06-29 18:48 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/94938239.shtml)
+- 2026-06-29 18:48 - [沉睡花园](http://www.blog.minike.top/Article/details/9366939.shtml)
+- 2026-06-29 18:57 - [金刚川](https://www.share.kurohicncr.top/Article/details/175763403336.shtml)
+- 2026-06-29 18:37 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.minike.top/Article/details/06503970.shtml)
+- 2026-06-29 18:34 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/70718573.shtml)
+- 2026-06-29 18:56 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/033790.shtml)
+- 2026-06-29 18:49 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/818361850.shtml)
+- 2026-06-29 18:32 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/6788100.shtml)
+- 2026-06-29 18:35 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/39470.shtml)
+- 2026-06-29 18:39 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/13697083.shtml)

@@ -1,57 +1,56 @@
-# 省级农商行成立后首份年报亮出！内蒙古农商行去年后半年实现营收超100亿元
+# 华贵人寿年内净现金流-3.43亿，资本消耗加速，将帅双双撤退？
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-来源：华夏时报 日前，内蒙古农商银行发布2025年度报告，正式披露其改革后的首份成绩单。 该行在回应本报记者采访时强调，报告涉及数据非完整自然年度指标，统计期间为2025年5月27日至12月31日。在此报告期内，内蒙古农商银行实现营业收入100.56亿元（银行口径数据，后同），利润总额1.81亿元，净利润0.48亿元。 报告显示，截至2025年末，该行总资产达8824.17亿元
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：燕梳师院 文|萧晓 自带“茅台光环”，华贵人寿依托大股东品牌势能一度实现快速发展，短暂跻身盈利赛道。然而，受投资波动、负债成本高、利率环境变化等影响，公司一度深陷亏损泥潭，直至2025年才艰难实现扭亏为盈。 业绩回暖的曙光尚未稳固之际，公司高层却突发人事大震荡。仅两周时间，公司董事长、总经理先后请辞。这背后，是组织人事调动
 
 ## 正文
 
-来源：华夏时报 日前，内蒙古农商银行发布2025年度报告，正式披露其改革后的首份成绩单。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：燕梳师院 文|萧晓 自带“茅台光环”，华贵人寿依托大股东品牌势能一度实现快速发展，短暂跻身盈利赛道。
 
-该行在回应本报记者采访时强调，报告涉及数据非完整自然年度指标，统计期间为2025年5月27日至12月31日。
+然而，受投资波动、负债成本高、利率环境变化等影响，公司一度深陷亏损泥潭，直至2025年才艰难实现扭亏为盈。
 
-在此报告期内，内蒙古农商银行实现营业收入100.56亿元（银行口径数据，后同），利润总额1.81亿元，净利润0.48亿元。
+业绩回暖的曙光尚未稳固之际，公司高层却突发人事大震荡。
 
-报告显示，截至2025年末，该行总资产达8824.17亿元，核心一级资本充足率为12.21%，不良贷款率为3.37%。
+仅两周时间，公司董事长、总经理先后请辞。
 
-该行表示，将继续锚定高质量发展目标，坚定不移化解原农信机构存量风险。
+这背后，是组织人事调动与正常退休，还是暗藏着对公司紧绷的资本压力与未来战略走向的深层考量？
 
-招联首席研究员董希淼向记者表示，不良资产处置不应仅是“甩包袱”，更应成为压降成本、释放效益的契机。
+01 经营底盘不牢 从业务基本盘来看，截至一季度末，华贵人寿实现保险业务收入7.35亿元，总资产225.91亿元，净资产11.09亿元。
 
-他强调，对内蒙古农商银行而言，从长远看，应通过“控新增、化存量、优结构”组合策略，在稳步压降风险水平的同时，逐步将资产质量改善转化为利润增长的内生动力，最终实现高质量稳健发展。
+具体而言，一季度规模保费同比增速为-9.64%，相较于上个季度20.83%的高增长已经出现了断崖式的下滑，业务扩张的动能出现乏力。
 
-成立后首份年报出炉 内蒙古农商银行于2025年5月27日正式挂牌开业，由原内蒙古自治区农村信用社联合社、93家旗县级法人农信机构及其发起设立的26家区内村镇银行，以新设合并方式组建而成。
+短期盈利与投资收益近乎停滞。
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 18:25 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 18:46 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 18:36 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 18:33 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 18:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 18:29 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 18:43 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 18:45 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 18:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 18:41 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 18:37 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 18:39 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 18:34 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 18:30 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 18:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 18:50 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 18:52 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 18:40 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 18:49 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 18:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:33 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.minike.top/Article/details/73521070177.shtml)
-- 2026-06-29 18:27 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/0974000.shtml)
-- 2026-06-29 18:38 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.minike.top/Article/details/827193.shtml)
-- 2026-06-29 18:25 - [朱必达辞去湖南人大常委会委员职务](http://www.share.kurohicncr.top/Article/details/403311933.shtml)
-- 2026-06-29 18:24 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/789635524.shtml)
-- 2026-06-29 18:28 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/8242258929.shtml)
-- 2026-06-29 18:52 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/1808226.shtml)
-- 2026-06-29 18:29 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/876746735448.shtml)
-- 2026-06-29 18:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/33342.shtml)
-- 2026-06-29 18:40 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/28861010150.shtml)
-- 2026-06-29 18:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/45732566460.shtml)
-- 2026-06-29 18:26 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/9888254.shtml)
-- 2026-06-29 18:31 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/5679179.shtml)
-- 2026-06-29 18:49 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/3939667870.shtml)
-- 2026-06-29 18:27 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/1193838053.shtml)
+- 2026-06-29 18:35 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/10772.shtml)
+- 2026-06-29 18:55 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/64505.shtml)
+- 2026-06-29 18:32 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/045696332.shtml)
+- 2026-06-29 18:45 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/2807010020.shtml)
+- 2026-06-29 18:58 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/4666957476.shtml)
+- 2026-06-29 18:39 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/7080822.shtml)
+- 2026-06-29 18:57 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/714277550.shtml)
+- 2026-06-29 18:41 - [天道](http://www.share.kurohicncr.top/Article/details/65179.shtml)
+- 2026-06-29 18:37 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/569011961317.shtml)
+- 2026-06-29 18:32 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/875627980205.shtml)
+- 2026-06-29 18:33 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.minike.top/Article/details/042416.shtml)
+- 2026-06-29 18:45 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/95570.shtml)
+- 2026-06-29 18:52 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/82391.shtml)
+- 2026-06-29 18:40 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/386318409.shtml)
+- 2026-06-29 18:55 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/807229161716.shtml)

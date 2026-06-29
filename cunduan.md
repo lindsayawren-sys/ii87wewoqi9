@@ -1,56 +1,61 @@
-# 长江防总：预计长江流域主汛期降水总体偏少
+# 想方设法“曲线入局” 散户投资者冀望从SpaceX上市分一杯羹
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-5月7日，记者从长江防汛抗旱总指挥部了解到，今年汛期长江流域气候年景总体偏差，部分时段流域内可能旱涝并存。 当前长江流域已全面进入汛期。据流域气象中心最新预测，2026年长江流域汛期涝旱并重，长江中游旱重于涝，强对流天气将多发重发。预计主汛期(6-8月)降水总体偏少。 在空间上，金沙江、岷江、嘉陵江、长江下游等流域偏多一到二成，长江中上游面上偏少一到二成，其中中游干流区偏少二到
+Tyler Woods当时确信自己发大财了。他投入Fundrise Innovation Fund （VCX）的2000美元，短短四天内就变成了76000美元。 “天哪，”这位就读于圣地亚哥州立大学的19岁学生心想，“我这下，算有钱了。” 他其实没有，或者至少目前还没有。 如今，越来越多的投资产品让普通投资者有机会投资未上市公司，而Woods及时入场，使他成为了这类新兴投资领域
 
 ## 正文
 
-5月7日，记者从长江防汛抗旱总指挥部了解到，今年汛期长江流域气候年景总体偏差，部分时段流域内可能旱涝并存。
+Tyler Woods当时确信自己发大财了。
 
-当前长江流域已全面进入汛期。
+他投入Fundrise Innovation Fund （VCX）的2000美元，短短四天内就变成了76000美元。
 
-据流域气象中心最新预测，2026年长江流域汛期涝旱并重，长江中游旱重于涝，强对流天气将多发重发。
+“天哪，”这位就读于圣地亚哥州立大学的19岁学生心想，“我这下，算有钱了。
 
-预计主汛期(6-8月)降水总体偏少。
+” 他其实没有，或者至少目前还没有。
 
-在空间上，金沙江、岷江、嘉陵江、长江下游等流域偏多一到二成，长江中上游面上偏少一到二成，其中中游干流区偏少二到四成； 时间演变上，6月下旬至7月上旬长江中下游地区有雨水集中期，7月中旬后随着副热带高压北抬，岷江、嘉陵江流域降雨将增多，四川盆地东部至长江中游将出现阶段性高温天气，盛夏期台风影响将增多。
+如今，越来越多的投资产品让普通投资者有机会投资未上市公司，而Woods及时入场，使他成为了这类新兴投资领域的尝鲜者之一。
 
-长江防总要求，流域各地相关部门和单位要坚定践行“生命至上、安全第一”理念，注重以大概率思维应对小概率事件，注重长短结合、标本兼治，注重专群结合、社会共治，切实提高水旱灾害防御的科学性、预见性、针对性和实效性。
+VCX持有全球一些最具价值的初创公司股份，包括OpenAI、Anthropic和SpaceX。
 
-要坚持以防为主，强化监测预警、做实工作预案、加强宣传引导、超前整治隐患，努力做到防患于未然；要注重科学施救，强化应急能力和物资储备，动态完善应急预案，确保灾害发生时能够及时、安全、高效施救；要加强基础建设，统筹江河湖库资源、加快构建现代安全韧性水网，强化数智化技术应用、增强水旱灾害治理能力，进一步完善应急组织体系、指挥体系和保障体系，全面提升流域水旱灾害治理现代化水平。
+从历史上看，散户投资者在那些备受瞩目的公司上市之前，鲜有机会能够参与其中。
 
-(央视新闻客户端 总台记者 凌姝)
+但一种新兴类型的投资工具正试图改变这一现状。
 
 ## 相关推荐
 
-- 2026-06-29 18:51 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 18:37 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 18:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 18:28 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 18:41 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 18:44 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 18:30 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 18:46 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 18:46 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 18:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 18:49 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 18:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 18:58 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 18:46 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 18:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 18:48 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 18:39 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 18:31 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 18:52 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 18:32 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 18:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 18:49 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 18:46 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 18:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 18:38 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/47814.shtml)
-- 2026-06-29 18:26 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/078210353.shtml)
-- 2026-06-29 18:49 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/118525.shtml)
-- 2026-06-29 18:46 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/8196496434.shtml)
-- 2026-06-29 18:28 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/4504139.shtml)
-- 2026-06-29 18:25 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/7156746668.shtml)
-- 2026-06-29 18:41 - [税务总局披露5起合规申报个税案例](https://www.blog.kurohicncr.top/Article/details/154635004732.shtml)
-- 2026-06-29 18:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/209317192127.shtml)
-- 2026-06-29 18:45 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/6723242619.shtml)
-- 2026-06-29 18:25 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/998167255.shtml)
-- 2026-06-29 18:27 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/63186.shtml)
-- 2026-06-29 18:40 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/015696556.shtml)
-- 2026-06-29 18:38 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/11660771657.shtml)
-- 2026-06-29 18:30 - [7款高价创新药有望降价](https://www.blog.minike.top/Article/details/800058042713.shtml)
-- 2026-06-29 18:24 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/5620053.shtml)
+- 2026-06-29 18:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/99584142540.shtml)
+- 2026-06-29 18:40 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/15470.shtml)
+- 2026-06-29 18:38 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/9152839.shtml)
+- 2026-06-29 18:55 - [女生每天戴耳机18小时突发耳聋](https://www.blog.kurohicncr.top/Article/details/107406.shtml)
+- 2026-06-29 18:37 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/410178311091.shtml)
+- 2026-06-29 18:46 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/2093767339.shtml)
+- 2026-06-29 18:53 - [青春环游记第三季](http://www.blog.minike.top/Article/details/99393877.shtml)
+- 2026-06-29 18:47 - [朱必达辞去湖南人大常委会委员职务](http://www.share.minike.top/Article/details/903098.shtml)
+- 2026-06-29 18:38 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/5642261.shtml)
+- 2026-06-29 18:30 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/8475577708.shtml)
+- 2026-06-29 18:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/825479.shtml)
+- 2026-06-29 18:55 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/508746734176.shtml)
+- 2026-06-29 18:40 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/125359878429.shtml)
+- 2026-06-29 18:48 - [互助版模拟高考志愿填报](http://www.blog.kurohicncr.top/Article/details/11561219.shtml)
+- 2026-06-29 18:33 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/271701849641.shtml)

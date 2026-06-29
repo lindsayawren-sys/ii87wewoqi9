@@ -1,57 +1,61 @@
-# 应李书福邀请，董明珠正式出任“极氪品质体验官”
+# 首届澳门国际网络视听节开幕 业界共议打造跨文化传播“转化器”
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-近日，吉利控股集团董事长李书福一行到访并参观珠海格力电器总部。活动现场，李书福邀请董明珠正式出任“极氪品质体验官”，并颁发聘书。 吉利表示，作为极氪009光辉车主，董明珠多次公开为极氪品质点赞，并高度认可焕新极氪009全栈900V高压架构的强劲动力。 今年3月，董明珠正式成为极氪009光辉车主，李书福亲自为其交车，双方围绕中国高端制造展开热烈探讨。期间，董明珠特意邀请李书福访问
+中新社澳门6月2日电 (记者 郑嘉伟)首届澳门国际网络视听节2日开幕，来自中国内地、港澳及葡语国家等地的政府代表、平台机构与创作者齐聚澳门，围绕网络视听产业的国际化发展展开研讨。与会嘉宾认为，澳门应利用“一国两制”及中葡平台优势，主动升级为“文明转化器”，助力中华文化出海。多位嘉宾指出，澳门不应仅是活动的举办地，更应成为跨文化传播的“翻译层”与“转化器”。 澳门网络视听协会会长
 
 ## 正文
 
-近日，吉利控股集团董事长李书福一行到访并参观珠海格力电器总部。
+中新社澳门6月2日电 (记者 郑嘉伟)首届澳门国际网络视听节2日开幕，来自中国内地、港澳及葡语国家等地的政府代表、平台机构与创作者齐聚澳门，围绕网络视听产业的国际化发展展开研讨。
 
-活动现场，李书福邀请董明珠正式出任“极氪品质体验官”，并颁发聘书。
+与会嘉宾认为，澳门应利用“一国两制”及中葡平台优势，主动升级为“文明转化器”，助力中华文化出海。
 
-吉利表示，作为极氪009光辉车主，董明珠多次公开为极氪品质点赞，并高度认可焕新极氪009全栈900V高压架构的强劲动力。
+多位嘉宾指出，澳门不应仅是活动的举办地，更应成为跨文化传播的“翻译层”与“转化器”。
 
-今年3月，董明珠正式成为极氪009光辉车主，李书福亲自为其交车，双方围绕中国高端制造展开热烈探讨。
+澳门网络视听协会会长陆波表示，短视频、微短剧、网络直播等正在重塑全球文化生产与传播方式，也为不同国家和地区之间的交流合作打开了更加广阔的空间。
 
-期间，董明珠特意邀请李书福访问珠海格力总部。
+澳门要把握机遇，更好地把国家发展战略转化为文化产业发展动能，以数字视频连接中国与世界，讲好中国故事和澳门故事。
 
-此次到访，李书福一行参观了格力科技生态展厅，董明珠分享企业发展历程。
+澳门基金会行政委员会主席吴志良指出，澳门400多年的中西交融史证明，不同文明并非必然冲突，而是可以在保持主体性的前提下和谐共处。
 
-在对话中，李书福表示：“品牌源自于品质，品牌源自于人品，我们一定要尊重人。
+他认为，澳门善于将抽象的价值理念转化为可感知可体验的生活场景，未来应借助更多用全球化语言讲述融合精神的作品，主动升级为提供方案的“文明转化器”。
 
-一个企业发展，要对内部员工尊重，对同行尊重，对行业自律尊重，以及对合规、法律等各方面尊重，最重要的是，我们要对用户尊重，对市场要尊重。
+在具体落地层面，与会者聚焦利用数字科技激活文化资源，并通过政策扶持构建产业生态。
 
 ## 相关推荐
 
-- 2026-06-29 18:49 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 18:27 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 18:42 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 18:24 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 18:49 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 18:37 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 18:50 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 18:43 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 18:52 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 18:30 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 18:30 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 18:30 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 18:42 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 18:39 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 18:34 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 18:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 18:47 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 18:53 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 18:40 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 18:30 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 18:43 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 18:40 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 18:53 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 18:38 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 18:39 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 18:39 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:36 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/48822053797.shtml)
-- 2026-06-29 18:35 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/20398426422.shtml)
-- 2026-06-29 18:48 - [沉睡花园](https://www.blog.minike.top/Article/details/220595.shtml)
-- 2026-06-29 18:30 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/881661.shtml)
-- 2026-06-29 18:36 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/50678334.shtml)
-- 2026-06-29 18:49 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/35689.shtml)
-- 2026-06-29 18:50 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/86981405122.shtml)
-- 2026-06-29 18:28 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/62359027425.shtml)
-- 2026-06-29 18:46 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/861776961.shtml)
-- 2026-06-29 18:32 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/12382.shtml)
-- 2026-06-29 18:26 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/333064963.shtml)
-- 2026-06-29 18:24 - [扬名立万](https://www.blog.minike.top/Article/details/483906.shtml)
-- 2026-06-29 18:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/65643.shtml)
-- 2026-06-29 18:41 - [V8](http://www.blog.minike.top/Article/details/364336492.shtml)
-- 2026-06-29 18:26 - [沙特外交大臣将访华](http://www.share.kurohicncr.top/Article/details/1143722.shtml)
+- 2026-06-29 18:46 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/0029846.shtml)
+- 2026-06-29 18:51 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/53821626.shtml)
+- 2026-06-29 18:30 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/144933461.shtml)
+- 2026-06-29 18:31 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/85467.shtml)
+- 2026-06-29 18:38 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/590220775.shtml)
+- 2026-06-29 18:54 - [斛珠夫人](http://www.blog.minike.top/Article/details/188954.shtml)
+- 2026-06-29 18:53 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/746367.shtml)
+- 2026-06-29 18:58 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/05448488108.shtml)
+- 2026-06-29 18:52 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/667061.shtml)
+- 2026-06-29 18:49 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/854426517453.shtml)
+- 2026-06-29 18:53 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/4266716144.shtml)
+- 2026-06-29 18:39 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/363895896687.shtml)
+- 2026-06-29 18:56 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/337115478.shtml)
+- 2026-06-29 18:34 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/1118213833.shtml)
+- 2026-06-29 18:56 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/569757.shtml)

@@ -1,52 +1,58 @@
-# 统一企业中国早盘涨近4% 第一季度税后利润同比增长22.5%
+# A股IPO月报|承销格局从“三中一华”变成“三国杀” 甬兴证券连撤两单储备数量归0
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-统一企业中国（00220）早盘涨超3%，截至发稿，股价上涨3.91%，现报7.70港元，成交额847.96万港元。 5月7日，统一企业中国公布，今年一季度税后利润约7.37亿人民币，同比升22.46%。华泰证券指出，剔除一次性收益（税后约7300万元）后税后利润同比增长10.3%，业绩具备韧性。收入端，26Q1整体收入同比增长中单位数，其中饮料业务与食品业务收入均同比增长中单位
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 2026年5月，A股IPO市场有19家公司首发上会，18家过会，名义过会率94.74%。6家企业撤回IPO申请，其中甬兴证券保荐的就有两家。连撤两单后，甬兴证券储备的IPO项目数量为0。 发行情况，5月份合计有13家新股上市，合计募资111.1亿元，
 
 ## 正文
 
-统一企业中国（00220）早盘涨超3%，截至发稿，股价上涨3.91%，现报7.70港元，成交额847.96万港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-5月7日，统一企业中国公布，今年一季度税后利润约7.37亿人民币，同比升22.46%。
+出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 2026年5月，A股IPO市场有19家公司首发上会，18家过会，名义过会率94.74%。
 
-华泰证券指出，剔除一次性收益（税后约7300万元）后税后利润同比增长10.3%，业绩具备韧性。
+6家企业撤回IPO申请，其中甬兴证券保荐的就有两家。
 
-收入端，26Q1整体收入同比增长中单位数，其中饮料业务与食品业务收入均同比增长中单位数，食品业务的收入增速略好于饮料业务；OEM业务收入同比基本持平。
+连撤两单后，甬兴证券储备的IPO项目数量为0。
 
-公司力争在市场竞争中维持价盘的稳定和产品力的领先，看好公司经营维持稳健，分红比例高企（25年分红比例100%），股息率具备吸引力。
+发行情况，5月份合计有13家新股上市，合计募资111.1亿元，较4月份环比大幅下降47.52%。
 
-责任编辑：卢昱君
+今年前五个月，中金公司、国泰海通、中信证券在承销规模、承销数量以及佣金收入方面排名前三，牢牢占据第一梯队。
+
+中信建投、华泰联合证券前五个月的A股首发承销金额分别位列第8名、第12名，较第一梯队有很大差距，今年后半年能否发力待检。
+
+上会审核情况：华盛雷达遭暂缓表决 Wind数据显示，今年5月份，总共迎来19家A股拟IPO企业上会接受审核，除了浙江华盛雷达股份有限公司（下称“华盛雷达”）被暂缓审议外，其余18家企业全部过会，名义过会率为94.74%。
 
 ## 相关推荐
 
-- 2026-06-29 18:43 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 18:43 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 18:51 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 18:33 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 18:49 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 18:29 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 18:37 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 18:52 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 18:31 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 18:41 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 18:37 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 18:40 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 18:46 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 18:52 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 18:55 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 18:34 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 18:54 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 18:39 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 18:47 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 18:46 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 18:43 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 18:36 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:42 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/26578.shtml)
-- 2026-06-29 18:37 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/74119.shtml)
-- 2026-06-29 18:38 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/903752082.shtml)
-- 2026-06-29 18:30 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/92047.shtml)
-- 2026-06-29 18:51 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/072959603.shtml)
-- 2026-06-29 18:52 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/984451992.shtml)
-- 2026-06-29 18:38 - [NBA交易](http://www.share.minike.top/Article/details/206594978.shtml)
-- 2026-06-29 18:27 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/33663555174.shtml)
-- 2026-06-29 18:41 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/167826.shtml)
-- 2026-06-29 18:46 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/56609878366.shtml)
-- 2026-06-29 18:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/3971917.shtml)
-- 2026-06-29 18:53 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/042450.shtml)
-- 2026-06-29 18:27 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/2562426.shtml)
-- 2026-06-29 18:27 - [黄金也扛不住了](http://www.share.minike.top/Article/details/733971767596.shtml)
-- 2026-06-29 18:34 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.kurohicncr.top/Article/details/3838118.shtml)
+- 2026-06-29 18:52 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/1044659845.shtml)
+- 2026-06-29 18:44 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/66491.shtml)
+- 2026-06-29 18:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/48802262496.shtml)
+- 2026-06-29 18:38 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/25513056.shtml)
+- 2026-06-29 18:30 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/82327500.shtml)
+- 2026-06-29 18:44 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/31701439138.shtml)
+- 2026-06-29 18:53 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/150302.shtml)
+- 2026-06-29 18:32 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/019420619294.shtml)
+- 2026-06-29 18:47 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/40707100.shtml)
+- 2026-06-29 18:54 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/8473025.shtml)
+- 2026-06-29 18:46 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/080847069.shtml)
+- 2026-06-29 18:54 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/804784783839.shtml)
+- 2026-06-29 18:35 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/7134029.shtml)
+- 2026-06-29 18:34 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/484818916100.shtml)
+- 2026-06-29 18:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/2341944.shtml)

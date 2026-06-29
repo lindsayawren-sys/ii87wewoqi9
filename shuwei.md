@@ -1,59 +1,57 @@
-# 午盘：美股继续上扬 纳指上涨350点
+# 经纬度：15省市“零填埋”，生活垃圾处理进入新模式
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-北京时间5月9日凌晨，美股周五午盘继续上扬，纳指上涨350点。标普500指数和纳斯达克综合再创历史新高。美国4月非农就业数据好于预期，同时交易员正关注美伊关系的最新进展。美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。 道指涨62.39点，涨幅为0.13%，报49659.36点；纳指涨346.89点，涨幅为1.34%，报26153.08点；标普500指数涨57.33
+据《人民日报》报道，记者从住房城乡建设部获悉：截至2025年底，全国焚烧设施达1137座，日处理能力达118万吨，北京、浙江、山东等15个省市实现原生生活垃圾“零填埋”，主要污染物排放控制居世界领先水平。 15省市原生生活垃圾“零填埋”，意味着全国有约半数省市告别了以填埋为主的传统垃圾处理模式，转向更清洁、更高效的焚烧处理模式，向生态环保和资源循环利用迈出了坚实一步。 在很长一
 
 ## 正文
 
-北京时间5月9日凌晨，美股周五午盘继续上扬，纳指上涨350点。
+据《人民日报》报道，记者从住房城乡建设部获悉：截至2025年底，全国焚烧设施达1137座，日处理能力达118万吨，北京、浙江、山东等15个省市实现原生生活垃圾“零填埋”，主要污染物排放控制居世界领先水平。
 
-标普500指数和纳斯达克综合再创历史新高。
+15省市原生生活垃圾“零填埋”，意味着全国有约半数省市告别了以填埋为主的传统垃圾处理模式，转向更清洁、更高效的焚烧处理模式，向生态环保和资源循环利用迈出了坚实一步。
 
-美国4月非农就业数据好于预期，同时交易员正关注美伊关系的最新进展。
+在很长一段时间里，生活垃圾的处理方式，就是找一片远离城区的空地，挖坑填埋。
 
-美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。
+这种方式简单粗暴，负面效应相当明显——占用大量土地，可能污染土壤和地下水，甚至导致一些地方“垃圾围城”。
 
-道指涨62.39点，涨幅为0.13%，报49659.36点；纳指涨346.89点，涨幅为1.34%，报26153.08点；标普500指数涨57.33点，涨幅为0.78%，报7394.44点。
+如今，这15个省市能做到原生垃圾不填埋，意味着所有的生活垃圾要么被焚烧发电，要么被回收利用。
 
-标普500指数和纳斯达克综合指数周五双双反弹，并再创历史新高。
+这种结构性转变并非一朝一夕之功，而是多年来在垃圾处理领域深耕细作的成果。
 
-美国劳工统计局周五公布的数据显示，4月非农就业人数增加11.5万，高于道琼斯调查经济学家预期的5.5万。
+一方面，在居民端，经过长期的宣传普及，垃圾分类工作不再是口头倡导，而是有了法律法规的约束，且已成为全民参与的自觉行动。
 
-美国失业率持稳于4.3%，符合预期。
+据报道，目前地级及以上城市出台垃圾分类有关地方性法规或规章199部，制定出台技术标准规范100余部，297个地级及以上城市居民小区垃圾分类基本实现全覆盖。
 
 ## 相关推荐
 
-- 2026-06-29 18:50 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 18:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 18:40 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 18:26 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 18:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 18:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 18:30 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 18:39 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 18:45 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 18:35 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 18:33 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 18:43 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 18:34 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 18:39 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 18:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 18:42 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 18:49 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 18:51 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 18:36 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 18:40 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 18:45 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 18:33 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 18:54 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 18:45 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:52 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/520654522483.shtml)
-- 2026-06-29 18:24 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/008680.shtml)
-- 2026-06-29 18:50 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/889370.shtml)
-- 2026-06-29 18:35 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/02608205.shtml)
-- 2026-06-29 18:40 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/0821608568.shtml)
-- 2026-06-29 18:52 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/697593151153.shtml)
-- 2026-06-29 18:52 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/185695.shtml)
-- 2026-06-29 18:29 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/427516.shtml)
-- 2026-06-29 18:51 - [波兰创该国高温纪录](https://www.share.minike.top/Article/details/7362626.shtml)
-- 2026-06-29 18:42 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/294374416912.shtml)
-- 2026-06-29 18:45 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/819538.shtml)
-- 2026-06-29 18:47 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/36559170.shtml)
-- 2026-06-29 18:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/267340605.shtml)
-- 2026-06-29 18:29 - [当我回母校教书](http://www.share.minike.top/Article/details/5104510161.shtml)
-- 2026-06-29 18:38 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/6487285347.shtml)
+- 2026-06-29 18:45 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/46018257.shtml)
+- 2026-06-29 18:44 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/37854493.shtml)
+- 2026-06-29 18:43 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/46297345.shtml)
+- 2026-06-29 18:30 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/537212990637.shtml)
+- 2026-06-29 18:50 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/18350.shtml)
+- 2026-06-29 18:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/589575.shtml)
+- 2026-06-29 18:31 - [第一炉香](http://www.share.kurohicncr.top/Article/details/15865.shtml)
+- 2026-06-29 18:36 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/26953.shtml)
+- 2026-06-29 18:47 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/951161.shtml)
+- 2026-06-29 18:35 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/91536.shtml)
+- 2026-06-29 18:52 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/274685241.shtml)
+- 2026-06-29 18:59 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/23641343.shtml)
+- 2026-06-29 18:46 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/142205652.shtml)
+- 2026-06-29 18:40 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/169095613.shtml)
+- 2026-06-29 18:42 - [V8](http://www.share.minike.top/Article/details/73438.shtml)

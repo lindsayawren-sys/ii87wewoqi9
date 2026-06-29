@@ -1,57 +1,59 @@
-# 王毅会见美国国会参议员代表团
+# MindWalk登革热临床前数据验证HYFT平台预测 股价一年涨超200%
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-5月7日，中共中央政治局委员、外交部长王毅在北京会见来华访问的美国国会参议员代表团戴安斯一行。 王毅说，此访是特朗普总统就任以来首个访华的美国国会两党参议员代表团，具有重要象征意义。希望你们通过此访感受中国发展新气象，搭建沟通新桥梁，探讨合作新领域，为中美关系稳定健康可持续发展增添新动力。 王毅表示，中美关系攸关两国人民福祉，牵动世界格局稳定。中方对美政策一以贯之，两国应以相互
+人工智能生物技术公司MindWalk Holdings Corp．周二宣布，其登革热项目的临床前数据成功验证了HYFT计算平台的预测能力。研究表明，基于该平台预测靶点设计的免疫原，成功诱导出能够与全部四种登革热血清型抗原产生交叉反应的抗体。 本次实验在HYFT平台进行动物免疫前即完成了对登革病毒泛血清型结构靶点的计算识别与优先级排序。后续的免疫数据在抗体结合层面支持了这一预测：
 
 ## 正文
 
-5月7日，中共中央政治局委员、外交部长王毅在北京会见来华访问的美国国会参议员代表团戴安斯一行。
+人工智能生物技术公司MindWalk Holdings Corp．周二宣布，其登革热项目的临床前数据成功验证了HYFT计算平台的预测能力。
 
-王毅说，此访是特朗普总统就任以来首个访华的美国国会两党参议员代表团，具有重要象征意义。
+研究表明，基于该平台预测靶点设计的免疫原，成功诱导出能够与全部四种登革热血清型抗原产生交叉反应的抗体。
 
-希望你们通过此访感受中国发展新气象，搭建沟通新桥梁，探讨合作新领域，为中美关系稳定健康可持续发展增添新动力。
+本次实验在HYFT平台进行动物免疫前即完成了对登革病毒泛血清型结构靶点的计算识别与优先级排序。
 
-王毅表示，中美关系攸关两国人民福祉，牵动世界格局稳定。
+后续的免疫数据在抗体结合层面支持了这一预测：接种基于预测靶点设计的免疫原的动物，产生了与所有四种登革热血清型抗原交叉反应的抗体。
 
-中方对美政策一以贯之，两国应以相互尊重为基石，以和平共处为准则，以合作共赢为目标，探索出一条大国正确相处之道，共同为世界和平与稳定作出贡献。
+这一结果在两项独立实验中均得到重现，两项实验使用了不同的免疫原形式和佐剂。
 
-一年多来习近平主席同特朗普总统多次通话会晤，在关键时刻校准了两国关系方向。
+而使用乱序序列的对照组未显示出相同的交叉血清型识别能力，表明免疫反应确实针对所设计的免疫原。
 
-中方愿同美方共同落实好两国元首重要共识，让中美关系真正稳下来、好起来，造福两国，惠及世界。
+MindWalk首席执行官兼总裁Jennifer Bath博士表示：“任何AI药物发现平台的核心问题，在于其计算预测是否与真实的生物学相对应。
 
-王毅说，要真正找到中美两个大国正确相处之道，关键是持续不断解决彼此认知问题，扣好两国关系“第一粒纽扣”。
+当动物实验支持了预测，我们就完成了一个从预测到结果的闭环，这是该疫苗平台首次实现这一验证。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 18:32 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 18:36 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 18:40 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 18:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 18:26 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 18:28 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 18:48 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 18:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 18:26 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 18:46 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 18:32 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 18:53 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 18:37 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 18:54 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 18:41 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 18:55 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 18:46 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 18:33 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 18:57 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 18:56 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 18:47 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 18:47 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 18:30 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/336221.shtml)
-- 2026-06-29 18:44 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/696669135.shtml)
-- 2026-06-29 18:26 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/560269158669.shtml)
-- 2026-06-29 18:34 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/693312712.shtml)
-- 2026-06-29 18:40 - [送你一朵小红花](http://www.blog.minike.top/Article/details/077880.shtml)
-- 2026-06-29 18:33 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/956769.shtml)
-- 2026-06-29 18:48 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/35315.shtml)
-- 2026-06-29 18:50 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/9178954262.shtml)
-- 2026-06-29 18:48 - [金刚川](https://www.share.kurohicncr.top/Article/details/10757994381.shtml)
-- 2026-06-29 18:48 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/09709703.shtml)
-- 2026-06-29 18:51 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/759531104.shtml)
-- 2026-06-29 18:34 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/951472873.shtml)
-- 2026-06-29 18:49 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/77251828437.shtml)
-- 2026-06-29 18:40 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/331316212579.shtml)
-- 2026-06-29 18:45 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/40954976947.shtml)
+- 2026-06-29 18:35 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/509973.shtml)
+- 2026-06-29 18:58 - [95后小伙突然确诊癌症 医生提醒](http://www.share.kurohicncr.top/Article/details/65520714.shtml)
+- 2026-06-29 18:43 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/7761866502.shtml)
+- 2026-06-29 18:36 - [中方向委方追加1亿元援助](http://www.blog.kurohicncr.top/Article/details/55684649.shtml)
+- 2026-06-29 18:47 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/7976832.shtml)
+- 2026-06-29 18:46 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/3771818947.shtml)
+- 2026-06-29 18:43 - [两老人多次到一洗车店泼粪](http://www.share.kurohicncr.top/Article/details/980571824.shtml)
+- 2026-06-29 18:39 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/22620.shtml)
+- 2026-06-29 18:30 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/668170068.shtml)
+- 2026-06-29 18:57 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/631363213.shtml)
+- 2026-06-29 18:41 - [《贺子珍》](https://www.share.minike.top/Article/details/57219019779.shtml)
+- 2026-06-29 18:40 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/27236007752.shtml)
+- 2026-06-29 18:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/129939539979.shtml)
+- 2026-06-29 18:55 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/449066.shtml)
+- 2026-06-29 18:38 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/6867110052.shtml)

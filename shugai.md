@@ -1,60 +1,60 @@
-# 小雨智造乔忠良：年出货10万台是具身智能决赛圈的门票
+# 港股硬科技，直线拉升！规模最大港股通信息技术ETF华宝（159131）冲高1.71%再创上市新高
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月9日电(左雨晴) “年出货10万台是具身智能决赛圈的门票。”小雨智造创始人、CEO 乔忠良近日表示，当前具身智能行业的痛点在于缺乏超级爆品，“iPhone时刻”还未到来。 业内普遍认为，2026年是具身智能应用元年与人形机器人量产元年，具身智能驱动的工业机器人产业变革正迎来落地拐点。 “年出货5000到1万台，是进入第一梯队的必要条件，年出货10万台，基本就锁定决
+6月3日，港股科技再度“K型分化”：恒生科技回调1.5%，聚焦硬科技的港股通信息C指数上攻超1%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）直线拉涨1.71%，盘中价格再度刷新上市以来高点，实时成交额超6亿元。 天风证券指出，短期港股或仍以结构性机会为主。从资金流向看，南向资金仍主要集中于信息技术及部分消费龙头，反映资金配置偏好仍集中在科技成长和高景气
 
 ## 正文
 
-中新网北京5月9日电(左雨晴) “年出货10万台是具身智能决赛圈的门票。
+6月3日，港股科技再度“K型分化”：恒生科技回调1.5%，聚焦硬科技的港股通信息C指数上攻超1%。
 
-”小雨智造创始人、CEO 乔忠良近日表示，当前具身智能行业的痛点在于缺乏超级爆品，“iPhone时刻”还未到来。
+同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）直线拉涨1.71%，盘中价格再度刷新上市以来高点，实时成交额超6亿元。
 
-业内普遍认为，2026年是具身智能应用元年与人形机器人量产元年，具身智能驱动的工业机器人产业变革正迎来落地拐点。
+天风证券指出，短期港股或仍以结构性机会为主。
 
-“年出货5000到1万台，是进入第一梯队的必要条件，年出货10万台，基本就锁定决赛圈的门票。
+从资金流向看，南向资金仍主要集中于信息技术及部分消费龙头，反映资金配置偏好仍集中在科技成长和高景气方向。
 
-”乔忠良认为，通向通用具身智能的路，必然由一线的生产场景来铺就，工业落地路线有机会做出真正的超级爆品。
+估值层面，恒生指数ERP虽较上周小幅回落，但仍保持一定配置吸引力，信息科技等行业PE分位仍处于相对低位，具备一定估值修复空间。
 
-近日，小雨智造宣布完成数亿元 B+ 轮融资，本轮融资由北汽产投、复星锐正和建发新兴三家新进投资方联合投资，老股东华业天成、贵州科创天使基金共同跟投，滴滴、小米联合创始人黎万强持续追加投资，庚辛资本作为独家财务顾问并进行投资。
+配置上，建议继续关注受益于AI资本开支扩张、南向资金持续关注且估值分位相对较低的互联网平台、半导体、硬件设备及光通信等科技成长方向。
 
-继B轮华业天成领投后，小雨智造投资方阵营已横跨消费电子、汽车、船舶、建筑四大产业门类，工业具身智能的产业生态版图进一步成型。
+东吴证券也认为，当港股行情值得期待，促涨因素正在持续累积，当前港股同时具备“外部科技扩散共振”与“内部估值轮动修复”双重催化。
 
-(完)
+从近六月表现来看，聚焦港股硬科技的港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数累计涨幅超25%，同期恒生科技、港股通科技的涨幅分别为-11.33%、-6.98%，锐度和弹性显著领先。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 18:51 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 18:41 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 18:52 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 18:46 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 18:53 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 18:51 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 18:42 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 18:26 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 18:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 18:37 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 18:44 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 18:40 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 18:52 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 18:42 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 18:47 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 18:57 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 18:55 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 18:58 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 18:53 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 18:36 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 18:32 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 18:43 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 18:43 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 18:51 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 18:49 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 18:40 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 18:32 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:52 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/0848355.shtml)
-- 2026-06-29 18:52 - [谢依霖夸杨幂靠谱](http://www.share.kurohicncr.top/Article/details/917005566.shtml)
-- 2026-06-29 18:50 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/53922199.shtml)
-- 2026-06-29 18:48 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/2853223.shtml)
-- 2026-06-29 18:43 - [起风了](https://www.share.minike.top/Article/details/17214348.shtml)
-- 2026-06-29 18:25 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/486008.shtml)
-- 2026-06-29 18:48 - [第一炉香](https://www.share.minike.top/Article/details/58659.shtml)
-- 2026-06-29 18:32 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/07763793522.shtml)
-- 2026-06-29 18:35 - [速度与激情9](http://www.share.minike.top/Article/details/218093.shtml)
-- 2026-06-29 18:43 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/339226.shtml)
-- 2026-06-29 18:24 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/590395820829.shtml)
-- 2026-06-29 18:26 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/6039373294.shtml)
-- 2026-06-29 18:51 - [沙特外交大臣将访华](https://www.share.kurohicncr.top/Article/details/05680.shtml)
-- 2026-06-29 18:43 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/41197641792.shtml)
-- 2026-06-29 18:36 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/8716359862.shtml)
+- 2026-06-29 18:52 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/65060907.shtml)
+- 2026-06-29 18:47 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/3914224923.shtml)
+- 2026-06-29 18:55 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/1712967504.shtml)
+- 2026-06-29 18:42 - [河南高院审委会原委员曲海滨被查](http://www.share.minike.top/Article/details/841384.shtml)
+- 2026-06-29 18:46 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/231624080.shtml)
+- 2026-06-29 18:36 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/3710948.shtml)
+- 2026-06-29 18:49 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/98326365802.shtml)
+- 2026-06-29 18:33 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/3845565.shtml)
+- 2026-06-29 18:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/074068.shtml)
+- 2026-06-29 18:34 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/12255236.shtml)
+- 2026-06-29 18:46 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/078167469410.shtml)
+- 2026-06-29 18:44 - [货车司机雨中帮交警挪树获表扬](https://www.share.kurohicncr.top/Article/details/7939835.shtml)
+- 2026-06-29 18:48 - [波兰创该国高温纪录](https://www.blog.minike.top/Article/details/652120279749.shtml)
+- 2026-06-29 18:51 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/60492914.shtml)
+- 2026-06-29 18:54 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/30298395389.shtml)

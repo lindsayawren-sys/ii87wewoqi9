@@ -1,60 +1,57 @@
-# 中国信通院联合腾讯、华为等发起智能体可信握手协议（ATH），建立智能体开源社区
+# A股年内25只半导体大牛股翻倍，千亿巨头盘中飙涨16%
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-IT之家 5 月 7 日消息，中国信通院今日宣布，为补齐产业交互安全短板，打通开源智能体生态信任壁垒，构建开放、规范、安全的产业发展环境，中国信息通信研究院（简称“中国信通院”）依托云计算开源产业联盟联合产业各方发起“智能体开源社区”。社区聚焦智能体开源生态建设与可信交互标准体系构建，以凝聚产业多方力量为核心，汇聚行业企业、科研机构等多方主体资源，聚力破解开源智能体协同交互的信
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨李益文 编辑丨李燕娜 江佩霞 截至3日收盘，A股半导体概念大爆发，广立微涨幅超17%领涨，源杰科技、沐曦股份涨幅超16%、14%，据Wind数据，A股年内25只半导体概念股涨幅翻倍，其中涨幅最高为源杰科技，年内涨幅超217%。 千亿巨头盘中飙涨16% 3日午后，A股市场半导体设备板块异动拉升，成为当日
 
 ## 正文
 
-IT之家 5 月 7 日消息，中国信通院今日宣布，为补齐产业交互安全短板，打通开源智能体生态信任壁垒，构建开放、规范、安全的产业发展环境，中国信息通信研究院（简称“中国信通院”）依托云计算开源产业联盟联合产业各方发起“智能体开源社区”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-社区聚焦智能体开源生态建设与可信交互标准体系构建，以凝聚产业多方力量为核心，汇聚行业企业、科研机构等多方主体资源，聚力破解开源智能体协同交互的信任与安全难题，全方位推动开源智能体技术安全迭代、规范落地与规模化产业应用。
+记者丨李益文 编辑丨李燕娜 江佩霞 截至3日收盘，A股半导体概念大爆发，广立微涨幅超17%领涨，源杰科技、沐曦股份涨幅超16%、14%，据Wind数据，A股年内25只半导体概念股涨幅翻倍，其中涨幅最高为源杰科技，年内涨幅超217%。
 
-同时，针对当前智能体交互场景的各类行业痛点，中国信通院、中国电信集团有限公司、中国联合网络通信有限公司、中移九天人工智能科技（北京）有限公司、香港中文大学（深圳）、中兴通讯股份有限公司、腾讯科技（北京）有限公司、华为技术有限公司共同发起智能体可信握手协议（ATH）1.0。
+千亿巨头盘中飙涨16% 3日午后，A股市场半导体设备板块异动拉升，成为当日盘面焦点。
 
-该协议聚焦多智能体跨主体、跨平台协同交互场景，搭建了专业、通用、标准化的智能体可信交互框架，精准覆盖 AI 智能体身份互验、访问权限管控、行为审计等核心场景，为全行业智能体交互场景提供技术标准与落地依据。
+千亿半导体巨头盛美上海（688082.SH）涨超16%，强势领涨，截至收盘涨幅收窄至12.39%。
 
-智能体可信握手协议（ATH）1.0 已正式在 AtomGit、GitHub 开源发布，诚邀行业伙伴共参共建、迭代与生态落地。
+芯源微（688037.SH）、华峰测控（688200.SH）、拓荆科技（688072.SH）、矽电股份（301629.SZ）、长川科技（维权）（300604.SZ）、富创精密（688409.SH）等跟涨。
 
-智能体可信握手协议（ATH）秉持用户主权、三方参与、可信握手、去中心化、最小权限、全程可追溯六大核心设计理念，搭建用户、智能体、应用三方协同的专属握手机制。
+SK海力士扩产引爆行情 市场情绪被一则来自产业前沿的重磅消息点燃。
 
-协议构建了身份验证、可信握手、安全会话的全流程标准化体系，可对智能体各类交互行为实现全方位可信治理。
+据财联社报道，6月2日，韩国SK集团会长崔泰源在台北电脑展（Computex）现场对媒体透露，旗下存储芯片公司SK海力士计划五年内将晶圆产能翻番，以应对全球人工智能基础设施建设带来的内存芯片持续短缺。
 
-参考
+事实上，SK海力士的大规模扩产计划，正是全球存储行业迈入超级景气周期的典型缩影。
 
 ## 相关推荐
 
-- 2026-06-29 18:32 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 18:31 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 18:32 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 18:50 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 18:45 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 18:26 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 18:39 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 18:26 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 18:32 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 18:36 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 18:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 18:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 18:25 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 18:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 18:53 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 18:30 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 18:53 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 18:59 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 18:53 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 18:36 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 18:59 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 18:54 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 18:48 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 18:56 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 18:58 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:28 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/0964524758.shtml)
-- 2026-06-29 18:49 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.minike.top/Article/details/146241.shtml)
-- 2026-06-29 18:32 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/787905638260.shtml)
-- 2026-06-29 18:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/29290.shtml)
-- 2026-06-29 18:32 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/320391026551.shtml)
-- 2026-06-29 18:36 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/8789162778.shtml)
-- 2026-06-29 18:41 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/91167419.shtml)
-- 2026-06-29 18:24 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/5788764476.shtml)
-- 2026-06-29 18:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/12108.shtml)
-- 2026-06-29 18:41 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/054451951124.shtml)
-- 2026-06-29 18:43 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/7350154269.shtml)
-- 2026-06-29 18:41 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/5838967295.shtml)
-- 2026-06-29 18:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/041595.shtml)
-- 2026-06-29 18:51 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/6759594.shtml)
-- 2026-06-29 18:48 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/3556763341.shtml)
+- 2026-06-29 18:30 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/23155.shtml)
+- 2026-06-29 18:49 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/72233070465.shtml)
+- 2026-06-29 18:53 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/20614.shtml)
+- 2026-06-29 18:33 - [许建琼任湖南省检察院副检察长](http://www.blog.minike.top/Article/details/04593555.shtml)
+- 2026-06-29 18:42 - [女生每天戴耳机18小时突发耳聋](https://www.share.kurohicncr.top/Article/details/22528.shtml)
+- 2026-06-29 18:35 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/142556.shtml)
+- 2026-06-29 18:44 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/788445111.shtml)
+- 2026-06-29 18:49 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/831097402795.shtml)
+- 2026-06-29 18:36 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/186142183.shtml)
+- 2026-06-29 18:40 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/10340069698.shtml)
+- 2026-06-29 18:48 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/46142204.shtml)
+- 2026-06-29 18:37 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/94529661781.shtml)
+- 2026-06-29 18:43 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/490014883781.shtml)
+- 2026-06-29 18:35 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/67900209761.shtml)
+- 2026-06-29 18:37 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/9990552446.shtml)

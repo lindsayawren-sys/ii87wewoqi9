@@ -1,57 +1,58 @@
-# 美国情报部门：伊朗最高领袖穆杰塔巴仍在主导战争战略
+# 特朗普任命联邦住房金融署署长比尔・普尔特出任代理国家情报总监
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-据多名了解相关情报的消息人士透露，美国情报机构评估认为，伊朗最高领袖穆杰塔巴正与伊朗高层官员一道，在制定战争战略方面发挥关键作用。相关情报报告指出，穆杰塔巴・哈梅内伊很可能在牵头统筹伊朗与美国开展停战谈判的相关事宜。 战争伊始发生的一场袭击致使穆杰塔巴・哈梅内伊身受重伤，其父及多名伊朗军方高层均在袭击中身亡。此后，哈梅内伊便再未公开露面，外界一直猜测其健康状况以及在伊朗领导层中
+核心要点 特朗普于当地时间周二宣布，委任联邦住房金融署署长比尔・普尔特出任代理国家情报总监，由这位向来力挺总统、曾针对特朗普政敌采取相关举措的亲信执掌庞大的美国情报体系。 现任国家情报总监图尔茜・加巴德已于上月发布声明，辞职生效日定为 6 月 30 日。 特朗普在真实社交平台发文披露，普尔特此前从未涉足情报相关工作，就任代理情报总监后，将继续保留联邦住房金融署署长、房利美与房地
 
 ## 正文
 
-据多名了解相关情报的消息人士透露，美国情报机构评估认为，伊朗最高领袖穆杰塔巴正与伊朗高层官员一道，在制定战争战略方面发挥关键作用。
+核心要点 特朗普于当地时间周二宣布，委任联邦住房金融署署长比尔・普尔特出任代理国家情报总监，由这位向来力挺总统、曾针对特朗普政敌采取相关举措的亲信执掌庞大的美国情报体系。
 
-相关情报报告指出，穆杰塔巴・哈梅内伊很可能在牵头统筹伊朗与美国开展停战谈判的相关事宜。
+现任国家情报总监图尔茜・加巴德已于上月发布声明，辞职生效日定为 6 月 30 日。
 
-战争伊始发生的一场袭击致使穆杰塔巴・哈梅内伊身受重伤，其父及多名伊朗军方高层均在袭击中身亡。
+特朗普在真实社交平台发文披露，普尔特此前从未涉足情报相关工作，就任代理情报总监后，将继续保留联邦住房金融署署长、房利美与房地美两大住房抵押贷款机构董事长的原有职务。
 
-此后，哈梅内伊便再未公开露面，外界一直猜测其健康状况以及在伊朗领导层中的实际地位。
+特朗普此前曾表态，待加巴德离任后，由国家情报副总监阿伦・卢卡斯接任代理国家情报总监一职。
 
-消息人士称，目前停火状态已持续一个多月，特朗普政府仍致力于通过外交途径平息这场冲突。
+白宫暂未回复美国消费者新闻与商业频道（CNBC）的问询，未明确普尔特正式履职情报部门的时间，以及卢卡斯是否继续留任原岗位。
 
-美国情报评估认为，伊朗仍在从美军的大规模轰炸中恢复元气；伊朗核心军事力量并未遭受毁灭性打击，有能力撑过美方长达数月的封锁。
+特朗普在社交帖文中评价：“威廉（比尔・普尔特）在处理美国高度敏感事务、维护金融市场稳健运行方面经验深厚，执掌房利美、房地美超 10 万亿美元资产，相关资产规模较一年前实现大幅增长。
 
-消息人士表示，遇袭受伤数日后，穆杰塔巴・哈梅内伊便被正式宣布接替其父，出任伊朗新任最高领袖，但时至今日，美国情报机构始终未能通过影像确认其确切行踪。
-
-其中一名消息人士补充道，局势之所以存在诸多不确定性，部分原因在于哈梅内伊不使用任何电子设备进行通讯，仅与能够当面觐见他的人员接触，或是通过信使传递信息。
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 18:28 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 18:45 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 18:52 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 18:40 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 18:30 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 18:51 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 18:49 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 18:41 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 18:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 18:42 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 18:25 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 18:59 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 18:33 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 18:45 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 18:54 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 18:47 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 18:57 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 18:30 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 18:47 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 18:55 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 18:44 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 18:34 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 18:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 18:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 18:51 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/7668237811.shtml)
-- 2026-06-29 18:30 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/31399823.shtml)
-- 2026-06-29 18:27 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/0227216.shtml)
-- 2026-06-29 18:33 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/973894.shtml)
-- 2026-06-29 18:27 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/62270.shtml)
-- 2026-06-29 18:40 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/800855042754.shtml)
-- 2026-06-29 18:25 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/6358712.shtml)
-- 2026-06-29 18:32 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/7239027726.shtml)
-- 2026-06-29 18:48 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/005727152063.shtml)
-- 2026-06-29 18:27 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/5136105568.shtml)
-- 2026-06-29 18:39 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/996404998.shtml)
-- 2026-06-29 18:48 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/545157745.shtml)
-- 2026-06-29 18:49 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/28237377014.shtml)
-- 2026-06-29 18:26 - [一见倾心](https://www.blog.minike.top/Article/details/07219542752.shtml)
-- 2026-06-29 18:26 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/678763070916.shtml)
+- 2026-06-29 18:46 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/6038210653.shtml)
+- 2026-06-29 18:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/320825287.shtml)
+- 2026-06-29 18:30 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/3080515781.shtml)
+- 2026-06-29 18:37 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/26188148.shtml)
+- 2026-06-29 18:49 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/9671611.shtml)
+- 2026-06-29 18:56 - [大马同意延长马航370残骸搜寻工作](https://www.share.kurohicncr.top/Article/details/236471.shtml)
+- 2026-06-29 18:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/99814365263.shtml)
+- 2026-06-29 18:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/280069022.shtml)
+- 2026-06-29 18:43 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/306568.shtml)
+- 2026-06-29 18:50 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/27780865408.shtml)
+- 2026-06-29 18:38 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/406765047.shtml)
+- 2026-06-29 18:50 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/881373508.shtml)
+- 2026-06-29 18:43 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/518242188.shtml)
+- 2026-06-29 18:41 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/1814794.shtml)
+- 2026-06-29 18:34 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/4858794.shtml)

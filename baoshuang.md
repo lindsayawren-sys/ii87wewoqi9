@@ -1,59 +1,57 @@
-# 老年人刷手机，小心这些“健康账单”
+# 超越美债，黄金成为全球最大储备资产
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-新华社济南5月7日电(记者李志浩、李佳巍)近年来，随着智能手机操作使用越来越便捷，不少老年人跨过“数字鸿沟”，成了“银发低头族”，相关健康风险正在显现。 专家提醒，适度使用手机有助于老年人获取信息、增强社交，但若长期过度使用，可能会损伤眼睛、颈椎等部位，并扰乱作息，影响身心健康。如何在享受数字便利的同时守护老年人身心健康，成为每个家庭需要面对的新课题。 眼睛、颈椎、睡眠 被透支
+作者 | 第一财经 樊志菁 欧央行在最新发布的年度重磅报告中表示，在各国央行持续增持实物黄金、金价稳居历史高位附近的背景下，黄金已超越美国国债，成为全球最大储备资产。 地缘因素催生需求 欧洲央行周二发布《2026年度欧元国际地位报告》称，黄金持仓占比已经超越美国国债，登顶全球央行储备榜首。 截至2025年年末，在包含外汇与黄金的全球官方储备总量中，黄金占比升至27%，上年同期为
 
 ## 正文
 
-新华社济南5月7日电(记者李志浩、李佳巍)近年来，随着智能手机操作使用越来越便捷，不少老年人跨过“数字鸿沟”，成了“银发低头族”，相关健康风险正在显现。
+作者 | 第一财经 樊志菁 欧央行在最新发布的年度重磅报告中表示，在各国央行持续增持实物黄金、金价稳居历史高位附近的背景下，黄金已超越美国国债，成为全球最大储备资产。
 
-专家提醒，适度使用手机有助于老年人获取信息、增强社交，但若长期过度使用，可能会损伤眼睛、颈椎等部位，并扰乱作息，影响身心健康。
+地缘因素催生需求 欧洲央行周二发布《2026年度欧元国际地位报告》称，黄金持仓占比已经超越美国国债，登顶全球央行储备榜首。
 
-如何在享受数字便利的同时守护老年人身心健康，成为每个家庭需要面对的新课题。
+截至2025年年末，在包含外汇与黄金的全球官方储备总量中，黄金占比升至27%，上年同期为20%；美国国债占比从25%回落至22%，欧元计价储备占比维持15%不变。
 
-眼睛、颈椎、睡眠 被透支的“生理账单” 山东大学齐鲁医院眼科近视眼治疗中心副主任蒋华表示，与年轻人相比，老年人用眼“承受力”更弱，长时间盯着手机屏幕更易诱发或加重一些老年常见眼部疾病。
+此次位次变动主要由估值变动推动：去年全球央行的黄金实际购金节奏有所放缓，但国际金价大幅飙升。
 
-“对于老年人来说，长时间盯看手机，容易让这些疾病潜移默化中‘任性发展’，极易对视功能造成严重影响。
+欧洲央行表示，若沿用2023年金价核算，美国国债仍以26%的占比稳居首位，黄金仅为16%。
 
-”特别是一些老年人喜欢侧躺或平躺看手机。
+欧洲央行行长克里斯蒂娜・拉加德在报告中写道：“地缘紧张局势持续助推各国央行大举配置黄金。
 
-蒋华说：“这些看似‘舒服’的用眼习惯其实更伤眼。
+”欧洲央行表示，新兴经济体中国、波兰、土耳其、印度等国持续购金重塑了全球储备配置结构，叠加金价大幅上涨，共同推高黄金在储备总资产中的权重。
 
-” 这些姿势易让双眼与屏幕距离不一致，反而增加了眼部调节负担。
+储备结构变动折射出多国推进外汇储备去美元化、分散储备币种的大趋势，不过美元依旧是全球首要储备货币。
 
 ## 相关推荐
 
-- 2026-06-29 18:30 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 18:25 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 18:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 18:29 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 18:42 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 18:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 18:48 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 18:42 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 18:36 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 18:31 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 18:45 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 18:32 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 18:52 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 18:59 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 18:55 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 18:41 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 18:43 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 18:43 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 18:39 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 18:30 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 18:51 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 18:35 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 18:39 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 18:39 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:46 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/5021911552.shtml)
-- 2026-06-29 18:40 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/008531.shtml)
-- 2026-06-29 18:45 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/5403191.shtml)
-- 2026-06-29 18:49 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/167085812925.shtml)
-- 2026-06-29 18:29 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/437816329.shtml)
-- 2026-06-29 18:30 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/7345639.shtml)
-- 2026-06-29 18:26 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/86172.shtml)
-- 2026-06-29 18:47 - [啊啊啊](http://www.share.minike.top/Article/details/4048368.shtml)
-- 2026-06-29 18:27 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/7678213.shtml)
-- 2026-06-29 18:41 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/16301886.shtml)
-- 2026-06-29 18:32 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/948635.shtml)
-- 2026-06-29 18:36 - [四川达州发生一起交通事故致2死](https://www.share.kurohicncr.top/Article/details/548540352652.shtml)
-- 2026-06-29 18:51 - [金刚川](http://www.share.minike.top/Article/details/790536.shtml)
-- 2026-06-29 18:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/5486023.shtml)
-- 2026-06-29 18:29 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/406838589.shtml)
+- 2026-06-29 18:38 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/92018.shtml)
+- 2026-06-29 18:53 - [东方风云榜](http://www.share.minike.top/Article/details/783614446711.shtml)
+- 2026-06-29 18:38 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/5564990.shtml)
+- 2026-06-29 18:54 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/77281664.shtml)
+- 2026-06-29 18:48 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.kurohicncr.top/Article/details/71260.shtml)
+- 2026-06-29 18:58 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/5545001953.shtml)
+- 2026-06-29 18:48 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/7699439.shtml)
+- 2026-06-29 18:36 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/013669.shtml)
+- 2026-06-29 18:45 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/6291423345.shtml)
+- 2026-06-29 18:42 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/8458140.shtml)
+- 2026-06-29 18:53 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/7231238.shtml)
+- 2026-06-29 18:38 - [逃狱兄弟](https://www.share.minike.top/Article/details/04851710.shtml)
+- 2026-06-29 18:52 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/043702.shtml)
+- 2026-06-29 18:54 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/553790912453.shtml)
+- 2026-06-29 18:36 - [沉睡花园](http://www.blog.minike.top/Article/details/465753.shtml)

@@ -1,59 +1,57 @@
-# 太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分
+# 强制民众出售美元？韩国总统呼吁严惩散布假消息者
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新网太原5月8日电 (记者 杨静)针对近期舆论关注的太原市第二十九中学校(以下简称“二十九中”)职工柳某自曝“吃空饷”一事，当地联合调查组8日发布通报，认定二十九中对柳某长期不上班未尽管理责任，存在“吃空饷”问题，多名相关责任人受到党纪处分。据通报，柳某原为山西省贸易学校食堂会计兼管理员。2019年9月，二十九中根据其个人申请并经商原单位同意，启动人事调动程序，经太原市教育局
+韩国总统李在明周二呼吁严惩那些明知故犯散布虚假信息的人。他援引警方正在调查的网络假新闻，该假新闻声称政府将强制民众出售美元。 李在明在其社交媒体账号上发出这一呼吁，并附上了一篇新闻报道，称警方已确认10名涉嫌散布假新闻的人员。这些假新闻声称政府将发布紧急命令，要求出售美元以应对中东冲突引发的经济危机。 李在明在账号上写道：“故意散布虚假信息，造成社会混乱和经济损失的行为，必须被
 
 ## 正文
 
-中新网太原5月8日电 (记者 杨静)针对近期舆论关注的太原市第二十九中学校(以下简称“二十九中”)职工柳某自曝“吃空饷”一事，当地联合调查组8日发布通报，认定二十九中对柳某长期不上班未尽管理责任，存在“吃空饷”问题，多名相关责任人受到党纪处分。
+韩国总统李在明周二呼吁严惩那些明知故犯散布虚假信息的人。
 
-据通报，柳某原为山西省贸易学校食堂会计兼管理员。
+他援引警方正在调查的网络假新闻，该假新闻声称政府将强制民众出售美元。
 
-2019年9月，二十九中根据其个人申请并经商原单位同意，启动人事调动程序，经太原市教育局、市人社局审批同意，于2019年11月19日正式将柳某调入二十九中工作。
+李在明在其社交媒体账号上发出这一呼吁，并附上了一篇新闻报道，称警方已确认10名涉嫌散布假新闻的人员。
 
-本次调动符合相关规定。
+这些假新闻声称政府将发布紧急命令，要求出售美元以应对中东冲突引发的经济危机。
 
-2020年1月，柳某在二十九中工作一个多月后，因工作岗位未达个人预期等原因，不再到岗履职，并要求学校将其退回原单位工作。
+李在明在账号上写道：“故意散布虚假信息，造成社会混乱和经济损失的行为，必须被查明并严惩。
 
-其间，学校多次督促其到岗上班，但柳某拒绝并长期脱离岗位。
+” 他强调，散布损害公众利益的假新闻绝非言论自由，也绝不能容忍。
 
-为此，二十九中自2022年起陆续停发其年度考核奖、奖励性绩效工资等，但一直未停发其基本工资和部分绩效工资。
+李在明指出：“任何伤害民众或破坏公共秩序和价值观的行为，都等同于严重犯罪，必须受到严惩，即使是出于玩笑。
 
-调查组认定，二十九中对柳某无正当理由长期不上班未尽到管理责任，存在“吃空饷”的问题，应追究相关人员责任。
+” 当有关美元抛售的说法在网络社区和博客上流传时，韩国财政部驳斥这些说法是“假新闻”，称从未讨论过这样的措施。
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 18:48 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 18:31 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 18:44 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 18:49 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 18:51 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 18:47 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 18:43 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 18:34 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 18:49 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 18:24 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 18:31 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 18:51 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 18:34 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 18:55 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 18:43 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 18:30 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 18:45 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 18:42 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 18:59 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 18:34 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 18:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 18:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 18:32 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:40 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/642917965.shtml)
-- 2026-06-29 18:33 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/85925.shtml)
-- 2026-06-29 18:43 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/855148.shtml)
-- 2026-06-29 18:38 - [网红小徐直播时突遇地震](https://www.blog.kurohicncr.top/Article/details/3941773726.shtml)
-- 2026-06-29 18:53 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/066292.shtml)
-- 2026-06-29 18:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/954576464.shtml)
-- 2026-06-29 18:44 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/525235953822.shtml)
-- 2026-06-29 18:53 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/531262.shtml)
-- 2026-06-29 18:31 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/07140373034.shtml)
-- 2026-06-29 18:45 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/534912698249.shtml)
-- 2026-06-29 18:53 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/997214.shtml)
-- 2026-06-29 18:43 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/8717744.shtml)
-- 2026-06-29 18:40 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/86015353684.shtml)
-- 2026-06-29 18:44 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/931988010347.shtml)
-- 2026-06-29 18:38 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/26476847137.shtml)
+- 2026-06-29 18:35 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/5141238.shtml)
+- 2026-06-29 18:36 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/5520501443.shtml)
+- 2026-06-29 18:42 - [毒液2](https://www.share.minike.top/Article/details/51382.shtml)
+- 2026-06-29 18:58 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/1772033989.shtml)
+- 2026-06-29 18:58 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/8378466.shtml)
+- 2026-06-29 18:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/91068016851.shtml)
+- 2026-06-29 18:41 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/9286016648.shtml)
+- 2026-06-29 18:50 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/58791792.shtml)
+- 2026-06-29 18:47 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/9039557.shtml)
+- 2026-06-29 18:31 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/1851170141.shtml)
+- 2026-06-29 18:32 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/9918893.shtml)
+- 2026-06-29 18:45 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/916649728029.shtml)
+- 2026-06-29 18:34 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/4105039.shtml)
+- 2026-06-29 18:31 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/3571213988.shtml)
+- 2026-06-29 18:48 - [斛珠夫人](https://www.share.minike.top/Article/details/354704680933.shtml)

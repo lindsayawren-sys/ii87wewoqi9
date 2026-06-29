@@ -1,56 +1,56 @@
-# 丰田预警：中东战争将造成42亿美元损失
+# 中国驻日本大使馆举办“六一”国际儿童节庆祝活动
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-丰田汽车表示，中东冲突将导致其零部件价格上涨、销量受损，合计损失达6700亿日元（约合42亿美元），成为最新一家公开披露此次动荡带来经营压力的汽车制造商。 这家全球最大汽车制造商周五称，受铝、橡胶轮胎等零部件价格飙升，以及中东地区销量下滑影响，公司净利润将下降22%至3万亿日元，这将是其净利润连续第三年下滑。 丰田财务集团首席负责人表示：“我们认为无法完全抵消中东冲突带来的67
+中新网东京6月2日电 (记者 朱晨曦)5月31日，中国驻日本大使馆举办“六一”国际儿童节庆祝活动。 中国驻日本大使吴江浩和夫人丁玥邀请第十二届“大使杯”中文朗诵比赛获奖选手、横滨山手中华学校、东京华侨总会、全日本华侨华人社团联合会、在日华校及日本本村小学近300名小朋友来馆，同使馆阳光学校学生共庆“六一”。施泳公使、赵宝钢公使、日本华文教育协会会长颜安、横滨山手中华学校校长张岩
 
 ## 正文
 
-丰田汽车表示，中东冲突将导致其零部件价格上涨、销量受损，合计损失达6700亿日元（约合42亿美元），成为最新一家公开披露此次动荡带来经营压力的汽车制造商。
+中新网东京6月2日电 (记者 朱晨曦)5月31日，中国驻日本大使馆举办“六一”国际儿童节庆祝活动。
 
-这家全球最大汽车制造商周五称，受铝、橡胶轮胎等零部件价格飙升，以及中东地区销量下滑影响，公司净利润将下降22%至3万亿日元，这将是其净利润连续第三年下滑。
+中国驻日本大使吴江浩和夫人丁玥邀请第十二届“大使杯”中文朗诵比赛获奖选手、横滨山手中华学校、东京华侨总会、全日本华侨华人社团联合会、在日华校及日本本村小学近300名小朋友来馆，同使馆阳光学校学生共庆“六一”。
 
-丰田财务集团首席负责人表示：“我们认为无法完全抵消中东冲突带来的6700亿日元负面影响。
+施泳公使、赵宝钢公使、日本华文教育协会会长颜安、横滨山手中华学校校长张岩松、东京华侨总会会长钱江丽子、本村小学校长山崎高志、在日华文教育工作者及使馆各部门负责人出席。
 
-” 除上述成本激增外，美国税收还给丰田带来1.4万亿日元的额外负担，这也是截至今年3月的财年净利润下降19%至3.8万亿日元的原因之一，尽管该业绩仍超出此前预期。
+吴江浩大使为中文朗诵比赛获奖选手颁奖，向参加活动的中日两国小朋友致以节日祝福。
 
-丰田的预估凸显出此次冲突对全球汽车行业的冲击持续扩大。
+丁玥鼓励在日华侨华人子女传承弘扬中华民族精神，期待日本小朋友以此次活动为契机进一步认识和了解中国。
 
-此前，美国三大车企已警告称，大宗商品通胀将给它们带来50亿美元财务损失。
+颜安感谢使馆连续3年精心打造“六一”庆祝活动，向孩子们传递祖国的温暖与关爱。
 
-财报发布后，丰田在东京股市股价下跌2.1%，今年以来累计下跌14.3%。
+现场进行了中国历史文化知识问答，小朋友们表演了舞蹈、京剧、艺术体操、武术等精彩节目。
 
-丰田财务集团首席负责人表示，此次成本上涨预估基于冲突将持续至明年3月的假设；其他日本企业在业绩指引中则假设冲突会更早结束。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:25 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 18:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 18:43 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 18:25 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 18:52 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 18:52 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 18:30 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 18:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 18:37 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 18:40 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 18:56 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 18:44 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 18:49 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 18:51 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 18:33 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 18:36 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 18:31 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 18:37 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 18:36 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 18:59 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/5855105653.shtml)
-- 2026-06-29 18:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/54311.shtml)
-- 2026-06-29 18:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/247629018.shtml)
-- 2026-06-29 18:34 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/774338132393.shtml)
-- 2026-06-29 18:43 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/302662.shtml)
-- 2026-06-29 18:35 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/443903651.shtml)
-- 2026-06-29 18:49 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/43712895.shtml)
-- 2026-06-29 18:24 - [首个靠AI躺赢的国家](https://www.share.minike.top/Article/details/180612776929.shtml)
-- 2026-06-29 18:39 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.kurohicncr.top/Article/details/4486381984.shtml)
-- 2026-06-29 18:45 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/2160417.shtml)
-- 2026-06-29 18:39 - [沙丘](http://www.blog.minike.top/Article/details/7285013.shtml)
-- 2026-06-29 18:36 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/487517.shtml)
-- 2026-06-29 18:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/874039897.shtml)
-- 2026-06-29 18:33 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/12215894.shtml)
-- 2026-06-29 18:36 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/45978197731.shtml)
+- 2026-06-29 18:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/60454.shtml)
+- 2026-06-29 18:45 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/04314273.shtml)
+- 2026-06-29 18:42 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/671949.shtml)
+- 2026-06-29 18:59 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/16544.shtml)
+- 2026-06-29 18:49 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/451477.shtml)
+- 2026-06-29 18:38 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/747235180316.shtml)
+- 2026-06-29 18:49 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/40080379.shtml)
+- 2026-06-29 18:34 - [V8](https://www.blog.kurohicncr.top/Article/details/7137330638.shtml)
+- 2026-06-29 18:30 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/23767.shtml)
+- 2026-06-29 18:53 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/8100919673.shtml)
+- 2026-06-29 18:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/522299213144.shtml)
+- 2026-06-29 18:58 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/15084587344.shtml)
+- 2026-06-29 18:55 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/315457631.shtml)
+- 2026-06-29 18:54 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/381466.shtml)
+- 2026-06-29 18:48 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/07900.shtml)

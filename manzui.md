@@ -1,60 +1,56 @@
-# 广西百色：构建辐射东盟、链接全球的物流“金丝带”
+# 北京脑机接口临床转化加速推进
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-原标题：这趟“水果专列”不简单 春光正好，百色市的芒果花开了，细细密密，铺满山坡。微风拂过，花香飘满山间，满载新鲜果蔬的“百色一号”专列疾驰而过，轮轨摩擦发出有节奏的声响。 2013年底，百色—北京果蔬专列“百色一号”正式开行。12年来，这趟专列累计开行超2800趟，其中完成跨境运输1413趟，带动国内外农产品流通91万吨。 “百色一号”专列探索“冷链专列+骨干基地+区域品牌”
+中新网北京6月2日电 (赵方园)“要打破学科壁垒，坚持让基础研究贴近临床、工程技术服务病患。”近日，在2026年“临床脑机接口”学科交叉博士后学术交流活动上，首都医科大学宣武医院院长赵国光如是说。 赵国光介绍，宣武医院长期深耕医工交叉赛道，在临床脑机接口领域走出了一条从源头技术攻关到器械合规上市的全链条创新之路。他表示，未来医院将持续加码脑机接口学科建设，完善博士后全周期培养体
 
 ## 正文
 
-原标题：这趟“水果专列”不简单 春光正好，百色市的芒果花开了，细细密密，铺满山坡。
+中新网北京6月2日电 (赵方园)“要打破学科壁垒，坚持让基础研究贴近临床、工程技术服务病患。
 
-微风拂过，花香飘满山间，满载新鲜果蔬的“百色一号”专列疾驰而过，轮轨摩擦发出有节奏的声响。
+”近日，在2026年“临床脑机接口”学科交叉博士后学术交流活动上，首都医科大学宣武医院院长赵国光如是说。
 
-2013年底，百色—北京果蔬专列“百色一号”正式开行。
+赵国光介绍，宣武医院长期深耕医工交叉赛道，在临床脑机接口领域走出了一条从源头技术攻关到器械合规上市的全链条创新之路。
 
-12年来，这趟专列累计开行超2800趟，其中完成跨境运输1413趟，带动国内外农产品流通91万吨。
+他表示，未来医院将持续加码脑机接口学科建设，完善博士后全周期培养体系，全方位护航青年人才成长，推动更多可落地、可普惠的医疗新技术早日造福患者。
 
-“百色一号”专列探索“冷链专列+骨干基地+区域品牌”发展模式，助力百色构建连接东盟、直达京津冀、融入粤港澳、对接中欧班列的冷链物流网络，成为辐射东盟、链接全球的物流“金丝带”。
+2026年“临床脑机接口”学科交叉博士后学术交流活动由全国博士后管委会办公室、人力资源社会保障部留学人员和专家服务中心、中国博士后科学基金会共同指导，北京市人力资源和社会保障局主办，首都医科大学宣武医院承办，汇聚了国内脑科学、人工智能及临床医学领域的多位顶尖院士与青年学者。
 
-织网：联农带农拓市场 4月29日，百色室外最高气温接近30℃，莫尚攀打开广西百色一号农业发展有限公司冷链仓库的大门，一股冷风扑面而来。
+会上，中国工程院院士吉训明强调，大脑在人类探索自然、维护机体健康及应对衰老过程中起着决定性作用，而脑机接口技术既是人类征服神经系统疾病的重要手段，更是迈向更高生活质量的关键一步。
 
-芒果、百香果、火龙果的果浆、果块和肉类等产品在此低温环境下贮藏，工人驾驶高位叉车穿梭其间，将打包好的成品运进冷链车，由“百色一号”专列发往全国各地。
+他表示，当前，我国已将脑科学与类脑智能纳入国家战略性新兴产业领域，通过加大科研投入与强化协同攻关，推动基础研究向临床应用加速迈进。
 
-莫尚攀是百色一号公司园区管理部主任，他换上羽绒服，戴上棉帽，走进仓库，一边查看货物入库、出库情况，一边介绍：“我们的冷库温度常年保持在-22℃，可提供恒温、冷藏、冷冻仓储服务。
+中国科学院院士赵继宗指出，北京市已构建起脑机接口全链条研发体系。
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 18:32 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 18:36 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 18:29 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 18:51 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 18:41 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 18:51 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 18:40 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 18:30 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 18:34 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 18:36 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 18:29 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 18:33 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 18:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 18:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 18:33 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 18:39 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 18:32 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 18:37 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 18:48 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 18:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 18:41 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 18:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 18:32 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:49 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/4927163.shtml)
-- 2026-06-29 18:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/57491265626.shtml)
-- 2026-06-29 18:50 - [沙特外交大臣将访华](https://www.share.kurohicncr.top/Article/details/3954613649.shtml)
-- 2026-06-29 18:40 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/08376433.shtml)
-- 2026-06-29 18:48 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/81601.shtml)
-- 2026-06-29 18:27 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/134563772417.shtml)
-- 2026-06-29 18:37 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/999738869.shtml)
-- 2026-06-29 18:34 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/18799076219.shtml)
-- 2026-06-29 18:45 - [叠纸客服回应恋与深空新角色争议](http://www.share.kurohicncr.top/Article/details/112233276487.shtml)
-- 2026-06-29 18:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/96873591351.shtml)
-- 2026-06-29 18:27 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/76595742553.shtml)
-- 2026-06-29 18:46 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/096900655.shtml)
-- 2026-06-29 18:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/3936398.shtml)
-- 2026-06-29 18:41 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/769461021460.shtml)
-- 2026-06-29 18:37 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/867933593003.shtml)
+- 2026-06-29 18:53 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/735860.shtml)
+- 2026-06-29 18:43 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/187424247026.shtml)
+- 2026-06-29 18:45 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/0151911.shtml)
+- 2026-06-29 18:49 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/94953897748.shtml)
+- 2026-06-29 18:33 - [世界杯在中国观看最多的比赛](http://www.blog.kurohicncr.top/Article/details/600005913798.shtml)
+- 2026-06-29 18:36 - [法生态部长反对装空调却自己吹空调](https://www.share.minike.top/Article/details/94235.shtml)
+- 2026-06-29 18:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/3184866.shtml)
+- 2026-06-29 18:42 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/4855100820.shtml)
+- 2026-06-29 18:31 - [金刚川](http://www.blog.minike.top/Article/details/295217671114.shtml)
+- 2026-06-29 18:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/61156415638.shtml)
+- 2026-06-29 18:53 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/1882898540.shtml)
+- 2026-06-29 18:44 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/330052176.shtml)
+- 2026-06-29 18:51 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/6519046.shtml)
+- 2026-06-29 18:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/517171.shtml)
+- 2026-06-29 18:41 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/3659462812.shtml)

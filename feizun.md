@@ -1,57 +1,58 @@
-# 广州地铁“五一”日均客流近千万人次 五羊邨站换乘通道启动施工
+# 日本新发十年期国债需求强劲 推动各期限国债收益率全线下行
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新网广州5月8日电(王华 张洁)广州地铁集团8日公布，刚刚过去的“五一”假期，广州地铁日均客流近千万人次，城际铁路客流同比增长近三成。此外，五号线、十号线五羊邨站换乘通道三期将启动围蔽施工，换乘通道建成后，市民在站内便可实现两条线路快捷换乘。 据广州地铁集团数据，2026年劳动节假期(5月1 日至5月5日)，广州地铁线网累计运客4997.1万人次，日均客运量999.4万人次，
+由于最新发行的10年期日本国债招标结果强于市场预期，触发投资者竞相买入，日本主权债券市场周二迎来强劲反弹，各期限国债收益率集体大幅走低。 作为基准的10年期日本国债收益率当日暴跌11个基点，至2.57%，创下自5月13日以来的最低水平。日本财务省当日早些时候发行了约2.6万亿日元（约合162.8亿美元）的10年期国债。由于该批国债的最低中标价格大幅超出市场预期，表明由于核心买家
 
 ## 正文
 
-中新网广州5月8日电(王华 张洁)广州地铁集团8日公布，刚刚过去的“五一”假期，广州地铁日均客流近千万人次，城际铁路客流同比增长近三成。
+由于最新发行的10年期日本国债招标结果强于市场预期，触发投资者竞相买入，日本主权债券市场周二迎来强劲反弹，各期限国债收益率集体大幅走低。
 
-此外，五号线、十号线五羊邨站换乘通道三期将启动围蔽施工，换乘通道建成后，市民在站内便可实现两条线路快捷换乘。
+作为基准的10年期日本国债收益率当日暴跌11个基点，至2.57%，创下自5月13日以来的最低水平。
 
-据广州地铁集团数据，2026年劳动节假期(5月1 日至5月5日)，广州地铁线网累计运客4997.1万人次，日均客运量999.4万人次，较去年同期增长4.2%；所辖6条城际铁路累计发送旅客130.55万人次，日均发送量达26.11万人次，同比增长29.00%，创历年“五一”假期客流新高；3条有轨电车总客流15.64万人次，日均3.13万，同比增长51.82%。
+日本财务省当日早些时候发行了约2.6万亿日元（约合162.8亿美元）的10年期国债。
 
-第139届广交会期间(4月15日至5月5日)，地铁线网累计客运量达2.1亿人次，日均客运量为1013.5万人次，较去年春交会增长5.2%。
+由于该批国债的最低中标价格大幅超出市场预期，表明由于核心买家此前参与度不足而表现滞后的10年期国债，当前获得了极为强劲的市场需求。
 
-纵观“五一”假期整体客流，三号线(含三北)客流领跑全线网，二号线、八号线客流量位居第二、三位；体育西路站仍成为客流量最高站点，嘉禾望岗站、广州南站位列其后。
+三菱日联资产管理公司执行首席基金经理古口正之分析指出，部分未能在此前招标中中标的投资者转而在二级市场买入，直接推动了收益率的快速回落。
 
-8日，广州地铁五号线、十号线五羊邨站换乘通道三期启动围蔽施工。
+但他同时提醒，鉴于日本目前的通胀状况和潜在经济增长动能，10年期国债收益率目前水平依然偏低，这一上涨势头能否长期维持仍有待观察。
 
-广州地铁五号线五羊邨站于2009年12月建成投入使用，2025年6月开通的地铁十号线五羊邨站，受施工现场多种条件制约，车站换乘通道无法同步建成使用，采用站外换乘方式实现两条线路换乘。
+在短端利率方面，2年期和5年期国债收益率的波动相对有限。
 
-广州地铁建设公司第一建管部项目经理邓超荣介绍，五羊邨站换乘通道施工采用明挖工法，分三期进行围蔽施工。
+当日，2年期国债收益率下跌2.5个基点至1.375%，5年期国债收益率下跌6个基点至1.855%。
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 18:51 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 18:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 18:29 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 18:44 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 18:30 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 18:31 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 18:24 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 18:30 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 18:47 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 18:43 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 18:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 18:33 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 18:57 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 18:53 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 18:47 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 18:37 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 18:40 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 18:46 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 18:52 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 18:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 18:50 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 18:52 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:41 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/54209594349.shtml)
-- 2026-06-29 18:48 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/00836676923.shtml)
-- 2026-06-29 18:34 - [毒液2](https://www.blog.kurohicncr.top/Article/details/87681795625.shtml)
-- 2026-06-29 18:35 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/028905868.shtml)
-- 2026-06-29 18:46 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/94918.shtml)
-- 2026-06-29 18:43 - [女生每天戴耳机18小时突发耳聋](https://www.share.kurohicncr.top/Article/details/873135464.shtml)
-- 2026-06-29 18:37 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/619573.shtml)
-- 2026-06-29 18:50 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/682422.shtml)
-- 2026-06-29 18:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/485328383.shtml)
-- 2026-06-29 18:27 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/9820028.shtml)
-- 2026-06-29 18:24 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/855000181743.shtml)
-- 2026-06-29 18:43 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/91248.shtml)
-- 2026-06-29 18:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/4994043.shtml)
-- 2026-06-29 18:48 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/67015085815.shtml)
-- 2026-06-29 18:44 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/24140439060.shtml)
+- 2026-06-29 18:32 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/281236649852.shtml)
+- 2026-06-29 18:41 - [税务总局披露5起合规申报个税案例](http://www.share.kurohicncr.top/Article/details/559336883595.shtml)
+- 2026-06-29 18:36 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/233851539964.shtml)
+- 2026-06-29 18:43 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/9282296150.shtml)
+- 2026-06-29 18:53 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/853948.shtml)
+- 2026-06-29 18:33 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/111862004083.shtml)
+- 2026-06-29 18:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/025025920.shtml)
+- 2026-06-29 18:51 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/956677824223.shtml)
+- 2026-06-29 18:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/3426465922.shtml)
+- 2026-06-29 18:59 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/5972672.shtml)
+- 2026-06-29 18:50 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/741288159448.shtml)
+- 2026-06-29 18:51 - [女心理师](http://www.share.minike.top/Article/details/206683006792.shtml)
+- 2026-06-29 18:49 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/448531.shtml)
+- 2026-06-29 18:40 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/48380924.shtml)
+- 2026-06-29 18:35 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/92688.shtml)

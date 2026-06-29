@@ -1,61 +1,55 @@
-# OEXN:金价企稳低位反弹整理
+# “80后”头雁领航：浦东万亩瓜田写下“共富”答卷
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-5月7日，国际黄金市场近期出现明显的企稳信号，现货金价在前期回调后重新获得买盘支撑，油价边际回落与美国经济数据偏弱共同改善了市场避险情绪。OEXN表示，黄金价格在区间下沿企稳整理，市场参与者对前期回调的恐慌情绪明显降温，短线交投热度逐步回升。该机构分析称，本轮企稳是宏观因素阶段性平衡的真实体现，贵金属作为跨周期配置资产的中长期投资逻辑并未发生根本性改变。 宏观政策方面，主要央行
+发布时间：2026年06月02日 17:30 来源：中国新闻网 “80后”新农人应雄扎根上海浦东投身现代农业，他传承西瓜种植传统，通过改良种植模式、创新种植技术、引入智慧农业，大幅提升瓜果产量与品质。同时，他成立合作社、抱团发展，带动周边农户一起增收致富，拓宽多元销售渠道，以新理念、新技术助力乡村振兴和现代农业发展。 作为中国农业农村部“头雁”培育项目学员，应雄对农业现代化有着
 
 ## 正文
 
-5月7日，国际黄金市场近期出现明显的企稳信号，现货金价在前期回调后重新获得买盘支撑，油价边际回落与美国经济数据偏弱共同改善了市场避险情绪。
+发布时间：2026年06月02日 17:30 来源：中国新闻网 “80后”新农人应雄扎根上海浦东投身现代农业，他传承西瓜种植传统，通过改良种植模式、创新种植技术、引入智慧农业，大幅提升瓜果产量与品质。
 
-OEXN表示，黄金价格在区间下沿企稳整理，市场参与者对前期回调的恐慌情绪明显降温，短线交投热度逐步回升。
+同时，他成立合作社、抱团发展，带动周边农户一起增收致富，拓宽多元销售渠道，以新理念、新技术助力乡村振兴和现代农业发展。
 
-该机构分析称，本轮企稳是宏观因素阶段性平衡的真实体现，贵金属作为跨周期配置资产的中长期投资逻辑并未发生根本性改变。
+作为中国农业农村部“头雁”培育项目学员，应雄对农业现代化有着深刻理解：“父辈带农户是‘一起干’，现在我们要带动合作社、家庭农场乃至农业企业协同升级。
 
-宏观政策方面，主要央行延续按兵不动的谨慎态势，市场对未来降息节奏保持密切观察。
+”就像李朝平所言：“‘头雁项目’就是要培养这种既懂技术又善经营、既有情怀又有格局的复合型人才。
 
-OEXN认为，油价边际回落降低了通胀加速的尾部风险，对实际利率上行预期形成一定缓冲，对零票息资产构成阶段性支撑。
+实现从‘带着农户干’到‘教会农户怎么干’的升级，这才是新时代农业带头人的核心价值。
 
-该机构判断，瑞银等海外大行维持建设性展望，认为美元长期偏弱与降息周期临近，将共同推动金价中期上移，远期目标已看至每盎司5900美元附近，新兴市场储备多元化趋势延续，长线资金的耐心特征非常明显。
-
-技术层面看，黄金日线在区间下沿企稳后逐步修复短期均线压力，MACD动能边际改善，KDJ指标自超卖区域抬升，显示空头力量阶段性释放完毕。
-
-机构层面亦关注到，全球央行的购金节奏并未中断，亚洲实物金需求保持稳健，ETF持仓数据的边际变化、印度与中东婚庆季实物需求以及COMEX期金交割比率，亦是观察资金面真实态度的关键观察窗口。
+”(李佳佳 张亨伟 娄瀚锟） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 18:46 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 18:30 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 18:50 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 18:50 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 18:54 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 18:38 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 18:53 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 18:51 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 18:36 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 18:29 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 18:35 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 18:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 18:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 18:26 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 18:47 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 18:31 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 18:56 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 18:48 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 18:46 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 18:47 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 18:40 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 18:59 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 18:50 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 18:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 18:55 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 18:35 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 18:57 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 18:58 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/774919002289.shtml)
-- 2026-06-29 18:27 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/01605.shtml)
-- 2026-06-29 18:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/589470751576.shtml)
-- 2026-06-29 18:41 - [花万元相亲对象是50元雇的演员](https://www.share.minike.top/Article/details/39779874103.shtml)
-- 2026-06-29 18:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/46161236.shtml)
-- 2026-06-29 18:38 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/988241.shtml)
-- 2026-06-29 18:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/4988321.shtml)
-- 2026-06-29 18:46 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/67161294.shtml)
-- 2026-06-29 18:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/3255835.shtml)
-- 2026-06-29 18:34 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/473254259.shtml)
-- 2026-06-29 18:44 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/3872997132.shtml)
-- 2026-06-29 18:45 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/605848242136.shtml)
-- 2026-06-29 18:26 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/3192146.shtml)
-- 2026-06-29 18:32 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/975091.shtml)
-- 2026-06-29 18:39 - [《贺子珍》](http://www.share.minike.top/Article/details/96396894418.shtml)
+- 2026-06-29 18:37 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/0030601.shtml)
+- 2026-06-29 18:57 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/754295706703.shtml)
+- 2026-06-29 18:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/775716503737.shtml)
+- 2026-06-29 18:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/558445173928.shtml)
+- 2026-06-29 18:55 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/34882151392.shtml)
+- 2026-06-29 18:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/277173635432.shtml)
+- 2026-06-29 18:57 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/886694161.shtml)
+- 2026-06-29 18:55 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/514370.shtml)
+- 2026-06-29 18:49 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/007365791617.shtml)
+- 2026-06-29 18:40 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/0131414.shtml)
+- 2026-06-29 18:45 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/74941397156.shtml)
+- 2026-06-29 18:30 - [青春环游记第三季](https://www.share.minike.top/Article/details/741191722232.shtml)
+- 2026-06-29 18:43 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/674852.shtml)
+- 2026-06-29 18:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/755015777709.shtml)
+- 2026-06-29 18:57 - [货车司机雨中帮交警挪树获表扬](http://www.share.minike.top/Article/details/20047.shtml)

@@ -1,60 +1,59 @@
-# 粤港澳大湾区锂电池产品海运出口“一箱制”落地
+# 京沈智造企业深挖机器人多场景应用合作
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 21:08 来源：中国新闻网 5月7日，一批装载着广东东莞制造锂电池产品的集装箱，从东莞一企业启运，货车约90分钟后抵达深圳盐田港，随即被直接吊装上“莫滕·马士基”轮，发往海外市场。这标志着莞深锂电池海运出口“一箱制”新模式完成首单运输，正式进入常态化运行，粤港澳大湾区跨境贸易便利化再添一项重要制度创新成果。 作为全球重要的锂电池生产基地，东莞
+中新网沈阳6月2日电(姜月恒 姚小辉)2026沈阳机器人大会核心应用场景对接活动之一的京沈智能制造企业合作对接座谈会2日在沈阳市沈河区举行，活动旨在聚焦机器人、人工智能、高端装备制造领域，搭建两地精准对接、务实合作的高端平台，助力两地产业链、创新链、供应链协同联动，为沈阳智能制造产业集群发展注入新动能。 本次座谈会汇聚众多行业优质资源，北京人形机器人创新中心、首科腾飞等来自北京
 
 ## 正文
 
-发布时间：2026年05月07日 21:08 来源：中国新闻网 5月7日，一批装载着广东东莞制造锂电池产品的集装箱，从东莞一企业启运，货车约90分钟后抵达深圳盐田港，随即被直接吊装上“莫滕·马士基”轮，发往海外市场。
+中新网沈阳6月2日电(姜月恒 姚小辉)2026沈阳机器人大会核心应用场景对接活动之一的京沈智能制造企业合作对接座谈会2日在沈阳市沈河区举行，活动旨在聚焦机器人、人工智能、高端装备制造领域，搭建两地精准对接、务实合作的高端平台，助力两地产业链、创新链、供应链协同联动，为沈阳智能制造产业集群发展注入新动能。
 
-这标志着莞深锂电池海运出口“一箱制”新模式完成首单运输，正式进入常态化运行，粤港澳大湾区跨境贸易便利化再添一项重要制度创新成果。
+本次座谈会汇聚众多行业优质资源，北京人形机器人创新中心、首科腾飞等来自北京的智能制造头部企业和中煤科工、优必选创新科技等本地龙头企业，以及深圳逐际动力齐聚活动现场，50余家知名企业共同探讨产业合作新路径。
 
-作为全球重要的锂电池生产基地，东莞锂电池产品出口需求旺盛。
+北京拥有顶尖科创资源、前沿技术成果与专业研发团队，沈阳具备雄厚的制造业基底、完善的产业链配套和丰富的应用场景。
 
-过去，东莞生产的锂电池运到盐田港后，需要等待海事等口岸单位开箱查验才能装船。
+座谈交流中，北京企业重点推介工业自动化、智能传感器等前沿技术产品，沈阳本地企业围绕人形机器人研发、智能制造升级、数字化转型等领域提出合作构想，双方就强强联合开展技术研发、产业链配套、成果落地转化、资源共享等方面深度洽谈。
 
-一旦遇上查验高峰，往往需要滞港等待，影响出口履约效率。
+北京金福德润科技有限责任公司总经理王晓兰在交流会上表示，企业深耕垃圾分类业务，在智能分拣设备选型上有着刚需，希望业内专家围绕轻量化智能设备开展技术攻关，推出适配的实用机型。
 
-新模式落地后，东莞企业在备货阶段即可申请海事部门上门查验，符合条件的东莞锂电池产品在“家门口”完成查验后，即可“一箱到底”直达盐田港装船出海。
+中国食品工业协会品牌战略工作委员会副秘书长广静川发言称，海内外市场涌现新需求，国外因用人成本高昂，市场需要具备全流程操作、自主调配清洗功能的智能咖啡机，目前已有不少合作意向。
 
-经测算，该模式落地后，单箱可节约物流成本约2万元，整体物流时间缩短超20%，将切实为外贸企业降本增效，持续激活区域外贸发展动能。
+广静川表示，餐饮直面消费者，家用智能设备或将成为后续重点拓展方向。
 
-(何俊杰 郭军 蓝童 东莞报道） 责任编辑：【卢岩】
+奇点智能机器人(沈阳)科技有限公司总经理谢文君介绍，企业主营高智能水下机器人，目前公司面向全行业寻求定制开发、联合研发合作伙伴，同步推进股权融资事宜。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 18:38 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 18:31 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 18:46 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 18:44 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 18:39 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 18:34 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 18:50 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 18:46 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 18:37 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 18:26 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 18:51 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 18:45 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 18:37 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 18:49 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 18:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 18:46 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 18:33 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 18:56 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 18:51 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 18:58 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 18:52 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 18:56 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 18:44 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 18:49 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 18:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 18:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:37 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/364268227856.shtml)
-- 2026-06-29 18:44 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/912527857.shtml)
-- 2026-06-29 18:52 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/09255800993.shtml)
-- 2026-06-29 18:41 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/40355622759.shtml)
-- 2026-06-29 18:24 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/9570280662.shtml)
-- 2026-06-29 18:51 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/0528500.shtml)
-- 2026-06-29 18:49 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/56166.shtml)
-- 2026-06-29 18:53 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/5758610.shtml)
-- 2026-06-29 18:38 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/330268179.shtml)
-- 2026-06-29 18:52 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/0478040.shtml)
-- 2026-06-29 18:32 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/69907931100.shtml)
-- 2026-06-29 18:45 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/48003.shtml)
-- 2026-06-29 18:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/18238.shtml)
-- 2026-06-29 18:53 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/498135.shtml)
-- 2026-06-29 18:31 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/334321644962.shtml)
+- 2026-06-29 18:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/493227120882.shtml)
+- 2026-06-29 18:50 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/9081623010.shtml)
+- 2026-06-29 18:42 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/67697577.shtml)
+- 2026-06-29 18:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/36117374861.shtml)
+- 2026-06-29 18:49 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/619623059.shtml)
+- 2026-06-29 18:53 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/1294713514.shtml)
+- 2026-06-29 18:32 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/885135.shtml)
+- 2026-06-29 18:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/2953927.shtml)
+- 2026-06-29 18:43 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/5968853371.shtml)
+- 2026-06-29 18:51 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/6354912063.shtml)
+- 2026-06-29 18:56 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/4636173886.shtml)
+- 2026-06-29 18:47 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/06927087.shtml)
+- 2026-06-29 18:30 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/38875873338.shtml)
+- 2026-06-29 18:53 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/534113866211.shtml)
+- 2026-06-29 18:43 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/848873.shtml)

@@ -1,57 +1,59 @@
-# 网购常规扣款变“贷款” 支付捆绑乱象如何整治？
+# 高盛上调韩国股市目标点位 维持对A股的“超配”评级
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-你是否有这样的经历？本来是常规网购，在一些App的支付环节看到有优惠，就点选付了钱，结果过了一个月才发现自己开通了某某月付的小额贷款。记者在一些互联网投诉平台查询发现，这种一不小心就“被贷款”的情况非常普遍。“扣款支付”变“借贷消费”，平台是如何套路用户的？看起来便利的背后，它们又打的是什么算盘？江苏的徐先生介绍，此前他在汽水音乐App上看到“一分钱开通会员”的广告，出于好奇花
+高盛周三在一份报告中表示，人工智能（AI）芯片制造商股票的涨势可能持续，但回调风险正在上升。高盛亚太区首席股票策略师兼宏观研究联席主管Timothy Moe等分析师写道：“我们更看好北亚地区，其盈利增长最为强劲。”高盛上调韩国股市的目标点位，由9000点上调至12000点。高盛维持对中国内地A股的“超配”评级。高盛称，MSCI明晟亚太地区（除日本）指数今年以来上涨27%，但若扣
 
 ## 正文
 
-你是否有这样的经历？
+高盛周三在一份报告中表示，人工智能（AI）芯片制造商股票的涨势可能持续，但回调风险正在上升。
 
-本来是常规网购，在一些App的支付环节看到有优惠，就点选付了钱，结果过了一个月才发现自己开通了某某月付的小额贷款。
+高盛亚太区首席股票策略师兼宏观研究联席主管Timothy Moe等分析师写道：“我们更看好北亚地区，其盈利增长最为强劲。
 
-记者在一些互联网投诉平台查询发现，这种一不小心就“被贷款”的情况非常普遍。
+”高盛上调韩国股市的目标点位，由9000点上调至12000点。
 
-“扣款支付”变“借贷消费”，平台是如何套路用户的？
+高盛维持对中国内地A股的“超配”评级。
 
-看起来便利的背后，它们又打的是什么算盘？
+高盛称，MSCI明晟亚太地区（除日本）指数今年以来上涨27%，但若扣除韩国和中国台湾，该指数则下跌4%。
 
-江苏的徐先生介绍，此前他在汽水音乐App上看到“一分钱开通会员”的广告，出于好奇花一分钱注册了会员，后来才发现他开通了抖音月付，每个月都要扣8元钱。
+高盛将MSCI明晟亚太地区（除日本）指数12个月目标点位由990点上调至1，080点。
 
-记者搜索黑猫投诉平台发现，抖音、美团、京东白条、花呗等几大支付平台都有大量月付相关投诉，很多人都像徐先生一样反映自己被低价产品吸引，稀里糊涂开通了借贷服务。
-
-贵州的吴先生反映，他在今年5月7日收到京东白条提醒，自己去年开通的PLUS会员已经使用完毕，并扣费67.44元，但他记不起来去年5月是怎么开通的会员，更不知道怎么就借了白条。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 18:46 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 18:28 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 18:28 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 18:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 18:40 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 18:41 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 18:43 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 18:32 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 18:49 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 18:44 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 18:37 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 18:51 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 18:31 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 18:46 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 18:49 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 18:38 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 18:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 18:56 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 18:32 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 18:51 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 18:43 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 18:52 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 18:36 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 18:54 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 18:52 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 18:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:39 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/4474079634.shtml)
-- 2026-06-29 18:39 - [女生每天戴耳机18小时突发耳聋](http://www.blog.kurohicncr.top/Article/details/90483467.shtml)
-- 2026-06-29 18:30 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/04707.shtml)
-- 2026-06-29 18:32 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/7345924.shtml)
-- 2026-06-29 18:41 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/815117.shtml)
-- 2026-06-29 18:43 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/267750998245.shtml)
-- 2026-06-29 18:31 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/814854793.shtml)
-- 2026-06-29 18:35 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/4724297003.shtml)
-- 2026-06-29 18:36 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/81086956819.shtml)
-- 2026-06-29 18:46 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/37382.shtml)
-- 2026-06-29 18:30 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/03771.shtml)
-- 2026-06-29 18:25 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/18280.shtml)
-- 2026-06-29 18:37 - [周生如故](https://www.share.minike.top/Article/details/01362428.shtml)
-- 2026-06-29 18:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/349698017915.shtml)
-- 2026-06-29 18:42 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/112266488955.shtml)
+- 2026-06-29 18:55 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/898652.shtml)
+- 2026-06-29 18:45 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/582973887902.shtml)
+- 2026-06-29 18:42 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/5420140194.shtml)
+- 2026-06-29 18:32 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/88910424.shtml)
+- 2026-06-29 18:43 - [斗破苍穹](https://www.share.minike.top/Article/details/30863967565.shtml)
+- 2026-06-29 18:35 - [金牌调解](http://www.blog.minike.top/Article/details/15645816544.shtml)
+- 2026-06-29 18:33 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/52208473869.shtml)
+- 2026-06-29 18:51 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/4857458.shtml)
+- 2026-06-29 18:52 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/676395396.shtml)
+- 2026-06-29 18:52 - [小娘惹](http://www.share.minike.top/Article/details/76188359.shtml)
+- 2026-06-29 18:34 - [徐昕暂不参加NBA夏季联赛](http://www.blog.minike.top/Article/details/47092249.shtml)
+- 2026-06-29 18:55 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/808059102.shtml)
+- 2026-06-29 18:34 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/8154659550.shtml)
+- 2026-06-29 18:57 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.kurohicncr.top/Article/details/21798229769.shtml)
+- 2026-06-29 18:31 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/2216996919.shtml)

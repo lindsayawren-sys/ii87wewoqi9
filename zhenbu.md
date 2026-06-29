@@ -1,57 +1,60 @@
-# 华安基金：地缘风险提振油运景气，高股息央企配置价值凸显
+# 超百家险资机构扎堆调研 5月汇川技术获30家险资到访 科技、制造赛道持续受宠
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-行情回顾及主要观点： 港股方面，上周恒生港股通中国央企红利指数上涨0.25%，恒生指数下跌0.78%，恒生科技指数下跌0.63%。A股方面，上周中证国企红利指数上涨0.45%，沪深300上涨0.81%。（数据来源：Wind，截至2026/4/30，均为对应全收益指数的收益率） 受地缘局势持续紧张的催化，全球避险情绪升温，具备重资产“护城河”与稳定现金流特征的油运板块配置价值进一
+财联社6月2日讯（记者高萍） 5月保险公司及保险资管公司对A股上市公司的调研热情不减。受五一假期等因素影响，整体调研上市公司数量环比4月有所回落，电子元件、工业机械、集成电路、电气部件与设备等高端制造与科技赛道成为核心关注领域，汇川技术、胜宏科技等获得险资密集调研。 “公司关注长期稳健增长的蓝筹品种，并深入挖掘科技创新、消费升级等具有广阔发展空间的优质赛道，加强投研能力建设。”
 
 ## 正文
 
-行情回顾及主要观点： 港股方面，上周恒生港股通中国央企红利指数上涨0.25%，恒生指数下跌0.78%，恒生科技指数下跌0.63%。
+财联社6月2日讯（记者高萍） 5月保险公司及保险资管公司对A股上市公司的调研热情不减。
 
-A股方面，上周中证国企红利指数上涨0.45%，沪深300上涨0.81%。
+受五一假期等因素影响，整体调研上市公司数量环比4月有所回落，电子元件、工业机械、集成电路、电气部件与设备等高端制造与科技赛道成为核心关注领域，汇川技术、胜宏科技等获得险资密集调研。
 
-（数据来源：Wind，截至2026/4/30，均为对应全收益指数的收益率） 受地缘局势持续紧张的催化，全球避险情绪升温，具备重资产“护城河”与稳定现金流特征的油运板块配置价值进一步凸显。
+“公司关注长期稳健增长的蓝筹品种，并深入挖掘科技创新、消费升级等具有广阔发展空间的优质赛道，加强投研能力建设。
 
-上周国际油价受美伊和谈反复扰动，布伦特原油一度冲高至114美元/桶，虽后续有所回落，但霍尔木兹海峡实质封锁未解，供应端紧绷格局为油运需求提供有力支撑。
+”一家大型险企人士对财联社记者表示。
 
-油轮运价维持历史高位区间，中远海能一季度归母净利润同比增长超200%，充分验证行业高景气。
+受访行业人士对财联社记者表示，险资依然高度聚焦电子、半导体、高端制造等具备长期成长逻辑的赛道，体现了险资作为长期资金，对科技创新、产业升级相关优质资产的持续关注。
 
-在此背景下，恒生港股通中国央企红利指数中权重占比较高的油运及能源类央企，凭借高景气与高股息的双重属性，成为资金避险的重要方向。
+聚焦制造与科技相关赛道汇川技术、胜宏科技等获扎堆调研 根据Wind统计数据，5月共计有245家上市公司获得险资调研，环比4月有所减少。
 
-地缘风险反复扰动，油价高位宽幅震荡。
+尽管整体调研频次有所回落，险资的调研依然呈现出明显的聚焦性，硬科技与先进制造相关赛道占据主导地位。
 
-上周国际油价上演“过山车”行情。
+从行业分布来看，5月险资调研热度最高的十大行业中，电子元件行业以累计94家机构调研位居首位；工业机械行业以70家机构调研位列第二；电气部件与设备行业以66家机构调研位列第三；集成电路行业以58家机构调研位列第四。
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 18:39 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 18:43 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 18:33 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 18:42 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 18:31 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 18:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 18:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 18:46 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 18:24 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 18:27 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 18:46 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 18:42 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 18:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 18:47 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 18:47 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 18:42 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 18:59 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 18:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 18:45 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 18:40 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 18:48 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 18:59 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 18:59 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 18:53 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:27 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.kurohicncr.top/Article/details/629689674320.shtml)
-- 2026-06-29 18:41 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/35469.shtml)
-- 2026-06-29 18:52 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/23517945281.shtml)
-- 2026-06-29 18:47 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/0424067.shtml)
-- 2026-06-29 18:29 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/47005.shtml)
-- 2026-06-29 18:27 - [王楚钦开门红](https://www.blog.minike.top/Article/details/078725570.shtml)
-- 2026-06-29 18:39 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/54323677.shtml)
-- 2026-06-29 18:44 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/15367682454.shtml)
-- 2026-06-29 18:25 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/766852.shtml)
-- 2026-06-29 18:42 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/54358472822.shtml)
-- 2026-06-29 18:53 - [中国战机大片上新](https://www.share.minike.top/Article/details/411720.shtml)
-- 2026-06-29 18:29 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/551493929979.shtml)
-- 2026-06-29 18:30 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/934433.shtml)
-- 2026-06-29 18:27 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/412759.shtml)
-- 2026-06-29 18:48 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/68218611.shtml)
+- 2026-06-29 18:54 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/55759688.shtml)
+- 2026-06-29 18:47 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/2989800.shtml)
+- 2026-06-29 18:31 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/511407.shtml)
+- 2026-06-29 18:53 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/46434192.shtml)
+- 2026-06-29 18:31 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/74530.shtml)
+- 2026-06-29 18:31 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/063115.shtml)
+- 2026-06-29 18:49 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/84549082517.shtml)
+- 2026-06-29 18:47 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/6511986.shtml)
+- 2026-06-29 18:53 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/509798283.shtml)
+- 2026-06-29 18:54 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/51348480335.shtml)
+- 2026-06-29 18:50 - [沉睡花园](http://www.blog.minike.top/Article/details/74007429.shtml)
+- 2026-06-29 18:55 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/4368986.shtml)
+- 2026-06-29 18:58 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/1755339014.shtml)
+- 2026-06-29 18:30 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/26710686923.shtml)
+- 2026-06-29 18:40 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/7783372.shtml)

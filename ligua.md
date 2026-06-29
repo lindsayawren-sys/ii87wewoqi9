@@ -1,61 +1,58 @@
-# 柬埔寨副首相：柬致力营造安全投资旅游环境
+# 约旦连续展开小麦与大麦国际招标
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新社金边5月7日电(记者 杨强)柬埔寨副首相兼发展理事会第一副主席孙占托当地时间7日表示，柬埔寨政府正致力打击电信网络诈骗，以从根本上清除相关犯罪活动，为全球客商营造一个安全可靠、值得信赖的投资与旅游环境。孙占托当天出席“2026年柬埔寨投资论坛”开幕式并致辞。他表示，柬政府高度重视打击电信诈骗犯罪，并于今年4月颁布《反电信网络诈骗法》，体现当局持续深入推进打击电诈犯罪、维护
+欧洲贸易商周二透露，约旦国家粮食采购机构当天在国际招标中成功购入约6万吨硬质铣磨小麦，以强化该国粮食战略储备。 据业内人士透露，这批小麦最终由保加利亚贸易商Buildcom中标，交易价格估计为每吨276.00美元（C&F，含成本及运费），货源地可在多个指定产区中选择，预计将于今年8月下半月发运。除中标企业外，包括CHS（报价每吨278.80美元）、Ameropa（报价每吨280
 
 ## 正文
 
-中新社金边5月7日电(记者 杨强)柬埔寨副首相兼发展理事会第一副主席孙占托当地时间7日表示，柬埔寨政府正致力打击电信网络诈骗，以从根本上清除相关犯罪活动，为全球客商营造一个安全可靠、值得信赖的投资与旅游环境。
+欧洲贸易商周二透露，约旦国家粮食采购机构当天在国际招标中成功购入约6万吨硬质铣磨小麦，以强化该国粮食战略储备。
 
-孙占托当天出席“2026年柬埔寨投资论坛”开幕式并致辞。
+据业内人士透露，这批小麦最终由保加利亚贸易商Buildcom中标，交易价格估计为每吨276.00美元（C&F，含成本及运费），货源地可在多个指定产区中选择，预计将于今年8月下半月发运。
 
-他表示，柬政府高度重视打击电信诈骗犯罪，并于今年4月颁布《反电信网络诈骗法》，体现当局持续深入推进打击电诈犯罪、维护社会秩序的坚定决心与积极行动。
+除中标企业外，包括CHS（报价每吨278.80美元）、Ameropa（报价每吨280.60美元）以及路易达孚（Dreyfus，报价每吨282.00美元）在内的多家跨国粮商也参与了此次竞标。
 
-孙占托说，全力推动消除电诈犯罪问题，提升国家安全形象，增强投资者与游客信心，是柬埔寨政府当前优先任务之一。
+交易商指出，约旦预计将在未来几天内发布新一轮国际招标，计划再采购12万吨小麦，该标案预计将于6月9日截标。
 
-他呼吁广大投资者积极向外界传递柬埔寨在打击电诈方面所做出的努力，展示该国是安全的投资和旅游目的地。
+此外，为满足国内畜牧业的饲料需求，约旦官方还同步发布了另一项独立招标，计划采购12万吨饲用大麦。
 
-今年以来，柬埔寨持续开展打击电信网络诈骗专项清剿行动，抓捕遣返大批涉嫌参与电诈等违法犯罪的外籍人员。
+该项大麦招标的竞价递交截止时间定于本周三。
 
-在最近于班迭棉吉省开展的一次大规模突袭行动中，当局投入500余名警宪力量，并在紧急状态下首次调遣军队赶赴现场增援。
-
-柬埔寨首相洪玛奈此前曾表示，在打击电诈犯罪行动中，如遇执法力量不足，可依法申请军方支援，以确保相关行动顺利推进。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 18:49 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 18:45 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 18:42 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 18:49 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 18:25 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 18:28 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 18:31 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 18:36 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 18:46 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 18:28 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 18:27 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 18:36 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 18:30 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 18:38 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 18:37 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 18:58 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 18:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 18:40 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 18:51 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 18:34 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 18:41 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 18:32 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 18:59 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 18:45 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 18:34 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 18:40 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 18:55 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 18:39 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 18:55 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:28 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/2179957769.shtml)
-- 2026-06-29 18:39 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/7517839.shtml)
-- 2026-06-29 18:31 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/931112447905.shtml)
-- 2026-06-29 18:41 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/73327155.shtml)
-- 2026-06-29 18:34 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/750929667441.shtml)
-- 2026-06-29 18:51 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/69819313.shtml)
-- 2026-06-29 18:34 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/587862399564.shtml)
-- 2026-06-29 18:35 - [机器人学校开学了](http://www.share.minike.top/Article/details/3200130819.shtml)
-- 2026-06-29 18:27 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/859625430.shtml)
-- 2026-06-29 18:36 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/2361573948.shtml)
-- 2026-06-29 18:46 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/91205.shtml)
-- 2026-06-29 18:28 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/0263597640.shtml)
-- 2026-06-29 18:43 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/3870391487.shtml)
-- 2026-06-29 18:40 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/74769635.shtml)
-- 2026-06-29 18:41 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/100864946.shtml)
+- 2026-06-29 18:31 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/4308865321.shtml)
+- 2026-06-29 18:51 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/50926482628.shtml)
+- 2026-06-29 18:43 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/989182209.shtml)
+- 2026-06-29 18:38 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/8597509.shtml)
+- 2026-06-29 18:51 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/2872910.shtml)
+- 2026-06-29 18:42 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/51084002.shtml)
+- 2026-06-29 18:55 - [女心理师](https://www.share.minike.top/Article/details/0438527275.shtml)
+- 2026-06-29 18:43 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/73719003967.shtml)
+- 2026-06-29 18:53 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/00639965.shtml)
+- 2026-06-29 18:42 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/1607554109.shtml)
+- 2026-06-29 18:53 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/355744.shtml)
+- 2026-06-29 18:41 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/904908.shtml)
+- 2026-06-29 18:46 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/021437513.shtml)
+- 2026-06-29 18:36 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/663558894.shtml)
+- 2026-06-29 18:54 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/1687526636.shtml)

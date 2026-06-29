@@ -1,56 +1,57 @@
-# 扰乱股市！用AI编造寒武纪假消息，证监局出手！获利不足300元，被罚45万
+# 内蒙古二连浩特铁路口岸中欧班列通行量突破2000列
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月9日，北京证监局发布了一份行政处罚决定书。决定书显示，2025年8月29日22点11分，冯某通过微信公众号发布包含相关方大量追加某上市公司芯片订单等虚假信息的文章1。有一定影响力的自媒体运营者班某利用AI工具将文章1改写为文章2，进行传播。两人合计从中盈利不足300元。后相关方进行了澄清。 证监局认为，
+中新网呼和浩特6月2日电 (记者 李爱平)6月2日，一列满载55个集装箱货物的中欧班列，经内蒙古自治区二连浩特铁路口岸出境，开往波兰马拉舍维奇，这是今年以来经二连浩特铁路口岸通行的第2000列中欧班列。 中国铁路呼和浩特局集团有限公司消息称，作为共建“一带一路”国家的重要务实载体，中欧班列持续织密横跨亚欧的物流网络。目前，经二连浩特铁路口岸运行的中欧班列线路达75条，通达德国、
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网呼和浩特6月2日电 (记者 李爱平)6月2日，一列满载55个集装箱货物的中欧班列，经内蒙古自治区二连浩特铁路口岸出境，开往波兰马拉舍维奇，这是今年以来经二连浩特铁路口岸通行的第2000列中欧班列。
 
-5月9日，北京证监局发布了一份行政处罚决定书。
+中国铁路呼和浩特局集团有限公司消息称，作为共建“一带一路”国家的重要务实载体，中欧班列持续织密横跨亚欧的物流网络。
 
-决定书显示，2025年8月29日22点11分，冯某通过微信公众号发布包含相关方大量追加某上市公司芯片订单等虚假信息的文章1。
+目前，经二连浩特铁路口岸运行的中欧班列线路达75条，通达德国、波兰等10余个国家70多个枢纽站点，中国国内辐射范围覆盖中欧班列大部分首发城市。
 
-有一定影响力的自媒体运营者班某利用AI工具将文章1改写为文章2，进行传播。
+中国铁路呼和浩特局集团有限公司二连站客货运管理科副科长王进忠介绍，为更好地服务中国(内蒙古)自由贸易试验区二连浩特片区建设，二连浩特铁路口岸充分发挥中欧班列中通道区位优势，口岸通关时间最短压缩至30分钟以内。
 
-两人合计从中盈利不足300元。
+今年截至6月1日，二连浩特铁路口岸中欧班列累计运送货物19.37万标箱、182.66万吨，同比分别增长10.94%、27.46%。
 
-后相关方进行了澄清。
-
-证监局认为，两人编造、传播虚假信息，扰乱证券市场，依法对两人合计罚款45万元。
-
-综合信息显示，此处被涉及的上市公司或为寒武纪。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:49 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 18:41 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 18:36 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 18:24 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 18:48 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 18:33 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 18:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 18:31 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 18:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 18:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 18:55 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 18:51 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 18:37 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 18:41 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 18:31 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 18:53 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 18:34 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 18:49 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 18:39 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 18:31 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 18:42 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 18:43 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 18:47 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 18:37 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 18:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:40 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/2862946.shtml)
-- 2026-06-29 18:25 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/34724.shtml)
-- 2026-06-29 18:35 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/27194.shtml)
-- 2026-06-29 18:46 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/480035824496.shtml)
-- 2026-06-29 18:49 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/453814.shtml)
-- 2026-06-29 18:46 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/23525941.shtml)
-- 2026-06-29 18:36 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/39877916.shtml)
-- 2026-06-29 18:26 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/93071104109.shtml)
-- 2026-06-29 18:27 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/49448.shtml)
-- 2026-06-29 18:53 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/900484628767.shtml)
-- 2026-06-29 18:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/1635037409.shtml)
-- 2026-06-29 18:41 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/37857344.shtml)
-- 2026-06-29 18:40 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/7623683.shtml)
-- 2026-06-29 18:49 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/31681.shtml)
-- 2026-06-29 18:46 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.minike.top/Article/details/566426622593.shtml)
+- 2026-06-29 18:49 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/0775876633.shtml)
+- 2026-06-29 18:39 - [女生每天戴耳机18小时突发耳聋](https://www.share.kurohicncr.top/Article/details/39486725.shtml)
+- 2026-06-29 18:45 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/67246703907.shtml)
+- 2026-06-29 18:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/152230.shtml)
+- 2026-06-29 18:34 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/86237769.shtml)
+- 2026-06-29 18:58 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/484208214975.shtml)
+- 2026-06-29 18:33 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/449235.shtml)
+- 2026-06-29 18:31 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/43799491703.shtml)
+- 2026-06-29 18:47 - [倪春青跨市履新苏州市委组织部部长](https://www.share.kurohicncr.top/Article/details/82636293.shtml)
+- 2026-06-29 18:58 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/2932338.shtml)
+- 2026-06-29 18:59 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/11889.shtml)
+- 2026-06-29 18:35 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/265875209567.shtml)
+- 2026-06-29 18:57 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/09001587608.shtml)
+- 2026-06-29 18:30 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/33217283.shtml)
+- 2026-06-29 18:50 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/15110850.shtml)

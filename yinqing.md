@@ -1,48 +1,57 @@
-# 魏凤和、李尚福均被判死缓 终身监禁，不得减刑、假释
+# 韩国股市不断超车 已越过印度成为世界第六大股市
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-2026年5月7日，军事法院依法对中央军委原委员、原国务委员兼国防部长魏凤和受贿案进行了宣判，认定魏凤和犯受贿罪，判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产，在其死刑缓期执行二年期满依法减为无期徒刑后，终身监禁，不得减刑、假释。 2026年5月7日，军事法院依法对中央军委原委员、原国务委员兼国防部长李尚福受贿、行贿案进行了宣判，认定李尚福犯受贿罪、行贿罪，数
+随着全球人工智能建设所依赖的芯片巨头股价持续飙升，韩国股市已超越印度股市，排到世界第六。 彭博汇编的数据显示，今年在韩上市公司总市值飙升86%，达到5万亿美元，而在印上市公司总市值则下降至4.8万亿美元。 新晋万亿美元市值俱乐部成员三星电子和SK海力士，是韩股涨势的主要推手，凭借它们在AI存储芯片领域的主导地位，推动韩国KOSPI指数在2026年上涨了逾100%。韩国股市今年已
 
 ## 正文
 
-2026年5月7日，军事法院依法对中央军委原委员、原国务委员兼国防部长魏凤和受贿案进行了宣判，认定魏凤和犯受贿罪，判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产，在其死刑缓期执行二年期满依法减为无期徒刑后，终身监禁，不得减刑、假释。
+随着全球人工智能建设所依赖的芯片巨头股价持续飙升，韩国股市已超越印度股市，排到世界第六。
 
-2026年5月7日，军事法院依法对中央军委原委员、原国务委员兼国防部长李尚福受贿、行贿案进行了宣判，认定李尚福犯受贿罪、行贿罪，数罪并罚，决定执行死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产，在其死刑缓期执行二年期满依法减为无期徒刑后，终身监禁，不得减刑、假释。
+彭博汇编的数据显示，今年在韩上市公司总市值飙升86%，达到5万亿美元，而在印上市公司总市值则下降至4.8万亿美元。
 
-责任编辑：刘万里 SF014
+新晋万亿美元市值俱乐部成员三星电子和SK海力士，是韩股涨势的主要推手，凭借它们在AI存储芯片领域的主导地位，推动韩国KOSPI指数在2026年上涨了逾100%。
+
+韩国股市今年已陆续超过了加拿大、德国、英国和法国股市。
+
+“对于一个不久前还把5000点设为雄心勃勃的KOSPI目标的市场来说，赶上印度是一个意义非凡的里程碑，”Asset Value Investors高级投资分析师Ross McGarry表示。
+
+“不过，今年的上涨行情主要归功于存储周期 —— 三星和SK海力士挑起了大梁。
+
+真正的考验在于，韩国能否通过真正的公司治理改革来维持这一价值重估势头。
+
+” 反观印度，其股市则受到卢比贬值、创纪录的外资流出以及匮乏与AI基础设施直接相关的公司等因素的困扰。
 
 ## 相关推荐
 
-- 2026-06-29 18:44 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 18:27 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 18:24 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 18:49 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 18:39 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 18:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 18:46 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 18:32 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 18:46 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 18:46 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 18:24 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 18:34 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 18:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 18:40 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 18:38 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 18:34 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 18:39 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 18:43 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 18:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 18:46 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 18:30 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 18:38 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 18:54 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:29 - [主力抛售电子和通信板块](http://www.share.minike.top/Article/details/16004315.shtml)
-- 2026-06-29 18:39 - [娜扎搂着我的腰和我合照](http://www.blog.kurohicncr.top/Article/details/70686163873.shtml)
-- 2026-06-29 18:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/9820402.shtml)
-- 2026-06-29 18:50 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/94663022556.shtml)
-- 2026-06-29 18:33 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/940146546.shtml)
-- 2026-06-29 18:49 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/7125702.shtml)
-- 2026-06-29 18:35 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/624965.shtml)
-- 2026-06-29 18:30 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/7786157788.shtml)
-- 2026-06-29 18:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/238713050.shtml)
-- 2026-06-29 18:25 - [天道](https://www.blog.kurohicncr.top/Article/details/85901.shtml)
-- 2026-06-29 18:52 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/228351.shtml)
-- 2026-06-29 18:38 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/4461685.shtml)
-- 2026-06-29 18:42 - [美人鱼](http://www.share.kurohicncr.top/Article/details/1027165912.shtml)
-- 2026-06-29 18:36 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/7252402.shtml)
-- 2026-06-29 18:50 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/58378.shtml)
+- 2026-06-29 18:50 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/0883118.shtml)
+- 2026-06-29 18:39 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/19685482736.shtml)
+- 2026-06-29 18:35 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/864702771808.shtml)
+- 2026-06-29 18:43 - [大学专业未来如何洗牌](https://www.blog.kurohicncr.top/Article/details/243139.shtml)
+- 2026-06-29 18:44 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/0853243.shtml)
+- 2026-06-29 18:54 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/2427391194.shtml)
+- 2026-06-29 18:38 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/4008666.shtml)
+- 2026-06-29 18:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/01975237.shtml)
+- 2026-06-29 18:56 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/28702351.shtml)
+- 2026-06-29 18:50 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/238615096539.shtml)
+- 2026-06-29 18:37 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.minike.top/Article/details/98960133.shtml)
+- 2026-06-29 18:59 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/0637181.shtml)
+- 2026-06-29 18:49 - [四川地震前夕 街头电线上站满燕子](http://www.blog.kurohicncr.top/Article/details/054182167684.shtml)
+- 2026-06-29 18:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/6593970851.shtml)
+- 2026-06-29 18:30 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/936030140.shtml)

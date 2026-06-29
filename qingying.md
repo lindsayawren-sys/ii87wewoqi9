@@ -1,56 +1,58 @@
-# BioAge Labs一季度GAAP每股亏损0.52美元，营收280万美元
+# 港股突发！腾讯、美团猛拉8%，阿里涨超5%，港股互联网ETF华宝（513770）涨超4%，拐点出现？
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-临床阶段生物技术公司BioAge Labs公布2026年第一季度财报，GAAP每股亏损0.52美元，营收280万美元。业绩符合公司此前给出的指引区间。 财务概况 财报显示，公司一季度净亏损约2100万美元，较上年同期净亏损1800万美元有所扩大。研发费用为1800万美元，同比增长15%，主要因主打药物BGE-303治疗肥胖症的二期临床试验推进。一般及行政费用约600万美元，与上
+6月2日午后，港股互联网龙头延续攻势，集体猛拉，截至发稿，腾讯控股、美团-W双双涨超8%，阿里巴巴-W、哔哩哔哩-W涨超5%，快手-W涨近4%，小米集团-W涨超2%。聚焦港股AI核心工具，重仓互联网龙头的港股互联网ETF华宝（513770）继前一日放量大涨逾3%，实时场内价格再涨超4%。自5月28日下探阶段新低后，连涨3日，或迎来反攻拐点。 根据媒体报道，腾讯正在推进在微信中推
 
 ## 正文
 
-临床阶段生物技术公司BioAge Labs公布2026年第一季度财报，GAAP每股亏损0.52美元，营收280万美元。
+6月2日午后，港股互联网龙头延续攻势，集体猛拉，截至发稿，腾讯控股、美团-W双双涨超8%，阿里巴巴-W、哔哩哔哩-W涨超5%，快手-W涨近4%，小米集团-W涨超2%。
 
-业绩符合公司此前给出的指引区间。
+聚焦港股AI核心工具，重仓互联网龙头的港股互联网ETF华宝（513770）继前一日放量大涨逾3%，实时场内价格再涨超4%。
 
-财务概况 财报显示，公司一季度净亏损约2100万美元，较上年同期净亏损1800万美元有所扩大。
+自5月28日下探阶段新低后，连涨3日，或迎来反攻拐点。
 
-研发费用为1800万美元，同比增长15%，主要因主打药物BGE-303治疗肥胖症的二期临床试验推进。
+根据媒体报道，腾讯正在推进在微信中推出嵌入式AI智能体的计划。
 
-一般及行政费用约600万美元，与上年同期基本持平。
+据知情人士透露，该公司正在测试这款智能体的原型，该智能体能够帮助用户在应用内完成任务，并且计划最早于本月启动公开上线前所需的合规流程。
 
-截至3月31日，公司持有现金、现金等价物及短期投资约2.4亿美元，较年初减少约1500万美元。
+在此之后，腾讯还计划先在小部分外部用户中进行测试，然后再逐步推进分阶段上线。
 
-公司重申现有资金可维持运营至2028年下半年。
+美团昨日发布2026年一季报，单季实现营收910亿元，同比增长5.6%，经营亏损由上季度的161亿元缩窄至65亿元，环比大幅减亏。
 
-管线进展 营收280万美元主要来自与武田制药的合作协议里程碑付款。
+此外，美团一季度加码AI投入，其AI助手“小美”与腾讯元宝的合作将于近期上线。
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 18:35 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 18:28 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 18:36 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 18:31 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 18:43 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 18:38 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 18:52 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 18:42 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 18:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 18:53 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 18:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 18:49 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 18:52 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 18:51 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 18:39 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 18:59 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 18:55 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 18:53 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 18:55 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 18:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 18:34 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/731152027891.shtml)
-- 2026-06-29 18:50 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/4699451.shtml)
-- 2026-06-29 18:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/400843628879.shtml)
-- 2026-06-29 18:40 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/7624503.shtml)
-- 2026-06-29 18:25 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/21306.shtml)
-- 2026-06-29 18:36 - [天道](http://www.share.minike.top/Article/details/1672800109.shtml)
-- 2026-06-29 18:47 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/28391005859.shtml)
-- 2026-06-29 18:38 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/6575069.shtml)
-- 2026-06-29 18:35 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/9450264.shtml)
-- 2026-06-29 18:24 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/10224.shtml)
-- 2026-06-29 18:36 - [V8](http://www.blog.kurohicncr.top/Article/details/63726.shtml)
-- 2026-06-29 18:42 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/1796655560.shtml)
-- 2026-06-29 18:45 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/6807726058.shtml)
-- 2026-06-29 18:30 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/70152846.shtml)
-- 2026-06-29 18:24 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.kurohicncr.top/Article/details/251798344.shtml)
+- 2026-06-29 18:58 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/304588.shtml)
+- 2026-06-29 18:33 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/63038.shtml)
+- 2026-06-29 18:44 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/90345980138.shtml)
+- 2026-06-29 18:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/2226111.shtml)
+- 2026-06-29 18:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/353736905.shtml)
+- 2026-06-29 18:37 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/94674763774.shtml)
+- 2026-06-29 18:32 - [主力抛售电子和通信板块](https://www.blog.minike.top/Article/details/5572842.shtml)
+- 2026-06-29 18:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/0237198662.shtml)
+- 2026-06-29 18:39 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/218551.shtml)
+- 2026-06-29 18:56 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/2551588494.shtml)
+- 2026-06-29 18:48 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/88443.shtml)
+- 2026-06-29 18:46 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/3078773842.shtml)
+- 2026-06-29 18:50 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/868272.shtml)
+- 2026-06-29 18:48 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/252242573294.shtml)
+- 2026-06-29 18:47 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/66107983269.shtml)

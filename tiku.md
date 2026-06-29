@@ -1,60 +1,57 @@
-# 南京至巴基斯坦首条风电装备运输航线首航
+# 利好来了！国务院，重磅印发
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-中新社南京5月8日电 (记者 朱晓颖)中远海运特种运输股份有限公司“天乐”轮8日晨驶离南京港码头直航巴基斯坦。这是南京港首次完成大型风电装备出口业务，标志着南京至巴基斯坦首条风电装备运输航线首航。 “天乐”轮船长189.99米、宽28.5米，载重吨为37996.60吨，船上装载4套风电设备(含塔筒、单长90米超长叶片)以及铁塔、变压器等，总方量达4万方。该批能源装备将直达巴基斯
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！日前，国务院印发《加快农业农村现代化“十五五”规划》（简称《规划》），明确了“十五五”时期加快农业农村现代化的思路目标、重点任务和政策措施，强调以加快农业农村现代化更好推进中国式现代化建设。 《规划》强调，坚持以习近平新时代中国特色社会主义思想为指导，全面贯彻习近平总书记关于“三农”工作的重要论述和重要指示
 
 ## 正文
 
-中新社南京5月8日电 (记者 朱晓颖)中远海运特种运输股份有限公司“天乐”轮8日晨驶离南京港码头直航巴基斯坦。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这是南京港首次完成大型风电装备出口业务，标志着南京至巴基斯坦首条风电装备运输航线首航。
+日前，国务院印发《加快农业农村现代化“十五五”规划》（简称《规划》），明确了“十五五”时期加快农业农村现代化的思路目标、重点任务和政策措施，强调以加快农业农村现代化更好推进中国式现代化建设。
 
-“天乐”轮船长189.99米、宽28.5米，载重吨为37996.60吨，船上装载4套风电设备(含塔筒、单长90米超长叶片)以及铁塔、变压器等，总方量达4万方。
+《规划》强调，坚持以习近平新时代中国特色社会主义思想为指导，全面贯彻习近平总书记关于“三农”工作的重要论述和重要指示精神，坚持把解决好“三农”问题作为全党工作重中之重，坚持农业农村优先发展，坚持城乡融合发展，锚定建设农业强国目标，以推进乡村全面振兴为总抓手，以学习运用“千万工程”经验为引领，以改革创新为根本动力，推动基本实现农业现代化、农村基本具备现代生活条件取得重大进展。
 
-该批能源装备将直达巴基斯坦卡拉奇，用于当地新能源项目建设。
+《规划》提出，到2030年，粮食安全根基持续夯实，农业质量效益和竞争力不断提高，脱贫攻坚成果持续巩固拓展，农业科技自立自强水平大幅提高，把农业建成现代化大产业取得重要进展，农民收入持续较快增长，宜居宜业和美乡村加快建设，城乡融合发展实现新突破，农业农村高质量发展取得显著成效。
 
-南京海事局龙潭海事处海事监管科科长包沐曦介绍，从南京港出口的“宁货宁出”模式降低了南京市企业的物流成本，将大幅提升运输效能，助力企业降本增效。
+同时，对2035年目标作了展望。
 
-据统计，今年一季度，南京港货物吞吐量、集装箱吞吐量同比分别增长15.93%、15.64%，实现了航运经济开门红。
+《规划》安排了七方面发展任务。
 
-本月，“南京港—钱凯港”外贸新航线开通，打通了长三角至南美洲地区的海上运输新路径。
+一是提升农业综合生产能力和质量效益，坚持产量产能、生产生态、增产增收一起抓，推进农产品供给结构优化和质量效益提升。
 
-(完)
+二是持续巩固拓展脱贫攻坚成果，确保不发生规模性返贫致贫。
 
 ## 相关推荐
 
-- 2026-06-29 18:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 18:26 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 18:52 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 18:44 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 18:33 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 18:42 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 18:28 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 18:38 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 18:34 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 18:24 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 18:39 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 18:25 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 18:50 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 18:31 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 18:30 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 18:31 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 18:40 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 18:39 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 18:39 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 18:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 18:33 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 18:31 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 18:56 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 18:35 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 18:51 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/4124249.shtml)
-- 2026-06-29 18:48 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/14308611.shtml)
-- 2026-06-29 18:29 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/591449.shtml)
-- 2026-06-29 18:38 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/83299.shtml)
-- 2026-06-29 18:38 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/9514615.shtml)
-- 2026-06-29 18:47 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/4168811270.shtml)
-- 2026-06-29 18:46 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/768895010348.shtml)
-- 2026-06-29 18:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/05517247640.shtml)
-- 2026-06-29 18:39 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/346209.shtml)
-- 2026-06-29 18:35 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/33450310.shtml)
-- 2026-06-29 18:28 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/875256948.shtml)
-- 2026-06-29 18:45 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/3023612213.shtml)
-- 2026-06-29 18:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/1035632.shtml)
-- 2026-06-29 18:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/485901263.shtml)
-- 2026-06-29 18:25 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/5959720.shtml)
+- 2026-06-29 18:36 - [女心理师](http://www.share.minike.top/Article/details/942989.shtml)
+- 2026-06-29 18:50 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/90058976.shtml)
+- 2026-06-29 18:50 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/799326703314.shtml)
+- 2026-06-29 18:39 - [货车司机雨中帮交警挪树获表扬](http://www.share.kurohicncr.top/Article/details/408899.shtml)
+- 2026-06-29 18:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/14633220.shtml)
+- 2026-06-29 18:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/708773159157.shtml)
+- 2026-06-29 18:32 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/309243737505.shtml)
+- 2026-06-29 18:49 - [互助版模拟高考志愿填报](http://www.blog.kurohicncr.top/Article/details/88124.shtml)
+- 2026-06-29 18:46 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/9958811247.shtml)
+- 2026-06-29 18:53 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/807499298992.shtml)
+- 2026-06-29 18:35 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/944494.shtml)
+- 2026-06-29 18:45 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/760193.shtml)
+- 2026-06-29 18:51 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/74925.shtml)
+- 2026-06-29 18:50 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/05997.shtml)
+- 2026-06-29 18:45 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/4193978.shtml)

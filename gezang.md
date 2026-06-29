@@ -1,58 +1,59 @@
-# 【新思想引领新征程】新型能源体系加快建设 筑牢能源安全根基
+# 【产业调研】棉花面积调减落地，新年度产量博弈如何收场
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-央视网消息（新闻联播）：习近平总书记强调，能源保障和安全事关国计民生，是须臾不可忽视的“国之大者”。当前，我国加快推进新型能源体系建设，加大清洁能源开发力度，提升清洁能源利用水平，能源安全韧性不断增强，为经济社会发展提供有力支撑。 今天的中国能源版图上，跃动着蓬勃的绿色动力。 在海上，153米的风机叶片旋转一圈发出62度电。一天时间里，全国所有风机发出的电，足够一座2000万人
+中粮期货研究中心 一、面积之争：官方数据与田间感受的温差 2026年新疆棉花种植面积的官方数据已经明朗。据中国棉花协会，2026年新疆棉花种植面积约4306.6万亩，同比下降3.9%，调减幅度明显低于此前市场预期的8%—10%。这一数据公布后，面积博弈的第一阶段告一段落，前期过度计价的减产预期面临修正，也成为5月以来郑棉高位回调的重要诱因之一。 但官方数据的温和调减，与本次北疆
 
 ## 正文
 
-央视网消息（新闻联播）：习近平总书记强调，能源保障和安全事关国计民生，是须臾不可忽视的“国之大者”。
+中粮期货研究中心 一、面积之争：官方数据与田间感受的温差 2026年新疆棉花种植面积的官方数据已经明朗。
 
-当前，我国加快推进新型能源体系建设，加大清洁能源开发力度，提升清洁能源利用水平，能源安全韧性不断增强，为经济社会发展提供有力支撑。
+据中国棉花协会，2026年新疆棉花种植面积约4306.6万亩，同比下降3.9%，调减幅度明显低于此前市场预期的8%—10%。
 
-今天的中国能源版图上，跃动着蓬勃的绿色动力。
+这一数据公布后，面积博弈的第一阶段告一段落，前期过度计价的减产预期面临修正，也成为5月以来郑棉高位回调的重要诱因之一。
 
-在海上，153米的风机叶片旋转一圈发出62度电。
+但官方数据的温和调减，与本次北疆调研中各方的真实感受之间，存在着耐人寻味的温差。
 
-一天时间里，全国所有风机发出的电，足够一座2000万人口的超大城市居民用上一个月，也可以支撑238万辆新能源汽车的制造。
+调研中我们听到了几乎覆盖整个区间的判断。
 
-如今，全国每发出10度电，就有约4度来自于可再生能源。
+从-3%到-10%均有依据，分歧不仅来自不同区域、不同主体的视角差异，更深层的原因在于面积调减是政策引导下的软约束而非硬指标。
 
-从2012年到2021年，不到十年，我国可再生能源装机量翻了2倍多，突破10亿千瓦，建成全球最大可再生能源体系；到2023年，我国可再生能源装机占全国电力总装机比重首次过半，历史性超过火电。
+一方面，政策明确要求引导非优势区域逐步退出种植、优势区域结合地下水超采情况有序调减，另一方面，由于一季度棉价同比明显上涨，棉农种植意愿依旧高涨。
 
-目前，全国可再生能源装机已近24亿千瓦，占全球可再生能源装机近一半，有力支撑我国能源自给率稳定保持在80%以上。
+在政策压减与价格刺激的拉锯中，最终落地的面积自然存在不小变数。
 
 ## 相关推荐
 
-- 2026-06-29 18:45 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 18:31 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 18:35 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 18:33 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 18:29 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 18:40 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 18:27 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 18:52 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 18:40 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 18:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 18:28 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 18:43 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 18:33 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 18:30 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 18:57 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 18:50 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 18:36 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 18:35 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 18:44 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 18:59 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 18:51 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 18:32 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 18:41 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 18:46 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 18:37 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:39 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/23044412.shtml)
-- 2026-06-29 18:53 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/457064967934.shtml)
-- 2026-06-29 18:44 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/603984.shtml)
-- 2026-06-29 18:34 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/33098.shtml)
-- 2026-06-29 18:48 - [王安宇尊重田曦薇的一切选择](http://www.share.kurohicncr.top/Article/details/57281306.shtml)
-- 2026-06-29 18:31 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/57844510283.shtml)
-- 2026-06-29 18:52 - [送你一朵小红花](http://www.blog.minike.top/Article/details/15396936.shtml)
-- 2026-06-29 18:50 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/10243202391.shtml)
-- 2026-06-29 18:43 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/119038094.shtml)
-- 2026-06-29 18:50 - [一生一世](https://www.blog.kurohicncr.top/Article/details/90560589129.shtml)
-- 2026-06-29 18:43 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/26641386.shtml)
-- 2026-06-29 18:24 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/359724.shtml)
-- 2026-06-29 18:41 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/12224622872.shtml)
-- 2026-06-29 18:36 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/85577019001.shtml)
-- 2026-06-29 18:32 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/41263050.shtml)
+- 2026-06-29 18:55 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/04784.shtml)
+- 2026-06-29 18:59 - [人形机器人](https://www.blog.minike.top/Article/details/602634.shtml)
+- 2026-06-29 18:46 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/65756602.shtml)
+- 2026-06-29 18:31 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/48262159.shtml)
+- 2026-06-29 18:31 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/881390.shtml)
+- 2026-06-29 18:53 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/64301233299.shtml)
+- 2026-06-29 18:33 - [2026年，如果你有100万，你会怎么投资？](http://www.share.minike.top/Article/details/7204002.shtml)
+- 2026-06-29 18:45 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/286763.shtml)
+- 2026-06-29 18:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/8251812.shtml)
+- 2026-06-29 18:37 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/315651.shtml)
+- 2026-06-29 18:56 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/116633119403.shtml)
+- 2026-06-29 18:58 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/2952588451.shtml)
+- 2026-06-29 18:41 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/090631149.shtml)
+- 2026-06-29 18:32 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/363436453.shtml)
+- 2026-06-29 18:40 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/20466403.shtml)

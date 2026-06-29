@@ -1,56 +1,56 @@
-# 下周解禁市值不足400亿元
+# Jaguar Uranium在Huemul项目发现地表铀铜钒矿化 化验结果待公布
 
-> 更新时间：2026-06-29 18:54:02 UTC+8
+> 更新时间：2026-06-29 19:00:02 UTC+8
 
 ## 摘要
 
-数据显示，下周A股限售股上市数量共计21.59亿股，以5月8日收盘价计算，市值约383.27亿元，均比本周三个交易日的总量有所增加。但从全年周数据来看，下周解禁规模属于偏低水平。从个股来看，有9家公司限售股解禁市值超过10亿元，分别是芯联集成-U、宏景科技、天振股份、曼恩斯特、众智科技、天工股份、万丰股份、欣灵电气、巨能股份。芯联集成解禁市值超百亿元芯联集成-U是下周解禁规模最
+Jaguar Uranium Corp． 周二宣布，已成功完成其在阿根廷门多萨省马拉圭地区Huemul铀铜钒项目的200个岩石样品采样计划，并在现场发现了肉眼可见的铀、铜和钒矿化现象。此次为期两周的野外勘探工作覆盖了该项目超过2.7万公顷的整体范围。 勘探团队在前Huemul矿附近的两处露头发现了与历史记录一致的可见铀铜矿化。历史资料显示，该矿曾于1955年至1975年间在阿根
 
 ## 正文
 
-数据显示，下周A股限售股上市数量共计21.59亿股，以5月8日收盘价计算，市值约383.27亿元，均比本周三个交易日的总量有所增加。
+Jaguar Uranium Corp． 周二宣布，已成功完成其在阿根廷门多萨省马拉圭地区Huemul铀铜钒项目的200个岩石样品采样计划，并在现场发现了肉眼可见的铀、铜和钒矿化现象。
 
-但从全年周数据来看，下周解禁规模属于偏低水平。
+此次为期两周的野外勘探工作覆盖了该项目超过2.7万公顷的整体范围。
 
-从个股来看，有9家公司限售股解禁市值超过10亿元，分别是芯联集成-U、宏景科技、天振股份、曼恩斯特、众智科技、天工股份、万丰股份、欣灵电气、巨能股份。
+勘探团队在前Huemul矿附近的两处露头发现了与历史记录一致的可见铀铜矿化。
 
-芯联集成解禁市值超百亿元芯联集成-U是下周解禁规模最大的一家公司，其有14.4亿股限售股将于5月11日起上市流通，占总股本的17.18%，按周五收盘价计算，解禁市值为100.22亿元，此次解禁股份类型为首发原股东限售股份。
+历史资料显示，该矿曾于1955年至1975年间在阿根廷国家原子能委员会的管理下运营，累计处理矿石约13万吨，平均品位为铀0.21%、铜2.0%、钒0.11%。
 
-本次解除限售的股东共3名，分别为中芯国际控股有限公司、绍兴硅芯锐企业管理合伙企业和绍兴日芯锐企业管理合伙企业。
+值得一提的是，此次勘探首次对历史矿堆进行了采样，该区域此前未经过系统检测。
 
-该公司在此前举办的投资者关系活动中表示，2026年一季度毛利率进一步提升，归母净利润亏损收窄至0.88亿元，同比减亏51.53%。
+此外，野外团队还在项目南部的Uryco区域识别出一条约4公里长的潜在铜矿化带，其规模与历史工作所提示的系统潜力相符。
 
-公司2026年一季度收入同比增长13.19%。
+公司表示，所有矿化观测结果目前均基于野外目视评估及历史数据，仍有待实验室验证。
 
-随着市场需求继续回升，今年二季度将有望保持收入环比实现持续提升。
+Jaguar Uranium首席执行官Steven Gold表示：“我们在露头和历史矿堆中观察到的可见矿化，与最初吸引我们来到Huemul的历史记录描述基本一致，Uryco区域4公里长的潜在铜矿带也与历史数据吻合。
 
 ## 相关推荐
 
-- 2026-06-29 18:46 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 18:25 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 18:27 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 18:47 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 18:49 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 18:26 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 18:37 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 18:42 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 18:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 18:52 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 18:52 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 18:30 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 18:53 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 18:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 18:35 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 18:55 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 18:54 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 18:52 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 18:53 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 18:57 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:40 - [斗破苍穹](http://www.blog.minike.top/Article/details/185455714.shtml)
-- 2026-06-29 18:42 - [女心理师](https://www.share.minike.top/Article/details/619420.shtml)
-- 2026-06-29 18:31 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/77627.shtml)
-- 2026-06-29 18:41 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/262200802.shtml)
-- 2026-06-29 18:24 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/253221.shtml)
-- 2026-06-29 18:51 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/633985738.shtml)
-- 2026-06-29 18:51 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/0074975.shtml)
-- 2026-06-29 18:37 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/65648772836.shtml)
-- 2026-06-29 18:25 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/4777384.shtml)
-- 2026-06-29 18:47 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/46344.shtml)
-- 2026-06-29 18:39 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/77045971737.shtml)
-- 2026-06-29 18:31 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/3813156944.shtml)
-- 2026-06-29 18:25 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/324692372.shtml)
-- 2026-06-29 18:48 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/16813668.shtml)
-- 2026-06-29 18:52 - [永远有话聊的原因](https://www.share.minike.top/Article/details/266451820.shtml)
+- 2026-06-29 18:39 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/1901905723.shtml)
+- 2026-06-29 18:45 - [明星大侦探第四季](https://www.share.minike.top/Article/details/8351585738.shtml)
+- 2026-06-29 18:51 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/948580875.shtml)
+- 2026-06-29 18:34 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/9744706.shtml)
+- 2026-06-29 18:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/598642304.shtml)
+- 2026-06-29 18:59 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/7256657.shtml)
+- 2026-06-29 18:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/09791.shtml)
+- 2026-06-29 18:46 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/91118407.shtml)
+- 2026-06-29 18:50 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/312169906897.shtml)
+- 2026-06-29 18:52 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/73015.shtml)
+- 2026-06-29 18:59 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/0531459269.shtml)
+- 2026-06-29 18:34 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/760376109.shtml)
+- 2026-06-29 18:39 - [A股割裂行情有变化了吗](https://www.blog.kurohicncr.top/Article/details/257030074.shtml)
+- 2026-06-29 18:55 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/29534687812.shtml)
+- 2026-06-29 18:31 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/61964.shtml)
