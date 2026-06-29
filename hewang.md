@@ -1,56 +1,55 @@
-# 海南禁塑攻坚行动三个月查扣违禁塑料制品7.7万余件
+# 国台办回应两岸两会联系停摆十年
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网海口5月19日电 (记者 王晓斌)记者从海南省新闻办公室5月19日召开的新闻发布会获悉，今年1月海南省开展了禁塑重点环节专项打击攻坚行动，三个月共查办案件154宗，查扣违禁塑料制品7.7万余件，涉案货值超500万元。据介绍，行动结束后，相关工作正在走向常态化、长效化。海南2020年12月1日起实施《海南经济特区禁止一次性不可降解塑料制品规定》。禁塑工作是国家生态文明试验区
+中新网5月27日电 5月27日，国台办举行例行新闻发布会。有记者问：对于海协会与台湾海基会联系机制停摆10年，陆委会称，“停摆原因是大陆设下不可接受的政治前提，是对方决定要停摆的”。请问对此有何评论？ 国台办发言人陈斌华表示，1992年海协会与台湾海基会达成体现一个中国原则的“九二共识”，明确界定了两岸关系的性质。正是在这一政治基础上，两会开启协商谈判，签署了一系列协议，让两岸
 
 ## 正文
 
-中新网海口5月19日电 (记者 王晓斌)记者从海南省新闻办公室5月19日召开的新闻发布会获悉，今年1月海南省开展了禁塑重点环节专项打击攻坚行动，三个月共查办案件154宗，查扣违禁塑料制品7.7万余件，涉案货值超500万元。
+中新网5月27日电 5月27日，国台办举行例行新闻发布会。
 
-据介绍，行动结束后，相关工作正在走向常态化、长效化。
+有记者问：对于海协会与台湾海基会联系机制停摆10年，陆委会称，“停摆原因是大陆设下不可接受的政治前提，是对方决定要停摆的”。
 
-海南2020年12月1日起实施《海南经济特区禁止一次性不可降解塑料制品规定》。
+请问对此有何评论？
 
-禁塑工作是国家生态文明试验区建设的标志性工程。
+国台办发言人陈斌华表示，1992年海协会与台湾海基会达成体现一个中国原则的“九二共识”，明确界定了两岸关系的性质。
 
-今年1至3月，海南在全省范围内开展为期三个月的禁塑重点环节专项打击攻坚行动，聚焦违禁塑料制品的生产、运输、储存和销售四大关键环节，围绕违规生产循线深挖、港口码头联合执法、物流寄递集中清查等五项任务实施全链条打击。
+正是在这一政治基础上，两会开启协商谈判，签署了一系列协议，让两岸同胞都从中受益。
 
-整个行动期间，海南全省共查办案件154宗，查扣各类违禁塑料制品77509箱(件)，涉案货值超过500万元，分别达到2025年全年总数的57%和60%以上。
+民进党当局顽固坚持“台独”分裂立场，拒不承认“九二共识”，单方面破坏两岸对话协商的政治基础，这是两会对话协商停摆的根本原因，也是台海局势紧张动荡的根源。
 
-查办违规运输案件52宗、违规储存案件53宗、违规销售案件49宗，分别占2025年全年查办的同类案件数的42%、71%、66%。
-
-海南省生态环境厅副厅长李小山介绍，攻坚行动有效打破了部门壁垒，推动长效监管机制逐步健全。
+(中新网“燕新台”工作室)
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 15:15 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 14:55 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 14:56 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 14:56 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 14:49 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 14:48 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 15:02 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 15:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 15:08 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 15:16 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 14:56 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 15:19 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 15:03 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 15:10 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 15:02 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 14:54 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 15:00 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 14:59 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 15:02 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 15:09 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:48 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/393237.shtml)
-- 2026-06-29 14:58 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/97258223496.shtml)
-- 2026-06-29 15:01 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/38989.shtml)
-- 2026-06-29 14:51 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/867366704.shtml)
-- 2026-06-29 14:48 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/857342877.shtml)
-- 2026-06-29 15:11 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/24756.shtml)
-- 2026-06-29 15:01 - [崔韩率还以为韩娱来新人了](http://www.blog.kurohicncr.top/Article/details/340628916.shtml)
-- 2026-06-29 14:48 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.minike.top/Article/details/422930729.shtml)
-- 2026-06-29 15:16 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/8213557156.shtml)
-- 2026-06-29 15:03 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/93438067.shtml)
-- 2026-06-29 15:10 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/09234117.shtml)
-- 2026-06-29 15:14 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/18570196568.shtml)
-- 2026-06-29 14:49 - [105年初心滚烫](http://www.share.minike.top/Article/details/2892032889.shtml)
-- 2026-06-29 14:53 - [乔家的儿女](http://www.blog.minike.top/Article/details/77960.shtml)
-- 2026-06-29 15:13 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/4177157491.shtml)
+- 2026-06-29 15:22 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/4003412773.shtml)
+- 2026-06-29 15:06 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/73828210163.shtml)
+- 2026-06-29 15:07 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/8355389.shtml)
+- 2026-06-29 15:05 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/59397497.shtml)
+- 2026-06-29 14:56 - [高考公平需要延伸到志愿填报这一环](http://www.share.minike.top/Article/details/39029101903.shtml)
+- 2026-06-29 14:56 - [拄拐少年高考663分：用行动回报社会](http://www.share.minike.top/Article/details/4644984803.shtml)
+- 2026-06-29 15:19 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/44225824.shtml)
+- 2026-06-29 15:04 - [时光音乐会](http://www.share.minike.top/Article/details/8821071.shtml)
+- 2026-06-29 15:15 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/798042538311.shtml)
+- 2026-06-29 15:14 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/428670325988.shtml)
+- 2026-06-29 15:14 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/61605.shtml)
+- 2026-06-29 15:05 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/1305417.shtml)
+- 2026-06-29 15:09 - [恋与深空底线不该被娱乐化](http://www.share.kurohicncr.top/Article/details/9176556.shtml)
+- 2026-06-29 14:57 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.minike.top/Article/details/66743989.shtml)
+- 2026-06-29 15:06 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/4571797570.shtml)

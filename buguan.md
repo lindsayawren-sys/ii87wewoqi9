@@ -1,61 +1,56 @@
-# 伦敦国王学院中国学联举办中英商业交流会
+# 买车用车遇到问题 该去哪里投诉维权
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网伦敦5月19日电 (记者 欧阳开宇)伦敦国王学院中国学联日前在伦敦举办“商道汇融·国际共生——全球环境、中英商业与未来发展交流会”，活动聚焦“文化与商业”与“科技与商业”两大主题，邀请来自英国剑桥大学、帝国理工等高校的学者，以及来自宏观经济、国际媒体、科技创新与传统产业领域的资深从业者，共同探讨全球格局变化下的中英商业合作与未来发展路径。主办方表示，本次商业交流活动不仅是
+汽车作为普通家庭仅次于房产的大额消费品，购买和使用过程中涉及的环节繁多，出问题的概率也不低。从4S店销售环节的捆绑保险、加价提车，到车辆本身的质量缺陷、三包期内维修不到位，再到售后服务中的配件价格虚高、维修工期拖延……汽车消费领域的投诉常年居高不下。那么，作为车主，到底该通过哪些渠道来维护自己的合法权益呢？ 先说说最常见的汽车质量问题。按照国家《家用汽车产品修理更换退货责任规定
 
 ## 正文
 
-中新网伦敦5月19日电 (记者 欧阳开宇)伦敦国王学院中国学联日前在伦敦举办“商道汇融·国际共生——全球环境、中英商业与未来发展交流会”，活动聚焦“文化与商业”与“科技与商业”两大主题，邀请来自英国剑桥大学、帝国理工等高校的学者，以及来自宏观经济、国际媒体、科技创新与传统产业领域的资深从业者，共同探讨全球格局变化下的中英商业合作与未来发展路径。
+汽车作为普通家庭仅次于房产的大额消费品，购买和使用过程中涉及的环节繁多，出问题的概率也不低。
 
-主办方表示，本次商业交流活动不仅是一场关于知识与信息的深度分享，也为不同领域之间的跨界交流与资源联结提供了重要平台。
+从4S店销售环节的捆绑保险、加价提车，到车辆本身的质量缺陷、三包期内维修不到位，再到售后服务中的配件价格虚高、维修工期拖延……汽车消费领域的投诉常年居高不下。
 
-活动上，经济学家Boris But从国际能源格局、地缘政治变化以及全球产业链重构等角度，分析了当前中英商业合作面临的新趋势与新挑战。
+那么，作为车主，到底该通过哪些渠道来维护自己的合法权益呢？
 
-资深媒体人陈时荣认为，过去商业依赖信息差、渠道与规模化，而AI时代的核心竞争力，将逐渐回归到“意义创造”。
+先说说最常见的汽车质量问题。
 
-在AI时代，最具竞争力的人才，将是那些能够在不同文明、不同文化体系之间“翻译意义”的人。
+按照国家《家用汽车产品修理更换退货责任规定》（俗称“汽车三包”），新车在三包期限内出现质量问题，消费者有权要求免费修理、更换或退货。
 
-随后，明允马球创始人刘子闻认为通过品牌化与当代化表达，马球运动正在被重新赋予新的文化意义获得新的生命力，“不仅活在历史中，更活在当下，并走向更远的世界”。
+如果4S店或厂家拒绝履行三包责任，首先应该收集好购车合同、发票、保养记录和故障证明等材料，然后向当地市场监督管理局投诉。
 
-论坛还邀请深耕英国医药、文化与媒体行业的实践者展开深入对话，包括荷伯颍中医连锁药店创始人王台生、英国北京联合会会长李海，以及资深媒体人陈时荣，围绕中医药文化传播、华人文化交流以及英国媒体发展等议题展开讨论，展现了华人企业与文化机构在英国社会中的积极影响力。
+12315平台接受此类投诉后会转交属地市场监管部门处理，这是目前处理汽车质量纠纷最主要和有效的途径之一。
 
-王台生介绍了中医药在英国的发展历程与商业实践路径，并分享了中医在英国本土化发展的经验。
+除了质量问题，汽车消费中还经常遇到合同纠纷。
 
 ## 相关推荐
 
-- 2026-06-29 15:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 15:02 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 14:50 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 15:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 15:00 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 15:15 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 15:14 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 14:58 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 15:05 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 14:58 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 14:48 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 14:59 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 14:48 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 14:53 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 14:50 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 15:23 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 15:08 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 15:23 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 15:21 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 14:55 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 15:22 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 15:00 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 15:17 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 15:11 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 15:21 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:15 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/6379862753.shtml)
-- 2026-06-29 15:16 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/02207997.shtml)
-- 2026-06-29 15:09 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/10668977.shtml)
-- 2026-06-29 14:52 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/72638.shtml)
-- 2026-06-29 15:09 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/31037462413.shtml)
-- 2026-06-29 15:13 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/6021458285.shtml)
-- 2026-06-29 15:10 - [一生一世](https://www.share.minike.top/Article/details/762687592.shtml)
-- 2026-06-29 15:07 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/251131073137.shtml)
-- 2026-06-29 14:51 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/4760654.shtml)
-- 2026-06-29 15:06 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/303698053.shtml)
-- 2026-06-29 15:15 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/492044.shtml)
-- 2026-06-29 15:04 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/932444.shtml)
-- 2026-06-29 15:15 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.kurohicncr.top/Article/details/801958.shtml)
-- 2026-06-29 15:00 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/26318571.shtml)
-- 2026-06-29 15:13 - [北极荒岛生存挑战](http://www.blog.minike.top/Article/details/8046845.shtml)
+- 2026-06-29 15:23 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.minike.top/Article/details/83287395373.shtml)
+- 2026-06-29 15:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/2454006.shtml)
+- 2026-06-29 15:10 - [爱很美味](http://www.share.kurohicncr.top/Article/details/62052140668.shtml)
+- 2026-06-29 15:23 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/9087704.shtml)
+- 2026-06-29 15:05 - [请回答王牌2019](https://www.share.minike.top/Article/details/8846335060.shtml)
+- 2026-06-29 15:22 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/6793919849.shtml)
+- 2026-06-29 14:58 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/08294087558.shtml)
+- 2026-06-29 15:03 - [高考公平需要延伸到志愿填报这一环](https://www.share.minike.top/Article/details/6538533.shtml)
+- 2026-06-29 14:55 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/813096591.shtml)
+- 2026-06-29 15:02 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/701690786535.shtml)
+- 2026-06-29 14:54 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/65874767.shtml)
+- 2026-06-29 15:09 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/880252133.shtml)
+- 2026-06-29 15:18 - [双高胎](http://www.blog.minike.top/Article/details/1214254.shtml)
+- 2026-06-29 15:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/496179.shtml)
+- 2026-06-29 15:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/91427488.shtml)

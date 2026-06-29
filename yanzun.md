@@ -1,57 +1,59 @@
-# 美媒称北约考虑“协助船只”通过霍尔木兹海峡
+# 让善意被“看见”：数字时代公益如何从感动化为行动
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-新华社华盛顿5月19日电(记者黄强 徐剑梅)据美国彭博社19日援引一名北约高级官员的话报道，如果霍尔木兹海峡未能在7月初重新开放，北约将考虑是否“协助船只”通过该水道。 报道说，这一提议已获得多个北约成员国支持，但尚未达到其获通过所需的全体一致支持。北约高级官员说，尽管部分北约国家目前仍反对授权北约针对该海峡开展联合行动，但若封锁局面持续下去，他们最终将会支持这一提议。 北约欧
+中新网北京5月26日电(记者 郎朗) 大凉山女孩的歌声，从未被那么多人听见。 2025年，微博“人人公益节”的一期探访视频里，她们在教室里、山野间，稚嫩清澈地唱着歌，围着篝火，大声喊出心底的梦想。镜头没有刻意煽情，只是安静地记录。但就是这段画面，连同其他八期“访谈播客+实地探访”节目，累计播放量超过2800万次，相关话题阅读量达1.2亿。 一次“看见”之后，是无数人从“感动”走
 
 ## 正文
 
-新华社华盛顿5月19日电(记者黄强 徐剑梅)据美国彭博社19日援引一名北约高级官员的话报道，如果霍尔木兹海峡未能在7月初重新开放，北约将考虑是否“协助船只”通过该水道。
+中新网北京5月26日电(记者 郎朗) 大凉山女孩的歌声，从未被那么多人听见。
 
-报道说，这一提议已获得多个北约成员国支持，但尚未达到其获通过所需的全体一致支持。
+2025年，微博“人人公益节”的一期探访视频里，她们在教室里、山野间，稚嫩清澈地唱着歌，围着篝火，大声喊出心底的梦想。
 
-北约高级官员说，尽管部分北约国家目前仍反对授权北约针对该海峡开展联合行动，但若封锁局面持续下去，他们最终将会支持这一提议。
+镜头没有刻意煽情，只是安静地记录。
 
-北约欧洲盟军最高司令格林克维奇19日在新闻发布会上被问及相关可能性时称，他正在考虑这一问题，“先要确立政治方向，随后才会展开正式的规划工作”。
+但就是这段画面，连同其他八期“访谈播客+实地探访”节目，累计播放量超过2800万次，相关话题阅读量达1.2亿。
 
-报道还说，北约成员国领导人将于7月7日至8日在土耳其首都安卡拉举行会议。
+一次“看见”之后，是无数人从“感动”走向“行动”。
 
-目前尚不清楚北约将如何为商业船只通过该海峡提供安全保障。
+为推动网络公益事业发展，助力网上正能量传播，在首届“数爱无疆”数字公益故事征集展播活动成功举办的基础上，中国网络社会组织联合会联合中国互联网发展基金会、中国新闻网自2025年11月起继续组织开展2025“数爱无疆”数字公益故事征集展播活动。
 
-报道同时指出，此举将标志着北约相关策略发生转变。
+经过相关专家评审，最终遴选出50个最具代表性的数字公益作品。
 
-美国的北约盟国此前一直坚称，只有在各方停止敌对行动且组建一个包含非北约国家的广泛联盟之后，才会介入霍尔木兹海峡事务。
+微博公益“人人公益节”等公益故事入选其中。
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 15:08 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 15:02 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 15:13 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 14:56 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 15:17 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 15:03 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 15:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 15:06 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 15:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 14:50 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 15:00 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 14:58 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 15:02 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 14:57 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 15:15 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 15:11 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 14:56 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 15:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 15:01 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 15:22 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 15:17 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 15:17 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 15:23 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/6557326500.shtml)
-- 2026-06-29 14:53 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/47745771751.shtml)
-- 2026-06-29 15:02 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/938682485.shtml)
-- 2026-06-29 15:13 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/955804333.shtml)
-- 2026-06-29 14:48 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/466633149409.shtml)
-- 2026-06-29 15:06 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/2536115222.shtml)
-- 2026-06-29 14:58 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/523954.shtml)
-- 2026-06-29 15:01 - [李连杰回应网传不管前妻俩女儿](http://www.share.kurohicncr.top/Article/details/835091.shtml)
-- 2026-06-29 14:48 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/46521163241.shtml)
-- 2026-06-29 15:02 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/009168.shtml)
-- 2026-06-29 14:56 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/06953.shtml)
-- 2026-06-29 14:59 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/74940981.shtml)
-- 2026-06-29 14:56 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/238443442.shtml)
-- 2026-06-29 15:04 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/977767206650.shtml)
-- 2026-06-29 15:13 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/239234585849.shtml)
+- 2026-06-29 15:13 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/3678456.shtml)
+- 2026-06-29 15:14 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/848105845806.shtml)
+- 2026-06-29 14:55 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/8586072979.shtml)
+- 2026-06-29 15:15 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/31915866389.shtml)
+- 2026-06-29 15:21 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.minike.top/Article/details/88070507589.shtml)
+- 2026-06-29 15:12 - [森保一：日本队要亲手改写历史](http://www.blog.kurohicncr.top/Article/details/95173931.shtml)
+- 2026-06-29 15:17 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/047557351261.shtml)
+- 2026-06-29 15:22 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/05031820.shtml)
+- 2026-06-29 14:56 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/3103233.shtml)
+- 2026-06-29 15:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/3706308743.shtml)
+- 2026-06-29 14:54 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/642304814.shtml)
+- 2026-06-29 15:22 - [一见倾心](https://www.share.kurohicncr.top/Article/details/2313393.shtml)
+- 2026-06-29 15:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/24046999.shtml)
+- 2026-06-29 15:10 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/662049323205.shtml)
+- 2026-06-29 15:07 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/88846051075.shtml)

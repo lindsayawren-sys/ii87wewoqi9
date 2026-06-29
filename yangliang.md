@@ -1,61 +1,58 @@
-# 酒店“一客一换”失守，监管力度要跟上
+# 2026年1—4月份规模以上工业企业利润较快增长
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-秦春兰 5月16日，“多家酒店做不到床单一客一换”登上热搜。据媒体报道，有的酒店入住后次日枕套、床单未换新，有的酒店未使用的浴巾、面巾则不予更换，还有的酒店水杯未清洗消毒，涉及维也纳、城市便捷、麗枫等酒店。当地相关部门回应称媒体调查属实，已依法对涉事酒店立案调查。(5月17日上观新闻) 媒体记者的暗访揭开了多家酒店的卫生乱象。部分酒店凭肉眼判断布草洁净度，未使用的浴巾、面巾不予
+中新网5月27日电 据国家统计局网站消息，5月27日，国家统计局工业司首席统计师于卫宁解读2026年1—4月份工业企业利润数据：1—4月份，工业生产较快增长，工业品价格回升，带动工业企业利润增长加快，装备制造业和高技术制造业等新动能行业引领作用明显，工业企业效益持续改善。工业企业利润较快增长。1—4月份，全国规模以上工业企业利润同比增长18.2%，较1—3月份加快2.7个百分点
 
 ## 正文
 
-秦春兰 5月16日，“多家酒店做不到床单一客一换”登上热搜。
+中新网5月27日电 据国家统计局网站消息，5月27日，国家统计局工业司首席统计师于卫宁解读2026年1—4月份工业企业利润数据：1—4月份，工业生产较快增长，工业品价格回升，带动工业企业利润增长加快，装备制造业和高技术制造业等新动能行业引领作用明显，工业企业效益持续改善。
 
-据媒体报道，有的酒店入住后次日枕套、床单未换新，有的酒店未使用的浴巾、面巾则不予更换，还有的酒店水杯未清洗消毒，涉及维也纳、城市便捷、麗枫等酒店。
+工业企业利润较快增长。
 
-当地相关部门回应称媒体调查属实，已依法对涉事酒店立案调查。
+1—4月份，全国规模以上工业企业利润同比增长18.2%，较1—3月份加快2.7个百分点。
 
-(5月17日上观新闻) 媒体记者的暗访揭开了多家酒店的卫生乱象。
+从三大门类看，1—4月份，采矿业、制造业分别增长26.0%、20.4%，较1—3月份分别加快9.8个、1.3个百分点；电力、热力、燃气及水生产和供应业下降1.9%，降幅较1—3月份收窄1.3个百分点。
 
-部分酒店凭肉眼判断布草洁净度，未使用的浴巾、面巾不予更换，客房水杯也未彻底清洗消毒，严重影响了消费者对酒店卫生的信任。
+4月份，全国规模以上工业企业利润增长24.7%。
 
-相关部门快速核查处置、开展全域整治，彰显了监管力度，也让公众再次聚焦酒店卫生治理的深层问题。
+工业企业营收稳定增长。
 
-“一客一换一消毒”是酒店行业的硬性卫生标准，更是保障消费者健康的底线准则。
+工业生产保持较快增长，工业生产者出厂价格回升，共同推动工业企业营业收入稳定增长。
 
-一些连锁酒店凭借标准化管理、规范化服务赢得市场口碑，成为大众出行住宿的首选。
+1—4月份，全国规模以上工业企业营业收入同比增长5.2%，较1—3月份加快0.2个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 15:17 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 15:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 14:58 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 15:12 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 14:56 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 14:53 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 15:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 14:52 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 15:05 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 14:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 15:02 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 15:01 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 15:00 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 14:49 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 15:00 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 15:05 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 15:00 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 15:17 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 15:11 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 15:11 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 15:13 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 15:04 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 14:54 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 14:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 14:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 15:20 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 15:14 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:00 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/08178278460.shtml)
-- 2026-06-29 15:13 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/0202937441.shtml)
-- 2026-06-29 15:15 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/770299.shtml)
-- 2026-06-29 14:57 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.kurohicncr.top/Article/details/65878192212.shtml)
-- 2026-06-29 15:17 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/71181404243.shtml)
-- 2026-06-29 15:15 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/47132183.shtml)
-- 2026-06-29 14:57 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/6552107884.shtml)
-- 2026-06-29 15:05 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/312682519.shtml)
-- 2026-06-29 15:12 - [高市早苗口齿不清被质疑醉酒](http://www.share.kurohicncr.top/Article/details/585571542.shtml)
-- 2026-06-29 15:13 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/40845.shtml)
-- 2026-06-29 15:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/4504978.shtml)
-- 2026-06-29 14:48 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/408685.shtml)
-- 2026-06-29 14:49 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/40878861.shtml)
-- 2026-06-29 14:53 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/55413.shtml)
-- 2026-06-29 14:59 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/3712836.shtml)
+- 2026-06-29 14:58 - [5万块的威力](http://www.share.minike.top/Article/details/44187173.shtml)
+- 2026-06-29 15:02 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/5750570.shtml)
+- 2026-06-29 15:12 - [爱很美味](http://www.share.kurohicncr.top/Article/details/088879.shtml)
+- 2026-06-29 15:19 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/667411.shtml)
+- 2026-06-29 14:59 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.minike.top/Article/details/4602291314.shtml)
+- 2026-06-29 14:54 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/324800.shtml)
+- 2026-06-29 14:58 - [爱很美味](http://www.share.minike.top/Article/details/09318615763.shtml)
+- 2026-06-29 15:05 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/2384694634.shtml)
+- 2026-06-29 15:15 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/5160837.shtml)
+- 2026-06-29 15:16 - [我和我的家乡](https://www.share.minike.top/Article/details/5085955303.shtml)
+- 2026-06-29 14:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/7822545874.shtml)
+- 2026-06-29 15:03 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/56973.shtml)
+- 2026-06-29 15:02 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/1687577531.shtml)
+- 2026-06-29 15:02 - [医药股集体爆发](https://www.share.minike.top/Article/details/94799104.shtml)
+- 2026-06-29 15:05 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/29942.shtml)

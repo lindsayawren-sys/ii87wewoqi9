@@ -1,52 +1,61 @@
-# 第一拖拉机股份拟1979.25万元收购黑龙江北大荒垦征农机装备39%股权
+# 国有六大行“配齐”首席合规官，5家银行由行长兼任
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-第一拖拉机股份（00038）发布公告，公司已获悉成功中标销售股权，最终竞投价格为人民币1979.25万元。于2026年5月18日，公司与智能研究院公司订立股权转让协议，据此，智能研究院公司已同意出售而公司已同意按最终竞投价格购买目标公司黑龙江北大荒垦征农机装备有限公司的39%股权。 此次股权投资有助于深化公司与北大荒农垦集团有限公司合作关系，回应国家“建设大型大马力高端智慧农机
+5月26日，中国邮政储蓄银行股份有限公司（邮储银行，601658.SH）发布公告，该行董事会审议通过了聘任芦苇为该行首席合规官的议案。根据相关规定，芦苇作为邮储银行行长，其兼任该行首席合规官的任职自董事会审议通过之日起生效。芦苇自2026年5月26日起兼任该行首席合规官。这意味着，目前国有六大银行已“配齐”首席合规官，除交通银行的首席合规官由首席风险官刘建军兼任外，其余5家银行
 
 ## 正文
 
-第一拖拉机股份（00038）发布公告，公司已获悉成功中标销售股权，最终竞投价格为人民币1979.25万元。
+5月26日，中国邮政储蓄银行股份有限公司（邮储银行，601658.SH）发布公告，该行董事会审议通过了聘任芦苇为该行首席合规官的议案。
 
-于2026年5月18日，公司与智能研究院公司订立股权转让协议，据此，智能研究院公司已同意出售而公司已同意按最终竞投价格购买目标公司黑龙江北大荒垦征农机装备有限公司的39%股权。
+根据相关规定，芦苇作为邮储银行行长，其兼任该行首席合规官的任职自董事会审议通过之日起生效。
 
-此次股权投资有助于深化公司与北大荒农垦集团有限公司合作关系，回应国家“建设大型大马力高端智慧农机装备研发制造推广应用先导区”政策，依托北大荒农垦集团有限公司高端智慧农机装备的规模化应用场景，持续优化核心技术性能，加速推进公司高端产品的研发、制造、推广、应用，更好地服务及保障国家粮食安全。
+芦苇自2026年5月26日起兼任该行首席合规官。
 
-责任编辑：卢昱君
+这意味着，目前国有六大银行已“配齐”首席合规官，除交通银行的首席合规官由首席风险官刘建军兼任外，其余5家银行均由行长兼任。
+
+公开资料显示，芦苇，男，1971年出生，获澳大利亚迪肯大学会计硕士学位。
+
+曾任中信银行总行营业部副总经理，总行计划财务部总经理、财务会计部总经理、资产负债部总经理、香港分行筹备组副组长，总行董事会秘书、阿尔金银行筹备组副组长，深圳分行行长，总行公司业务总监，副行长，中信信托总经理、副董事长、董事长，中信银行执行董事、行长等职务。
+
+现任中国邮政集团有限公司副总经理，邮储银行执行董事、行长。
+
+国家金融监督管理总局2024年12月发布的《金融机构合规管理办法》（简称《办法》）明确，金融机构应当在机构总部设立首席合规官，首席合规官是高级管理人员；金融机构可以根据自身经营情况单独设立首席合规官、合规官，也可以由金融机构的高级管理人员、省级分支机构或者一级分支机构的高级管理人员兼任。
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 14:52 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 15:15 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 14:56 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 15:04 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 15:14 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 15:01 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 14:55 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 15:02 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 15:02 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 14:58 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 15:14 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 15:11 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 14:55 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 15:20 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 15:21 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 15:09 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 14:58 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 15:16 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 15:12 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 15:11 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 15:15 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 15:00 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 15:15 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 15:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 15:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 15:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 15:23 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 14:54 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/944393464.shtml)
-- 2026-06-29 15:09 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/49177009202.shtml)
-- 2026-06-29 14:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/840395446.shtml)
-- 2026-06-29 15:06 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/144922.shtml)
-- 2026-06-29 14:54 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/731926.shtml)
-- 2026-06-29 15:01 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/70840925.shtml)
-- 2026-06-29 14:51 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/44655476.shtml)
-- 2026-06-29 14:48 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/345887008876.shtml)
-- 2026-06-29 15:06 - [行程万里不忘初心](http://www.share.minike.top/Article/details/62739.shtml)
-- 2026-06-29 15:08 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/87121989976.shtml)
-- 2026-06-29 14:58 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/53377.shtml)
-- 2026-06-29 14:56 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/2547992.shtml)
-- 2026-06-29 15:10 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/1411708483.shtml)
-- 2026-06-29 14:58 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/119624812.shtml)
-- 2026-06-29 15:08 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/4831050.shtml)
+- 2026-06-29 14:59 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/94262310477.shtml)
+- 2026-06-29 15:21 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/73235367.shtml)
+- 2026-06-29 15:22 - [佛得角到底在哪个“角”](http://www.share.kurohicncr.top/Article/details/897796021.shtml)
+- 2026-06-29 15:13 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/846461.shtml)
+- 2026-06-29 15:17 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/6168861525.shtml)
+- 2026-06-29 15:18 - [行程万里不忘初心](https://www.share.minike.top/Article/details/66935.shtml)
+- 2026-06-29 15:01 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/252331056051.shtml)
+- 2026-06-29 15:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/943700.shtml)
+- 2026-06-29 15:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/73380751024.shtml)
+- 2026-06-29 15:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/959496692318.shtml)
+- 2026-06-29 14:57 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.kurohicncr.top/Article/details/29382823.shtml)
+- 2026-06-29 15:08 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/74467.shtml)
+- 2026-06-29 15:22 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/180867066289.shtml)
+- 2026-06-29 15:07 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/057102050.shtml)
+- 2026-06-29 15:15 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/658632.shtml)

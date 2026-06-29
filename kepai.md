@@ -1,57 +1,60 @@
-# 意外“自然熟”的凤梨，稳住了海南整个产季
+# 多空分歧加剧，百亿资金净流出
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网海口5月19日电 (记者 王晓斌)进入五月下旬，海南凤梨批量上市季渐近尾声。回顾这个产季，不少业者的感受是：价格稳、销量增、口碑佳。记者采访发现，今年海南凤梨行情好，是在品质管理、标准建设、渠道拓展这些多年积累的“必然”之上，头批果实因天气偏暖意外实现“自然熟”所打开的局面。 万宁市龙滚镇是海南最大的凤梨生产基地，凤梨年出岛量占海南全省三分之二。万宁市凤梨产业协会副会长兼
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！● 本报记者 张舒琳 5月26日，A股市场继续呈现鲜明的结构性分化格局。全市场个股下跌数量多于上涨数量，但深证成指、创业板指均收涨。ETF涨幅前十均被有色金属与黄金股ETF包揽，前一交易日大涨的科创芯片设计ETF、电网设备ETF则跌幅居前。 值得关注的是，资金“边涨边撤”，5月25日超400亿元资金从ETF
 
 ## 正文
 
-中新网海口5月19日电 (记者 王晓斌)进入五月下旬，海南凤梨批量上市季渐近尾声。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-回顾这个产季，不少业者的感受是：价格稳、销量增、口碑佳。
+● 本报记者 张舒琳 5月26日，A股市场继续呈现鲜明的结构性分化格局。
 
-记者采访发现，今年海南凤梨行情好，是在品质管理、标准建设、渠道拓展这些多年积累的“必然”之上，头批果实因天气偏暖意外实现“自然熟”所打开的局面。
+全市场个股下跌数量多于上涨数量，但深证成指、创业板指均收涨。
 
-万宁市龙滚镇是海南最大的凤梨生产基地，凤梨年出岛量占海南全省三分之二。
+ETF涨幅前十均被有色金属与黄金股ETF包揽，前一交易日大涨的科创芯片设计ETF、电网设备ETF则跌幅居前。
 
-万宁市凤梨产业协会副会长兼秘书长曾才介绍，目前本季龙滚的凤梨基本售完，田间收购价稳定在每斤3元左右，整体产量比去年有所提升。
+值得关注的是，资金“边涨边撤”，5月25日超400亿元资金从ETF市场净流出，宽基指数ETF、芯片相关ETF资金净流出较多。
 
-在他看来，今年凤梨“产销两旺、价格平稳、供不应求”。
+有色金属与黄金股ETF领涨 5月26日，有色金属与黄金股全面爆发，有色ETF富国居全市场涨幅首位，截至收盘，有色ETF富国涨3.86%，其跟踪的指数中，铜、铝两大板块的权重合计超50%，并涵盖稀土、钨、钼等战略金属品种。
 
-今年海南凤梨“稳”的起点，是一场“意外”。
+另外，黄金股ETF国泰、黄金股ETF工银、黄金股ETF华夏等多只ETF涨超3%。
 
-海南凤梨头部企业胖姐凤梨负责人詹兴群告诉记者，年前天气偏暖，不少凤梨在地里来不及等人来收，就已自然成熟。
+科技硬件板块出现明显回调，多只科创芯片设计ETF跌超3%。
 
 ## 相关推荐
 
-- 2026-06-29 15:14 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 15:00 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 14:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 15:04 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 15:08 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 15:05 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 14:49 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 14:57 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 14:58 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 14:50 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 15:04 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 15:05 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 15:07 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 15:12 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 15:00 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 14:59 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 14:55 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 14:54 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 15:08 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 15:15 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 15:15 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 15:05 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 15:09 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 15:23 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 14:57 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:59 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/54208441.shtml)
-- 2026-06-29 15:02 - [韩媒破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/78446.shtml)
-- 2026-06-29 15:13 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/550500540392.shtml)
-- 2026-06-29 15:15 - [詹俊预测德国大胜巴拉圭](https://www.blog.minike.top/Article/details/544541217281.shtml)
-- 2026-06-29 15:11 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/00693325888.shtml)
-- 2026-06-29 14:58 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/62004.shtml)
-- 2026-06-29 14:59 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/7934526.shtml)
-- 2026-06-29 14:55 - [美媒：空警-3000服役即成全球最强](https://www.share.kurohicncr.top/Article/details/74779.shtml)
-- 2026-06-29 15:09 - [请回答王牌2019](https://www.share.minike.top/Article/details/9948027.shtml)
-- 2026-06-29 15:14 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.kurohicncr.top/Article/details/0729660071.shtml)
-- 2026-06-29 15:02 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/4963469104.shtml)
-- 2026-06-29 14:55 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/6585962961.shtml)
-- 2026-06-29 14:54 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/4206610.shtml)
-- 2026-06-29 14:55 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/87225.shtml)
-- 2026-06-29 14:54 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/481181323033.shtml)
+- 2026-06-29 15:08 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/162237515795.shtml)
+- 2026-06-29 14:59 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/154634233.shtml)
+- 2026-06-29 15:16 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/21627206744.shtml)
+- 2026-06-29 15:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/60066287777.shtml)
+- 2026-06-29 15:07 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/52244169.shtml)
+- 2026-06-29 15:20 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.kurohicncr.top/Article/details/075242307584.shtml)
+- 2026-06-29 14:56 - [赵露思爸爸拍vlog翻车了](http://www.blog.kurohicncr.top/Article/details/2141997251.shtml)
+- 2026-06-29 14:58 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/4916811575.shtml)
+- 2026-06-29 15:04 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/39341826123.shtml)
+- 2026-06-29 15:21 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/9059049.shtml)
+- 2026-06-29 14:59 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/60150869978.shtml)
+- 2026-06-29 14:56 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/642778992.shtml)
+- 2026-06-29 15:12 - [天道](https://www.blog.minike.top/Article/details/1897454.shtml)
+- 2026-06-29 15:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/0646812.shtml)
+- 2026-06-29 15:12 - [中国战机大片上新](http://www.blog.minike.top/Article/details/5373670365.shtml)

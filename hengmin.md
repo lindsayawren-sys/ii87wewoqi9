@@ -1,61 +1,57 @@
-# 一季报迎净息差企稳拐点，沪市银行业筑牢“安全垫”
+# 俊知集团午后大涨逾37% 馈线产品实现关键技术突破
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-在全球市场波动加剧，资产安全备受关注的背景下，沪市银行业持续释放积极信号。一方面，年报“现金红包”陆续派发，高股息率构筑坚实投资“安全垫”，为中国资产的稳定注入信心；另一方面，2026年一季报显示，沪市银行业净息差迎来阶段性企稳拐点，经营基本面持续向好，进一步夯实金融体系稳健根基，护航中国资产安全。 高股息率构筑投资“安全垫” 近期，工商银行、农业银行两家公司的A股2025年年
+俊知集团（01300）盘中涨超49%，年内累计涨幅已超560%。截至发稿，股价上涨36.77%，现报2.79港元，成交额1.22亿港元。 俊知集团公告，公司全资附属公司江苏俊知技术有限公司依托国家企业技术中心高端研发平台，在馈线（信号缆）核心产品领域实现关键技术突破，凭借产品性能、品质及质控体系优势，通过海外合作渠道正式纳入全球顶尖存储龙头企业核心供应链，相关产品将支撑该企业在
 
 ## 正文
 
-在全球市场波动加剧，资产安全备受关注的背景下，沪市银行业持续释放积极信号。
+俊知集团（01300）盘中涨超49%，年内累计涨幅已超560%。
 
-一方面，年报“现金红包”陆续派发，高股息率构筑坚实投资“安全垫”，为中国资产的稳定注入信心；另一方面，2026年一季报显示，沪市银行业净息差迎来阶段性企稳拐点，经营基本面持续向好，进一步夯实金融体系稳健根基，护航中国资产安全。
+截至发稿，股价上涨36.77%，现报2.79港元，成交额1.22亿港元。
 
-高股息率构筑投资“安全垫” 近期，工商银行、农业银行两家公司的A股2025年年度分红率先到账，二者成为最早发放年度“现金红包”的沪市银行。
+俊知集团公告，公司全资附属公司江苏俊知技术有限公司依托国家企业技术中心高端研发平台，在馈线（信号缆）核心产品领域实现关键技术突破，凭借产品性能、品质及质控体系优势，通过海外合作渠道正式纳入全球顶尖存储龙头企业核心供应链，相关产品将支撑该企业在智算中心（AIDC）领域的规模化布局。
 
-两家公司A股2025年期末分红分别为455.38亿元、415.02亿元，叠加中期分红，持续以真金白银回报投资者，展现了国有大行稳定经营底色与责任担当，也为中国资产安全筑牢基础。
+公告显示，双方首笔合作订单已正式落地，将于当月完成交付，后续具备充足拓展空间。
 
-当前，全球市场不确定性上升、资本市场震荡调整，而国内银行业作为金融体系的核心支柱，其持续稳定的高比例分红、稳健的现金流回报，正是守护中国资产安全的关键一环。
+公司期望持续放量，实现规模化突破。
 
-统计显示，沪市银行板块分红正在有序实施中，目前已有3家银行实施了2025年年度分红；杭州银行、南京银行等银行已召开股东大会，通过年度利润分配方案。
+本次战略合作具备行业里程碑意义，充分彰显公司核心产品综合实力已跻身国际先进水平，正式确立海外科技巨头核心供应商地位，同时为公司AIDC智算中心业务全球化纵深布局，奠定坚实基础，迈出关键一步。
 
-从整体来看，沪市银行2025年期末分红总额高达3298亿元，意味着“先头部队”之后，还有更多“现金红包”将会陆续派发。
-
-银行业的分红在A股各行业中位居前列，成为稳定市场预期、支撑中国资产价格的“压舱石”。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 15:17 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 15:09 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 15:00 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 15:06 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 15:07 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 14:53 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 15:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 15:14 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 15:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 14:50 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 14:50 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 14:53 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 14:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 15:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 14:56 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 15:15 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 15:12 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 15:00 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 15:16 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 15:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 15:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 15:04 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 15:05 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 15:05 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 15:18 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 15:01 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 15:03 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:54 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/83727643180.shtml)
-- 2026-06-29 15:10 - [流金岁月](http://www.blog.minike.top/Article/details/126647410.shtml)
-- 2026-06-29 15:07 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/77408067358.shtml)
-- 2026-06-29 15:08 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/956566263.shtml)
-- 2026-06-29 15:08 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/789905258.shtml)
-- 2026-06-29 14:53 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/74063960.shtml)
-- 2026-06-29 14:54 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/0428396.shtml)
-- 2026-06-29 15:10 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/9950198276.shtml)
-- 2026-06-29 14:51 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/1314026012.shtml)
-- 2026-06-29 15:10 - [女心理师](http://www.blog.minike.top/Article/details/88042.shtml)
-- 2026-06-29 14:59 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/604795.shtml)
-- 2026-06-29 15:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/399739579.shtml)
-- 2026-06-29 15:17 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/7977669.shtml)
-- 2026-06-29 14:52 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/273422.shtml)
-- 2026-06-29 14:58 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/305983.shtml)
+- 2026-06-29 15:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/4945641.shtml)
+- 2026-06-29 15:13 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/91473476.shtml)
+- 2026-06-29 15:21 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.kurohicncr.top/Article/details/83546.shtml)
+- 2026-06-29 15:22 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/0651178.shtml)
+- 2026-06-29 14:56 - [久坐小心“死臀综合征”](https://www.share.kurohicncr.top/Article/details/463150.shtml)
+- 2026-06-29 15:09 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/98443274434.shtml)
+- 2026-06-29 15:11 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/6538510.shtml)
+- 2026-06-29 15:14 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/7796164779.shtml)
+- 2026-06-29 15:12 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/60958.shtml)
+- 2026-06-29 15:19 - [急先锋](https://www.blog.kurohicncr.top/Article/details/6713255.shtml)
+- 2026-06-29 15:16 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/63154464.shtml)
+- 2026-06-29 15:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/624160.shtml)
+- 2026-06-29 15:02 - [事关个税 明日截止请抓紧办理](http://www.blog.minike.top/Article/details/146364.shtml)
+- 2026-06-29 14:59 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/06347818972.shtml)
+- 2026-06-29 15:07 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/45052.shtml)

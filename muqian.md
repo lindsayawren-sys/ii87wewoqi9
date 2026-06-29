@@ -1,60 +1,59 @@
-# 厘清婚恋财产纷争 守护百姓家事权益
+# 欧盟拟扩大碳定价 欧洲航司成本陡增至少15亿欧元
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-本报记者 张冲 本报通讯员 程铭 齐乐 恋爱与婚姻本应幸福甜蜜，但如果关系破裂，便容易产生经济纠纷，这类纠纷不仅关乎个体切身利益，也牵动着家庭和睦与社会和谐。 《法治日报》记者近日梳理黑龙江省佳木斯市中级人民法院审理的几起案件，期待通过以案释法，阐明婚恋财产纷争中的权利义务关系。同居时财产混同使用 不能以彩礼之名追讨 男子石某与女子苏某曾是一对亲密恋人。两人分手后，石某却一纸诉
+根据一项旨在遏制温室气体排放的提案分析，如果欧盟将碳定价机制扩展至所有离境航班，欧洲主要航空公司每家将至少额外承担15亿欧元成本。 此前有报道称，欧盟正修订支撑欧洲产业脱碳的排放交易体系（ETS），考虑将其覆盖范围扩大至从欧盟离境的航班。 此举或将进一步加重航司成本负担——它们正面临航空煤油价格高企等多重挑战——还可能激化与美国的贸易摩擦。 为投资者提供碳定价咨询的Transi
 
 ## 正文
 
-本报记者 张冲 本报通讯员 程铭 齐乐 恋爱与婚姻本应幸福甜蜜，但如果关系破裂，便容易产生经济纠纷，这类纠纷不仅关乎个体切身利益，也牵动着家庭和睦与社会和谐。
+根据一项旨在遏制温室气体排放的提案分析，如果欧盟将碳定价机制扩展至所有离境航班，欧洲主要航空公司每家将至少额外承担15亿欧元成本。
 
-《法治日报》记者近日梳理黑龙江省佳木斯市中级人民法院审理的几起案件，期待通过以案释法，阐明婚恋财产纷争中的权利义务关系。
+此前有报道称，欧盟正修订支撑欧洲产业脱碳的排放交易体系（ETS），考虑将其覆盖范围扩大至从欧盟离境的航班。
 
-同居时财产混同使用 不能以彩礼之名追讨 男子石某与女子苏某曾是一对亲密恋人。
+此举或将进一步加重航司成本负担——它们正面临航空煤油价格高企等多重挑战——还可能激化与美国的贸易摩擦。
 
-两人分手后，石某却一纸诉状将苏某告上法庭，要求其返还8万元转账，声称这是彩礼钱。
+为投资者提供碳定价咨询的Transition Metrics预测，受冲击最大的将是汉莎航空、英航母公司国际航空集团（IAG）、法荷航空：到2027年，三家航司额外成本将分别达18亿、17亿、15亿欧元，单家总成本均超20亿欧元。
 
-原来，两人恋爱及同居期间，石某向苏某累计转账126笔，共计11.6万余元，其中，2021年10月、2022年4月先后转账5万元、3万元，石某要求苏某返还的，就是这两笔款项。
+测算显示，上述成本分别相当于汉莎2025年利润的44%、国际航空集团的23%、法荷航空的30%。
 
-一审法院受理案件后，随即围绕转账款项性质、举证责任分配及案件事实展开审理。
+排放交易体系要求企业购买或持有碳排放配额以覆盖二氧化碳排放，通过经济激励推动绿色投资。
 
-法官认为，本案中，石某向苏某转账的事实明确，但苏某提供的证据能够证实，双方同居期间存在大量财产混同使用的情况。
+目前该体系仅适用于欧盟内部航班。
 
-同时，石某主张其转账款项为彩礼，但未提供证据证实双方曾订婚，也无其他证据佐证案涉款项系彩礼性质，且其主张的待证事实真伪不明。
+这意味着瑞安航空、易捷航空、维兹航空等欧洲本土航司承担的碳成本，远高于长途国际航司。
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 14:55 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 15:13 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 14:58 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 14:49 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 15:07 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 15:02 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 14:56 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 15:10 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 15:14 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 15:05 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 15:16 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 15:16 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 15:10 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 15:08 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 15:04 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 15:13 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 15:08 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 15:10 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 14:58 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 15:16 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 14:58 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 15:05 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 15:12 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 15:14 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 15:09 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 15:02 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/30904.shtml)
-- 2026-06-29 14:53 - [世界杯超牛补水广告出现了](http://www.share.minike.top/Article/details/543047136637.shtml)
-- 2026-06-29 14:55 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/983404.shtml)
-- 2026-06-29 15:09 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/1074513.shtml)
-- 2026-06-29 15:13 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/421540.shtml)
-- 2026-06-29 14:59 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/5615672676.shtml)
-- 2026-06-29 15:03 - [崔韩率还以为韩娱来新人了](http://www.share.minike.top/Article/details/011903146.shtml)
-- 2026-06-29 15:03 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/307741.shtml)
-- 2026-06-29 15:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/989596165395.shtml)
-- 2026-06-29 15:07 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/523732.shtml)
-- 2026-06-29 15:15 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/91929843407.shtml)
-- 2026-06-29 14:54 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/8561245116.shtml)
-- 2026-06-29 15:05 - [扫黑风暴](http://www.share.minike.top/Article/details/331848874.shtml)
-- 2026-06-29 15:03 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/176430908.shtml)
-- 2026-06-29 15:00 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/02215.shtml)
+- 2026-06-29 15:03 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/42355471.shtml)
+- 2026-06-29 15:00 - [手游300亿数据或被军事化运用](http://www.blog.minike.top/Article/details/7174718.shtml)
+- 2026-06-29 15:18 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/518311707665.shtml)
+- 2026-06-29 14:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/380771.shtml)
+- 2026-06-29 14:54 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/21549787163.shtml)
+- 2026-06-29 14:54 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/585665681.shtml)
+- 2026-06-29 15:06 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/441786501710.shtml)
+- 2026-06-29 15:05 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/882763.shtml)
+- 2026-06-29 15:13 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/012406101.shtml)
+- 2026-06-29 14:58 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/174041.shtml)
+- 2026-06-29 15:02 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/4818593143.shtml)
+- 2026-06-29 15:10 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/4160543.shtml)
+- 2026-06-29 14:58 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/538380296.shtml)
+- 2026-06-29 15:23 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/439491000.shtml)
+- 2026-06-29 15:09 - [锐评浪姐7总决赛](https://www.blog.kurohicncr.top/Article/details/338306996.shtml)

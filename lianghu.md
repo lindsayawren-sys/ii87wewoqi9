@@ -1,57 +1,59 @@
-# 印尼央行大幅加息 力止印尼盾持续暴跌
+# 十年来北京城市副中心绘就“蓝绿交织、水城共融”大美画卷
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-印尼央行于周三召开货币政策会议，时隔两年首次加息，以此护盘连日屡创历史新低的印尼盾汇率。 印尼央行将7 天逆回购基准利率上调 50 个基点，升至 5.25%。 路透社调研的 29 名经济学家中，仅 16 人预判加息 25 个基点，其余经济学家均认为利率将维持不变。 与此同时，印尼央行同步将隔夜存款便利利率、贷款便利利率各上调 50 个基点，分别调至 4.25% 与 6.00%。
+中新网北京5月25日电 (记者 陈杭)北京城市副中心规划建设十年来，扩绿提质、匠心造园，绘就了蓝绿交织、水城共融的大美画卷。十年来，北京市通州区绿色颜值持续攀升：森林覆盖率从28.39%提升至34.62%，人均公园绿地面积由12.82平方米增至19.05平方米，居住区500米公园绿地服务半径覆盖率从72.53%提高到93.03%。 这是记者25日从北京城市副中心规划建设十周年—
 
 ## 正文
 
-印尼央行于周三召开货币政策会议，时隔两年首次加息，以此护盘连日屡创历史新低的印尼盾汇率。
+中新网北京5月25日电 (记者 陈杭)北京城市副中心规划建设十年来，扩绿提质、匠心造园，绘就了蓝绿交织、水城共融的大美画卷。
 
-印尼央行将7 天逆回购基准利率上调 50 个基点，升至 5.25%。
+十年来，北京市通州区绿色颜值持续攀升：森林覆盖率从28.39%提升至34.62%，人均公园绿地面积由12.82平方米增至19.05平方米，居住区500米公园绿地服务半径覆盖率从72.53%提高到93.03%。
 
-路透社调研的 29 名经济学家中，仅 16 人预判加息 25 个基点，其余经济学家均认为利率将维持不变。
+这是记者25日从北京城市副中心规划建设十周年——绿色发展专场新闻发布会上获悉的。
 
-与此同时，印尼央行同步将隔夜存款便利利率、贷款便利利率各上调 50 个基点，分别调至 4.25% 与 6.00%。
+北京市通州区园林绿化局局长王岩表示，副中心绿色更加“触手可及”了。
 
-印尼央行行长佩里・瓦吉约线上新闻发布会表示：“此次加息，一方面是在中东局势引发全球市场剧烈波动的背景下，进一步稳固印尼盾汇率；另一方面也是前瞻性举措，确保 2026 至 2027 年国内通胀维持在政策目标区间内。
+建成8个万亩森林组团、600余公里休闲绿道、22个国家森林乡村、4个首都森林城镇、20个首都绿色村庄、101处村头微型公园、12个花园式社区、18个花园式单位、10余处全龄友好化公园，基本实现了“推窗见绿、出门入园”的愿景。
 
-” 受市场担忧伊朗局势拖累经济前景，叠加外界对印尼财政支出规划、央行独立性及资本市场透明度存有疑虑，近期印尼盾汇率接连刷新历史低位。
+王岩表示，副中心城市更加“绚丽多彩”了。
 
-周三早盘，印尼盾一度跌至 1 美元兑 17745 印尼盾的历史新低；央行加息决议出炉后，汇率回升至 1 美元兑 17600 印尼盾附近。
+在花园城市建设的进程中，推动绿化向“彩化、立体化”转型。
 
-今年以来印尼盾兑美元已累计贬值约 6%，跻身亚洲新兴市场表现最差货币行列。
+栽植了多种彩叶树与开花植物，特别是播种了万亩花海，多维度扮靓副中心。
 
 ## 相关推荐
 
-- 2026-06-29 15:03 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 15:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 15:16 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 15:17 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 14:55 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 14:51 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 15:03 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 14:56 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 14:58 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 14:53 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 15:12 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 15:17 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 14:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 14:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 15:21 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 15:22 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 14:57 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 14:56 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 15:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 15:24 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 15:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 15:08 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 15:12 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 14:54 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:07 - [扫黑风暴](http://www.share.minike.top/Article/details/555243567.shtml)
-- 2026-06-29 15:16 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/9751394.shtml)
-- 2026-06-29 15:09 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/94011829.shtml)
-- 2026-06-29 15:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/395978144.shtml)
-- 2026-06-29 15:07 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/881495.shtml)
-- 2026-06-29 15:00 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/9477206.shtml)
-- 2026-06-29 15:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/00373210219.shtml)
-- 2026-06-29 14:54 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/533797.shtml)
-- 2026-06-29 14:55 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/98131439359.shtml)
-- 2026-06-29 14:56 - [事关个税 明日截止请抓紧办理](http://www.share.minike.top/Article/details/69796771038.shtml)
-- 2026-06-29 14:58 - [女心理师](https://www.share.kurohicncr.top/Article/details/20598231365.shtml)
-- 2026-06-29 14:49 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/23919.shtml)
-- 2026-06-29 14:57 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/4514848013.shtml)
-- 2026-06-29 15:15 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/946438862642.shtml)
-- 2026-06-29 15:05 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/172524725.shtml)
+- 2026-06-29 15:21 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/11386.shtml)
+- 2026-06-29 15:01 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/070865904.shtml)
+- 2026-06-29 14:55 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/803666.shtml)
+- 2026-06-29 15:00 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/268468430.shtml)
+- 2026-06-29 14:58 - [灿如繁星定档](http://www.blog.kurohicncr.top/Article/details/049507.shtml)
+- 2026-06-29 15:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/8280682414.shtml)
+- 2026-06-29 15:21 - [一生一世](https://www.blog.kurohicncr.top/Article/details/61117179.shtml)
+- 2026-06-29 15:17 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/57009.shtml)
+- 2026-06-29 15:23 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/5903583.shtml)
+- 2026-06-29 15:20 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/0777192.shtml)
+- 2026-06-29 15:05 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/8648886037.shtml)
+- 2026-06-29 15:19 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/3677726588.shtml)
+- 2026-06-29 15:10 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/46012915717.shtml)
+- 2026-06-29 15:05 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/92503.shtml)
+- 2026-06-29 15:22 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/230551.shtml)

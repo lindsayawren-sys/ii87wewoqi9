@@ -1,48 +1,59 @@
-# 习语｜“发展积极向上的网络文化”
+# OpenAI首席执行官：AI普及并不会引发“就业末日”
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-“发展积极向上的网络文化”“加快推动网络空间创新发展”……习近平总书记高度重视网络强国建设，2026中国网络文明大会今日举行，一起重温！ (人民日报客户端)
+OpenAI首席执行官山姆・奥尔特曼周二表示，人工智能的快速发展与普及并不会引发全球性的“就业末日”，目前该技术挤占的白领岗位数量，也低于他此前的担忧。 奥尔特曼在悉尼出席澳大利亚联邦银行（CBA）会议时称，他最初十分担心人工智能会对全球就业市场造成冲击。 他表示，2022年推出ChatGPT时，OpenAI团队对技术发展趋势的预判“大体准确”，但对其社会与经济影响的判断却“出
 
 ## 正文
 
-“发展积极向上的网络文化”“加快推动网络空间创新发展”……习近平总书记高度重视网络强国建设，2026中国网络文明大会今日举行，一起重温！
+OpenAI首席执行官山姆・奥尔特曼周二表示，人工智能的快速发展与普及并不会引发全球性的“就业末日”，目前该技术挤占的白领岗位数量，也低于他此前的担忧。
 
-(人民日报客户端)
+奥尔特曼在悉尼出席澳大利亚联邦银行（CBA）会议时称，他最初十分担心人工智能会对全球就业市场造成冲击。
+
+他表示，2022年推出ChatGPT时，OpenAI团队对技术发展趋势的预判“大体准确”，但对其社会与经济影响的判断却“出现了明显偏差”。
+
+在与澳大利亚联邦银行首席执行官马特・科明的对话中，奥尔特曼说道：“预判失准反倒让我松了一口气。
+
+我原本以为，如今入门级白领岗位会因人工智能大幅缩减，但实际情况并非如此。
+
+” “现在我更清楚背后的原因，对此我也心怀庆幸。
+
+在这件事上，我的直觉确实出现了偏差。
+
+” “有人会说，你本可以让大家不必陷入恐慌与悲观情绪。
 
 ## 相关推荐
 
-- 2026-06-29 14:50 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 15:03 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 15:04 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 15:05 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 15:14 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 15:15 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 14:49 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 15:14 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 15:03 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 15:09 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 15:11 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 14:50 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 15:07 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 15:10 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 14:54 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 15:16 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 14:57 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 15:00 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 14:57 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 15:18 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 15:03 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 15:14 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 14:56 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 14:55 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 15:15 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 15:15 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 14:56 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:04 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/260363064.shtml)
-- 2026-06-29 15:05 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/174290.shtml)
-- 2026-06-29 15:13 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/884660938455.shtml)
-- 2026-06-29 14:56 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/978713561054.shtml)
-- 2026-06-29 15:07 - [行程万里不忘初心](http://www.share.minike.top/Article/details/61737.shtml)
-- 2026-06-29 15:08 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/478572357.shtml)
-- 2026-06-29 14:57 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/640531.shtml)
-- 2026-06-29 14:54 - [AG 钟意](https://www.blog.minike.top/Article/details/15804.shtml)
-- 2026-06-29 15:05 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/66543146.shtml)
-- 2026-06-29 15:07 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/972333902519.shtml)
-- 2026-06-29 14:51 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/64454.shtml)
-- 2026-06-29 14:49 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/20584140534.shtml)
-- 2026-06-29 14:57 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.minike.top/Article/details/469630886.shtml)
-- 2026-06-29 14:48 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/9181685.shtml)
-- 2026-06-29 15:02 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/892393762576.shtml)
+- 2026-06-29 14:57 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/3606394.shtml)
+- 2026-06-29 15:00 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/1663607.shtml)
+- 2026-06-29 15:01 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/8591236429.shtml)
+- 2026-06-29 15:00 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/465643948053.shtml)
+- 2026-06-29 15:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/74547.shtml)
+- 2026-06-29 14:56 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/860796874419.shtml)
+- 2026-06-29 15:14 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/562298335993.shtml)
+- 2026-06-29 15:14 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/75576.shtml)
+- 2026-06-29 15:19 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/13055356046.shtml)
+- 2026-06-29 15:22 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/276779672.shtml)
+- 2026-06-29 15:15 - [美伊同意停止互袭](https://www.blog.kurohicncr.top/Article/details/36139075152.shtml)
+- 2026-06-29 14:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/81817356.shtml)
+- 2026-06-29 15:22 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/43980480.shtml)
+- 2026-06-29 14:54 - [上班主打一个薪尽自然凉](https://www.blog.minike.top/Article/details/347132.shtml)
+- 2026-06-29 15:14 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/9119022.shtml)

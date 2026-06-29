@@ -1,61 +1,60 @@
-# 金价持续回调
+# 中国援圭亚那医疗队开展“百队千村行”义诊活动
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-文章来源：中国经营报 中经记者 秦玉芳 广州报道 5月中旬以来，国际现货黄金价格持续下跌。截至5月18日开盘，伦敦现货黄金价格跌破4542美元/盎司，盘中一度跌至4480美元/盎司。 5月18日，摩根大通将2026年平均黄金价格预测由此前的5708美元/盎司下调至5243美元/盎司。 对于近期金价持续回调的原因，上海息壤实业首席分析师蒋舒分析认为，美伊冲突爆发后不久金价就与油价
+中新网圭亚那瓦亚卡布拉5月26日电 (李妍雨)第21批援圭亚那中国医疗队日前深入圭亚那4区的瓦亚卡布拉(Waiakabra)社区开展“百队千村行”义诊活动。 瓦亚卡布拉社区常住人口约560人，地理位置偏远，本地医疗资源薄弱，居民患病后往往需要长途奔波就医，日常诊疗需求难以保障。 本次义诊应当地居民需求，开设普外科、中医科、骨科、眼科、内科、妇科、整形外科等专科，并提供免费血压、
 
 ## 正文
 
-文章来源：中国经营报 中经记者 秦玉芳 广州报道 5月中旬以来，国际现货黄金价格持续下跌。
+中新网圭亚那瓦亚卡布拉5月26日电 (李妍雨)第21批援圭亚那中国医疗队日前深入圭亚那4区的瓦亚卡布拉(Waiakabra)社区开展“百队千村行”义诊活动。
 
-截至5月18日开盘，伦敦现货黄金价格跌破4542美元/盎司，盘中一度跌至4480美元/盎司。
+瓦亚卡布拉社区常住人口约560人，地理位置偏远，本地医疗资源薄弱，居民患病后往往需要长途奔波就医，日常诊疗需求难以保障。
 
-5月18日，摩根大通将2026年平均黄金价格预测由此前的5708美元/盎司下调至5243美元/盎司。
+本次义诊应当地居民需求，开设普外科、中医科、骨科、眼科、内科、妇科、整形外科等专科，并提供免费血压、血糖检测及眼科等检查。
 
-对于近期金价持续回调的原因，上海息壤实业首席分析师蒋舒分析认为，美伊冲突爆发后不久金价就与油价呈现反向关系，这种反向关系的形成背后有着油价影响通胀、通胀影响美元货币政策的逻辑链条。
+义诊现场氛围有序，不少居民闻讯前来问诊。
 
-本轮金价下跌的驱动因素主要来自高油价下的通胀预期引发的美联储货币政策收紧预期。
+医疗队专家细致为居民查体诊断、答疑解惑、免费赠药，并悉心讲解日常保健、合理用药等知识。
 
-蒋舒进一步指出，由于目前油价尚没有快速跌落到60美元/桶的迹象，因此高油价提升通胀而通胀影响美联储政策的传导过程仍在展开，今年二、三季度很可能震荡回调是金价主基调。
+当地一名居民告诉医疗队，他近2月饱受眼睛异物感、视物模糊等困扰，因出行就医不便，病情一直未能检查诊治。
 
-“这意味着美伊冲突影响了金价在一季度高速上扬后回调的时间，金价要摆脱美伊冲突的影响、迎来较为持久的上扬态势或许要等到四季度。
+义诊现场，医疗队眼科刘楠楠主任借助手持裂隙灯为其细致检查，确诊为翼状胬肉，详细告知患者病情原因、后续处理方案及日常护眼要点，有效避免病情进一步发展。
 
-” 苏商银行特约研究员高政扬也表示，黄金价格下跌主要源于油价中枢上行推升通胀水平。
+瓦亚卡布拉社区负责人莫汉拉尔女士对医疗队的到来表示衷心感谢。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 15:07 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 15:05 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 15:17 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 15:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 15:16 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 14:50 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 14:50 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 15:17 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 15:02 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 15:08 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 15:04 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 15:07 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 14:59 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 15:14 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 15:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 15:17 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 14:59 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 15:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 15:22 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 15:08 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 15:00 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 15:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 15:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 14:56 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 14:57 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 15:00 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 15:08 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 15:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/51841.shtml)
-- 2026-06-29 15:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/63609.shtml)
-- 2026-06-29 15:10 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/483332523230.shtml)
-- 2026-06-29 15:06 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/2597634.shtml)
-- 2026-06-29 14:55 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/190063271.shtml)
-- 2026-06-29 14:49 - [四川宜宾地震](https://www.blog.minike.top/Article/details/29575544375.shtml)
-- 2026-06-29 15:04 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/0057317.shtml)
-- 2026-06-29 14:54 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/184232591.shtml)
-- 2026-06-29 15:07 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/052194.shtml)
-- 2026-06-29 14:56 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.minike.top/Article/details/615493683493.shtml)
-- 2026-06-29 15:11 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/292004812.shtml)
-- 2026-06-29 14:50 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/340109.shtml)
-- 2026-06-29 14:59 - [双高胎](https://www.blog.kurohicncr.top/Article/details/77139.shtml)
-- 2026-06-29 15:15 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/47765.shtml)
-- 2026-06-29 15:09 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/686106446654.shtml)
+- 2026-06-29 15:05 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/22670402.shtml)
+- 2026-06-29 15:08 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/566875.shtml)
+- 2026-06-29 15:09 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/09884895.shtml)
+- 2026-06-29 15:05 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/99107.shtml)
+- 2026-06-29 15:06 - [把古诗里的动作换成加班](http://www.share.minike.top/Article/details/597394.shtml)
+- 2026-06-29 15:19 - [媒体：网络测评不能只剩“生意”](http://www.blog.minike.top/Article/details/5871554.shtml)
+- 2026-06-29 15:17 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/65590.shtml)
+- 2026-06-29 15:05 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/683970186.shtml)
+- 2026-06-29 15:17 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/963381004.shtml)
+- 2026-06-29 15:13 - [媒体：网络测评不能只剩“生意”](http://www.share.minike.top/Article/details/316603.shtml)
+- 2026-06-29 15:12 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/58808199.shtml)
+- 2026-06-29 15:09 - [韩媒破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/472790770.shtml)
+- 2026-06-29 15:06 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/34435619374.shtml)
+- 2026-06-29 15:05 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/56491827.shtml)
+- 2026-06-29 15:00 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.minike.top/Article/details/57884933.shtml)

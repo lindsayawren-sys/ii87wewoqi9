@@ -1,60 +1,45 @@
-# Diploma上调业绩预期、盈利大增 股价走高
+# 5月27日隔夜要闻：纳指与标普500再创新高 布油反弹 铝价升至四年多高位 美军否认恢复霍尔木兹海峡护航行动
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 此次上调业绩指引是继 3 月上调后的再度上调 工业用品企业Diploma再度上调 2026 财年业绩预期，叠加上半年营收及核心盈利指标表现亮眼，公司股价应声上涨。 该股伦敦上市标的在欧洲早盘交易中上涨 5.6%，报 69.95 英镑，年内累计涨幅已超 31%。 公司最新上调业绩目标：内生营收增速预期从此前 9% 上调至 12%；已完成收购业
+市场 5月27日收盘：美股涨跌互现，纳指与标普500再创新高，科技与芯片股领涨 5月27日美股成交额前20：美光市值突破1万亿美元 5月27日热门中概股涨跌不一 富途控股涨19.99%，金山云跌8.37% 大宗商品综述：布伦特原油反弹 铝价升至四年多高位 金价下跌 欧洲股市止步六连涨 董事长遭免职后BP股价大跌 宏观 特朗普：内阁会议将由戴维营改至白宫举行 美中央司令部否认恢复
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 此次上调业绩指引是继 3 月上调后的再度上调 工业用品企业Diploma再度上调 2026 财年业绩预期，叠加上半年营收及核心盈利指标表现亮眼，公司股价应声上涨。
-
-该股伦敦上市标的在欧洲早盘交易中上涨 5.6%，报 69.95 英镑，年内累计涨幅已超 31%。
-
-公司最新上调业绩目标：内生营收增速预期从此前 9% 上调至 12%；已完成收购业务带来的营收增速贡献，由原先 3% 上调至 6%；营业利润率维持约 25% 不变。
-
-公司表示，调整后营业利润增速预计超 30%，较市场一致预期高出 6%。
-
-截至周一，市场分析师一致预测其全年调整后营业利润为 4.28 亿英镑（折合 5.75 亿美元）。
-
-这也是该公司继今年 3 月之后，第二次上调全年业绩指引。
-
-截至 3 月 31 日的半年财报显示，公司营收从去年同期 7.285 亿英镑增至 8.511 亿英镑。
-
-旗下生命科学、密封件、控制装置等核心业务板块内生增长势头强劲，推动营收走高。
+市场 5月27日收盘：美股涨跌互现，纳指与标普500再创新高，科技与芯片股领涨 5月27日美股成交额前20：美光市值突破1万亿美元 5月27日热门中概股涨跌不一 富途控股涨19.99%，金山云跌8.37% 大宗商品综述：布伦特原油反弹 铝价升至四年多高位 金价下跌 欧洲股市止步六连涨 董事长遭免职后BP股价大跌 宏观 特朗普：内阁会议将由戴维营改至白宫举行 美中央司令部否认恢复霍尔木兹海峡护航行动 美伊谈判关键之际 特朗普与内塔尼亚胡通话 美国“防御性”袭击激怒伊朗：停火被指“严重违反”，谈判仍在微妙推进 特朗普在白宫会见巴西大选热门挑战者弗拉维奥·博索纳罗 特朗普称体检完美 但未透露具体细节 贝森特面临美债收益率攀升的严峻考验 手头却难找到轻松应对的良方 伊朗官员：美国处于“请求”与伊朗达成协议的地位 内塔尼亚胡：以军正占领黎巴嫩“战略要地” 初步
 
 ## 相关推荐
 
-- 2026-06-29 15:10 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 15:15 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 15:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 15:14 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 14:54 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 14:55 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 14:53 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 15:12 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 14:58 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 15:03 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 14:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 14:48 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 15:11 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 15:17 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 14:54 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 15:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 15:22 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 15:22 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 15:08 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 15:10 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 15:13 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 15:13 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 14:55 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 15:22 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 15:23 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 15:08 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 15:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:53 - [Canna纳尔8-0对位单杀Doran](http://www.blog.minike.top/Article/details/156945.shtml)
-- 2026-06-29 14:49 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/6502693.shtml)
-- 2026-06-29 14:53 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/480348.shtml)
-- 2026-06-29 15:07 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/39416304.shtml)
-- 2026-06-29 15:02 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/379857923524.shtml)
-- 2026-06-29 15:11 - [灿如繁星定档](https://www.blog.minike.top/Article/details/631460.shtml)
-- 2026-06-29 15:17 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/2944286.shtml)
-- 2026-06-29 14:49 - [李在明称韩国足协任命了无能之人](https://www.blog.kurohicncr.top/Article/details/650045.shtml)
-- 2026-06-29 14:56 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/610997364635.shtml)
-- 2026-06-29 15:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/38477.shtml)
-- 2026-06-29 14:55 - [北极荒岛生存挑战](http://www.blog.minike.top/Article/details/274657.shtml)
-- 2026-06-29 15:06 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/595031235190.shtml)
-- 2026-06-29 14:56 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/394643164.shtml)
-- 2026-06-29 15:16 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.kurohicncr.top/Article/details/966010.shtml)
-- 2026-06-29 14:49 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/51155664053.shtml)
+- 2026-06-29 15:03 - [比亚迪市值为何蒸发8000亿](https://www.share.minike.top/Article/details/8840833.shtml)
+- 2026-06-29 15:10 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/13845932.shtml)
+- 2026-06-29 15:19 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/83924.shtml)
+- 2026-06-29 15:18 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/768603587716.shtml)
+- 2026-06-29 15:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/734338769183.shtml)
+- 2026-06-29 15:21 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/3343087.shtml)
+- 2026-06-29 15:07 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/90249.shtml)
+- 2026-06-29 14:59 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/960054687963.shtml)
+- 2026-06-29 14:58 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/22269.shtml)
+- 2026-06-29 15:17 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/478461.shtml)
+- 2026-06-29 14:54 - [金刚川](http://www.blog.minike.top/Article/details/603791619069.shtml)
+- 2026-06-29 15:17 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/2611224773.shtml)
+- 2026-06-29 15:01 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/3610001.shtml)
+- 2026-06-29 15:08 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/2459470204.shtml)
+- 2026-06-29 15:00 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.minike.top/Article/details/346268.shtml)

@@ -1,60 +1,54 @@
-# 国内首次深部地下空间产业研讨会在成都召开 共探“第四国土”战略开发
+# 可可期货价格飙升 基金加大空头回补
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网成都5月19日电(曹旭帆)5月16日至17日，地下空间储能与深部地下空间产业发展研讨会在四川成都举行。这是国内首次由政产学研用各界代表就深部地下空间产业开展的广泛研讨，会议以“地下空间能源产业：创新与未来”为主题，由中国发展战略学研究会地下空间专业委员会、中国电力建设集团主办，中国电建成都勘测设计研究院(以下简称“成都院”)承办，汇聚自然资源部、中国科学院、中国工程院、清
+纽约和伦敦可可期货大幅上涨，市场越发担心潜在的厄尔尼诺气候现象可能威胁西非可可作物产量之际，投机客继续进行空头回补。 纽约最活跃合约一度上涨9.5%，至每吨4，157美元，创5月11日以来最大盘中涨幅；伦敦期货涨幅接近9%。 大宗商品研究公司Commtrendz Research董事Gnanasekar Thiagarajan表示，上涨主要受到基金空头回补推动，此前由于需求疲软
 
 ## 正文
 
-中新网成都5月19日电(曹旭帆)5月16日至17日，地下空间储能与深部地下空间产业发展研讨会在四川成都举行。
+纽约和伦敦可可期货大幅上涨，市场越发担心潜在的厄尔尼诺气候现象可能威胁西非可可作物产量之际，投机客继续进行空头回补。
 
-这是国内首次由政产学研用各界代表就深部地下空间产业开展的广泛研讨，会议以“地下空间能源产业：创新与未来”为主题，由中国发展战略学研究会地下空间专业委员会、中国电力建设集团主办，中国电建成都勘测设计研究院(以下简称“成都院”)承办，汇聚自然资源部、中国科学院、中国工程院、清华大学等单位代表，标志着我国该领域从分散探索正式迈入协同推进新阶段。
+纽约最活跃合约一度上涨9.5%，至每吨4，157美元，创5月11日以来最大盘中涨幅；伦敦期货涨幅接近9%。
 
-会前，专家组实地考察了成都院承建的水电站大型地下洞室群，调研深部地下空间开发利用现状与核心技术难点。
+大宗商品研究公司Commtrendz Research董事Gnanasekar Thiagarajan表示，上涨主要受到基金空头回补推动，此前由于需求疲软以及可可替代品使用量增加，这些基金一直持有看跌仓位。
 
-会上，中国发展战略学研究会授予成都院“地下空间储能与深部地下空间产业调研点”，双方将共建集战略研究、技术咨询、标准引领与项目孵化于一体的产业平台。
+然而，Thiagarajan表示，市场担忧潜在的厄尔尼诺现象可能扰乱西非生产之际，价格走弱已促使需求初现复苏迹象。
 
-中国工程院院士王复明提出，利用地下空间建设粮食储库具有恒温恒湿、节能低碳、安全性高等显著优势，对保障国家粮食安全意义重大。
+西非是全球大部分可可供应的来源地。
 
-中国发展战略学研究会地下空间专委会主任易荣明确提出，地下空间正转化为服务能源安全、长时调节、战略储备与深部产业协同的“第四国土”，地下储能成为传统基础设施产业转型的新引擎。
+报价： 纽约时间上午8：31，可可期货上涨8.3%，报每吨4112美元； 伦敦可可期货上涨7.8%，报每吨3084英镑。
 
-成都院董事长张世殊介绍，水电深部地下工程建设面临高地应力、高水压、高地温等复杂地质挑战，团队已在深埋超长隧洞灾变控制、超大洞室群岩体性态调控以及多学科协同勘察等方面实现关键技术突破。
-
-该院已前瞻布局废弃地下空间储能改造、战略能源储备、地下超算中心等方向，探索水-风-光-储联动与“算电协同”模式。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 14:56 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 14:58 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 15:14 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 15:00 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 15:16 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 15:05 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 14:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 14:58 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 14:55 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 15:03 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 15:06 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 15:09 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 15:03 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 15:02 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 15:01 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 15:13 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 15:03 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 15:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 15:10 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 15:17 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 14:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 15:15 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 15:02 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:57 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/383364.shtml)
-- 2026-06-29 15:05 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/598464510409.shtml)
-- 2026-06-29 15:11 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/444142.shtml)
-- 2026-06-29 15:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/63150451275.shtml)
-- 2026-06-29 14:53 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/691746902.shtml)
-- 2026-06-29 15:05 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/514792564.shtml)
-- 2026-06-29 15:14 - [3D打印不是工业革命，它是……](http://www.blog.kurohicncr.top/Article/details/93073758006.shtml)
-- 2026-06-29 15:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/932852266010.shtml)
-- 2026-06-29 15:04 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/010380100684.shtml)
-- 2026-06-29 15:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/94177.shtml)
-- 2026-06-29 15:15 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/6872258.shtml)
-- 2026-06-29 15:10 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/34300.shtml)
-- 2026-06-29 14:48 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/87961140936.shtml)
-- 2026-06-29 14:52 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/39680852.shtml)
-- 2026-06-29 15:04 - [吴昕要助理买的药6年前已停产](http://www.share.minike.top/Article/details/6666469.shtml)
+- 2026-06-29 15:22 - [爸爸当家](http://www.blog.minike.top/Article/details/19752.shtml)
+- 2026-06-29 15:15 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/0445406279.shtml)
+- 2026-06-29 15:17 - [韩媒破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/599121850.shtml)
+- 2026-06-29 15:23 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/28370366610.shtml)
+- 2026-06-29 15:06 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/13466027499.shtml)
+- 2026-06-29 15:23 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/025322904091.shtml)
+- 2026-06-29 15:20 - [王楚钦3-0周启豪 晋级32强](https://www.blog.minike.top/Article/details/08533290900.shtml)
+- 2026-06-29 15:13 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/98120671304.shtml)
+- 2026-06-29 15:00 - [世界杯十大帅哥必吃榜](http://www.blog.minike.top/Article/details/408484.shtml)
+- 2026-06-29 14:56 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/9302614042.shtml)
+- 2026-06-29 15:10 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/6065664715.shtml)
+- 2026-06-29 15:16 - [比亚迪市值为何蒸发8000亿](https://www.blog.kurohicncr.top/Article/details/7296552528.shtml)
+- 2026-06-29 14:54 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/494202867653.shtml)
+- 2026-06-29 15:04 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/745083.shtml)
+- 2026-06-29 15:10 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/43514340194.shtml)

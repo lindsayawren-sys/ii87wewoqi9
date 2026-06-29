@@ -1,60 +1,59 @@
-# 上海黄浦“星侨荟”换届焕新 启动“北极星传承计划”
+# 华为“韬”出王炸？
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网上海5月19日电(范宇斌)19日，黄浦“星侨荟”换届焕新大会暨“北极星传承计划”启动仪式在上海市黄浦区举行。本次活动进一步夯实侨界青年联络平台，聚焦华裔新生代培育赋能，搭建海内外资源联动桥梁，助力侨界青年扎根上海、聚力发展。 作为上海中心城区核心区，黄浦区侨务资源富集、侨界精英荟萃，是海内外侨胞融入祖国发展的重要窗口。黄浦“星侨荟”作为凝聚华裔新生代、侨二代、家族企业传承
+“这是中国在全球半导体领域首次提出指导产业发展的新原则。” 5月25日，在上海举行的2026国际电路与系统研讨会上，华为公司董事、半导体业务部总裁何庭波在题为《半导体新路径探索与实践》的主旨演讲中，正式发表“韬(τ)定律”。 那么，到底什么是韬定律？ 要理解它，先要从一个半导体领域再熟悉不过的名词说起：摩尔定律。 1965年，美国工程师戈登·摩尔提出了著名的预言，集成电路上可容
 
 ## 正文
 
-中新网上海5月19日电(范宇斌)19日，黄浦“星侨荟”换届焕新大会暨“北极星传承计划”启动仪式在上海市黄浦区举行。
+“这是中国在全球半导体领域首次提出指导产业发展的新原则。
 
-本次活动进一步夯实侨界青年联络平台，聚焦华裔新生代培育赋能，搭建海内外资源联动桥梁，助力侨界青年扎根上海、聚力发展。
+” 5月25日，在上海举行的2026国际电路与系统研讨会上，华为公司董事、半导体业务部总裁何庭波在题为《半导体新路径探索与实践》的主旨演讲中，正式发表“韬(τ)定律”。
 
-作为上海中心城区核心区，黄浦区侨务资源富集、侨界精英荟萃，是海内外侨胞融入祖国发展的重要窗口。
+那么，到底什么是韬定律？
 
-黄浦“星侨荟”作为凝聚华裔新生代、侨二代、家族企业传承人的核心平台，在赋能区域发展、开展民间外交、深化联络联谊等方面发挥重要作用。
+要理解它，先要从一个半导体领域再熟悉不过的名词说起：摩尔定律。
 
-活动现场举行黄浦“星侨荟”理事会聘任仪式，上海新东苑投资集团有限公司总裁、上海悦星文旅投资控股有限公司总裁陈星言新任黄浦“星侨荟”会长。
+1965年，美国工程师戈登·摩尔提出了著名的预言，集成电路上可容纳的晶体管数量大约每年会翻一番。
 
-陈星言表示，未来，黄浦“星侨荟”将紧扣上海对外开放战略与黄浦区发展定位，以“北极星传承计划”为核心抓手，精准培育侨界新生代力量；同时，持续深化中外合作交流，广泛汇聚侨智、贴心服务侨青，团结带领黄浦“星侨荟”成员，充分发挥侨界青年优势，为区域高质量发展贡献力量。
+1975年将其修正为每两年翻倍。
 
-当日，黄浦“星侨荟”全新打造的品牌项目——“北极星传承计划”正式启动。
+此后半导体行业半个世纪的发展，反复印证了这一预言，使其一度成为行业发展的圭臬。
 
-上海市侨联主席齐全胜，黄浦区委常委、黄浦海外联谊会会长陈颖，上海市侨联青年委员会会长姚珩，黄浦“星侨荟”名誉会长吴斌共同点亮启动装置。
+从1971年全世界第一块单芯片微处理器拥有2300个晶体管，到20世纪80年代初增至10万个、90年代初上升至1000万个，并在接下来十年中突破1亿个。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 14:50 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 14:53 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 15:09 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 15:08 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 14:59 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 15:06 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 15:12 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 15:02 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 15:01 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 15:10 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 15:05 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 14:55 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 15:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 15:01 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 15:07 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 15:08 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 15:23 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 15:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 15:21 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 15:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 14:55 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 14:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 14:54 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 15:07 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 15:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 15:09 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/71575.shtml)
-- 2026-06-29 15:08 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.minike.top/Article/details/17264152.shtml)
-- 2026-06-29 15:09 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/019735248.shtml)
-- 2026-06-29 15:01 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/124755.shtml)
-- 2026-06-29 15:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/8072062.shtml)
-- 2026-06-29 15:17 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/263098192.shtml)
-- 2026-06-29 15:00 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/7991635.shtml)
-- 2026-06-29 14:52 - [NBA交易](http://www.blog.minike.top/Article/details/20571.shtml)
-- 2026-06-29 14:54 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/3866507134.shtml)
-- 2026-06-29 15:12 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/37576249042.shtml)
-- 2026-06-29 15:01 - [崔韩率还以为韩娱来新人了](https://www.share.minike.top/Article/details/34439.shtml)
-- 2026-06-29 14:49 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/138315213274.shtml)
-- 2026-06-29 15:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/723572.shtml)
-- 2026-06-29 14:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/6539871058.shtml)
-- 2026-06-29 14:48 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/79091.shtml)
+- 2026-06-29 14:58 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/40131372.shtml)
+- 2026-06-29 14:56 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/65810.shtml)
+- 2026-06-29 15:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/854237292869.shtml)
+- 2026-06-29 15:16 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/080748717.shtml)
+- 2026-06-29 15:16 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/25138273318.shtml)
+- 2026-06-29 15:18 - [起风了](http://www.share.kurohicncr.top/Article/details/1633310.shtml)
+- 2026-06-29 14:55 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.kurohicncr.top/Article/details/6462368929.shtml)
+- 2026-06-29 15:12 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/30559456.shtml)
+- 2026-06-29 15:10 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/9619119642.shtml)
+- 2026-06-29 15:06 - [双高胎](http://www.share.kurohicncr.top/Article/details/7277072788.shtml)
+- 2026-06-29 15:16 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/43299.shtml)
+- 2026-06-29 14:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/8303836.shtml)
+- 2026-06-29 15:06 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/77164032677.shtml)
+- 2026-06-29 14:59 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/45101928296.shtml)
+- 2026-06-29 15:07 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/186693668.shtml)

@@ -1,52 +1,45 @@
-# 中金：卧安机器人首予跑赢行业评级 目标价140港元
+# 以军空袭加沙中部和南部 至少8人死亡
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中金发布研报称，首次覆盖卧安机器人（06600）给予跑赢行业评级，目标价140.00港元，基于2026年P/S 18.4x，对应涨幅空间32%，现价对应2026年P/S为14.0x。卧安机器人是家庭AI机器人代表企业，该行预计公司2026-2027年收入为14.9/23.8亿元，同比增长65.5%、59.8%。该行认为卧安机器人高度聚焦智慧家庭场景，公司盈利状况稳步提升，在本体
+发布时间：2026年05月27日 09:45 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中金发布研报称，首次覆盖卧安机器人（06600）给予跑赢行业评级，目标价140.00港元，基于2026年P/S 18.4x，对应涨幅空间32%，现价对应2026年P/S为14.0x。
-
-卧安机器人是家庭AI机器人代表企业，该行预计公司2026-2027年收入为14.9/23.8亿元，同比增长65.5%、59.8%。
-
-该行认为卧安机器人高度聚焦智慧家庭场景，公司盈利状况稳步提升，在本体、数据、模型投入增强。
-
-责任编辑：卢昱君
+发布时间：2026年05月27日 09:45 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 14:57 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 15:14 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 15:14 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 14:55 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 14:55 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 15:09 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 14:52 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 15:04 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 15:03 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 15:03 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 14:52 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 14:56 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 15:04 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 14:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 15:23 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 15:22 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 14:59 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 15:00 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 15:01 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 15:01 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 14:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 15:17 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 15:04 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 15:10 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 15:08 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 15:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 15:09 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/67664.shtml)
-- 2026-06-29 15:10 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/97448966845.shtml)
-- 2026-06-29 15:11 - [天道](https://www.blog.minike.top/Article/details/67354584067.shtml)
-- 2026-06-29 15:09 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/23785206161.shtml)
-- 2026-06-29 15:03 - [新一代影后杨紫](https://www.share.minike.top/Article/details/756850031748.shtml)
-- 2026-06-29 14:55 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/164002036.shtml)
-- 2026-06-29 15:12 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/51929853287.shtml)
-- 2026-06-29 14:58 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/8948906.shtml)
-- 2026-06-29 14:59 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/51420953189.shtml)
-- 2026-06-29 15:10 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/127567.shtml)
-- 2026-06-29 15:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/6189795332.shtml)
-- 2026-06-29 14:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/954025.shtml)
-- 2026-06-29 14:59 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.kurohicncr.top/Article/details/8705772652.shtml)
-- 2026-06-29 14:50 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/358957498088.shtml)
-- 2026-06-29 14:56 - [央视起底直播诈骗连环套](http://www.blog.kurohicncr.top/Article/details/42983525399.shtml)
+- 2026-06-29 15:18 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/11894396.shtml)
+- 2026-06-29 15:13 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/26522159.shtml)
+- 2026-06-29 14:59 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/029996440.shtml)
+- 2026-06-29 15:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/5586537726.shtml)
+- 2026-06-29 15:10 - [詹俊预测德国大胜巴拉圭](https://www.share.minike.top/Article/details/78024.shtml)
+- 2026-06-29 14:57 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/743095390.shtml)
+- 2026-06-29 15:21 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/80275.shtml)
+- 2026-06-29 15:11 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/360211462155.shtml)
+- 2026-06-29 15:03 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/6460984011.shtml)
+- 2026-06-29 15:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/285019088471.shtml)
+- 2026-06-29 15:12 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/466967.shtml)
+- 2026-06-29 15:08 - [急先锋](http://www.share.kurohicncr.top/Article/details/6497881926.shtml)
+- 2026-06-29 15:08 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/0868320582.shtml)
+- 2026-06-29 15:15 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/85494.shtml)
+- 2026-06-29 15:20 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/979555686.shtml)

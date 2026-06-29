@@ -1,58 +1,57 @@
-# 美联储新掌门周五正式就职 但通胀是摆在沃什面前最大难题
+# 从教室到旷野 中国美院如何完成一场“社会成人礼”？
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-财联社5月19日讯（编辑 刘蕊）美东时间周一，一名白宫官员表示，美国总统特朗普将于本周五为凯文·沃什举行宣誓就职仪式，使其成为美国联邦储备委员会主席。 这意味着这位56岁的律师兼金融家即将接替现任主席鲍威尔，正式执掌美联储。 尽管沃什被外界广泛看作“降息派”，然而当下美联储正面临不断加剧的通货膨胀问题，这可能会使其难以实现特朗普所期望的降息目标。 特朗普异常重视的美联储新掌门
+中新网杭州5月25日电(曹丹)5月25日，中国美术学院专业基础教学部“青春澎湃——2026‘上山下乡’社会实践教学成果展”在浙江杭州开幕。展览集中呈现了1300余名师生赴浙江、福建、山西、江西、山东、湖南6省14个乡村开展三周社会实践的教学成果，涵盖绘画、实物装置、调研报告、影像、“一生一本”等多样形式的数千件作品。 从教室到旷野，这场远游何以成为一场“成人礼”？ 社会实践是中
 
 ## 正文
 
-财联社5月19日讯（编辑 刘蕊）美东时间周一，一名白宫官员表示，美国总统特朗普将于本周五为凯文·沃什举行宣誓就职仪式，使其成为美国联邦储备委员会主席。
+中新网杭州5月25日电(曹丹)5月25日，中国美术学院专业基础教学部“青春澎湃——2026‘上山下乡’社会实践教学成果展”在浙江杭州开幕。
 
-这意味着这位56岁的律师兼金融家即将接替现任主席鲍威尔，正式执掌美联储。
+展览集中呈现了1300余名师生赴浙江、福建、山西、江西、山东、湖南6省14个乡村开展三周社会实践的教学成果，涵盖绘画、实物装置、调研报告、影像、“一生一本”等多样形式的数千件作品。
 
-尽管沃什被外界广泛看作“降息派”，然而当下美联储正面临不断加剧的通货膨胀问题，这可能会使其难以实现特朗普所期望的降息目标。
+从教室到旷野，这场远游何以成为一场“成人礼”？
 
-特朗普异常重视的美联储新掌门 据白宫官员透露，特朗普总统将于本周五在白宫主持凯文·沃什就任美联储主席的宣誓仪式。
+社会实践是中国美术学院延续近百年的教学传统。
 
-无论是仪式地点，还是总统的出席，都表明特朗普对这项任命非常重视。
+近年来，该校将“思政课程、艺术实践、社会服务”“三位一体”的育人模式深度融入社会实践，依托“田野课堂”引导学生深入现实生活、汲取创作源泉。
 
-近年来，美联储主席的就职仪式都在美联储总部举行。
+其中，专业基础教学部推出的“一生一本”观察记录项目，被中国共产党历史展览馆收藏。
 
-上一次在白宫宣誓就职的美联储主席是1987年的艾伦·格林斯潘。
+而“成人礼”的发生，不在课堂，在田间。
 
-此外，美国总统近年来也很少出席美联储主席就职典礼。
+在下乡实践中，师生同吃同住同行，从旁观者变为扎根者。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 14:59 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 14:49 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 14:59 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 15:09 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 14:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 14:59 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 14:55 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 14:55 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 15:06 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 15:16 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 15:15 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 14:58 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 15:11 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 15:04 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 15:03 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 15:01 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 15:16 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 15:21 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 15:05 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 14:59 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 15:21 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 15:19 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [记者暗访贵州和云南多个养老机构](http://www.share.kurohicncr.top/Article/details/157662.shtml)
-- 2026-06-29 15:03 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/195709.shtml)
-- 2026-06-29 15:12 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/020411632.shtml)
-- 2026-06-29 15:12 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/689337.shtml)
-- 2026-06-29 15:05 - [周生如故](https://www.blog.minike.top/Article/details/340964371.shtml)
-- 2026-06-29 15:14 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/603197.shtml)
-- 2026-06-29 14:48 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/60845648398.shtml)
-- 2026-06-29 14:48 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/918921386.shtml)
-- 2026-06-29 15:07 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/643144453481.shtml)
-- 2026-06-29 15:14 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/5722277.shtml)
-- 2026-06-29 15:01 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/715957534.shtml)
-- 2026-06-29 14:50 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/800104487539.shtml)
-- 2026-06-29 15:11 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/49453.shtml)
-- 2026-06-29 14:48 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/24025.shtml)
-- 2026-06-29 15:08 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.minike.top/Article/details/28832314.shtml)
+- 2026-06-29 15:22 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/345147.shtml)
+- 2026-06-29 14:57 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/9809755.shtml)
+- 2026-06-29 15:19 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/12283.shtml)
+- 2026-06-29 15:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/0278895291.shtml)
+- 2026-06-29 15:02 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/54757899.shtml)
+- 2026-06-29 15:14 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/61134519642.shtml)
+- 2026-06-29 14:58 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/80148842827.shtml)
+- 2026-06-29 15:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/878183179820.shtml)
+- 2026-06-29 15:20 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/295526505653.shtml)
+- 2026-06-29 15:20 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/96783996806.shtml)
+- 2026-06-29 15:14 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/9715284.shtml)
+- 2026-06-29 15:22 - [千与千寻](https://www.share.minike.top/Article/details/721440980791.shtml)
+- 2026-06-29 15:15 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/161521785294.shtml)
+- 2026-06-29 15:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/8608607831.shtml)
+- 2026-06-29 15:19 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/584688.shtml)

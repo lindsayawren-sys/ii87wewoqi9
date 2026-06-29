@@ -1,56 +1,49 @@
-# 国台办回应台湾出现办“第二护照”现象
+# 时隔两年多，长安汽车内幕交易案详情曝光：与华为合作前，双方5名员工精准买入获利400余万元，被证监会罚款共计1669万元
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网5月20日电 5月20日，国台办举行例行新闻发布会。有记者问：外媒近日报道，台湾社会正掀起一股办理“第二护照”及资产外移的“出走潮”。岛内有媒体对此称，民进党当局将战争恐惧当作选举动员与政治斗争的工具，不断强化“抗中牌”和“亡国感”以收割政治利益，结果却是变相“掏空台湾”。请问对此有何评论？国台办发言人朱凤莲表示，相关报道表明，在民进党当局谋“独”挑衅的恶政之下，越来越多
+来源：@新财富杂志微博 【时隔两年多，#长安汽车内幕交易案详情曝光#：与华为合作前，双方5名员工精准买入获利400余万元，被证监会罚款共计1669万元】近日，中证中小投资者服务中心披露了一则关于《韩某等人内幕交易“长安汽车”案》信息。2023年11月27日，长安汽车发布与某知名科技公司签署《投资合作备忘录》的公告，合作双方的多名员工在消息正式公告前便提前“抢跑”，合计动用资金6
 
 ## 正文
 
-中新网5月20日电 5月20日，国台办举行例行新闻发布会。
+来源：@新财富杂志微博 【时隔两年多，#长安汽车内幕交易案详情曝光#：与华为合作前，双方5名员工精准买入获利400余万元，被证监会罚款共计1669万元】近日，中证中小投资者服务中心披露了一则关于《韩某等人内幕交易“长安汽车”案》信息。
 
-有记者问：外媒近日报道，台湾社会正掀起一股办理“第二护照”及资产外移的“出走潮”。
+2023年11月27日，长安汽车发布与某知名科技公司签署《投资合作备忘录》的公告，合作双方的多名员工在消息正式公告前便提前“抢跑”，合计动用资金6100万元突击买入长安汽车股票，最终获利超400万元。
 
-岛内有媒体对此称，民进党当局将战争恐惧当作选举动员与政治斗争的工具，不断强化“抗中牌”和“亡国感”以收割政治利益，结果却是变相“掏空台湾”。
+然而，监管部门迅速介入调查，最终开出“没一罚三”的重磅罚单——五名当事人合计被罚没高达1669万元，相关涉嫌犯罪的线索已同步移送公安机关。
 
-请问对此有何评论？
-
-国台办发言人朱凤莲表示，相关报道表明，在民进党当局谋“独”挑衅的恶政之下，越来越多台湾民众担忧“台独”引发战争、担忧自身的生命财产安全和发展权益得不到保障，被迫作出远走他乡、另谋出路的打算。
-
-民进党当局将一党政治私利凌驾于民众切身福祉和产业发展利益之上，不断操弄“倚外谋独”、“以武谋独”，在岛内制造战争焦虑，配合外部势力掏空台湾优势产业。
-
-其所作所为不仅卖台祸台，也乱台害台，让台湾日益兵凶战危、人心惶惶。
-
-(中新网“燕新台”工作室)
+更耐人寻味的是，案件发生后，长安汽车股价也从2023年11月与华为合作预期推升的21.14元高点一路下坠，截至2026年5月25日，股价已跌至8.38元，累计回撤高达六成。
 
 ## 相关推荐
 
-- 2026-06-29 15:14 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 15:13 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 14:57 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 14:49 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 14:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 15:05 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 15:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 15:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 14:52 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 15:13 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 15:10 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 15:15 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 15:20 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 15:23 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 15:12 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 15:07 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 15:07 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 15:20 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 15:21 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 15:14 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 15:20 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:51 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/73440770955.shtml)
-- 2026-06-29 15:16 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/976089.shtml)
-- 2026-06-29 15:00 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/6616659.shtml)
-- 2026-06-29 14:55 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/32731111.shtml)
-- 2026-06-29 14:57 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/28836201.shtml)
-- 2026-06-29 14:53 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/109743.shtml)
-- 2026-06-29 15:00 - [7款商保创新药“转道”](https://www.share.minike.top/Article/details/82557.shtml)
-- 2026-06-29 14:56 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/10077.shtml)
-- 2026-06-29 15:13 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/00571208285.shtml)
-- 2026-06-29 15:14 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/60793.shtml)
-- 2026-06-29 15:12 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/805896742.shtml)
-- 2026-06-29 15:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/2798375587.shtml)
-- 2026-06-29 15:03 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/686653.shtml)
-- 2026-06-29 14:53 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/0052976216.shtml)
-- 2026-06-29 15:17 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/0917534692.shtml)
+- 2026-06-29 15:01 - [恋与深空失控领地](https://www.share.minike.top/Article/details/63753297183.shtml)
+- 2026-06-29 15:20 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/233520.shtml)
+- 2026-06-29 15:08 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/96198899302.shtml)
+- 2026-06-29 15:12 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/17162459431.shtml)
+- 2026-06-29 15:16 - [日本主帅：对战胜巴西很有信心](https://www.blog.kurohicncr.top/Article/details/3431135.shtml)
+- 2026-06-29 15:07 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/221026408.shtml)
+- 2026-06-29 15:02 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/36554.shtml)
+- 2026-06-29 15:08 - [美伊同意停止互袭](http://www.share.kurohicncr.top/Article/details/802338.shtml)
+- 2026-06-29 15:12 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/17306.shtml)
+- 2026-06-29 15:06 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/06812.shtml)
+- 2026-06-29 15:19 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/2450809.shtml)
+- 2026-06-29 15:22 - [时光音乐会](http://www.share.minike.top/Article/details/808947.shtml)
+- 2026-06-29 14:57 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/916882230793.shtml)
+- 2026-06-29 15:00 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/9919740.shtml)
+- 2026-06-29 14:55 - [韩媒破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/1677049061.shtml)

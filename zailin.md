@@ -1,58 +1,47 @@
-# Bimzelx头对头III期研究告捷，斑块状银屑病关节炎指标显著优于Skyrizi
+# 大美边疆看我家丨内蒙古赤峰：紫花苜蓿开启首茬采收
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-ACR50关节获益达统计学意义 比利时生物制药企业优时比（UCB）公布了其IL-17A/IL-17F抑制剂Bimzelx®的III期BE BOLD研究详细数据。结果显示，Bimzelx在治疗活动性银屑病关节炎患者的关键指标上，击败了艾伯维的重磅IL-23抑制剂Skyrizi®。 数据显示，在16周时，Bimzelx组有49.1%的患者达到了严格的ACR50反应，而Skyrizi
+发布时间：2026年05月26日 17:47 来源：中国新闻网 近日，内蒙古赤峰市阿鲁科尔沁旗，全旗40万亩紫花苜蓿开启首茬采收。大型农机在圆形草场上高效运转，场面格外壮观。(作者：金柱） 责任编辑：【魏聪聪】
 
 ## 正文
 
-ACR50关节获益达统计学意义 比利时生物制药企业优时比（UCB）公布了其IL-17A/IL-17F抑制剂Bimzelx®的III期BE BOLD研究详细数据。
+发布时间：2026年05月26日 17:47 来源：中国新闻网 近日，内蒙古赤峰市阿鲁科尔沁旗，全旗40万亩紫花苜蓿开启首茬采收。
 
-结果显示，Bimzelx在治疗活动性银屑病关节炎患者的关键指标上，击败了艾伯维的重磅IL-23抑制剂Skyrizi®。
+大型农机在圆形草场上高效运转，场面格外壮观。
 
-数据显示，在16周时，Bimzelx组有49.1%的患者达到了严格的ACR50反应，而Skyrizi组这一比例为38.4%，Bimzelx成为首个在银屑病关节炎头对头研究中证明关节结局优越性的获批生物制剂。
-
-早期起效与多重指标优势 研究还观察到，Bimzelx展现出了更快的起效速度。
-
-早在治疗第4周，Bimzelx组达到ACR50的患者比例便显著高于Skyrizi组。
-
-虽然关键次要终点在预设的统计检验层级中未达显著性，但Bimzelx在所有次要终点上均显示出数值上的优势。
-
-在同时患有银屑病的患者亚组中，Bimzelx组有53.4%的患者在第16周实现了皮损完全清除，而Skyrizi组为46.6%。
-
-安全性分析 在安全性方面，研究未发现新的安全信号。
+(作者：金柱） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 15:14 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 14:51 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 14:55 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 14:48 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 15:04 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 14:52 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 14:48 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 15:11 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 15:06 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 15:11 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 15:06 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 15:01 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 15:10 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 15:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 15:20 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 15:05 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 15:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 15:01 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 15:05 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 15:08 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 14:54 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 15:06 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 15:04 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:08 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/313051.shtml)
-- 2026-06-29 15:13 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/75469.shtml)
-- 2026-06-29 15:05 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/9398845.shtml)
-- 2026-06-29 14:49 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/902505.shtml)
-- 2026-06-29 15:11 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/0359830885.shtml)
-- 2026-06-29 14:49 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/766029184.shtml)
-- 2026-06-29 15:07 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/15723.shtml)
-- 2026-06-29 15:03 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/57357103.shtml)
-- 2026-06-29 15:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/11274.shtml)
-- 2026-06-29 14:50 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/7387876.shtml)
-- 2026-06-29 15:05 - [比亚迪市值为何蒸发8000亿](https://www.share.minike.top/Article/details/57278016.shtml)
-- 2026-06-29 15:15 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/24016566881.shtml)
-- 2026-06-29 15:13 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/314338.shtml)
-- 2026-06-29 15:14 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/2992007.shtml)
-- 2026-06-29 15:11 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/01140.shtml)
+- 2026-06-29 15:10 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/63974.shtml)
+- 2026-06-29 15:17 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/01875.shtml)
+- 2026-06-29 15:12 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/609668.shtml)
+- 2026-06-29 15:09 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/347277.shtml)
+- 2026-06-29 14:54 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/866978050594.shtml)
+- 2026-06-29 15:03 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/8474883609.shtml)
+- 2026-06-29 15:15 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/87924587614.shtml)
+- 2026-06-29 15:12 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/27532552.shtml)
+- 2026-06-29 15:14 - [东部机场集团新增釜山航线](http://www.share.kurohicncr.top/Article/details/38269.shtml)
+- 2026-06-29 14:59 - [普京介绍前线战事](https://www.share.minike.top/Article/details/02728908.shtml)
+- 2026-06-29 15:14 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.minike.top/Article/details/485984.shtml)
+- 2026-06-29 15:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/63547438.shtml)
+- 2026-06-29 15:16 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/192111460.shtml)
+- 2026-06-29 15:00 - [东部机场集团新增釜山航线](http://www.blog.minike.top/Article/details/1144505.shtml)
+- 2026-06-29 15:07 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/916741202.shtml)

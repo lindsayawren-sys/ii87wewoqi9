@@ -1,58 +1,53 @@
-# 深夜，金价大跳水！芯片股大跌！
+# 国台办批台当局不让贴大陆旅游广告
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！美股开盘，纳指跌0.56%，标普500指数跌0.45%，道指跌0.43%。芯片股走低，费城半导体指数下跌2.2%。 个股方面，西部数据、闪迪、希捷科技跌超3%，英特尔、美光、高通、应用材料、ARM、AMD、博通、台积电跌超2%。 现货黄金向下跌破4500美元，日内下跌1.46%。现货白银日内跌幅扩大至5%，
+中新网5月27日电 5月27日，国台办举行例行新闻发布会。有记者问：近日，台北国际观光博览会开幕，台湾观光部门却要求岛内旅游业者不得张贴赴大陆旅游的广告和文案，引发岛内旅游业界不满和批评。请问对此有何评论？ 国台办发言人陈斌华表示，民进党当局刻意阻挠两岸旅游交流，既违背市场规律，也损害台湾同胞和旅游业者的正当权益。事实再次说明，两岸旅游问题的症结和障碍在于民进党当局干扰阻挠。民
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网5月27日电 5月27日，国台办举行例行新闻发布会。
 
-美股开盘，纳指跌0.56%，标普500指数跌0.45%，道指跌0.43%。
+有记者问：近日，台北国际观光博览会开幕，台湾观光部门却要求岛内旅游业者不得张贴赴大陆旅游的广告和文案，引发岛内旅游业界不满和批评。
 
-芯片股走低，费城半导体指数下跌2.2%。
+请问对此有何评论？
 
-个股方面，西部数据、闪迪、希捷科技跌超3%，英特尔、美光、高通、应用材料、ARM、AMD、博通、台积电跌超2%。
+国台办发言人陈斌华表示，民进党当局刻意阻挠两岸旅游交流，既违背市场规律，也损害台湾同胞和旅游业者的正当权益。
 
-现货黄金向下跌破4500美元，日内下跌1.46%。
+事实再次说明，两岸旅游问题的症结和障碍在于民进党当局干扰阻挠。
 
-现货白银日内跌幅扩大至5%，报73.63美元/盎司。
-
-美股黄金股盘初普跌，科尔黛伦矿业跌超4%，纽曼矿业跌超3%。
-
-美元指数短线拉升，现报99.36点，日内涨幅为0.4%。
+民进党当局应顺应民意，尽早撤除“禁团令”等不合理禁限，为两岸旅游交流合作创造有利条件。
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 14:58 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 14:57 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 14:56 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 15:07 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 15:14 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 14:53 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 15:03 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 15:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 14:49 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 15:00 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 15:09 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 15:15 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 15:08 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 15:14 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 14:55 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 15:09 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 15:06 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 15:01 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 15:22 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 15:14 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 15:13 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 15:00 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/405507597859.shtml)
-- 2026-06-29 14:48 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/61204062.shtml)
-- 2026-06-29 15:15 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/766357752.shtml)
-- 2026-06-29 14:56 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/2545767.shtml)
-- 2026-06-29 15:09 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/96160053.shtml)
-- 2026-06-29 15:09 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/135076994.shtml)
-- 2026-06-29 15:11 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/578825.shtml)
-- 2026-06-29 14:56 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/68070018106.shtml)
-- 2026-06-29 14:49 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/235824.shtml)
-- 2026-06-29 15:00 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/5004597869.shtml)
-- 2026-06-29 14:49 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/80444055.shtml)
-- 2026-06-29 15:03 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/294865.shtml)
-- 2026-06-29 15:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/458192265.shtml)
-- 2026-06-29 15:06 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/01988666940.shtml)
-- 2026-06-29 14:55 - [事关个税 明日截止请抓紧办理](https://www.share.kurohicncr.top/Article/details/31549877.shtml)
+- 2026-06-29 15:16 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/7091243.shtml)
+- 2026-06-29 15:10 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/25542524120.shtml)
+- 2026-06-29 15:23 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/9461921149.shtml)
+- 2026-06-29 15:18 - [张一山回应与杨紫友情](https://www.share.kurohicncr.top/Article/details/674854.shtml)
+- 2026-06-29 15:12 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/996131349.shtml)
+- 2026-06-29 15:04 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/080373.shtml)
+- 2026-06-29 15:15 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/46664734.shtml)
+- 2026-06-29 15:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/98606464217.shtml)
+- 2026-06-29 15:12 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.kurohicncr.top/Article/details/72762516133.shtml)
+- 2026-06-29 15:01 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/09861174180.shtml)
+- 2026-06-29 14:57 - [NBA交易](http://www.share.minike.top/Article/details/294102724206.shtml)
+- 2026-06-29 15:04 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/892198640429.shtml)
+- 2026-06-29 15:08 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/040363.shtml)
+- 2026-06-29 14:58 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/64216.shtml)
+- 2026-06-29 14:57 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/981667.shtml)

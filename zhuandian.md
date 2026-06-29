@@ -1,60 +1,59 @@
-# 广西柳州5.2级震群地震烈度图发布 6度区及以上约358平方公里
+# 每天该吃多少膳食纤维？专家给出标准量
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网北京5月20日电 (记者 孙自法)中国地震局5月20日发布的《广西柳州5.2级震群地震烈度图》显示，柳州市5月18日先后发生两次5.2级地震震害叠加形成地震烈度分布，最高烈度为Ⅶ度(7度)，VI度(6度)区及以上面积约358平方公里，共涉及广西柳州市4个县(区)16个乡镇(街道)。这次地震等震线长轴呈北北东走向，长轴约27公里，短轴约16公里，地震烈度7度区面积约为2平方
+健康中国丨每天该吃多少膳食纤维？专家给出标准量 膳食纤维是人体不可缺少的物质，不仅能够促进肠道蠕动、滋养肠道有益菌，还能缩短有害物质在肠道的停留时间，降低肠癌风险。每天摄入多少膳食纤维最健康？ 成人每天推荐摄入25-30克膳食纤维 北京大学肿瘤医院胃肠肿瘤中心主任医师陕飞介绍，成人每天推荐摄入25-30克膳食纤维。水果每天别超过500克，既可以摄取足够的膳食纤维，又避免摄入过多
 
 ## 正文
 
-中新网北京5月20日电 (记者 孙自法)中国地震局5月20日发布的《广西柳州5.2级震群地震烈度图》显示，柳州市5月18日先后发生两次5.2级地震震害叠加形成地震烈度分布，最高烈度为Ⅶ度(7度)，VI度(6度)区及以上面积约358平方公里，共涉及广西柳州市4个县(区)16个乡镇(街道)。
+健康中国丨每天该吃多少膳食纤维？
 
-这次地震等震线长轴呈北北东走向，长轴约27公里，短轴约16公里，地震烈度7度区面积约为2平方公里，地震烈度6度区面积约为356平方公里。
+专家给出标准量 膳食纤维是人体不可缺少的物质，不仅能够促进肠道蠕动、滋养肠道有益菌，还能缩短有害物质在肠道的停留时间，降低肠癌风险。
 
-此外，位于地震烈度6度区之外的部分乡镇也受到波及，个别老旧房屋出现破坏受损现象。
+每天摄入多少膳食纤维最健康？
 
-柳州市柳南区5月18日00时21分、21时44分先后发生两次5.2级地震后，中国地震局派出地震现场工作队，依照《地震现场工作：调查规范》《中国地震烈度表》《地震烈度现场评定》等标准规范要求，在灾区范围内开展地震烈度调查工作。
+成人每天推荐摄入25-30克膳食纤维 北京大学肿瘤医院胃肠肿瘤中心主任医师陕飞介绍，成人每天推荐摄入25-30克膳食纤维。
 
-通过对灾区66个调查点的震害调查，参考余震分布、震源机制解、仪器烈度分布图等科技支撑成果，结合强震动观测记录，中国地震局确定此次地震烈度分布，完成《广西柳州5.2级震群地震烈度图》编制工作，并正式向社会发布。
+水果每天别超过500克，既可以摄取足够的膳食纤维，又避免摄入过多糖。
 
-据介绍，地震烈度7度致灾表现主要为：砖(土)木结构房屋少数严重破坏和毁坏，多数轻微破坏；未设防砖混结构房屋少数中等破坏，多数轻微破坏和基本完好；钢筋混凝土框架结构房屋少数轻微破坏，多数基本完好。
+杂粮每天150-250克，做杂粮饭的话，杂粮别超过一半。
 
-地震烈度6度致灾情况包括：砖(土)木结构房屋少数轻微破坏和中等破坏，多数基本完好；未设防砖混结构房屋少数轻微破坏和中等破坏，大多数基本完好；钢筋混凝土框架结构房屋个别轻微破坏，绝大多数基本完好。
+菌菇类每天50-100克。
 
-(完)
+蔬菜也控制在500克左右。
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 14:54 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 15:16 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 15:14 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 15:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 15:07 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 15:06 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 14:58 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 14:54 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 14:48 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 14:52 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 14:54 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 14:56 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 15:12 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 15:13 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 15:01 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 15:18 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 15:15 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 15:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 15:16 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 15:19 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 15:16 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 15:10 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 15:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 14:56 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 15:04 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 15:19 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/381455180009.shtml)
-- 2026-06-29 15:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/2977621.shtml)
-- 2026-06-29 14:54 - [韩国队如何把94%出线概率打到0%](https://www.share.minike.top/Article/details/584579469.shtml)
-- 2026-06-29 14:51 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/68539.shtml)
-- 2026-06-29 15:09 - [首尔商铺禁止洪明甫入内](http://www.share.kurohicncr.top/Article/details/027444.shtml)
-- 2026-06-29 15:12 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/7996533172.shtml)
-- 2026-06-29 14:50 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/42280.shtml)
-- 2026-06-29 14:52 - [普京：俄面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/243171184.shtml)
-- 2026-06-29 14:58 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/583421491.shtml)
-- 2026-06-29 14:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/78422735935.shtml)
-- 2026-06-29 14:56 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/50348918.shtml)
-- 2026-06-29 15:12 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/25399.shtml)
-- 2026-06-29 14:55 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/860238102617.shtml)
-- 2026-06-29 15:11 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/433191100083.shtml)
-- 2026-06-29 15:15 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/227702.shtml)
+- 2026-06-29 14:59 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/334972.shtml)
+- 2026-06-29 14:57 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/1553626153.shtml)
+- 2026-06-29 15:05 - [时光音乐会](http://www.share.minike.top/Article/details/8226785038.shtml)
+- 2026-06-29 15:08 - [斛珠夫人](https://www.share.minike.top/Article/details/722475323079.shtml)
+- 2026-06-29 15:01 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/914645.shtml)
+- 2026-06-29 15:20 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/865287937924.shtml)
+- 2026-06-29 15:03 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/02123256.shtml)
+- 2026-06-29 15:14 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/04740211368.shtml)
+- 2026-06-29 14:55 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/3862821.shtml)
+- 2026-06-29 15:05 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/200461248.shtml)
+- 2026-06-29 15:23 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/5382679980.shtml)
+- 2026-06-29 15:02 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/366093074.shtml)
+- 2026-06-29 14:58 - [Canna纳尔8-0对位单杀Doran](http://www.blog.minike.top/Article/details/5219543596.shtml)
+- 2026-06-29 15:19 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/754447.shtml)
+- 2026-06-29 14:55 - [这一刀 会很帅](https://www.share.minike.top/Article/details/539922.shtml)

@@ -1,60 +1,59 @@
-# 真武 M890 AI 芯片发布，阿里“通云哥”加速推进！华宝基金港股互联网ETF再探新低，布局机遇如何？
+# 44岁老板把自己改造成“克隆人”冲港股！腾讯红杉撑腰还是很缺钱
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-隔夜美股三大指数集体收跌，明星科技股普跌。5月20日早盘，港股低开，互联网龙头集体回调，截至发稿，腾讯控股跌0.6%，阿里巴巴-W、美团-W跌超1%，小米集团-W跌逾2%，哔哩哔哩-W绩后跌近5%。 哔哩哔哩-W一季报显示，营收为74.7亿元人民币，毛利率连续15个季度环比提升至37.1%，调整后净利润5.9亿元，同比扭亏为盈，其中季度内AI广告收入同比增长170%。 港股AI
+来源 | 财通社 撰文 | 何剑岭 随着AI不断深入人们的日常生活，大家平时经常看到的“数字人”也向港股发起了冲刺。 5月21日，南京硅基智能科技集团股份有限公司（简称硅基智能）再次向港交所递表。 硅基智能由招银国际和星展国际担任联席保荐人，准备进军港交所主板。 硅基智能于2025年10月31日首次递表，6个月后材料失效。于是公司在20天后二次递表。 中国收入第一 硅基智能成立
 
 ## 正文
 
-隔夜美股三大指数集体收跌，明星科技股普跌。
+来源 | 财通社 撰文 | 何剑岭 随着AI不断深入人们的日常生活，大家平时经常看到的“数字人”也向港股发起了冲刺。
 
-5月20日早盘，港股低开，互联网龙头集体回调，截至发稿，腾讯控股跌0.6%，阿里巴巴-W、美团-W跌超1%，小米集团-W跌逾2%，哔哩哔哩-W绩后跌近5%。
+5月21日，南京硅基智能科技集团股份有限公司（简称硅基智能）再次向港交所递表。
 
-哔哩哔哩-W一季报显示，营收为74.7亿元人民币，毛利率连续15个季度环比提升至37.1%，调整后净利润5.9亿元，同比扭亏为盈，其中季度内AI广告收入同比增长170%。
+硅基智能由招银国际和星展国际担任联席保荐人，准备进军港交所主板。
 
-港股AI核心工具——港股互联网ETF华宝（513770）场内价格跌超2%，再探本轮回调以来新低。
+硅基智能于2025年10月31日首次递表，6个月后材料失效。
 
-消息面上，阿里云峰会于5月20日-5月21日在杭州举办，阿里方面预告，将发布通义千问“重量级新朋友”，新模型在全能性、模型能力、深度与广度上全面升级。
+于是公司在20天后二次递表。
 
-此外最新消息，阿里发布基于平头哥新一代AI芯片真武M890的128卡超节点服务器，可支持海量Agent并发推理。
+中国收入第一 硅基智能成立于2017年，将自己定位为AI数字人智能体（硅基劳动力）解决方案提供商。
 
-阿里巴巴在AI全栈布局上最对标谷歌，一季报显示，AI业务正式迈入“商业化回报周期”，Token热潮下加速向“AI+云”科技平台转型。
+所谓“硅基劳动力”，是与“碳基”人类劳动力对应的概念，即是AI数字人智能体，这是一种新型劳动力。
 
-根据阿里巴巴预计，AI模型与应用服务年化经常性收入将在6月突破100亿元，年底将翻三倍突破300亿元。
+招股书显示，硅基智能首先在中国推广硅基劳动力解决方案，并且制定了类似于自动驾驶行业L1至L5阶段的中国数字人智能体行业L1至L5发展蓝图。
 
 ## 相关推荐
 
-- 2026-06-29 15:02 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 14:53 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 14:54 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 15:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 14:48 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 15:00 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 14:55 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 15:00 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 15:11 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 15:13 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 14:59 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 15:01 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 14:58 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 15:13 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 15:13 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 15:23 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 15:01 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 15:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 15:16 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 15:03 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 15:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 14:58 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 15:01 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 15:18 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 15:02 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 15:12 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 15:19 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:09 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/68348065766.shtml)
-- 2026-06-29 15:03 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/26166832917.shtml)
-- 2026-06-29 14:50 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/4820141.shtml)
-- 2026-06-29 14:51 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/37477498570.shtml)
-- 2026-06-29 14:54 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/365887.shtml)
-- 2026-06-29 14:53 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/66444092100.shtml)
-- 2026-06-29 15:05 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/7143441.shtml)
-- 2026-06-29 15:16 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/05459246.shtml)
-- 2026-06-29 15:06 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/19735746.shtml)
-- 2026-06-29 14:50 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/982836.shtml)
-- 2026-06-29 15:06 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/55048.shtml)
-- 2026-06-29 15:07 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/024729010.shtml)
-- 2026-06-29 14:49 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/629953192.shtml)
-- 2026-06-29 15:08 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/19545.shtml)
-- 2026-06-29 14:55 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/21240837.shtml)
+- 2026-06-29 14:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/675201.shtml)
+- 2026-06-29 15:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/959043421521.shtml)
+- 2026-06-29 14:54 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/347224250616.shtml)
+- 2026-06-29 15:08 - [灿如繁星定档](http://www.blog.kurohicncr.top/Article/details/85535.shtml)
+- 2026-06-29 15:22 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/8645516262.shtml)
+- 2026-06-29 15:01 - [李连杰回应网传不管前妻俩女儿](http://www.share.minike.top/Article/details/6998017.shtml)
+- 2026-06-29 15:02 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/93572312.shtml)
+- 2026-06-29 14:58 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/35909214.shtml)
+- 2026-06-29 14:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/22782766725.shtml)
+- 2026-06-29 14:56 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/6867872.shtml)
+- 2026-06-29 15:11 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/86237963467.shtml)
+- 2026-06-29 15:17 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/9339408580.shtml)
+- 2026-06-29 15:10 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/70260.shtml)
+- 2026-06-29 15:09 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/88741196496.shtml)
+- 2026-06-29 14:59 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/48263.shtml)

@@ -1,61 +1,57 @@
-# A股上市银行继续加码财富管理，这家国有大行亮出最新动作，行业改革变阵步伐不断加速
+# FSD布局加速、L3落地见效，资金借道智能驾驶ETF华泰柏瑞（516520）积极布局产业机会
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-财联社5月19日讯（记者 邹俊涛）息差持续收窄趋势下，加码财富管理正在成为银行业内共识。近日，又一国有大行在财富管理赛道打出了全新品牌战略。 5月18日晚，农业银行正式发布“农银财富”品牌，这是这家拥有近9亿个人客户的国有大行在财富管理领域的最新动作。 公开信息显示，农业银行曾在2015年以“农银财富”品牌发布专属理财产品，当时官方显示是由农行总行零售银行业务部与资产管理部联袂
+特斯拉FSD在华布局加速、国产L3落地成效显著，智能驾驶行业近期迎来多重利好催化，产业链发展节奏持续提速，资金也积极借道智能驾驶ETF华泰柏瑞（516520）等相关产品布局智驾产业机遇。 一方面，5月21日特斯拉官方宣布监督版FSD（完全自动驾驶能力）正式登陆中国市场，该版FSD采用了接近端到端AI大模型的路线，通过海量真实路况视频训练神经网络，让系统理解复杂道路环境，与国产智
 
 ## 正文
 
-财联社5月19日讯（记者 邹俊涛）息差持续收窄趋势下，加码财富管理正在成为银行业内共识。
+特斯拉FSD在华布局加速、国产L3落地成效显著，智能驾驶行业近期迎来多重利好催化，产业链发展节奏持续提速，资金也积极借道智能驾驶ETF华泰柏瑞（516520）等相关产品布局智驾产业机遇。
 
-近日，又一国有大行在财富管理赛道打出了全新品牌战略。
+一方面，5月21日特斯拉官方宣布监督版FSD（完全自动驾驶能力）正式登陆中国市场，该版FSD采用了接近端到端AI大模型的路线，通过海量真实路况视频训练神经网络，让系统理解复杂道路环境，与国产智驾则更多采用多传感器冗余、激光雷达预埋、车云协同及本地化场景训练的模式存在明显不同。
 
-5月18日晚，农业银行正式发布“农银财富”品牌，这是这家拥有近9亿个人客户的国有大行在财富管理领域的最新动作。
+特斯拉在华布局加快，不仅将推动全球智驾行业算法进化，也或从竞争烈度层面促使行业加快提升技术成熟度和商业落地的速度。
 
-公开信息显示，农业银行曾在2015年以“农银财富”品牌发布专属理财产品，当时官方显示是由农行总行零售银行业务部与资产管理部联袂打造。
+另一方面，自工信部于2025年12月15日首次发放L3级有条件自动驾驶准许许可，准许其分别在北京、重庆指定区域上路以来，国产L3级自动驾驶开始场景化落地。
 
-不过，财联社记者向农行相关人士咨询获悉，此次为该品牌的“正式发布”，且为农行总行个人金融部发布的全新独立品牌。
+实际效果层面，重庆首批46辆L3自动驾驶车辆在内环、渝都大道等指定拥堵路段试点运营，已累计激活里程超15万公里，L3级自动驾驶在拥堵路段叠加复杂地形的顺利落地，让全行业看到了成熟的应用场景。
 
-围绕该品牌发布是否会涉及组织架构层面的调整，该农行相关人士向财联社记者明确表示“不会”。
+交银国际认为，特斯拉FSD准入是对智能驾驶软件价值和L3硬件增量的共同催化。
 
-近年来，随着息差持续下行，以财富管理为代表的业务越来越受到银行重视。
+此外，2026下半年L3量产落地将成为国内智驾产业链的重要验证窗口，若L3从试点走向更明确的量产交付，将强化激光雷达、域控/中央计算平台、高精定位等智能驾驶细分方向的增量逻辑。
 
-不少银行高管表示，将借此筑牢营收业务护城河。
+行业高景气吸引增量资金布局智能驾驶ETF华泰柏瑞（516520）。
 
 ## 相关推荐
 
-- 2026-06-29 15:05 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 14:49 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 14:54 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 14:51 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 15:12 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 15:16 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 15:05 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 14:50 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 15:05 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 14:50 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 15:06 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 14:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 15:04 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 14:57 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 14:49 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 15:14 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 15:15 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 15:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 14:54 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 15:10 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 15:00 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 15:13 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 15:16 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 15:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 14:59 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 14:59 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:08 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/6131828297.shtml)
-- 2026-06-29 15:02 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/4815614565.shtml)
-- 2026-06-29 14:53 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/473454.shtml)
-- 2026-06-29 15:17 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/67385.shtml)
-- 2026-06-29 15:04 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/59613053736.shtml)
-- 2026-06-29 15:08 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/5690335090.shtml)
-- 2026-06-29 15:07 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/7751233992.shtml)
-- 2026-06-29 15:11 - [实习期把公司领导开除了](http://www.share.minike.top/Article/details/677099560.shtml)
-- 2026-06-29 15:03 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/34790.shtml)
-- 2026-06-29 14:52 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/62993.shtml)
-- 2026-06-29 15:07 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/18790917713.shtml)
-- 2026-06-29 15:15 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/74151714.shtml)
-- 2026-06-29 14:49 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/32987893.shtml)
-- 2026-06-29 15:09 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/895222.shtml)
-- 2026-06-29 14:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/330297.shtml)
+- 2026-06-29 15:13 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/7606971328.shtml)
+- 2026-06-29 14:55 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.kurohicncr.top/Article/details/2042202.shtml)
+- 2026-06-29 15:15 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/102682495414.shtml)
+- 2026-06-29 14:56 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/28790.shtml)
+- 2026-06-29 15:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/365943279211.shtml)
+- 2026-06-29 14:57 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/83415191.shtml)
+- 2026-06-29 15:11 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/80285776.shtml)
+- 2026-06-29 15:01 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.minike.top/Article/details/17103911.shtml)
+- 2026-06-29 15:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/4356217.shtml)
+- 2026-06-29 14:54 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/091857559.shtml)
+- 2026-06-29 15:03 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/321156978.shtml)
+- 2026-06-29 15:22 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/094598.shtml)
+- 2026-06-29 15:12 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/110413459110.shtml)
+- 2026-06-29 15:12 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/41923051.shtml)
+- 2026-06-29 15:20 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/769537.shtml)

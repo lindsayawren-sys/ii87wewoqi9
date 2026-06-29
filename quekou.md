@@ -1,61 +1,50 @@
-# 2026年中国网络文明大会在南宁举行 李书磊出席并发表主旨演讲
+# 重庆市永川区暴雨灾害致9人死亡11人失联
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-新华社南宁5月19日电 2026年中国网络文明大会19日在南宁举行。中共中央政治局委员、中宣部部长李书磊出席并发表主旨演讲。 与会嘉宾认为，党的十八大以来，在以习近平同志为核心的党中央坚强领导下，我们成功走出一条中国特色治网之道，网络强国建设迈出新步伐。习近平总书记围绕网络文明建设发表一系列重要论述，为推动共建网上美好精神家园提供了根本遵循。要深入学习领会、全面贯彻落实，以网络
+发布时间：2026年05月25日 18:27 来源：中国新闻网 截至5月25日15时30分，重庆市永川区暴雨灾害导致9人死亡，11人失联。 5月23日夜间至24日凌晨，重庆市永川区突发瞬时极端特大暴雨引发山洪和地质灾害，导致辖区茶山竹海街道、中山路街道、双石镇等多地出现散点式灾情。 目前，救援处置工作正在全力开展。(记者 肖江川) 责任编辑：【罗攀】
 
 ## 正文
 
-新华社南宁5月19日电 2026年中国网络文明大会19日在南宁举行。
+发布时间：2026年05月25日 18:27 来源：中国新闻网 截至5月25日15时30分，重庆市永川区暴雨灾害导致9人死亡，11人失联。
 
-中共中央政治局委员、中宣部部长李书磊出席并发表主旨演讲。
+5月23日夜间至24日凌晨，重庆市永川区突发瞬时极端特大暴雨引发山洪和地质灾害，导致辖区茶山竹海街道、中山路街道、双石镇等多地出现散点式灾情。
 
-与会嘉宾认为，党的十八大以来，在以习近平同志为核心的党中央坚强领导下，我们成功走出一条中国特色治网之道，网络强国建设迈出新步伐。
+目前，救援处置工作正在全力开展。
 
-习近平总书记围绕网络文明建设发表一系列重要论述，为推动共建网上美好精神家园提供了根本遵循。
-
-要深入学习领会、全面贯彻落实，以网络文明建设新成效助力精神文明建设高质量发展。
-
-与会嘉宾表示，“十五五”规划纲要对加强网络文明建设作出全面部署，要不断丰富网络优质内容供给，壮大网上主流价值、主流舆论、主流文化。
-
-要健全网络生态治理长效机制，持续营造风清气正的网络空间。
-
-要一体推进网上网下文明建设，推动文明培育、文明实践、文明创建向网络延伸，形成网络文明共建共享的良好局面，让互联网更好造福于民。
+(记者 肖江川) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 15:01 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 15:00 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 15:12 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 15:04 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 15:03 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 15:08 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 15:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 15:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 14:55 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 14:49 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 15:05 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 14:57 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 15:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 15:09 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 14:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 14:55 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 15:10 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 15:14 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 15:02 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 15:20 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 15:15 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 15:12 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 15:08 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 15:05 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 14:55 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 15:10 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 14:55 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/40796352.shtml)
-- 2026-06-29 15:16 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/47428.shtml)
-- 2026-06-29 15:03 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/469762251901.shtml)
-- 2026-06-29 15:08 - [扬名立万](https://www.share.kurohicncr.top/Article/details/5918757.shtml)
-- 2026-06-29 15:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/3703952095.shtml)
-- 2026-06-29 15:17 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/59800182.shtml)
-- 2026-06-29 15:08 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/11670296901.shtml)
-- 2026-06-29 14:58 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/186498860626.shtml)
-- 2026-06-29 15:05 - [美人鱼](http://www.blog.minike.top/Article/details/3200804.shtml)
-- 2026-06-29 15:01 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/98464155.shtml)
-- 2026-06-29 15:10 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/66807343101.shtml)
-- 2026-06-29 15:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/776744993.shtml)
-- 2026-06-29 15:12 - [沙丘](http://www.blog.minike.top/Article/details/977191515549.shtml)
-- 2026-06-29 15:08 - [血糖高的人能吃西瓜吗](https://www.blog.minike.top/Article/details/20446.shtml)
-- 2026-06-29 14:52 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/32756173965.shtml)
+- 2026-06-29 14:55 - [我和我的家乡](http://www.blog.minike.top/Article/details/8937494.shtml)
+- 2026-06-29 15:10 - [媒体：网络测评不能只剩“生意”](https://www.blog.minike.top/Article/details/6352494899.shtml)
+- 2026-06-29 15:08 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/69907750.shtml)
+- 2026-06-29 14:58 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/43304080213.shtml)
+- 2026-06-29 15:01 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/32586.shtml)
+- 2026-06-29 15:13 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/462530.shtml)
+- 2026-06-29 15:20 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/617838560.shtml)
+- 2026-06-29 15:00 - [《贺子珍》](https://www.blog.minike.top/Article/details/26820269.shtml)
+- 2026-06-29 15:21 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/144202.shtml)
+- 2026-06-29 15:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/568229299.shtml)
+- 2026-06-29 14:59 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/06105745721.shtml)
+- 2026-06-29 14:54 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/25553046756.shtml)
+- 2026-06-29 15:21 - [双高胎](http://www.blog.kurohicncr.top/Article/details/369751642804.shtml)
+- 2026-06-29 15:18 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/292803630.shtml)
+- 2026-06-29 15:20 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/446470742427.shtml)

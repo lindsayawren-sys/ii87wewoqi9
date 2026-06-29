@@ -1,59 +1,58 @@
-# 老百姓、益丰药房被约谈，串换套保问题将直击利润率
+# AI产品收费看不懂 这些投诉渠道你得知道
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：市值风云 一季度止跌回升势头恐生变。 作者 | 螳螂虾 编辑 | 小白 近日，国家医保局公告，针对湖南怀化、邵阳、衡阳、株洲及河南郑州等地定点零售药店将化妆品等商品串换为药品或诊疗项目违规使用医保基金问题开展专项飞行检查，并约谈老百姓（603883.SH）、益丰药房（603939.SH）、养天和、河南
+最近，人民日报点评某AI产品付费模式的话题冲上热搜，引发了关于数字产品收费透明度的广泛讨论。随着人工智能应用加速普及，越来越多的AI产品开始探索商业化路径：会员订阅、按次计费、增值服务包……各种收费名目层出不穷。不少用户反映，在使用过程中遇到过自动扣费、收费标准不清晰、实际功能与宣传不符、退订困难等问题。面对这些新兴的消费纠纷 【下载黑猫投诉客户端】，普通人该如何有效维权？ 首
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+最近，人民日报点评某AI产品付费模式的话题冲上热搜，引发了关于数字产品收费透明度的广泛讨论。
 
-来源：市值风云 一季度止跌回升势头恐生变。
+随着人工智能应用加速普及，越来越多的AI产品开始探索商业化路径：会员订阅、按次计费、增值服务包……各种收费名目层出不穷。
 
-作者 | 螳螂虾 编辑 | 小白 近日，国家医保局公告，针对湖南怀化、邵阳、衡阳、株洲及河南郑州等地定点零售药店将化妆品等商品串换为药品或诊疗项目违规使用医保基金问题开展专项飞行检查，并约谈老百姓（603883.SH）、益丰药房（603939.SH）、养天和、河南张仲景等连锁药房股份有限公司有关负责人。
+不少用户反映，在使用过程中遇到过自动扣费、收费标准不清晰、实际功能与宣传不符、退订困难等问题。
 
-约谈指出，在各级医保部门深化医保基金管理突出问题专项整治，连续两年开展打击医保药品领域违法违规问题专项行动的高压态势下，在《医疗保障基金使用监督管理条例实施细则》正式施行的时间节点，在同类问题被多次查处、曝光，医保部门多次恳谈约谈、警示教育的背景下，被检机构仍然存在将化妆品等商品串换为药品和诊疗项目、违反实名制就医管理规定套刷个账资金、超量开药等违法违规使用医保基金问题。
+面对这些新兴的消费纠纷 【下载黑猫投诉客户端】，普通人该如何有效维权？
 
-部分门店还通过转移证据、删除视频、隐匿账目等对抗检查，性质严重、影响恶劣。
+首先还是要强调证据留存的重要性。
 
-国家医保局对这些不法行为予以公开谴责。
+对于数字产品的消费纠纷，关键证据包括：注册和开通服务时的协议截图（特别是关于收费标准的条款）、扣费记录和银行流水、实际使用中发现的与承诺不符的具体场景截图、与客服沟通的聊天记录等。
 
-作为上市公司，老百姓、益丰药房业绩表现如何呢？
+这些材料是后续任何投诉环节的基础。
 
-自进入2024年以来，两家公司营收增长全面失速，滑入低个位数区间。
+在具体渠道选择上，12315依然是首选的官方途径。
 
 ## 相关推荐
 
-- 2026-06-29 14:52 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 15:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 15:10 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 14:54 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 15:13 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 15:02 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 15:15 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 14:48 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 15:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 15:15 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 14:58 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 15:02 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 15:09 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 15:07 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 15:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 15:20 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 15:19 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 14:57 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 15:10 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 15:20 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 15:10 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 15:00 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 14:57 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 15:06 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 15:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/34389147.shtml)
-- 2026-06-29 15:11 - [TOP 无畏契约](http://www.blog.kurohicncr.top/Article/details/345083595343.shtml)
-- 2026-06-29 15:04 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/483885727.shtml)
-- 2026-06-29 15:10 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/5395658739.shtml)
-- 2026-06-29 14:52 - [发反科学内容为何会有200万粉丝](https://www.blog.kurohicncr.top/Article/details/552815268.shtml)
-- 2026-06-29 15:15 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/5965192588.shtml)
-- 2026-06-29 15:16 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/162493916726.shtml)
-- 2026-06-29 14:53 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/83351777576.shtml)
-- 2026-06-29 15:11 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/16522648.shtml)
-- 2026-06-29 15:02 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/22548135.shtml)
-- 2026-06-29 14:54 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/56512.shtml)
-- 2026-06-29 15:10 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/76707.shtml)
-- 2026-06-29 14:55 - [拄拐少年高考663分：用行动回报社会](http://www.share.kurohicncr.top/Article/details/333640098.shtml)
-- 2026-06-29 15:01 - [《贺子珍》](http://www.blog.minike.top/Article/details/19746.shtml)
-- 2026-06-29 14:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/65307.shtml)
+- 2026-06-29 15:05 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/142242645006.shtml)
+- 2026-06-29 15:23 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/74551.shtml)
+- 2026-06-29 15:19 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/46527.shtml)
+- 2026-06-29 15:12 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/89257666.shtml)
+- 2026-06-29 15:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/86400.shtml)
+- 2026-06-29 15:22 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/3046078.shtml)
+- 2026-06-29 14:56 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/029118.shtml)
+- 2026-06-29 15:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/325755506.shtml)
+- 2026-06-29 15:00 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/26038.shtml)
+- 2026-06-29 15:23 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.minike.top/Article/details/1562867.shtml)
+- 2026-06-29 14:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/799425846.shtml)
+- 2026-06-29 15:04 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/124946141542.shtml)
+- 2026-06-29 15:15 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/09190.shtml)
+- 2026-06-29 15:10 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/793864.shtml)
+- 2026-06-29 14:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/932586.shtml)

@@ -1,59 +1,59 @@
-# 李彦宏：智能体商业化仍在早期阶段，市场规模远大于Token计费
+# 京东集团与三一集团签订战略合作协议，推动先进制造业与现代服务业深度融合
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-“在（智能体）商业化方面，全球行业仍处于早期阶段，商业模式还在不断演进。目前是以Token（词元）计费更常见，本质上是用户为基础模型的能力付费。随着时间的推移，AI智能体水平接近人类工作能力，相信未来的商业模式会变得更加多元，用户将为AI智能体或AI应用本身付费，这一市场的规模将远大于Token计费的市场。” 5月18日晚，百度创始人李彦宏在2026年第一季度财报会上说，AI应
+5月25日，京东集团与三一集团在北京签署战略合作协议。京东集团SEC副主席、京东集团CEO许冉与三一集团董事伏卫忠共同出席，并见证双方有关负责人完成签约。 双方自2017年建立伙伴关系，本次战略合作升级，将重点围绕数智采购供应链服务、海外供应链协同、物流仓储、AI数智化转型、车辆及装备采购、运力电动化生态圈共建、线上协同销售等领域深化联动，推动先进制造业与现代服务业深度融合，助
 
 ## 正文
 
-“在（智能体）商业化方面，全球行业仍处于早期阶段，商业模式还在不断演进。
+5月25日，京东集团与三一集团在北京签署战略合作协议。
 
-目前是以Token（词元）计费更常见，本质上是用户为基础模型的能力付费。
+京东集团SEC副主席、京东集团CEO许冉与三一集团董事伏卫忠共同出席，并见证双方有关负责人完成签约。
 
-随着时间的推移，AI智能体水平接近人类工作能力，相信未来的商业模式会变得更加多元，用户将为AI智能体或AI应用本身付费，这一市场的规模将远大于Token计费的市场。
+双方自2017年建立伙伴关系，本次战略合作升级，将重点围绕数智采购供应链服务、海外供应链协同、物流仓储、AI数智化转型、车辆及装备采购、运力电动化生态圈共建、线上协同销售等领域深化联动，推动先进制造业与现代服务业深度融合，助力产业数智化转型与绿色低碳发展。
 
-” 5月18日晚，百度创始人李彦宏在2026年第一季度财报会上说，AI应用一直是百度的战略重点。
+双方依托京东一站式智能化采购服务体系，深化全品类物资采购合作，全面覆盖办公日用、生产作业、工装基建、市场营销、员工福利等场景；借助京东工业“太璞”数实一体化供应链方案，助力三一集团物料标准化管理；强化海外供应链协同，加强海外备件仓储运输、跨境采购、境外商旅等板块合作；搭建产前、厂内、成品、售后全链路一体化物流体系，落地智能仓储、智慧园区数字化方案；基于京东 AI大模型与算力技术优势，持续拓展数字化应用新场景；稳步推进金融保险配套服务，同步开展工程机械设备线上推广、采购租赁合作，合力打造运力、装备、补能网络于一体的电动化产业生态。
 
-在这一产品矩阵中，包括“大搜索”、数字人、“秒哒”编程产品、“伐谋”智能体，搜索业务明显更偏广告商业模式，而后三种产品则更偏向订阅制、按使用量或Token计费的模式。
+未来，双方将充分发挥各自资源与产业优势，持续挖掘社会责任、国际业务、产业协同等领域合作潜力，携手构建互利共赢的长期战略伙伴关系，为中国制造业高端化、智能化、绿色化转型升级注入强劲动能。
 
-当日美股盘前，百度发布的一季度报显示，季度总营收为321亿元，同比减少约1.16%，环比减少约2%，但高于市场预期的314.9亿元。
+三一集团是全球领先的高端装备制造企业，以全球化、数智化、低碳化“三化”战略为引领，聚焦工程机械、资源开发与物流装备、新能源与电力装备三大核心领域，业务遍布180多个国家和地区，稳居全球行业第一方阵。
 
-百度一般性业务收入为260亿元，同比增长2%，环比持平，其中AI业务收入136亿元，占比约52%，已连续多个季度增长；爱奇艺收入为62亿元。
-
-利润方面，一季度归属百度的净利润为34亿元，同比减少56.2%；非公认会计准则下归属百度的净利润为43亿元，同比减少33.5%，百度的非公认会计准则净利润率为14%。
+京东集团定位于“以供应链为基础的技术与服务企业”，业务覆盖零售、物流、科技、金融、服务、健康、产发和工业等领域，2025年位列《财富》世界500强第44位、中国民营企业500强首位。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 15:06 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 15:08 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 15:04 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 14:49 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 15:06 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 15:12 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 15:01 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 14:54 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 14:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 14:57 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 15:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 14:59 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 14:57 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 15:18 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 15:23 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 14:57 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 15:04 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 15:14 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 15:09 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 14:57 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 15:07 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 15:11 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 14:55 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 15:05 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 15:09 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 15:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 15:11 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/4677707.shtml)
-- 2026-06-29 15:07 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/71969.shtml)
-- 2026-06-29 14:50 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/96304875.shtml)
-- 2026-06-29 14:55 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/362015465697.shtml)
-- 2026-06-29 15:02 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/38430.shtml)
-- 2026-06-29 15:04 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/42607652.shtml)
-- 2026-06-29 15:03 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/11842.shtml)
-- 2026-06-29 14:56 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/9706953513.shtml)
-- 2026-06-29 14:56 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/311685.shtml)
-- 2026-06-29 15:00 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/451293202718.shtml)
-- 2026-06-29 15:12 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/1715693.shtml)
-- 2026-06-29 14:57 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/223180172666.shtml)
-- 2026-06-29 15:09 - [沉睡花园](https://www.blog.minike.top/Article/details/671606.shtml)
-- 2026-06-29 14:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/380990.shtml)
-- 2026-06-29 14:55 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/71985339523.shtml)
+- 2026-06-29 15:22 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/56630834.shtml)
+- 2026-06-29 15:14 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/424401742.shtml)
+- 2026-06-29 15:14 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/2506436.shtml)
+- 2026-06-29 14:55 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/44124.shtml)
+- 2026-06-29 15:14 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/1760488908.shtml)
+- 2026-06-29 15:13 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/9244642786.shtml)
+- 2026-06-29 15:17 - [链博会上的机器人太全能了](https://www.share.kurohicncr.top/Article/details/7269162008.shtml)
+- 2026-06-29 15:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/219805.shtml)
+- 2026-06-29 15:16 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/1830319.shtml)
+- 2026-06-29 15:06 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/6069737043.shtml)
+- 2026-06-29 15:22 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/844100.shtml)
+- 2026-06-29 15:22 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/852090421088.shtml)
+- 2026-06-29 15:03 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/70407640219.shtml)
+- 2026-06-29 15:19 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/167159968.shtml)
+- 2026-06-29 15:10 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/578777580.shtml)

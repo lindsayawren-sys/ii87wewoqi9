@@ -1,57 +1,55 @@
-# 习言道｜中俄元首再会晤，几个关键数字
+# 东华能源：因未及时披露仲裁事项收到警示函
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网5月19日电 题：中俄元首再会晤，几个关键数字 应国家主席习近平邀请，俄罗斯总统普京于5月19日至20日来华进行国事访问。 作为具有全球影响的大国和邻国，中俄之间的互动不仅关乎彼此，更深刻影响国际格局。观察此次中俄元首会晤，可以从几个关键数字切入。 40多次、11次和13次 2013年以来，中俄两国元首会晤40多次，习近平主席到访俄罗斯11次。普京也13次来华，进行国事访
+人民财讯5月26日电，东华能源（002221）5月26日公告，公司当日收到江苏证监局出具的《关于对东华能源股份有限公司、周一峰、邵晓、陈文辛采取出具警示函措施的决定》。 经查，2022年5月13日，公司在香港发生仲裁事项，其中最大涉案金额折合人民币约13.7亿元，占公司最近一期经审计净资产的12.64%。公司未及时披露上述仲裁发生及后续重大进展，也未在2022年半年报等多份定期
 
 ## 正文
 
-中新网5月19日电 题：中俄元首再会晤，几个关键数字 应国家主席习近平邀请，俄罗斯总统普京于5月19日至20日来华进行国事访问。
+人民财讯5月26日电，东华能源（002221）5月26日公告，公司当日收到江苏证监局出具的《关于对东华能源股份有限公司、周一峰、邵晓、陈文辛采取出具警示函措施的决定》。
 
-作为具有全球影响的大国和邻国，中俄之间的互动不仅关乎彼此，更深刻影响国际格局。
+经查，2022年5月13日，公司在香港发生仲裁事项，其中最大涉案金额折合人民币约13.7亿元，占公司最近一期经审计净资产的12.64%。
 
-观察此次中俄元首会晤，可以从几个关键数字切入。
+公司未及时披露上述仲裁发生及后续重大进展，也未在2022年半年报等多份定期报告中披露上述仲裁相关事项。
 
-40多次、11次和13次 2013年以来，中俄两国元首会晤40多次，习近平主席到访俄罗斯11次。
+因此，公司收到江苏证监局出具的警示函。
 
-普京也13次来华，进行国事访问或出席活动。
+公司董事长周一峰、总经理邵晓、董事会秘书陈文辛因未能勤勉履行职责也受到警示。
 
-数字背后，是中俄两国元首的频密互动、友好交往。
+公司已于2026年4月24日对所涉香港仲裁事项进行披露，并已在2025年度财务报告中进行相应处理，相关案件对公司的影响已在2025年年度报告中体现。
 
-2013年3月，担任中国国家主席后首次出访，第一站，习近平主席就来到了俄罗斯。
-
-“很高兴你第一次出访选择了我们。
+责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-29 15:11 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 15:10 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 15:15 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 15:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 15:02 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 15:05 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 15:16 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 15:12 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 14:55 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 15:10 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 15:03 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 15:17 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 15:20 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 15:16 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 15:15 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 15:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 15:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 15:21 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 15:06 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 15:15 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 14:57 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 15:16 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:07 - [拄拐少年高考663分：用行动回报社会](http://www.share.minike.top/Article/details/6081832003.shtml)
-- 2026-06-29 15:00 - [以前不让妆女二可以艳压女主](http://www.blog.minike.top/Article/details/42650.shtml)
-- 2026-06-29 15:07 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/59300294.shtml)
-- 2026-06-29 14:52 - [北极荒岛生存挑战](http://www.share.kurohicncr.top/Article/details/516369992.shtml)
-- 2026-06-29 15:14 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/385424678451.shtml)
-- 2026-06-29 14:52 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/985094543590.shtml)
-- 2026-06-29 14:48 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/875764497.shtml)
-- 2026-06-29 15:03 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/6083785782.shtml)
-- 2026-06-29 14:55 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/948269.shtml)
-- 2026-06-29 15:17 - [宜宾5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/3493424.shtml)
-- 2026-06-29 14:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/49796.shtml)
-- 2026-06-29 15:05 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/1374596099.shtml)
-- 2026-06-29 15:11 - [崔韩率还以为韩娱来新人了](http://www.share.kurohicncr.top/Article/details/45324.shtml)
-- 2026-06-29 14:55 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.kurohicncr.top/Article/details/2733988.shtml)
-- 2026-06-29 15:14 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/2024086.shtml)
+- 2026-06-29 15:00 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/0354778471.shtml)
+- 2026-06-29 15:07 - [美的空调 卡bug](https://www.share.minike.top/Article/details/3332723.shtml)
+- 2026-06-29 15:05 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.kurohicncr.top/Article/details/786376212.shtml)
+- 2026-06-29 14:55 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/921675.shtml)
+- 2026-06-29 15:10 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/613706205.shtml)
+- 2026-06-29 15:07 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/58567601801.shtml)
+- 2026-06-29 14:55 - [急先锋](https://www.blog.minike.top/Article/details/6279947.shtml)
+- 2026-06-29 15:06 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/9142601.shtml)
+- 2026-06-29 15:05 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/596832905457.shtml)
+- 2026-06-29 14:57 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/9360811.shtml)
+- 2026-06-29 15:15 - [恋与深空 731](http://www.blog.minike.top/Article/details/44152911117.shtml)
+- 2026-06-29 14:57 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/69159.shtml)
+- 2026-06-29 15:14 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/253824716.shtml)
+- 2026-06-29 15:09 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/175861134.shtml)
+- 2026-06-29 15:03 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/380351.shtml)

@@ -1,58 +1,61 @@
-# 6456亿元！上市银行分红分化：大行“高派息”可持续，中小行“保经营”优先
+# AI工具不断推出 澳大利亚最大银行的CEO敲响工作岗位流失警钟
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 曾令俊 随着工商银行（601398.SH）、农业银行（601288.SH）于近日发放2025年末期现金股息，A股上市银行2025年度分红大幕正式拉开。 据Wind数据统计，42家A股上市银行2025年全年累计派发现金红利6456.37亿元，较2024年增加近135亿元，再创历史新高，不过增速有所放缓。 在总量攀升的表象之下，银行板块内部的分红策略却呈现出显著的
+澳大利亚联邦银行首席执行官Matt Comyn表示，人工智能将夺走各行各业的工作岗位，企业有责任帮助员工为不断变化的未来做好规划。 “在澳大利亚联邦银行，和许多大型机构一样，一些工作将由更小的团队完成，”Comyn说。“与此同时，随着人们更快地利用AI承担更复杂的工作，一些职业路径将变得更为陡峭。这将为许多人创造机会，但对每个人都有很高的要求。” 澳大利亚联邦银行是澳大利亚最大
 
 ## 正文
 
-界面新闻记者 | 曾令俊 随着工商银行（601398.SH）、农业银行（601288.SH）于近日发放2025年末期现金股息，A股上市银行2025年度分红大幕正式拉开。
+澳大利亚联邦银行首席执行官Matt Comyn表示，人工智能将夺走各行各业的工作岗位，企业有责任帮助员工为不断变化的未来做好规划。
 
-据Wind数据统计，42家A股上市银行2025年全年累计派发现金红利6456.37亿元，较2024年增加近135亿元，再创历史新高，不过增速有所放缓。
+“在澳大利亚联邦银行，和许多大型机构一样，一些工作将由更小的团队完成，”Comyn说。
 
-在总量攀升的表象之下，银行板块内部的分红策略却呈现出显著的分化态势，国有大行稳坐“分红王座”，而部分中小银行则在资本补充压力下选择了下调分红比例，甚至郑州银行（002936.SZ）选择了不分红。
+“与此同时，随着人们更快地利用AI承担更复杂的工作，一些职业路径将变得更为陡峭。
 
-畅力资产董事长宝晓辉对界面新闻记者表示，增量不增势核心问题就出在大小银行分红能力分化极大。
+这将为许多人创造机会，但对每个人都有很高的要求。
 
-“现在能明显看到，不少中小银行已经主动下调分红比例，甚至直接暂停分红，反观国有大行，依旧能保持大手笔的高额分红，而站在长远角度看，国有大行的高分红模式后续大概率会延续。
+” 澳大利亚联邦银行是澳大利亚最大的银行，拥有超过5万名员工。
 
-” 六大行是分红的主力军 A股41家实施分红的上市银行2025年末现金分红合计3459亿元，叠加中期分红后，全年累计现金分红高达6456.37亿元。
+他表示，未来几个月，该行将向零售和企业客户推出新的基于AI的服务。
 
-在A股约2.4万亿元的总分红额中，银行板块占比近三成，继续担当“分红压舱石”。
+当前，世界各地的银行都在努力将新技术整合进工作流程和客户服务。
 
-不过，从增速来看已出现放缓迹象。
+他表示，虽然工作岗位减少是个很可能的现实，但许多现有员工将利用这项技术找到新的机会，而且可能会出现新的岗位。
 
 ## 相关推荐
 
-- 2026-06-29 15:12 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 15:14 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 14:49 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 15:10 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 15:13 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 15:03 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 15:10 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 15:01 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 14:50 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 15:01 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 14:59 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 15:05 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 14:57 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 15:18 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 15:21 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 15:11 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 15:15 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 15:02 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 15:07 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 15:11 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 15:07 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 15:20 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 14:57 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 15:10 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 15:21 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 15:21 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 15:20 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/840358273.shtml)
-- 2026-06-29 15:17 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/293143077144.shtml)
-- 2026-06-29 15:04 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/66089862.shtml)
-- 2026-06-29 15:10 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.kurohicncr.top/Article/details/81060436113.shtml)
-- 2026-06-29 15:17 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/9890722520.shtml)
-- 2026-06-29 15:09 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/29170386.shtml)
-- 2026-06-29 15:07 - [未来5年全国能源体系将呈现这些特征](http://www.blog.minike.top/Article/details/28652839474.shtml)
-- 2026-06-29 15:03 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/71355170289.shtml)
-- 2026-06-29 15:05 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/16665765.shtml)
-- 2026-06-29 15:13 - [国家体育总局政策法规司原副司长获刑](http://www.blog.minike.top/Article/details/109852.shtml)
-- 2026-06-29 15:13 - [韩媒破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/506462603076.shtml)
-- 2026-06-29 14:49 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/42141.shtml)
-- 2026-06-29 15:00 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/7501693620.shtml)
-- 2026-06-29 14:59 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/5077473.shtml)
-- 2026-06-29 15:05 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/1569316732.shtml)
+- 2026-06-29 14:59 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/67666400178.shtml)
+- 2026-06-29 14:57 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/9274191026.shtml)
+- 2026-06-29 14:59 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/29137811.shtml)
+- 2026-06-29 15:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/70565.shtml)
+- 2026-06-29 15:07 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/63309611.shtml)
+- 2026-06-29 15:11 - [沉睡花园](http://www.blog.minike.top/Article/details/19872189769.shtml)
+- 2026-06-29 15:19 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/793555.shtml)
+- 2026-06-29 15:16 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.kurohicncr.top/Article/details/956004244.shtml)
+- 2026-06-29 15:18 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/13532749250.shtml)
+- 2026-06-29 15:09 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/014462.shtml)
+- 2026-06-29 14:55 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/611408.shtml)
+- 2026-06-29 15:22 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/959130174940.shtml)
+- 2026-06-29 14:59 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/65180.shtml)
+- 2026-06-29 15:02 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/36965.shtml)
+- 2026-06-29 15:15 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/52037516813.shtml)

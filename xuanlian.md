@@ -1,54 +1,59 @@
-# 知行科技午前涨超8% 前4月营业收入同比大增162.55%
+# 寿险产品：从爆款依赖到布局多元
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-知行科技（01274）午前涨超8%，截至发稿，股价上涨8.44%，现报4.24港元，成交额253.42万港元。 知行科技5月18日公告，截至2026年4月30日止四个月，实现营业收入约4亿元，同比大增162.55%；毛利率提升5.68个百分点至9.32%。期内公司产品总销售量同比增长243.3%，累计交付逾14.8万套组合驾驶辅助解决方案及产品，其中自研组合驾驶辅助域控制器及智
+来源：中国保险家 过去几年，寿险行业一度沉迷于打造“爆款产品”。无论是特定重疾险还是热门年金险，还是分红险，一旦获得市场成功，公司就倾向于将资源集中于少数产品，追求规模效应。短期看，这确实能带来保费快速增长，但长期依赖单一爆款的风险正逐渐显现。当客户偏好转变或经济环境变化时，这种“将所有鸡蛋放在一个篮子里”的策略，可能使公司经营陷入被动。 多元化的多维价值 真正的产品多元化不仅
 
 ## 正文
 
-知行科技（01274）午前涨超8%，截至发稿，股价上涨8.44%，现报4.24港元，成交额253.42万港元。
+来源：中国保险家 过去几年，寿险行业一度沉迷于打造“爆款产品”。
 
-知行科技5月18日公告，截至2026年4月30日止四个月，实现营业收入约4亿元，同比大增162.55%；毛利率提升5.68个百分点至9.32%。
+无论是特定重疾险还是热门年金险，还是分红险，一旦获得市场成功，公司就倾向于将资源集中于少数产品，追求规模效应。
 
-期内公司产品总销售量同比增长243.3%，累计交付逾14.8万套组合驾驶辅助解决方案及产品，其中自研组合驾驶辅助域控制器及智能前视摄像头销量分别增长95.6%及460.3%，成为业绩增长的重要引擎。
+短期看，这确实能带来保费快速增长，但长期依赖单一爆款的风险正逐渐显现。
 
-其中，首款搭载iDC500域控制器的量产车型——奇瑞iCAR V27车型已于2026年3月正式上市，是公司对地平线征程6系列计算平台应用能力与高效交付的体现。
+当客户偏好转变或经济环境变化时，这种“将所有鸡蛋放在一个篮子里”的策略，可能使公司经营陷入被动。
 
-责任编辑：卢昱君
+多元化的多维价值 真正的产品多元化不仅仅是产品数量的增加，而是战略思维的转变。
+
+满足差异化需求。
+
+不同客户的需求千差万别：年轻人关注健康保障，中年人需要养老规划，高净值人群重视财富传承。
+
+单一产品线难以覆盖如此多元的市场。
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 15:13 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 15:05 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 14:55 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 15:08 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 15:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 14:51 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 14:58 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 15:07 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 15:06 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 15:05 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 15:06 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 15:11 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 15:01 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 15:18 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 15:09 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 15:01 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 15:17 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 15:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 15:17 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 15:18 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 14:56 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 15:19 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 14:54 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 15:08 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 14:56 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 15:18 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:13 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/279451.shtml)
-- 2026-06-29 15:05 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/158537.shtml)
-- 2026-06-29 14:52 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.minike.top/Article/details/53524601475.shtml)
-- 2026-06-29 15:16 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/7975139.shtml)
-- 2026-06-29 14:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/33730427523.shtml)
-- 2026-06-29 15:05 - [光与夜之恋](https://www.share.minike.top/Article/details/879193.shtml)
-- 2026-06-29 15:11 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/17415.shtml)
-- 2026-06-29 15:05 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/44074.shtml)
-- 2026-06-29 15:05 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/142034.shtml)
-- 2026-06-29 15:00 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/764248.shtml)
-- 2026-06-29 14:54 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/737729979.shtml)
-- 2026-06-29 15:11 - [千与千寻](http://www.blog.minike.top/Article/details/39281.shtml)
-- 2026-06-29 15:10 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/016061651210.shtml)
-- 2026-06-29 15:03 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/8532066694.shtml)
-- 2026-06-29 15:15 - [我国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/5414459728.shtml)
+- 2026-06-29 14:58 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/44977450244.shtml)
+- 2026-06-29 15:12 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/861705432402.shtml)
+- 2026-06-29 15:08 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/960210390.shtml)
+- 2026-06-29 15:16 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/3191109663.shtml)
+- 2026-06-29 15:14 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/6710317.shtml)
+- 2026-06-29 14:54 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/6032519049.shtml)
+- 2026-06-29 14:57 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/955744744.shtml)
+- 2026-06-29 15:14 - [国家体育总局政策法规司原副司长获刑](https://www.share.minike.top/Article/details/3788377877.shtml)
+- 2026-06-29 14:56 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.kurohicncr.top/Article/details/1693050033.shtml)
+- 2026-06-29 14:57 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/88089.shtml)
+- 2026-06-29 15:09 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/114205.shtml)
+- 2026-06-29 15:08 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/520197141.shtml)
+- 2026-06-29 14:59 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/679868.shtml)
+- 2026-06-29 15:20 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/46505516.shtml)
+- 2026-06-29 15:11 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/48357859096.shtml)

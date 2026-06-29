@@ -1,56 +1,57 @@
-# 青海举办铸牢中华民族共同体意识专题研讨班
+# 俄罗斯称亚美尼亚若疏远俄方，或将失去低价天然气供应
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网西宁5月19日电 (祁绣娟)5月18日，为期五天的第5期铸牢中华民族共同体意识专题研讨班在青海省委党校开班。 此次培训班旨在提高参训学员对于青海省情的把握能力和依法处理民族事务的能力，为全面推动青海民族团结进步事业高质量发展储备一批骨干力量、拓宽干部思维视野。 青海省委常委、统战部部长班果出席开班式并作辅导讲话时表示，青海正处于全面完成创建全国民族团结进步示范省战略目标，
+克里姆林宫周一表示，倘若亚美尼亚疏远与俄罗斯的一体化合作，该国将无法继续享受极具优惠的俄天然气采购价格。 亚美尼亚是俄罗斯主导经济联盟的成员国，能源供应高度依赖俄罗斯。但近些年来，该国不断谋求深化与欧盟的联系，去年更是出台法案，正式启动入盟相关流程。 被问及两国关系时，克里姆林宫发言人德米特里・佩斯科夫向记者称：“亚美尼亚目前享用的俄天然气定价十分优厚，优惠力度极大。” “但这
 
 ## 正文
 
-中新网西宁5月19日电 (祁绣娟)5月18日，为期五天的第5期铸牢中华民族共同体意识专题研讨班在青海省委党校开班。
+克里姆林宫周一表示，倘若亚美尼亚疏远与俄罗斯的一体化合作，该国将无法继续享受极具优惠的俄天然气采购价格。
 
-此次培训班旨在提高参训学员对于青海省情的把握能力和依法处理民族事务的能力，为全面推动青海民族团结进步事业高质量发展储备一批骨干力量、拓宽干部思维视野。
+亚美尼亚是俄罗斯主导经济联盟的成员国，能源供应高度依赖俄罗斯。
 
-青海省委常委、统战部部长班果出席开班式并作辅导讲话时表示，青海正处于全面完成创建全国民族团结进步示范省战略目标，着力向高标准建设铸牢中华民族共同体意识示范省跃升的新的起点，准确把握铸牢中华民族共同体意识的基本原则与科学方法，深刻理解其核心要义、实践要求与内在规律，对于推动新时代民族工作高质量发展，具有重要的实践指导意义。
+但近些年来，该国不断谋求深化与欧盟的联系，去年更是出台法案，正式启动入盟相关流程。
 
-班果要求，全省各地区、各部门要围绕铸牢中华民族共同体意识示范省建设体制机制、构筑中华民族共有精神家园、促进各民族交往交流交融、促进各民族实现共同富裕、推进民族事务治理体系和治理能力现代化等重点工作，坚持把铸牢中华民族共同体意识主线要求、民族团结进步促进法贯彻实施、树立和践行正确政绩观贯穿今后工作始终。
+被问及两国关系时，克里姆林宫发言人德米特里・佩斯科夫向记者称：“亚美尼亚目前享用的俄天然气定价十分优厚，优惠力度极大。
 
-据介绍，铸牢中华民族共同体意识专题研讨班自实施创建全国民族团结进步示范省战略以来已连续举办了5期，5年来共培训各地区、各部门领导干部270余人次。
+” “但这类优待政策不适用于其他一体化机制的成员，其定价体系完全不同，遵循市场定价规则。
 
-此次研讨班由青海省委组织部、青海省委统战部联合举办。
+” 亚美尼亚外交部长阿拉拉特・米尔佐扬表态，该国无意断绝与俄罗斯的政治及经济往来。
 
-青海省委铸牢中华民族共同体意识暨省民族团结进步事业工作领导小组各成员单位有关负责人、各市州委统战部部长、民宗委主任共54人参加。
+俄罗斯国际文传电讯社援引他周一在埃里温接受采访时的发言：“我们希望并会努力维系、深化双边正常关系。
 
-(完)
+” 亚美尼亚境内设有多处俄罗斯军事基地。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 14:56 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 15:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 15:13 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 15:10 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 14:57 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 15:08 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 15:06 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 14:52 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 15:04 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 15:13 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 15:22 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 15:16 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 15:00 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 14:54 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 15:01 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 15:11 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 15:13 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 15:09 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 15:04 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 15:06 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/476533879.shtml)
-- 2026-06-29 15:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/5433971.shtml)
-- 2026-06-29 15:16 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/731574795.shtml)
-- 2026-06-29 15:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/1746600141.shtml)
-- 2026-06-29 14:56 - [流金岁月](https://www.share.minike.top/Article/details/472943565.shtml)
-- 2026-06-29 15:02 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/29556506.shtml)
-- 2026-06-29 14:53 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/548110174.shtml)
-- 2026-06-29 15:04 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/52353402.shtml)
-- 2026-06-29 14:53 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/8818927.shtml)
-- 2026-06-29 15:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/0044048.shtml)
-- 2026-06-29 15:00 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/431498307.shtml)
-- 2026-06-29 15:02 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/50149.shtml)
-- 2026-06-29 15:05 - [赵露思爸爸拍vlog翻车了](https://www.share.kurohicncr.top/Article/details/82422429.shtml)
-- 2026-06-29 15:07 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/32977.shtml)
-- 2026-06-29 15:01 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/96295549.shtml)
+- 2026-06-29 15:22 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/61355.shtml)
+- 2026-06-29 15:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/100499263350.shtml)
+- 2026-06-29 15:14 - [袁隆平院士 不容诋毁！](https://www.share.minike.top/Article/details/2158584846.shtml)
+- 2026-06-29 14:56 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/55833.shtml)
+- 2026-06-29 15:02 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/2796407345.shtml)
+- 2026-06-29 15:17 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/37063.shtml)
+- 2026-06-29 15:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/3964367.shtml)
+- 2026-06-29 15:14 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/787482.shtml)
+- 2026-06-29 15:10 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/5513201.shtml)
+- 2026-06-29 15:23 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/809545441.shtml)
+- 2026-06-29 15:00 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/0339686.shtml)
+- 2026-06-29 14:58 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/795254.shtml)
+- 2026-06-29 15:05 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/6363322.shtml)
+- 2026-06-29 15:02 - [北极荒岛生存挑战](http://www.blog.minike.top/Article/details/3367738.shtml)
+- 2026-06-29 15:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/141075964.shtml)

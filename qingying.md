@@ -1,58 +1,52 @@
-# 长江有色：国内产销两端低温及强美元施压 20日铜价或下跌
+# 威胜控股：惟远能源新增海外业务合约总金额超人民币16亿元
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-长江有色金属网 长江铜价copper.ccmn.cn短评：美指走强与美股下挫双力施压，隔夜伦铜跌超1%；进口铜到港冲击国产消费，高价抑制及票务影响，产销两端低活跃，利空铜价，今现铜或下跌。 【铜期货市场】美指走强与美股下挫双力施压，隔夜伦铜偏弱收阴，最新收盘报价13427美元/吨，收跌163美元，跌幅1.20%，成交量19704手减少4408手，持仓量276552手减少6463
+威胜控股（03393）发布公告，本公司的附属公司惟远能源技术股份有限公司（惟远能源）于2026年截至本公告日期间新增海外业务合约总金额超人民币16亿元，主要涵盖数据中心关键基础设施及相关解决方案，以及重合器等海外配电产品。 该等海外订单的快速增长，充分彰显本集团在海外数据中心市场的核心竞争力以及海外配电市场的拓展成效，符合本集团全球化战略布局，亦反映国际市场对本集团技术实力与交
 
 ## 正文
 
-长江有色金属网 长江铜价copper.ccmn.cn短评：美指走强与美股下挫双力施压，隔夜伦铜跌超1%；进口铜到港冲击国产消费，高价抑制及票务影响，产销两端低活跃，利空铜价，今现铜或下跌。
+威胜控股（03393）发布公告，本公司的附属公司惟远能源技术股份有限公司（惟远能源）于2026年截至本公告日期间新增海外业务合约总金额超人民币16亿元，主要涵盖数据中心关键基础设施及相关解决方案，以及重合器等海外配电产品。
 
-【铜期货市场】美指走强与美股下挫双力施压，隔夜伦铜偏弱收阴，最新收盘报价13427美元/吨，收跌163美元，跌幅1.20%，成交量19704手减少4408手，持仓量276552手减少6463手；晚间沪铜弱势震荡，主力月2606合约最新收盘价报103670元/吨，跌740元，跌幅0.71%。
+该等海外订单的快速增长，充分彰显本集团在海外数据中心市场的核心竞争力以及海外配电市场的拓展成效，符合本集团全球化战略布局，亦反映国际市场对本集团技术实力与交付能力的高度认可。
 
-伦敦金属交易所（LME）5月19日伦铜最新库存量报394675公吨，较上个交易日增加1275公吨，涨幅0.32%。
+董事会认为，上述订单的取得，进一步巩固了本集团在数据中心基础设施领域的领先地位，将有助提升本集团未来收入基础，并对本集团2026年度的经营业绩产生积极影响。
 
-长江铜业网讯：今日沪铜主力 2606合约早盘低开，09：00最新开盘价报 103740 元/吨，跌670 元。
-
-宏观层面，美股周二全线收跌，道指、标普500及纳指分别下挫0.65%、0.67%和0.84%。
-
-尽管特朗普表示因伊朗提出新方案而推迟军事打击，且副总统万斯透露双方谈判取得进展，但市场对通胀的忧虑不减。
-
-10年期美债收益率一度攀升至4.687%，创下2025年1月以来新高。
-
-受此影响，交易员已开始计入美联储加息预期，芝商所FedWatch工具显示，12月加息25个基点和50个基点的概率已分别升至41.7%和15.7%。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:57 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 14:54 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 15:14 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 15:06 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 14:53 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 15:16 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 14:49 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 14:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 14:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 14:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 15:09 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 15:12 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 15:00 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 14:57 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 14:58 - [医药股集体爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 15:16 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 15:15 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 15:21 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 15:06 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 15:04 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 15:23 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 15:19 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 15:03 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 15:11 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 15:09 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 15:00 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:17 - [手游300亿数据或被军事化运用](http://www.blog.minike.top/Article/details/49718429.shtml)
-- 2026-06-29 15:04 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/7308805445.shtml)
-- 2026-06-29 14:50 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/863529954045.shtml)
-- 2026-06-29 14:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/7033884.shtml)
-- 2026-06-29 15:11 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/21514270.shtml)
-- 2026-06-29 15:07 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/656300199.shtml)
-- 2026-06-29 15:15 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/763248849348.shtml)
-- 2026-06-29 15:02 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/40669.shtml)
-- 2026-06-29 15:13 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/548130143561.shtml)
-- 2026-06-29 14:55 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/3887789525.shtml)
-- 2026-06-29 14:53 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/33307164974.shtml)
-- 2026-06-29 15:12 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/84694400925.shtml)
-- 2026-06-29 14:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/426097961.shtml)
-- 2026-06-29 15:02 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/83716538964.shtml)
-- 2026-06-29 15:10 - [四川宜宾地震](http://www.blog.kurohicncr.top/Article/details/3441595.shtml)
+- 2026-06-29 15:02 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/43599566.shtml)
+- 2026-06-29 15:11 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/6623549.shtml)
+- 2026-06-29 15:16 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/845566.shtml)
+- 2026-06-29 15:20 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/838313206422.shtml)
+- 2026-06-29 15:11 - [恋与深空底线不该被娱乐化](https://www.blog.kurohicncr.top/Article/details/930993746562.shtml)
+- 2026-06-29 14:55 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/6709990.shtml)
+- 2026-06-29 14:55 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/08569.shtml)
+- 2026-06-29 15:14 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/75550.shtml)
+- 2026-06-29 15:21 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/18038542.shtml)
+- 2026-06-29 15:20 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/41310583307.shtml)
+- 2026-06-29 15:12 - [5万块的威力](http://www.share.minike.top/Article/details/67926974.shtml)
+- 2026-06-29 15:14 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/807028.shtml)
+- 2026-06-29 15:10 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/1027235.shtml)
+- 2026-06-29 15:04 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/46324334.shtml)
+- 2026-06-29 14:54 - [端午节加班工资应该怎么算](https://www.blog.minike.top/Article/details/798533311521.shtml)

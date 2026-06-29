@@ -1,58 +1,56 @@
-# 港股硬科技强势反攻！规模最大港股通信息技术ETF华宝（159131）直线冲高2%，中芯国际大涨7%
+# 中国音乐学院原创歌剧《摇篮》首演 呈现跨越百年的精神对话
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-5月20日，港股硬科技在连续4日下跌后迎来反攻，中芯国际、华虹半导体分别大涨超7%、6%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格直线冲高一度涨逾2%，实时成交额1.6亿元。 港股硬科技的反攻具备基本面硬核支撑。以芯片龙头中芯国际为例，中芯国际1Q26营收25.1亿美元，环比增0.7%，毛利率20.1%，环比增0.9ppts，均好于市场预期。
+中新网北京5月25日电 (记者 应妮)“山路宛转脚步急，山风呼啸展红旗，子弹在膛枪在手，长途奔袭向胜利。”5月23、24日，由中国音乐学院、中共吉安市委宣传部、江西文演集团联合出品的原创歌剧《摇篮》在国家大剧院完成首轮演出。 歌剧《摇篮》讲述了黄洋界保卫战期间，党代表张永清在平定叛乱、指挥作战中冒死坚守，以血肉之躯践行革命信仰、守护井冈山星火摇篮的故事。 作为该剧总策划、艺术总
 
 ## 正文
 
-5月20日，港股硬科技在连续4日下跌后迎来反攻，中芯国际、华虹半导体分别大涨超7%、6%。
+中新网北京5月25日电 (记者 应妮)“山路宛转脚步急，山风呼啸展红旗，子弹在膛枪在手，长途奔袭向胜利。
 
-同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格直线冲高一度涨逾2%，实时成交额1.6亿元。
+”5月23、24日，由中国音乐学院、中共吉安市委宣传部、江西文演集团联合出品的原创歌剧《摇篮》在国家大剧院完成首轮演出。
 
-港股硬科技的反攻具备基本面硬核支撑。
+歌剧《摇篮》讲述了黄洋界保卫战期间，党代表张永清在平定叛乱、指挥作战中冒死坚守，以血肉之躯践行革命信仰、守护井冈山星火摇篮的故事。
 
-以芯片龙头中芯国际为例，中芯国际1Q26营收25.1亿美元，环比增0.7%，毛利率20.1%，环比增0.9ppts，均好于市场预期。
+作为该剧总策划、艺术总监与指挥，中国音乐学院院长李心草在创作过程中坚持“人声就是最好的乐器，剧场就是最好的音响”的创作理念。
 
-交银国际分析认为，其中晶圆代工业务综合价格环比升2.5%，或是主要驱动因素。
+因此，该剧在作曲配器、舞美设计、舞台调度等多方面采用无扩声的演出形式，旨在探索兼具中国民族声乐特色、符合国际行业通用标准的舞台呈现范式，为中国歌剧走向国际打造可复制、可参考的传播样本。
 
-AI推动需求端增长明显提升： 1）作为AI基础设施的支持电路（例如PMIC产品）供不应求；2）海外厂商产能转移到与AI相关的高利润率产品后产生虹吸效应，部分消费类产品回流到公司产线；3）AI产品的新应用，包括ToF（飞行时间传感器）、机器人、电动汽车需求上升；4）在整体供应紧张条件下国产厂商寻求国产解决方案。
+演出中，演员依托扎实的声乐功底，真切还原革命岁月的赤诚质感，仅凭人声，直抵人心，生动诠释悲壮坚守的红色情怀与温暖纯粹的家国初心，完成一场跨越百年的精神对话。
 
-AI驱动供应链供不应求或强于市场之前预期。
+在音乐方面，中国音乐学院作曲系教授胡廷江将江西民歌的地域元素与歌剧的交响性巧妙结合，张永清领唱与合唱《红米饭，南瓜汤》的旋律和复调编配，既保留了江西民谣独有的乡土气息，又兼具交响的厚重与层次感。
 
-自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数累计涨幅22.66%，同期恒生科技、港股通科技的涨幅分别为3.57%、1.65%，锐度和弹性显著领先。
+演出中既有抒情婉转的小调，诉说军民鱼水情的温婉；也有激昂厚重的乐章，彰显着革命战士的坚定信念。
 
 ## 相关推荐
 
-- 2026-06-29 15:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 15:10 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 15:17 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 15:05 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 14:57 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 15:00 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 14:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 15:04 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 15:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 14:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 15:13 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 15:00 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 15:12 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 15:15 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 15:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 15:05 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 15:16 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 15:06 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 14:58 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 15:18 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 15:13 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 15:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:15 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.minike.top/Article/details/502940041.shtml)
-- 2026-06-29 15:03 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/6907597358.shtml)
-- 2026-06-29 15:05 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/08338593698.shtml)
-- 2026-06-29 15:09 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/395710.shtml)
-- 2026-06-29 15:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/77674642096.shtml)
-- 2026-06-29 14:54 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/074359870.shtml)
-- 2026-06-29 15:13 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/602599386340.shtml)
-- 2026-06-29 14:58 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/309626211295.shtml)
-- 2026-06-29 14:57 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/319085309.shtml)
-- 2026-06-29 14:56 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/89341.shtml)
-- 2026-06-29 15:10 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/8124420.shtml)
-- 2026-06-29 14:53 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/8874605990.shtml)
-- 2026-06-29 15:15 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/0791011.shtml)
-- 2026-06-29 14:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/65989.shtml)
-- 2026-06-29 15:13 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.minike.top/Article/details/62567122.shtml)
+- 2026-06-29 15:10 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/20165.shtml)
+- 2026-06-29 15:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/852082350.shtml)
+- 2026-06-29 15:09 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/63636.shtml)
+- 2026-06-29 15:11 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/903543.shtml)
+- 2026-06-29 15:09 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/4033454.shtml)
+- 2026-06-29 15:12 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/57754.shtml)
+- 2026-06-29 15:01 - [TLAW vs DCG MSI](http://www.share.minike.top/Article/details/83226892698.shtml)
+- 2026-06-29 15:05 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/880015.shtml)
+- 2026-06-29 15:16 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/55630008.shtml)
+- 2026-06-29 15:08 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/8741801.shtml)
+- 2026-06-29 15:22 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/03293.shtml)
+- 2026-06-29 15:07 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/586681542837.shtml)
+- 2026-06-29 15:10 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/825084781283.shtml)
+- 2026-06-29 15:02 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/68508516.shtml)
+- 2026-06-29 15:09 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/68970122028.shtml)

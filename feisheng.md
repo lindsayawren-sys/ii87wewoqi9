@@ -1,61 +1,56 @@
-# 大额期权豪赌英伟达两周大涨16% 业绩预期依旧乐观
+# 千倍PE股冰火两重天：“科技牛”催生高估值，绩差股被动飙升
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-据期权持仓数据显示，交易员预估英伟达在周三公布一季度财报后，其市值或将出现3550亿美元的波动幅度。市场依旧看好这家AI巨头，同时也急于锁定收益、做好盈利保护。 市场期权定价显示，英伟达财报出炉次日（周四）股价双向波动幅度约为6.5%。 对应市值波动规模约3500亿美元，远超标普500指数中约九成成分股的单独市值。 期权研究与技术服务公司（ORATS）数据显示，此番波动预期高于
+电子行业以15家居首位，成为千倍以上估值最集中的板块。 本轮科技主线行情中，AI等赛道获资金高度聚焦，多只科技股估值抬升，动态市盈率突破千倍。 截至5月26日收盘，A股市场有63家公司市盈率PE（TTM，下同）超过1000倍。这些公司中，电子行业以15家居首位，成为高估值个股最集中的板块。部分AI、半导体等硬科技公司受益于行业景气度上行与资金抱团，股价大幅上涨、估值主动抬升。
 
 ## 正文
 
-据期权持仓数据显示，交易员预估英伟达在周三公布一季度财报后，其市值或将出现3550亿美元的波动幅度。
+电子行业以15家居首位，成为千倍以上估值最集中的板块。
 
-市场依旧看好这家AI巨头，同时也急于锁定收益、做好盈利保护。
+本轮科技主线行情中，AI等赛道获资金高度聚焦，多只科技股估值抬升，动态市盈率突破千倍。
 
-市场期权定价显示，英伟达财报出炉次日（周四）股价双向波动幅度约为6.5%。
+截至5月26日收盘，A股市场有63家公司市盈率PE（TTM，下同）超过1000倍。
 
-对应市值波动规模约3500亿美元，远超标普500指数中约九成成分股的单独市值。
+这些公司中，电子行业以15家居首位，成为高估值个股最集中的板块。
 
-期权研究与技术服务公司（ORATS）数据显示，此番波动预期高于其2月财报前夕5.6%的隐含波动幅度，但仍远低于英伟达7.6%的历史平均股价波动水平。
+部分AI、半导体等硬科技公司受益于行业景气度上行与资金抱团，股价大幅上涨、估值主动抬升。
 
-这意味着，尽管市场长期担忧全行业大规模AI资本开支难以为继，但投资者如今对英伟达财报心态愈发趋于乐观。
+另有一批公司年内股价持续下行，却因净利润大幅萎缩、主业疲软，在“分母效应”下PE被动推高至千倍。
 
-ORATS创始人Matt Amberson表示：“投资者如今对人工智能赛道及相关资本开支行情已然趋于放松懈怠。
+这类高估值并非市场认可，而是基本面恶化的失真结果。
 
-” 部分单笔交易凸显出市场强烈看涨情绪，押注英伟达业绩再度超预期。
+其中，市盈率高达1568倍的*ST沪科（维权）（600608.SH）即将退市，已收到拟终止股票上市事先告知书。
 
 ## 相关推荐
 
-- 2026-06-29 15:04 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 15:17 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 14:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 14:58 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 14:52 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 15:15 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 14:51 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 15:15 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 14:50 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 15:15 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 14:59 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 14:50 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 15:11 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 15:03 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 15:07 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 15:05 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 15:21 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 15:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 15:23 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 14:59 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 14:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 14:59 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 15:18 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 15:19 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 14:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/7001066509.shtml)
-- 2026-06-29 15:16 - [第一炉香](http://www.share.minike.top/Article/details/03739711097.shtml)
-- 2026-06-29 15:07 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/1893019180.shtml)
-- 2026-06-29 15:01 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/264951.shtml)
-- 2026-06-29 14:57 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/1703362.shtml)
-- 2026-06-29 14:57 - [Agent带来token消耗爆炸](https://www.share.minike.top/Article/details/7262860.shtml)
-- 2026-06-29 14:54 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/3712344987.shtml)
-- 2026-06-29 15:08 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/769863153.shtml)
-- 2026-06-29 15:09 - [实习期把公司领导开除了](https://www.share.minike.top/Article/details/41661.shtml)
-- 2026-06-29 15:01 - [斗破苍穹](https://www.share.minike.top/Article/details/084317316.shtml)
-- 2026-06-29 15:08 - [美人鱼](https://www.blog.minike.top/Article/details/68119.shtml)
-- 2026-06-29 14:56 - [斗破苍穹](https://www.blog.minike.top/Article/details/98112265.shtml)
-- 2026-06-29 15:10 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/702384602.shtml)
-- 2026-06-29 15:16 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/023974490.shtml)
-- 2026-06-29 15:12 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/334381409.shtml)
+- 2026-06-29 15:02 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/703709461462.shtml)
+- 2026-06-29 14:59 - [流金岁月](http://www.share.kurohicncr.top/Article/details/14491.shtml)
+- 2026-06-29 14:57 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.minike.top/Article/details/7546206.shtml)
+- 2026-06-29 15:19 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/65433460667.shtml)
+- 2026-06-29 15:11 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/349620728590.shtml)
+- 2026-06-29 15:15 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/493634.shtml)
+- 2026-06-29 15:19 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/2115608.shtml)
+- 2026-06-29 15:13 - [比亚迪为什么卖得越多市值越低](https://www.blog.kurohicncr.top/Article/details/4626215938.shtml)
+- 2026-06-29 15:05 - [84岁英国教授成中国网红](http://www.blog.minike.top/Article/details/5320828754.shtml)
+- 2026-06-29 15:12 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.minike.top/Article/details/1866752614.shtml)
+- 2026-06-29 14:57 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/9621748.shtml)
+- 2026-06-29 15:17 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/70539.shtml)
+- 2026-06-29 15:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/144912446602.shtml)
+- 2026-06-29 15:07 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/76865727640.shtml)
+- 2026-06-29 15:04 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/9329636.shtml)

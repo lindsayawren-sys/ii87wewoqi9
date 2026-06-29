@@ -1,56 +1,57 @@
-# 【蓝厅见】“分量十足” 普京总统今日将开启第25次访华
+# 从“看天”到“看屏”：云南茶咖产业共谱数智新篇
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 20:32 来源：中国新闻网 5月19日，俄罗斯总统普京将正式开启第25次访华之行。访华前夕，俄总统助理乌沙科夫透露，此次随行代表团阵容十分强大，不仅有五位副总理、八位政府部长，还有地方官员和各大企业代表一同来华。普京总统在出访前的视频讲话中指出，俄罗斯与中国对未来充满信心，将一道积极发展政治、经济等领域的联系，扩大人文交流，鼓励民间往来。 当
+中新网云南保山5月26日电 题：从“看天”到“看屏”：云南茶咖产业共谱数智新篇 作者 时文枝 时下，随着气温攀升，在云南省保山市潞江镇的辛家山千亩精品咖啡示范基地(以下简称基地)内，频繁升空的无人机穿梭于咖啡林间，开展病虫害巡检工作。 “当前仍是病虫害高发期。”基地负责人杨江春日前受访时称，依托AI大数据模型分析，该基地近日已人工投放三万余只花绒寄甲和管氏肿腿蜂，精准防治天牛虫
 
 ## 正文
 
-发布时间：2026年05月19日 20:32 来源：中国新闻网 5月19日，俄罗斯总统普京将正式开启第25次访华之行。
+中新网云南保山5月26日电 题：从“看天”到“看屏”：云南茶咖产业共谱数智新篇 作者 时文枝 时下，随着气温攀升，在云南省保山市潞江镇的辛家山千亩精品咖啡示范基地(以下简称基地)内，频繁升空的无人机穿梭于咖啡林间，开展病虫害巡检工作。
 
-访华前夕，俄总统助理乌沙科夫透露，此次随行代表团阵容十分强大，不仅有五位副总理、八位政府部长，还有地方官员和各大企业代表一同来华。
+“当前仍是病虫害高发期。
 
-普京总统在出访前的视频讲话中指出，俄罗斯与中国对未来充满信心，将一道积极发展政治、经济等领域的联系，扩大人文交流，鼓励民间往来。
+”基地负责人杨江春日前受访时称，依托AI大数据模型分析，该基地近日已人工投放三万余只花绒寄甲和管氏肿腿蜂，精准防治天牛虫害。
 
-当前，国际局势复杂多变，动荡因素层出不穷，但中俄之间始终坚持不结盟、不对抗、不针对第三方的发展道路，双边关系始终保持高水平稳步发展，在2026年全国两会期间，中国外交部长王毅用“风雨不动安如山”形容当前的中俄关系。
+云南是中国最大的咖啡产区，种植面积和产量均占全国98%以上。
 
-从2025年中俄互免签证顺利落地，“中俄文化年”圆满收官，再到如今各类民间往来愈发火热，两国情谊愈发深厚，中俄树立了永久睦邻友好、全面战略协作、互利合作共赢的大国关系典范。
+潞江镇是云南重要咖啡产地之一，以优质小粒咖啡闻名，但当地多为山地地形，种植环境复杂、管理粗放等问题长期困扰咖农咖企。
 
-今年适逢中俄战略协作伙伴关系建立30周年，《中俄睦邻友好合作条约》签署25周年，我们也期望通过普京总统此访，能够为中俄双边关系注入更多正能量，为世界和平发展增添更多确定性。
+“传统方式难以为继，尤其是病虫害防控，往往发现时已大面积扩散。
 
-(记者 刘世炯） 责任编辑：【李季】
+”杨江春说。
+
+为破解困局，2024年基地引入由中国移动云南公司保山分公司联合保山学院、浙江理工大学、西北工业大学等多所高校打造的“云智农链”平台。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 15:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 15:09 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 15:00 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 14:54 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 15:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 14:51 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 14:49 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 15:14 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 14:57 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 14:49 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 14:53 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 15:21 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 14:57 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 15:00 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 15:23 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 15:00 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 15:06 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 15:17 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 15:06 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 14:58 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 15:05 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 14:56 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/56228645.shtml)
-- 2026-06-29 15:17 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/66293.shtml)
-- 2026-06-29 15:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/45644019.shtml)
-- 2026-06-29 15:04 - [毒液2](https://www.share.kurohicncr.top/Article/details/923545744570.shtml)
-- 2026-06-29 15:06 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/9011896365.shtml)
-- 2026-06-29 14:52 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/472491573087.shtml)
-- 2026-06-29 14:52 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/86929740.shtml)
-- 2026-06-29 14:53 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/4435990.shtml)
-- 2026-06-29 14:50 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/017317.shtml)
-- 2026-06-29 14:50 - [A股](http://www.share.kurohicncr.top/Article/details/335140137228.shtml)
-- 2026-06-29 15:16 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/1101341.shtml)
-- 2026-06-29 14:56 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/3077999.shtml)
-- 2026-06-29 15:12 - [第一炉香](https://www.share.minike.top/Article/details/308031841336.shtml)
-- 2026-06-29 15:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/5170642959.shtml)
-- 2026-06-29 14:55 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/6093882.shtml)
+- 2026-06-29 15:07 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/4936347425.shtml)
+- 2026-06-29 14:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/971372462706.shtml)
+- 2026-06-29 15:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/52433121445.shtml)
+- 2026-06-29 14:55 - [女生雨天开车发现雨刮条被掰走](https://www.blog.kurohicncr.top/Article/details/08563998.shtml)
+- 2026-06-29 15:10 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/08055.shtml)
+- 2026-06-29 15:19 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/700825904.shtml)
+- 2026-06-29 15:12 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/65870.shtml)
+- 2026-06-29 15:07 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/236652168786.shtml)
+- 2026-06-29 15:07 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/7366080.shtml)
+- 2026-06-29 15:08 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/139920238.shtml)
+- 2026-06-29 15:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/4476123.shtml)
+- 2026-06-29 14:55 - [明星大侦探第四季](http://www.share.minike.top/Article/details/116525.shtml)
+- 2026-06-29 15:15 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/3533660415.shtml)
+- 2026-06-29 15:08 - [毒液2](http://www.blog.kurohicncr.top/Article/details/46275281389.shtml)
+- 2026-06-29 15:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/38089583.shtml)

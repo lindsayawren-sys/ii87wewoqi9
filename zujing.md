@@ -1,56 +1,52 @@
-# 水利建设投资连续4年超万亿元 下一步还有哪些重大部署？
+# 《太平年》《归队》等作品入围第31届白玉兰奖
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-如今，一条条调水线穿行群山，一座座大坝耸立江河，国家水网主骨架和大动脉正逐步完善。当前和今后一个时期国家水网建设还将有哪些重大部署，对于稳增长、扩内需又有什么重要意义？ 国家水网建设，是当前和今后一个时期扩内需、稳投资的重要载体和抓手，具有吸纳投资大、产业链条长、创造就业多的优势。2025年，全国完成水利建设投资12848亿元，连续4年超万亿元，“十四五”时期全国累计完成水利建
+中新网北京5月26日电 (记者 高凯)第31届白玉兰奖26日正式公布入围名单，在中国电视剧单元中，包括《老舅》《太平年》《无尽的尽头》《小城大事》《刑警的日子》《隐身的名字》《归队》《扫毒风暴》等作品入围。在入围最佳中国电视剧奖项的作品中，《老舅》以小人物折射大情怀，通过老舅永不言弃的奋斗精神传递出时代蓬勃发展的生命力；《太平年》则以乱世中的人物抉择与家国情怀搭建古今联结，深刻
 
 ## 正文
 
-如今，一条条调水线穿行群山，一座座大坝耸立江河，国家水网主骨架和大动脉正逐步完善。
+中新网北京5月26日电 (记者 高凯)第31届白玉兰奖26日正式公布入围名单，在中国电视剧单元中，包括《老舅》《太平年》《无尽的尽头》《小城大事》《刑警的日子》《隐身的名字》《归队》《扫毒风暴》等作品入围。
 
-当前和今后一个时期国家水网建设还将有哪些重大部署，对于稳增长、扩内需又有什么重要意义？
+在入围最佳中国电视剧奖项的作品中，《老舅》以小人物折射大情怀，通过老舅永不言弃的奋斗精神传递出时代蓬勃发展的生命力；《太平年》则以乱世中的人物抉择与家国情怀搭建古今联结，深刻体现中华文明突出特性，播出后迅速掀起全民读史热潮，更以热播效应引发“影视+文旅”的双向奔赴。
 
-国家水网建设，是当前和今后一个时期扩内需、稳投资的重要载体和抓手，具有吸纳投资大、产业链条长、创造就业多的优势。
+在创作者方面，《太平年》尤其表现出色，该剧导演杨磊、陆贝珂入围最佳导演，演员白宇入围最佳男主角，演员董勇、演员朱亚文入围最佳男配角，董哲入围最佳编剧(原创)，摄影指导刘屹、吴蕾入围最佳摄影，美术指导邵昌勇、邵磊入围最佳美术。
 
-2025年，全国完成水利建设投资12848亿元，连续4年超万亿元，“十四五”时期全国累计完成水利建设投资56841亿元，是“十三五”时期的1.6倍，有效发挥了稳增长、促发展作用。
+此外，多部在播出中收获好评的现实题材剧集亦喜获入围，《老舅》演员郭京飞入围最佳男主角；《无尽的尽头》演员任素汐入围最佳女主角；《小城大事》演员朱媛媛入围最佳女配角；《刑警的日子》编剧某小丫，《隐身的名字》编剧唐方园、杨阳，《小城大事》编剧袁克平、孙皓、黄苇、马健入围最佳编剧(改编)；《归队》编剧高满堂、李立、汝盛、李洲入围最佳编剧(原创)；《扫毒风暴》摄影指导柴然入围最佳摄影。
 
-水利部规划计划司副司长 杨威：“十五五”时期，水利部将组织实施一批重大水利工程，加快建设现代化水网，完善水资源配置和供水保障体系，加快构建国家水网主骨架和大动脉，推进南水北调后续工程高质量发展，基本建成中线引江补汉工程，建设东线二期工程，实施灌区现代化建设与改造，夯实粮食稳产增产水利基石。
+白玉兰奖由国家广播电视总局、中央广播电视总台、上海市人民政府主办，系国际性电视奖项。
 
-水利部水利水电规划设计总院副院长 李云玲：水网建设直接拉动有效投资，形成长期增长动力，已成为扩内需、稳增长的重要载体。
-
-带动上下游产业链，激活多元市场活力，可以拉动建筑材料、土木施工、机械装备等传统产业发展。
-
-专家表示，部分水网工程兼具交通运输、生态环保、旅游景观等功能，可以带动旅游、康养产业发展，催生文旅融合的新增长点。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:52 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 15:02 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 14:48 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 15:05 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 14:52 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 14:59 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 15:07 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 14:57 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 14:58 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 15:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 15:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 15:11 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 15:05 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 15:13 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 15:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 15:23 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 14:56 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 15:05 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 15:07 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 14:58 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:53 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/620713236.shtml)
-- 2026-06-29 14:51 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/62800.shtml)
-- 2026-06-29 14:56 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/7828275.shtml)
-- 2026-06-29 15:09 - [逃狱兄弟](http://www.share.minike.top/Article/details/32976.shtml)
-- 2026-06-29 14:59 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/321642696.shtml)
-- 2026-06-29 14:58 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/6770114.shtml)
-- 2026-06-29 15:13 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/878742.shtml)
-- 2026-06-29 15:00 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/65197639485.shtml)
-- 2026-06-29 15:05 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/0965282.shtml)
-- 2026-06-29 14:50 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/0261855.shtml)
-- 2026-06-29 15:08 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.minike.top/Article/details/2156722.shtml)
-- 2026-06-29 15:01 - [流金岁月](http://www.share.minike.top/Article/details/2103582.shtml)
-- 2026-06-29 14:58 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/53970246926.shtml)
-- 2026-06-29 15:05 - [扫黑风暴](https://www.share.minike.top/Article/details/5183518595.shtml)
-- 2026-06-29 14:52 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/57851.shtml)
+- 2026-06-29 14:57 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/31976612122.shtml)
+- 2026-06-29 15:10 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/791653425.shtml)
+- 2026-06-29 15:20 - [日本主帅：对战胜巴西很有信心](https://www.blog.kurohicncr.top/Article/details/62867213.shtml)
+- 2026-06-29 15:19 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/39706623.shtml)
+- 2026-06-29 15:18 - [5万块的威力](http://www.share.minike.top/Article/details/10897.shtml)
+- 2026-06-29 15:10 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/569099.shtml)
+- 2026-06-29 15:22 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/16101623.shtml)
+- 2026-06-29 15:04 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/659977536300.shtml)
+- 2026-06-29 14:58 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/671678518.shtml)
+- 2026-06-29 15:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/83861316.shtml)
+- 2026-06-29 15:15 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/41768.shtml)
+- 2026-06-29 15:10 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/33272.shtml)
+- 2026-06-29 15:18 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/84759.shtml)
+- 2026-06-29 15:05 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/00803036669.shtml)
+- 2026-06-29 15:11 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/913781.shtml)

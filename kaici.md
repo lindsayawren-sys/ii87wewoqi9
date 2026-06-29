@@ -1,59 +1,51 @@
-# 传记《一代传奇陈翰笙》推出 全景呈现传主人生轨迹
+# 中法“青年使者学习交流计划”数字商业与跨境电商创新交流活动在广东湛江举行
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网北京5月19日电 (记者 应妮)传记作品《一代传奇陈翰笙：学术与革命的双重人生》日前由三联书店出版，该书作者美国历史学家史蒂芬·R.麦金农历时四十余年，遍访当事人、挖掘多国档案，首次完整呈现了这位知识分子鲜活立体的生命轨迹。 陈翰笙(1897—2004)一生涉猎广泛，研究成果广博。他既是一个心怀共产主义理念且自觉践行的革命家，又是一个在中国农村经济与社会、亚太区域历史、政
+中新网湛江5月25日电 (梁盛 赵宇清)2026年中法“青年使者学习交流计划(YES项目)”数字商业与跨境电商创新交流活动，25日在岭南师范学院举行，15名法国巴黎东大学学员与岭南师范学院师生代表一起交流互动。 “青年使者学习交流计划(YES项目)”是中国响应扩大国际青少年交流倡议设立的重要计划，旨在为美国、澳大利亚、法国等国家的非中国籍青少年，提供来华短期学习与文化交流平台，
 
 ## 正文
 
-中新网北京5月19日电 (记者 应妮)传记作品《一代传奇陈翰笙：学术与革命的双重人生》日前由三联书店出版，该书作者美国历史学家史蒂芬·R.麦金农历时四十余年，遍访当事人、挖掘多国档案，首次完整呈现了这位知识分子鲜活立体的生命轨迹。
+中新网湛江5月25日电 (梁盛 赵宇清)2026年中法“青年使者学习交流计划(YES项目)”数字商业与跨境电商创新交流活动，25日在岭南师范学院举行，15名法国巴黎东大学学员与岭南师范学院师生代表一起交流互动。
 
-陈翰笙(1897—2004)一生涉猎广泛，研究成果广博。
+“青年使者学习交流计划(YES项目)”是中国响应扩大国际青少年交流倡议设立的重要计划，旨在为美国、澳大利亚、法国等国家的非中国籍青少年，提供来华短期学习与文化交流平台，增进相互理解与跨文化交流能力。
 
-他既是一个心怀共产主义理念且自觉践行的革命家，又是一个在中国农村经济与社会、亚太区域历史、政治与外交关系等领域都留下开拓性研究业绩的渊博学者。
+岭南师范学院党委副书记林晓敏介绍，本此活动为期7天，紧扣人工智能赋能数字经济前沿趋势，将“热带农业+跨境电商+数字营销”的湛江实践作为核心教学案例，学员们将走进湛江廉江家电产业带、国联水产、吴川塑料鞋出口基地等跨境出海企业，实地了解中国县域跨境电商与乡村振兴的融合发展成果，并近距离观摩无人机、智能机械臂等前沿技术应用，感受AI赋能电商与物流的产业变革。
 
-他的人生充满传奇，既是中国社会科学的重要奠基者，也在与佐尔格、尾崎秀实、史沫特莱等人的交往中，做了许多革命地下工作。
+法方带队老师王子燕表示，本次活动搭建起中法青年学术互通、文明互鉴的坚实桥梁，期待法国学员依托项目平台深化学术交流与文化互动，亲身实践、深度体验，读懂真实鲜活的中国，在交流中拓宽视野、收获成长。
 
-美国学者麦金农从1979年开始，对陈翰笙本人、家人和同事进行采访，并对文件、著作和档案进行了详尽考察，以全面理解陈翰笙和他的世界。
-
-全书系统梳理陈翰笙跨越三个世纪的传奇人生轨迹，深度呈现20世纪上半叶中国知识分子在民族危亡之际，以学术为武器、以革命为使命的艰难求索与崇高信仰，并依托大量首次公开的共产国际档案、太平洋国际学会原始文献、陈翰笙生前口述记录及亲友回忆资料，全景式还原了陈翰笙从留美博士到马克思主义社会科学奠基人，从秘密革命工作者到国际反法西斯斗士的波澜壮阔一生，填补了国内关于陈翰笙综合研究的诸多空白。
-
-该书责任编辑卫纯回溯了陈翰笙与三联书店的历史渊源，三联书店旗下的“新知书店”脱胎于中国农村经济研究会，该研究会是在陈翰笙的影响下，集结了钱俊瑞、孙冶方等一批经济学家，他们的学术理念受到陈翰笙的深刻影响。
-
-而后这批人创办新知书店并接盘出版《中国农村》月刊，书店和杂志选题运作也都受到陈翰笙的巨大影响。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 15:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 15:05 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 14:51 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 14:54 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 14:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 15:16 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 14:59 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 14:57 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 15:02 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 15:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 15:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 14:55 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 14:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 15:23 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 15:22 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 15:01 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 15:09 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 15:14 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 15:07 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 14:55 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 15:15 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 15:16 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 14:58 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:57 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/7703669228.shtml)
-- 2026-06-29 15:03 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/502080.shtml)
-- 2026-06-29 14:53 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/5257516.shtml)
-- 2026-06-29 14:50 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.kurohicncr.top/Article/details/913403682178.shtml)
-- 2026-06-29 15:02 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/765070496.shtml)
-- 2026-06-29 15:14 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/65357209960.shtml)
-- 2026-06-29 14:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/28459.shtml)
-- 2026-06-29 14:51 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/958635.shtml)
-- 2026-06-29 15:14 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/75234.shtml)
-- 2026-06-29 15:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/530950235967.shtml)
-- 2026-06-29 15:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/5969291.shtml)
-- 2026-06-29 14:59 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/43959772.shtml)
-- 2026-06-29 14:57 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/61541323350.shtml)
-- 2026-06-29 14:49 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/13222577142.shtml)
-- 2026-06-29 14:56 - [我和我的家乡](https://www.blog.minike.top/Article/details/57844462351.shtml)
+- 2026-06-29 15:20 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/92561325620.shtml)
+- 2026-06-29 15:22 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/1284019160.shtml)
+- 2026-06-29 15:20 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/4298006646.shtml)
+- 2026-06-29 15:13 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/11872869.shtml)
+- 2026-06-29 15:08 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/22314846.shtml)
+- 2026-06-29 15:15 - [吴磊爱上回收了](http://www.blog.minike.top/Article/details/91426.shtml)
+- 2026-06-29 15:14 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/122646067205.shtml)
+- 2026-06-29 15:20 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/418303768.shtml)
+- 2026-06-29 15:21 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/627153.shtml)
+- 2026-06-29 15:17 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/852909.shtml)
+- 2026-06-29 15:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/8774843.shtml)
+- 2026-06-29 15:02 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/52997845.shtml)
+- 2026-06-29 15:23 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/649132543665.shtml)
+- 2026-06-29 15:14 - [东部机场集团新增釜山航线](https://www.share.kurohicncr.top/Article/details/779761641.shtml)
+- 2026-06-29 14:59 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/2835960.shtml)

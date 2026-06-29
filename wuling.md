@@ -1,57 +1,56 @@
-# 5月19日至21日海南岛东南半部仍有强降水天气
+# 青海：学法普法，夯实民族工作法治根基
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网海口5月19日电 (记者 王子谦)记者19日上午从海南省气象台了解到，18日8时～19日8时，海南岛东南部和北部局地出现强降雨天气。预计19日～21日，海南岛东南半部地区强降水天气仍将持续。 受偏南急流影响，5月18日8时～19日8时，海南岛东南部和北部局地出现暴雨到大暴雨、局地特大暴雨，其中陵水、保亭、万宁等5个市县共16个乡镇(区)雨量超过200毫米，陵水、保亭和万宁
+青海省以铸牢中华民族共同体意识为主线，统筹推进《中华人民共和国民族团结进步促进法》(以下简称“民族团结进步促进法”)的学习宣传贯彻工作，全面夯实民族工作法治根基，持续提升民族事务治理体系和治理能力现代化水平。以普法宣传为抓手，夯实依法治理的思想基础。健全常态化学习教育机制，将民族团结进步促进法纳入各级党委(党组)理论学习、“第一议题”学习和干部教育培训必修课程，实现全员学习、常
 
 ## 正文
 
-中新网海口5月19日电 (记者 王子谦)记者19日上午从海南省气象台了解到，18日8时～19日8时，海南岛东南部和北部局地出现强降雨天气。
+青海省以铸牢中华民族共同体意识为主线，统筹推进《中华人民共和国民族团结进步促进法》(以下简称“民族团结进步促进法”)的学习宣传贯彻工作，全面夯实民族工作法治根基，持续提升民族事务治理体系和治理能力现代化水平。
 
-预计19日～21日，海南岛东南半部地区强降水天气仍将持续。
+以普法宣传为抓手，夯实依法治理的思想基础。
 
-受偏南急流影响，5月18日8时～19日8时，海南岛东南部和北部局地出现暴雨到大暴雨、局地特大暴雨，其中陵水、保亭、万宁等5个市县共16个乡镇(区)雨量超过200毫米，陵水、保亭和万宁3个市县共5个乡镇雨量超过300毫米，最大为陵水县群英乡427毫米；其余地区出现阵雨或雷阵雨、局地暴雨。
+健全常态化学习教育机制，将民族团结进步促进法纳入各级党委(党组)理论学习、“第一议题”学习和干部教育培训必修课程，实现全员学习、常态研学。
 
-海南省气象台预计，5月19日～21日，海南岛东南半部地区有暴雨到大暴雨，个别乡镇有特大暴雨；其余地区有雷阵雨，局地大到暴雨。
+组建成员专业化、内容本土化、语言群众化的宣讲队伍，用接地气的语言解读法律条文。
 
-22日降水有所减弱。
+将民族团结进步促进法纳入“九五”普法重点任务，统筹高校科研力量开展专题研究。
 
-海南省气象部门提醒，5月19日～21日，海南岛东南半部地区强降水天气仍将持续，建议相关部门做好中小型水库安全巡查，以及城乡积涝、农田渍涝、中小河流洪水、山洪和地质灾害的风险防御工作。
+以法治标准为引领，提质“铸牢”示范省建设。
 
-(完)
+完善党领导民族工作的体制机制，健全省、市、县、乡四级联动工作架构，压实各级各部门民族工作责任。
+
+以法治规范引领民族团结进步创建工作，对标新时代新要求，完善“铸牢”示范省建设新标准、新体系、新范式，迭代升级“‘铸牢’十进”活动载体内涵，打造一批可复制、可推广、叫得响的创建品牌。
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 15:01 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 14:59 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 14:57 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 15:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 14:55 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 14:48 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 15:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 15:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 15:10 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 14:51 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 15:05 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 15:07 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 15:15 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 15:09 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 15:06 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 15:14 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 15:20 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 15:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 15:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 15:01 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 14:56 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 15:03 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:50 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/3035448.shtml)
-- 2026-06-29 14:52 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/01250.shtml)
-- 2026-06-29 15:09 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/162807847.shtml)
-- 2026-06-29 14:56 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/347333451.shtml)
-- 2026-06-29 15:05 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/47520906.shtml)
-- 2026-06-29 14:53 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/7741092018.shtml)
-- 2026-06-29 15:13 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/93051859122.shtml)
-- 2026-06-29 15:05 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/785300.shtml)
-- 2026-06-29 15:08 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/5642820414.shtml)
-- 2026-06-29 14:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/29199066285.shtml)
-- 2026-06-29 14:58 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/897102396377.shtml)
-- 2026-06-29 15:11 - [双高胎](https://www.blog.minike.top/Article/details/50794.shtml)
-- 2026-06-29 15:14 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/997437999.shtml)
-- 2026-06-29 15:08 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/00606.shtml)
-- 2026-06-29 15:02 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/14455.shtml)
+- 2026-06-29 15:06 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/411857784.shtml)
+- 2026-06-29 15:18 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/1044804.shtml)
+- 2026-06-29 15:21 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/980619917769.shtml)
+- 2026-06-29 14:55 - [我和我的家乡](https://www.blog.minike.top/Article/details/9755980.shtml)
+- 2026-06-29 15:13 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/02655644.shtml)
+- 2026-06-29 15:09 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/361008626.shtml)
+- 2026-06-29 15:23 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/826893.shtml)
+- 2026-06-29 15:02 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/0570255933.shtml)
+- 2026-06-29 15:04 - [灿如繁星定档](https://www.blog.kurohicncr.top/Article/details/610127.shtml)
+- 2026-06-29 15:18 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/73161845713.shtml)
+- 2026-06-29 15:00 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/54639266870.shtml)
+- 2026-06-29 15:19 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/70047419254.shtml)
+- 2026-06-29 15:02 - [20年前的周杰伦](http://www.share.minike.top/Article/details/5013398040.shtml)
+- 2026-06-29 15:01 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/76145.shtml)
+- 2026-06-29 14:57 - [美人鱼](https://www.share.kurohicncr.top/Article/details/00152980496.shtml)

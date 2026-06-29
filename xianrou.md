@@ -1,60 +1,60 @@
-# 伊拉克记者方浩明：中国让我知道，安稳是日子本来的样子
+# 小盘REIT季报盘点：Postal Realty与Chatham Lodging业绩分化
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网南宁5月19日电 题：伊拉克记者方浩明：中国让我知道，安稳是日子本来的样子 作者 黄令妍 杨陈 “来中国之前，我经历了两次战争，我父亲经历了四次战争。战争最残忍的地方，是让你以为安稳都是偷来的。但中国让我知道，安稳是日子本来的样子。”19日在广西南宁，2026年中国网络文明大会网络文明国际交流互鉴分论坛上，迪拜中阿卫视驻华记者方浩明以“重生之我在中国”为题，分享他眼中的中
+美股房地产投资信托基金一季报披露已近尾声，罗素3000指数中的两只小盘成分股Postal Realty Trust和Chatham Lodging Trust交出了截然不同的成绩单。专注于向美国邮政局出租物业的Postal Realty本季度表现稳健，而Chatham Lodging则受益于科技行业强劲的差旅需求实现业绩增长。 专注于向美国邮政局出租物业的Postal Real
 
 ## 正文
 
-中新网南宁5月19日电 题：伊拉克记者方浩明：中国让我知道，安稳是日子本来的样子 作者 黄令妍 杨陈 “来中国之前，我经历了两次战争，我父亲经历了四次战争。
+美股房地产投资信托基金一季报披露已近尾声，罗素3000指数中的两只小盘成分股Postal Realty Trust和Chatham Lodging Trust交出了截然不同的成绩单。
 
-战争最残忍的地方，是让你以为安稳都是偷来的。
+专注于向美国邮政局出租物业的Postal Realty本季度表现稳健，而Chatham Lodging则受益于科技行业强劲的差旅需求实现业绩增长。
 
-但中国让我知道，安稳是日子本来的样子。
+专注于向美国邮政局出租物业的Postal Realty本季度表现稳健。
 
-”19日在广西南宁，2026年中国网络文明大会网络文明国际交流互鉴分论坛上，迪拜中阿卫视驻华记者方浩明以“重生之我在中国”为题，分享他眼中的中国故事。
+公司营收达2665万美元，同比增长20.3%，超出分析师预期。
 
-方浩明2000年出生在巴格达，因为伊拉克战争，2005年随家人离开伊拉克前往叙利亚。
+归属于普通股股东的净利润为383万美元，即每股0.11美元。
 
-2011年，叙利亚战争开始，一家人再次逃离战争，来到中国。
+更为关键的运营资金指标每股FFO为0.32美元，调整后每股AFFO为0.33美元。
 
-今年是方浩明在中国的第15年。
+管理层将2026年每股AFFO指引上调至1.40至1.42美元，同时将全年收购目标提升至1.3亿至1.4亿美元。
 
-在中国宁夏，方浩明的父母找到了稳定的工作，他上学学习中文，也拥有了自己的中文名字。
+相比之下，酒店REIT Chatham Lodging的表现则更具弹性。
 
 ## 相关推荐
 
-- 2026-06-29 14:59 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 14:50 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 14:54 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 14:52 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 15:11 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 14:53 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 15:14 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 15:17 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 14:48 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 15:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 14:48 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 15:11 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 15:15 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 14:48 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 15:21 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 14:58 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 15:08 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 15:21 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 15:14 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 15:08 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 15:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 14:58 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 15:14 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 15:02 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 15:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 15:21 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 14:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 15:14 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/12953006.shtml)
-- 2026-06-29 14:57 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/43519914529.shtml)
-- 2026-06-29 15:17 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/78154502628.shtml)
-- 2026-06-29 15:03 - [上海一小区水池内出现一条鳄鱼](https://www.share.kurohicncr.top/Article/details/5803576295.shtml)
-- 2026-06-29 14:50 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/907161330520.shtml)
-- 2026-06-29 14:48 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/4858777.shtml)
-- 2026-06-29 15:06 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/5388587872.shtml)
-- 2026-06-29 15:12 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/07227152795.shtml)
-- 2026-06-29 14:58 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/7278766.shtml)
-- 2026-06-29 15:07 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/6497357046.shtml)
-- 2026-06-29 14:48 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/80954070139.shtml)
-- 2026-06-29 14:50 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/988603513630.shtml)
-- 2026-06-29 14:49 - [游戏数据被用于军事目的 国安部提醒](https://www.share.kurohicncr.top/Article/details/35751.shtml)
-- 2026-06-29 14:58 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/34361836113.shtml)
-- 2026-06-29 15:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/6571599007.shtml)
+- 2026-06-29 15:23 - [四川宜宾地震](https://www.share.minike.top/Article/details/1713170.shtml)
+- 2026-06-29 15:18 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/547150154.shtml)
+- 2026-06-29 15:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/95084.shtml)
+- 2026-06-29 15:17 - [血糖高的人能吃西瓜吗](https://www.share.kurohicncr.top/Article/details/3704518344.shtml)
+- 2026-06-29 14:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/92616785.shtml)
+- 2026-06-29 15:06 - [王楚钦周启豪爆分](http://www.blog.kurohicncr.top/Article/details/7857966240.shtml)
+- 2026-06-29 15:19 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/01358902555.shtml)
+- 2026-06-29 15:10 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/31931066.shtml)
+- 2026-06-29 15:20 - [金牌调解](http://www.share.minike.top/Article/details/169099960472.shtml)
+- 2026-06-29 15:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/3209668398.shtml)
+- 2026-06-29 14:55 - [王楚钦周启豪爆分](http://www.blog.kurohicncr.top/Article/details/05765300.shtml)
+- 2026-06-29 15:13 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/39685626713.shtml)
+- 2026-06-29 15:01 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/3297700433.shtml)
+- 2026-06-29 15:15 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/8725765976.shtml)
+- 2026-06-29 15:14 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/540699267.shtml)

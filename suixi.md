@@ -1,57 +1,61 @@
-# 柬埔寨加速推动新能源项目建设发展
+# 调查：日本日经指数涨势迅猛跑赢同侪 2027年料升至69,000点再创新高
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新社金边5月19日电 (记者 杨强)隶属柬埔寨发展理事会的柬投资委员会当地时间19日召开专门会议，审查并讨论7个合格投资项目的注册申请，其中包括4个新能源发电项目，这将进一步推动该国清洁能源发展与能源转型布局。柬埔寨发展理事会当天发布的消息显示，此次审议的4个新能源投资项目，分别为一座装机容量200兆瓦太阳能发电站、一座装机容量100兆瓦太阳能发电站、一座装机容量30兆瓦太阳
+分析师在路透的一项调查中表示，尽管日经指数的迅猛上涨速度令预测人士难以跟上，但在人工智能热潮和强劲的企业盈利驱动下，日经指数将继续创下历史新高。 在日经225指数于周一创下65，408.87点的历史高点后，路透调查的预测中值显示，分析师预计该指数到明年年底将升至69，000点，改写新高纪录。日经指数周二收盘报64，996.09点。 野村证券宏观研究主管Yunosuke Iked
 
 ## 正文
 
-中新社金边5月19日电 (记者 杨强)隶属柬埔寨发展理事会的柬投资委员会当地时间19日召开专门会议，审查并讨论7个合格投资项目的注册申请，其中包括4个新能源发电项目，这将进一步推动该国清洁能源发展与能源转型布局。
+分析师在路透的一项调查中表示，尽管日经指数的迅猛上涨速度令预测人士难以跟上，但在人工智能热潮和强劲的企业盈利驱动下，日经指数将继续创下历史新高。
 
-柬埔寨发展理事会当天发布的消息显示，此次审议的4个新能源投资项目，分别为一座装机容量200兆瓦太阳能发电站、一座装机容量100兆瓦太阳能发电站、一座装机容量30兆瓦太阳能发电站，以及一个装机容量为500兆瓦的大型储能电池系统项目。
+在日经225指数于周一创下65，408.87点的历史高点后，路透调查的预测中值显示，分析师预计该指数到明年年底将升至69，000点，改写新高纪录。
 
-这是柬埔寨政府积极推动能源结构转型的一个重要进展。
+日经指数周二收盘报64，996.09点。
 
-近年来，柬埔寨持续扩大对太阳能、风力发电及储能系统等新能源领域的投资力度，以实现当局提出的在2030年前可再生能源占全国电力结构至少70%的目标。
+野村证券宏观研究主管Yunosuke Ikeda对股市看涨，但日经指数的上涨速度已超出其预期——他此前原预测该指数到12月将达到63，000点，一年后达到65，000点。
 
-今年以来，柬埔寨发展理事会已批准多个风力和太阳能发电站投资项目，包括今年2月批准的一个位于蒙多基里省、投资额约2亿美元的风力发电站项目，以及4月批准的一个150兆瓦风力发电站和一个350兆瓦太阳能发电站项目。
+他表示，作为一名预测者，这轮涨势“实在太过迅猛，难以跟上”。
 
-今年4月10日，由中国重型机械有限公司、二重(德阳)重型装备有限公司及南方电网澜湄国际能源有限责任公司共同投资开发的柬埔寨首座千兆瓦级抽水蓄能电站在柬国公省举行开工仪式。
+在回答一个附加问题的12位受访者中，有七人表示，与三个月前相比，他们对AI热潮推动股市表现的看法基本保持不变。
 
-这也是中柬产能合作重点项目清单中的核心工程。
+其余五人表示更加乐观。
 
-当地专业人士认为，越来越多新能源项目的建设和投入使用，将进一步提升柬埔寨电力供应的稳定性与可持续性，为工业、农业和旅游业发展提供动力支撑。
+与此同时，野村证券的Ikeda表示，对人工智能的乐观情绪，并非股市继续上涨的必要条件。
 
 ## 相关推荐
 
-- 2026-06-29 15:10 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 15:16 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 15:09 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 15:06 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 15:08 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 14:50 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 14:56 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 15:13 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 14:56 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 14:51 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 14:51 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 14:59 - [恋与深空 731](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 15:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 15:14 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 15:08 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 15:19 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 15:15 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 15:19 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 15:23 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 15:17 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 15:13 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 15:01 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 15:02 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 15:07 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 15:06 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 15:20 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:06 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/32407939478.shtml)
-- 2026-06-29 15:12 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/300441.shtml)
-- 2026-06-29 15:09 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/508278426.shtml)
-- 2026-06-29 15:11 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/589433357973.shtml)
-- 2026-06-29 14:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/97124.shtml)
-- 2026-06-29 14:56 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/52134392145.shtml)
-- 2026-06-29 15:00 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/7191374669.shtml)
-- 2026-06-29 15:01 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/6960668.shtml)
-- 2026-06-29 15:08 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/1972657.shtml)
-- 2026-06-29 15:16 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/338999092449.shtml)
-- 2026-06-29 15:03 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/7810528.shtml)
-- 2026-06-29 15:14 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/021486677.shtml)
-- 2026-06-29 15:08 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/9037819604.shtml)
-- 2026-06-29 15:07 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/28557055.shtml)
-- 2026-06-29 15:17 - [美伊同意停止互袭](https://www.share.minike.top/Article/details/80439369.shtml)
+- 2026-06-29 15:18 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/5161999.shtml)
+- 2026-06-29 14:57 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/4904758.shtml)
+- 2026-06-29 14:56 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/14572150.shtml)
+- 2026-06-29 14:59 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/73503.shtml)
+- 2026-06-29 15:01 - [媒体人：警惕日本再次成战争加害国](http://www.share.kurohicncr.top/Article/details/62246065.shtml)
+- 2026-06-29 15:17 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/63040634702.shtml)
+- 2026-06-29 14:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/22020.shtml)
+- 2026-06-29 14:56 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/626477494991.shtml)
+- 2026-06-29 15:06 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/183358017613.shtml)
+- 2026-06-29 14:58 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/454756.shtml)
+- 2026-06-29 14:56 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/62624506.shtml)
+- 2026-06-29 15:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/7752877.shtml)
+- 2026-06-29 15:00 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/9400084356.shtml)
+- 2026-06-29 15:02 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/938687.shtml)
+- 2026-06-29 15:05 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/139136.shtml)

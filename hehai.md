@@ -1,47 +1,61 @@
-# 中国篮协依据行贿案件判决重罚内蒙古农信篮球俱乐部
+# 瑙鲁要求公职人员恪守一个中国原则 国台办回应
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网5月20日电 据中国篮协网站消息，中国篮球协会20日发布公告称，因内蒙古农信篮球俱乐部有限责任公司(以下简称“内蒙古农信篮球俱乐部”)人员犯对非国家工作人员行贿罪(未遂)，中国篮协作出了包括收回该俱乐部2023-2024赛季中国女子篮球联赛亚军奖项在内的多项严厉处罚。 附：篮协纪律与道德委员会字\[2026\]2号
+中新网5月27日电 5月27日，国台办举行例行新闻发布会。有记者问：瑙鲁政府近日发布公告，表示已通过关于一个中国原则的内部规范，要求公职人员各类公务活动均需严格恪守一个中国原则。民进党当局对此进行无端指责。请问对此有何评论？国台办发言人陈斌华表示，我们对有关国家坚持一个中国原则的立场和做法表示赞赏。得道多助，失道寡助。事实再次证明，一个中国原则是国际社会普遍共识和国际关系基本准
 
 ## 正文
 
-中新网5月20日电 据中国篮协网站消息，中国篮球协会20日发布公告称，因内蒙古农信篮球俱乐部有限责任公司(以下简称“内蒙古农信篮球俱乐部”)人员犯对非国家工作人员行贿罪(未遂)，中国篮协作出了包括收回该俱乐部2023-2024赛季中国女子篮球联赛亚军奖项在内的多项严厉处罚。
+中新网5月27日电 5月27日，国台办举行例行新闻发布会。
 
-附：篮协纪律与道德委员会字\[2026\]2号
+有记者问：瑙鲁政府近日发布公告，表示已通过关于一个中国原则的内部规范，要求公职人员各类公务活动均需严格恪守一个中国原则。
+
+民进党当局对此进行无端指责。
+
+请问对此有何评论？
+
+国台办发言人陈斌华表示，我们对有关国家坚持一个中国原则的立场和做法表示赞赏。
+
+得道多助，失道寡助。
+
+事实再次证明，一个中国原则是国际社会普遍共识和国际关系基本准则，是大势所趋、大义所在、人心所向。
+
+民进党当局顽固坚持“台独”分裂立场，逆历史潮流，只会在国际社会四处碰壁。
 
 ## 相关推荐
 
-- 2026-06-29 14:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 15:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 15:17 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 14:55 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 14:50 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 15:09 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 15:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 15:16 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 15:11 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 14:49 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 15:10 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 15:10 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 15:12 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 15:03 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 15:20 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 15:04 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 15:02 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 15:16 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 15:12 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 15:09 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 15:08 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 15:09 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 15:06 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 14:56 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 15:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 15:22 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 15:08 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 15:09 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/55633.shtml)
-- 2026-06-29 15:11 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/70208985563.shtml)
-- 2026-06-29 15:09 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/2538952.shtml)
-- 2026-06-29 14:51 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/82449364250.shtml)
-- 2026-06-29 15:10 - [周生如故](http://www.share.kurohicncr.top/Article/details/789866200130.shtml)
-- 2026-06-29 15:15 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/984103581.shtml)
-- 2026-06-29 14:59 - [把古诗里的动作换成加班](http://www.share.minike.top/Article/details/9758710118.shtml)
-- 2026-06-29 14:54 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/458966.shtml)
-- 2026-06-29 15:05 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/722401.shtml)
-- 2026-06-29 15:10 - [国家体育总局政策法规司原副司长获刑](http://www.share.minike.top/Article/details/7052685406.shtml)
-- 2026-06-29 15:14 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/7128170.shtml)
-- 2026-06-29 15:02 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/60069972.shtml)
-- 2026-06-29 14:48 - [张真源解读相思锁](https://www.share.kurohicncr.top/Article/details/6157311568.shtml)
-- 2026-06-29 14:54 - [7款商保创新药“转道”](http://www.share.minike.top/Article/details/439265.shtml)
-- 2026-06-29 15:15 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/30975424884.shtml)
+- 2026-06-29 15:02 - [爸爸当家](http://www.share.minike.top/Article/details/35798977237.shtml)
+- 2026-06-29 15:16 - [起风了](https://www.share.minike.top/Article/details/3223684762.shtml)
+- 2026-06-29 14:58 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/58869881.shtml)
+- 2026-06-29 15:09 - [沙丘](https://www.blog.minike.top/Article/details/072723512350.shtml)
+- 2026-06-29 15:11 - [首尔商铺禁止洪明甫入内](http://www.share.kurohicncr.top/Article/details/406483444.shtml)
+- 2026-06-29 15:20 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/2671107.shtml)
+- 2026-06-29 14:58 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/30152098.shtml)
+- 2026-06-29 15:19 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/5243516065.shtml)
+- 2026-06-29 15:09 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/5510366607.shtml)
+- 2026-06-29 15:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/441612.shtml)
+- 2026-06-29 15:00 - [一生一世](https://www.blog.minike.top/Article/details/602527728964.shtml)
+- 2026-06-29 14:58 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/967548105.shtml)
+- 2026-06-29 15:02 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/28355.shtml)
+- 2026-06-29 15:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/23845530.shtml)
+- 2026-06-29 15:03 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/1413397566.shtml)

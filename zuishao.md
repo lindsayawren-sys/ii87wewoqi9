@@ -1,50 +1,53 @@
-# 瑞银报告：美图4月海外收入同比增长42%
+# 韩国金融监督院称三星成韩国负债最多企业集团
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月20日下午消息，据瑞银5月15日发布的追踪报告，2026年4月，美图公司旗下应用的海外总收入同比增长42%，多款产品在海外增长强劲，其中，Wink的4月海外收入接近翻倍。 报告显示，美图旗下应用在中国内地的4月总收入显著增长，核心产品美图秀秀、美颜相机收入分别同比增长39%、41%，专注视频编辑的Wink同比增长78%。但相比之下，这些应用在海外市场的增长更加强
+韩国金融监管机构周二表示，三星已成为韩国负债最多的企业集团，到2025年底总负债超过了SK集团。 芯片制造商SK海力士的母公司SK集团排名落至第三位，现代汽车排名第二；之后是乐天第四，LG第五。 总体而言，共有42家企业集团被认定为高负债企业，上一年为41家。 截至去年底，这些集团的银行信贷未偿余额为386.9万亿韩元（2，550亿美元），比上年增长4.1%。责任编辑：于健 S
 
 ## 正文
 
-新浪科技讯 5月20日下午消息，据瑞银5月15日发布的追踪报告，2026年4月，美图公司旗下应用的海外总收入同比增长42%，多款产品在海外增长强劲，其中，Wink的4月海外收入接近翻倍。
+韩国金融监管机构周二表示，三星已成为韩国负债最多的企业集团，到2025年底总负债超过了SK集团。
 
-报告显示，美图旗下应用在中国内地的4月总收入显著增长，核心产品美图秀秀、美颜相机收入分别同比增长39%、41%，专注视频编辑的Wink同比增长78%。
+芯片制造商SK海力士的母公司SK集团排名落至第三位，现代汽车排名第二；之后是乐天第四，LG第五。
 
-但相比之下，这些应用在海外市场的增长更加强劲，美图秀秀、美颜相机、Wink的海外市场收入分别同比增长81%、70%、99%。
+总体而言，共有42家企业集团被认定为高负债企业，上一年为41家。
 
-责任编辑：刘万里 SF014
+截至去年底，这些集团的银行信贷未偿余额为386.9万亿韩元（2，550亿美元），比上年增长4.1%。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 15:13 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 14:59 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 15:10 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 15:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 15:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 14:50 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 14:54 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 15:09 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 15:13 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 14:53 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 15:15 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 15:16 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 15:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 15:07 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 15:17 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 15:03 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 15:19 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 14:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 14:54 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 15:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 15:03 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 15:16 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 15:20 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 15:06 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [TOP 无畏契约](http://www.share.minike.top/Article/details/315287063692.shtml)
-- 2026-06-29 14:55 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/7605770334.shtml)
-- 2026-06-29 15:08 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/65722406661.shtml)
-- 2026-06-29 15:13 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.minike.top/Article/details/55350621787.shtml)
-- 2026-06-29 15:14 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/64272772325.shtml)
-- 2026-06-29 14:48 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/120844.shtml)
-- 2026-06-29 15:16 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/01822347414.shtml)
-- 2026-06-29 15:00 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/51767931256.shtml)
-- 2026-06-29 15:16 - [媒体：网络测评不能只剩“生意”](https://www.share.minike.top/Article/details/4104738.shtml)
-- 2026-06-29 15:03 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/103490.shtml)
-- 2026-06-29 15:16 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/52756684.shtml)
-- 2026-06-29 15:09 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/27647.shtml)
-- 2026-06-29 15:12 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/13313937.shtml)
-- 2026-06-29 15:05 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/44078823.shtml)
-- 2026-06-29 15:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/10388.shtml)
+- 2026-06-29 15:15 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/336695496.shtml)
+- 2026-06-29 14:59 - [双高胎](https://www.blog.kurohicncr.top/Article/details/951145992686.shtml)
+- 2026-06-29 15:08 - [周生如故](http://www.share.kurohicncr.top/Article/details/6015078.shtml)
+- 2026-06-29 14:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/5506956.shtml)
+- 2026-06-29 15:22 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/9650534.shtml)
+- 2026-06-29 15:19 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/2930105570.shtml)
+- 2026-06-29 15:19 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/4604466375.shtml)
+- 2026-06-29 15:08 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/598210.shtml)
+- 2026-06-29 15:07 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/829140612420.shtml)
+- 2026-06-29 15:07 - [扬名立万](http://www.blog.minike.top/Article/details/1281801.shtml)
+- 2026-06-29 15:22 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/60214.shtml)
+- 2026-06-29 15:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/7040575831.shtml)
+- 2026-06-29 15:19 - [央视起底直播诈骗连环套](https://www.blog.minike.top/Article/details/37882875.shtml)
+- 2026-06-29 15:02 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/714662.shtml)
+- 2026-06-29 15:05 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/362291.shtml)

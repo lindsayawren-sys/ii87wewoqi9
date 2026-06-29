@@ -1,57 +1,60 @@
-# 尾盘爆发！多股20%涨停！
+# 王毅会见巴基斯坦国防军司令兼陆军参谋长穆尼尔
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-5月19日，A股午后发力拉升，沪指涨近1%，科创综指涨超2%；港股亦上扬，两大股指小幅走高。 具体来看，沪指早盘窄幅震荡，午后在金融、酿酒等板块的带动下强势上扬，科创综指亦大幅走高。截至收盘，沪指涨0.92%报4169.54点，深证成指涨0.26%，创业板指跌0.16%，科创综指涨2.62%，沪深北三市合计成交约2.91万亿元。 A股市场超3600股飘红，电力板块再度爆发，京能
+2026年5月25日，中共中央政治局委员、外交部长王毅在北京会见巴基斯坦国防军司令兼陆军参谋长穆尼尔元帅。 王毅欢迎穆尼尔元帅同夏巴兹总理联袂访华，表示今年是中巴建交75周年。“疾风知劲草，烈火见真金”。无论国际地区形势如何变化，中巴友谊始终坚如磐石、牢不可破。两国保持高水平政治互信、高水平务实合作、高水平国际协作，树立了国与国关系的典范。巴基斯坦军方一直是促进中巴合作的重要力
 
 ## 正文
 
-5月19日，A股午后发力拉升，沪指涨近1%，科创综指涨超2%；港股亦上扬，两大股指小幅走高。
+2026年5月25日，中共中央政治局委员、外交部长王毅在北京会见巴基斯坦国防军司令兼陆军参谋长穆尼尔元帅。
 
-具体来看，沪指早盘窄幅震荡，午后在金融、酿酒等板块的带动下强势上扬，科创综指亦大幅走高。
+王毅欢迎穆尼尔元帅同夏巴兹总理联袂访华，表示今年是中巴建交75周年。
 
-截至收盘，沪指涨0.92%报4169.54点，深证成指涨0.26%，创业板指跌0.16%，科创综指涨2.62%，沪深北三市合计成交约2.91万亿元。
+“疾风知劲草，烈火见真金”。
 
-A股市场超3600股飘红，电力板块再度爆发，京能电力斩获5连板，上海电力、涪陵电力等涨停；半导体板块强势，耐科装备、沪硅产业、光莆股份（300632）等尾盘20%涨停，市值超1500亿元的芯原股份盘中突破300元大关，再创新高；寒武纪大涨超8%；CPO概念热度不减，弘信电子两连板，剑桥科技、光迅科技等尾盘涨停；脑机接口概念崛起，创新医疗涨停，倍益康涨超10%；值得注意的是，多只强势股连续封板，如利仁科技斩获7连板，威龙股份、北自科技分别斩获5连板和4连板，合肥城建近6日收获5板。
+无论国际地区形势如何变化，中巴友谊始终坚如磐石、牢不可破。
 
-半导体板块强势 半导体板块今日再度走强，截至收盘，耐科装备、沪硅产业、光莆股份尾盘20%涨停；芯原股份涨超15%，盘中突破300元大关，再创新高，最新市值达1577亿元。
+两国保持高水平政治互信、高水平务实合作、高水平国际协作，树立了国与国关系的典范。
 
-此外，中微公司涨超9%，寒武纪涨超8%。
+巴基斯坦军方一直是促进中巴合作的重要力量，相信将为深化中巴传统友谊和命运共同体建设作出新的贡献。
 
-消息面上，2026年以来，全球半导体行业的涨价潮持续发酵，从上游晶圆代工、封测环节，到下游各类芯片产品，涨价范围不断扩大、涨幅逐步攀升。
+穆尼尔表示，巴中铁杆友谊历久弥坚、与日俱深，巴方对此深感自豪。
 
-近期，半导体涨价潮蔓延至电源管理IC领域。
+近年来，中国国际地位与影响力日益提升，习近平主席提出的四大全球倡议和“一带一路”倡议为促进世界和平与发展发挥了关键作用，受到国际社会广泛欢迎，巴方坚定支持并积极参与。
 
 ## 相关推荐
 
-- 2026-06-29 14:48 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 14:52 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 14:52 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 14:54 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 14:54 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 15:10 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 15:13 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 14:54 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 14:52 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 14:51 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 15:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 14:57 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 15:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 15:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 15:10 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 15:00 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 14:56 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 15:10 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 14:59 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 15:19 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 15:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 15:21 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 15:11 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 15:22 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 15:19 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/81259.shtml)
-- 2026-06-29 15:06 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/90733630.shtml)
-- 2026-06-29 14:57 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/4739614567.shtml)
-- 2026-06-29 15:04 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/43592314.shtml)
-- 2026-06-29 15:12 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/11366789.shtml)
-- 2026-06-29 15:04 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/68883.shtml)
-- 2026-06-29 14:51 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/490337644101.shtml)
-- 2026-06-29 14:50 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/520354.shtml)
-- 2026-06-29 14:49 - [众星恭喜吴建豪](https://www.blog.kurohicncr.top/Article/details/067311561.shtml)
-- 2026-06-29 14:49 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/92423769171.shtml)
-- 2026-06-29 15:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/86380328028.shtml)
-- 2026-06-29 15:15 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/813520712707.shtml)
-- 2026-06-29 15:12 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/0603567053.shtml)
-- 2026-06-29 14:57 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/431774.shtml)
-- 2026-06-29 14:59 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/35004663391.shtml)
+- 2026-06-29 15:03 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/16599.shtml)
+- 2026-06-29 14:54 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/672924844836.shtml)
+- 2026-06-29 14:57 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/80485.shtml)
+- 2026-06-29 15:06 - [吴昕要助理买的药6年前已停产](http://www.blog.kurohicncr.top/Article/details/48555967112.shtml)
+- 2026-06-29 15:17 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/317976.shtml)
+- 2026-06-29 14:58 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/89015.shtml)
+- 2026-06-29 15:11 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/252119004.shtml)
+- 2026-06-29 15:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/3529416.shtml)
+- 2026-06-29 15:23 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/700240988.shtml)
+- 2026-06-29 15:14 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/2607230511.shtml)
+- 2026-06-29 15:22 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/260793644319.shtml)
+- 2026-06-29 15:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/1530506.shtml)
+- 2026-06-29 15:10 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/476618974.shtml)
+- 2026-06-29 15:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/948541151.shtml)
+- 2026-06-29 15:05 - [媒体：网络测评不能只剩“生意”](https://www.blog.minike.top/Article/details/98763019735.shtml)

@@ -1,58 +1,58 @@
-# 中国已对非洲53个建交国近9000个税目产品实施零关税
+# A股三大指数分化，N长进涨逾13倍，单签盈利超32万
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新社北京5月19日电 (记者 李京泽)中非合作论坛事务大使刘豫锡19日在北京表示，目前，中国已实现对非洲53个建交国近9000个税目产品零关税。 当日，中国公共外交协会举办“临甲7号沙龙”专题吹风会，主题为“零关税促中非同心同行”。刘豫锡在会上表示，当前全球单边主义、保护主义抬头，实施零关税更有其紧迫的现实意义。 他指出，零关税政策带动中非贸易增长。据官方数据，2026年一季
+中新经纬5月27日电 周三，A股三大指数开盘涨跌不一，沪指低开0.16%，深成指低开0.05%，创业板指高开0.26%。 Wind截图 盘面上，存储、影视传媒、制冷剂等板块指数涨幅居前，培育钻石、减速器、PTA等板块指数跌幅居前。 存储芯片概念大幅高开，北京君正涨超15%，深科技竞价涨停，普冉股份、太极实业、国科微、大普微、香农芯创跟涨。 消息面上，隔夜美股存储芯片板块再度飙升
 
 ## 正文
 
-中新社北京5月19日电 (记者 李京泽)中非合作论坛事务大使刘豫锡19日在北京表示，目前，中国已实现对非洲53个建交国近9000个税目产品零关税。
+中新经纬5月27日电 周三，A股三大指数开盘涨跌不一，沪指低开0.16%，深成指低开0.05%，创业板指高开0.26%。
 
-当日，中国公共外交协会举办“临甲7号沙龙”专题吹风会，主题为“零关税促中非同心同行”。
+Wind截图 盘面上，存储、影视传媒、制冷剂等板块指数涨幅居前，培育钻石、减速器、PTA等板块指数跌幅居前。
 
-刘豫锡在会上表示，当前全球单边主义、保护主义抬头，实施零关税更有其紧迫的现实意义。
+存储芯片概念大幅高开，北京君正涨超15%，深科技竞价涨停，普冉股份、太极实业、国科微、大普微、香农芯创跟涨。
 
-他指出，零关税政策带动中非贸易增长。
+消息面上，隔夜美股存储芯片板块再度飙升，美光科技大涨超19%，总市值首次突破1万亿美元；闪迪涨超7%，西部数据涨超8%，希捷科技涨4%。
 
-据官方数据，2026年一季度中非贸易额同比增长26.8%，高于同期中国外贸整体增速近9个百分点。
+光伏概念快速拉升，TCL中环涨停，易成新能、东方日升、天合光能、晶盛机电、拉普拉斯跟涨。
 
-此外，零关税政策还促进中国扩大对非投资。
+新股方面，N龙辰在北京证券交易所上市，上市首日开盘大涨497.18%，报55元，发行价格为9.21元/股。
 
-刘豫锡说，零关税政策是贸易投资融合共促的综合性举措，将非洲各种要素及比较优势同中国超大规模市场、产业链优势连接起来，将吸引更多中国企业赴非投资兴业，促进非洲工业化和农业现代化进程，提升非洲资源附加值，助力非洲加快融入国际产业链供应链。
+湖北龙辰科技股份有限公司前身为2003年成立的龙辰(黄冈)电子科技有限公司，2011年完成整体变更设立为股份有限公司，核心业务为薄膜电容器相关BOPP薄膜材料的研发、生产和销售，主导产品包括基膜和金属化膜，产品广泛应用于新能源汽车、光伏、风电、电子、家电等多个领域。
 
-刘豫锡强调，零关税政策不是孤立的降税安排，而是与配套措施一体推进的“组合拳”。
+N长进在上海证券交易所科创板上市，其发行价格为40.98元/股，目前盘中最高报688.88元，涨幅超1300%。
 
 ## 相关推荐
 
-- 2026-06-29 15:05 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 14:56 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 15:16 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 14:50 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 15:06 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 15:06 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 15:04 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 15:03 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 14:55 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 15:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 14:51 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 14:55 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 15:20 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 15:17 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 14:54 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 15:00 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 15:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 15:21 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 14:57 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 15:05 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 14:56 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 15:10 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 15:01 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 15:09 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/134775609.shtml)
-- 2026-06-29 15:04 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/7581871498.shtml)
-- 2026-06-29 15:10 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/91415601948.shtml)
-- 2026-06-29 14:54 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/3315396.shtml)
-- 2026-06-29 15:15 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/0006894362.shtml)
-- 2026-06-29 14:48 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.minike.top/Article/details/71243198.shtml)
-- 2026-06-29 15:14 - [ENC瓦中国香港负印度数据图](http://www.blog.kurohicncr.top/Article/details/52612976.shtml)
-- 2026-06-29 14:49 - [天道](https://www.share.minike.top/Article/details/31479.shtml)
-- 2026-06-29 15:00 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/444042465340.shtml)
-- 2026-06-29 15:02 - [市民骑哈啰单车79分钟被收费30元](http://www.share.kurohicncr.top/Article/details/450494645.shtml)
-- 2026-06-29 14:50 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/3554139422.shtml)
-- 2026-06-29 15:01 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/7346701394.shtml)
-- 2026-06-29 15:03 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/3723167380.shtml)
-- 2026-06-29 15:14 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/662815554467.shtml)
-- 2026-06-29 14:50 - [国家体育总局政策法规司原副司长获刑](https://www.share.kurohicncr.top/Article/details/12724996.shtml)
+- 2026-06-29 15:23 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.kurohicncr.top/Article/details/24859017564.shtml)
+- 2026-06-29 15:22 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/3879613024.shtml)
+- 2026-06-29 14:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/3906475.shtml)
+- 2026-06-29 14:56 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/768464390547.shtml)
+- 2026-06-29 14:59 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/630482200304.shtml)
+- 2026-06-29 15:15 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/93246715.shtml)
+- 2026-06-29 15:00 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/75762405.shtml)
+- 2026-06-29 15:23 - [急先锋](http://www.blog.minike.top/Article/details/9358482009.shtml)
+- 2026-06-29 15:10 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/267714538293.shtml)
+- 2026-06-29 15:21 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/2053987.shtml)
+- 2026-06-29 14:54 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/705904102.shtml)
+- 2026-06-29 15:04 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/9610151.shtml)
+- 2026-06-29 14:58 - [医院大厅放钢琴是形式主义吗](https://www.share.kurohicncr.top/Article/details/32878633100.shtml)
+- 2026-06-29 15:07 - [扫黑风暴](http://www.share.minike.top/Article/details/6382002089.shtml)
+- 2026-06-29 15:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/01089209674.shtml)

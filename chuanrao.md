@@ -1,61 +1,61 @@
-# 印度交易所首席执行官：本土投资者力挽狂澜，稳住市场避免崩盘
+# 光大期货：软商品类日报5.27
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-核心要点 印度历史最悠久证券交易所负责人周二在 CNBC《亚洲财经论坛》节目中表示，去年外资大举抛售印度股票之际，本土投资者发挥关键作用，成功避免印度股市出现断崖式暴跌。 孟买证券交易所董事总经理桑达拉马南・拉马穆尔蒂称：“印度经济仍在增长，还有大量民众尚未进入资本市场。” 他透露，过去一年已有 3500 万印度投资者在孟买证券交易所完成开户注册。 他表示，以往外资在印度股市持
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西工业、发展、商业与服务部部长Marcio Elias Rosa于本周一（25 日）表示，国家能源政策委员会（CNPE）预计将在6 月上半月正式批准政府决议，把汽油中的无水乙醇掺混比例从 30% 提升至 32%。现货报价方面，广西制糖集团报价区间5320~5420元/吨，部分下调10
 
 ## 正文
 
-核心要点 印度历史最悠久证券交易所负责人周二在 CNBC《亚洲财经论坛》节目中表示，去年外资大举抛售印度股票之际，本土投资者发挥关键作用，成功避免印度股市出现断崖式暴跌。
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西工业、发展、商业与服务部部长Marcio Elias Rosa于本周一（25 日）表示，国家能源政策委员会（CNPE）预计将在6 月上半月正式批准政府决议，把汽油中的无水乙醇掺混比例从 30% 提升至 32%。
 
-孟买证券交易所董事总经理桑达拉马南・拉马穆尔蒂称：“印度经济仍在增长，还有大量民众尚未进入资本市场。
+现货报价方面，广西制糖集团报价区间5320~5420元/吨，部分下调10元/吨；云南制糖集团报价5150~5190元/吨，持平；加工糖厂主流报价区间为5770~6050元/吨，部分下调20元/吨。
 
-” 他透露，过去一年已有 3500 万印度投资者在孟买证券交易所完成开户注册。
+原糖方面，受供应充足抑制，期价继续下行。
 
-他表示，以往外资在印度股市持股规模高于本土机构，如今这一格局已然彻底逆转。
+霍尔木兹海峡通航问题仍反复，未来和谈结果仍会给油价带来剧烈波动，后续对原糖的影响仍需关注。
 
-该高管补充道，去年外资从印度股市净流出 350 亿美元，而印度本土机构投资者逆势向股市净投资 9100 亿美元。
+国内方面，现货报价基本平稳，市场暂无新驱动。
 
-拉马穆尔蒂在新加坡举办的 2026 年莫蒂拉尔・奥斯瓦尔印度企业日活动间隙受访时说道：“本土资金不仅填补了外资流出的缺口，还极大稳固了敏感指数走势，成功避免股市崩盘式下跌。
+期货持仓不减，分歧较大，短期延续窄幅震荡，静待新消息指引。
 
-” 受企业盈利疲软、中东局势推高国际油价拖累印度经济等因素影响，外资对印度股市依旧持悲观看空态度。
+棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周二，ICE美棉上涨0.67%，报收79.86美分/磅，郑棉主力合约环比上涨1.07%，报收16105元/吨，主力合约持仓环比增加8118手至66.96万手，棉花3128B现货价格指数17195元/吨，较前一日上涨100元/吨。
 
-虽说印度是全球信息技术产业强国，但本土并未诞生具备规模的头部人工智能生态企业，这进一步打击了外资投资意愿。
+国际市场方面，近期市场上有关于美伊双方即将达成协议相关消息传出，原油价格震荡走弱，美元指数震荡下行，市场情绪提振。
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 15:17 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 15:07 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 14:56 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 14:55 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 15:00 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 15:10 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 15:04 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 15:10 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 15:00 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 15:09 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 14:48 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 15:10 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 14:48 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 14:48 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 15:16 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 15:14 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 15:20 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 15:12 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 15:12 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 15:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 14:59 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 14:58 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 15:08 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 14:55 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 15:21 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 15:10 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 15:04 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 15:04 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 14:57 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:04 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/840719450.shtml)
-- 2026-06-29 15:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/271072.shtml)
-- 2026-06-29 15:11 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.kurohicncr.top/Article/details/78672.shtml)
-- 2026-06-29 14:56 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/461663129923.shtml)
-- 2026-06-29 15:07 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/730771140.shtml)
-- 2026-06-29 15:06 - [女心理师](https://www.share.minike.top/Article/details/16543614.shtml)
-- 2026-06-29 14:54 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/708186756.shtml)
-- 2026-06-29 14:57 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/4251977412.shtml)
-- 2026-06-29 15:09 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/201907.shtml)
-- 2026-06-29 14:58 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/52303143.shtml)
-- 2026-06-29 14:48 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/696016773366.shtml)
-- 2026-06-29 15:01 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/71243558.shtml)
-- 2026-06-29 15:17 - [Agent带来token消耗爆炸](https://www.blog.minike.top/Article/details/93510.shtml)
-- 2026-06-29 14:58 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/71426394789.shtml)
-- 2026-06-29 14:52 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/628728789181.shtml)
+- 2026-06-29 15:06 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/264056090.shtml)
+- 2026-06-29 15:11 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/13432082602.shtml)
+- 2026-06-29 15:18 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/34688528.shtml)
+- 2026-06-29 15:09 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/160248106605.shtml)
+- 2026-06-29 15:12 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/74874.shtml)
+- 2026-06-29 15:04 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/944035853176.shtml)
+- 2026-06-29 15:22 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/60832455.shtml)
+- 2026-06-29 15:20 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/029378593.shtml)
+- 2026-06-29 15:09 - [AG 宫斗](https://www.share.minike.top/Article/details/694915839.shtml)
+- 2026-06-29 15:17 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/708772190.shtml)
+- 2026-06-29 15:06 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/624578688792.shtml)
+- 2026-06-29 15:13 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/893314043654.shtml)
+- 2026-06-29 15:07 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/932071638.shtml)
+- 2026-06-29 14:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/15753353.shtml)
+- 2026-06-29 15:17 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/74972315770.shtml)

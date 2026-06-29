@@ -1,57 +1,59 @@
-# 《给阿嬷的情书》两岸关注 朱凤莲：一声“阿嬷”同根同源
+# 以色列称袭击哈马斯新任军事领导人
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新社北京5月20日电 (李百加 朱贺)大陆电影《给阿嬷的情书》近来引发两岸民间共同关注。国务院台办发言人朱凤莲20日说，一声“阿嬷”是两岸同根同源的乡音。 分别用闽南话、客家话讲了一遍“做人，一定要有情有义”，她强调，这是两岸同文同种的根魂。 《给阿嬷的情书》以侨批为载体、以细腻质朴的镜头讲述一个跨越山海的潮汕侨乡守望故事。当天在北京举行的国台办例行新闻发布会上，朱凤莲提到，
+中新社北京5月27日电 综合消息：以色列总理内塔尼亚胡和国防部长卡茨当地时间26日晚发表联合声明说，以色列国防军当天在加沙地带袭击巴勒斯坦伊斯兰抵抗运动(哈马斯)新任军事领导人穆罕默德·奥达。 据《以色列时报》报道，以色列方面尚未正式确认奥达在袭击中身亡，哈马斯也未对此进行回应。但部分以媒称，初步评估显示，奥达已经死亡。 内塔尼亚胡和卡茨在声明说，奥达参与策划2023年10月7
 
 ## 正文
 
-中新社北京5月20日电 (李百加 朱贺)大陆电影《给阿嬷的情书》近来引发两岸民间共同关注。
+中新社北京5月27日电 综合消息：以色列总理内塔尼亚胡和国防部长卡茨当地时间26日晚发表联合声明说，以色列国防军当天在加沙地带袭击巴勒斯坦伊斯兰抵抗运动(哈马斯)新任军事领导人穆罕默德·奥达。
 
-国务院台办发言人朱凤莲20日说，一声“阿嬷”是两岸同根同源的乡音。
+据《以色列时报》报道，以色列方面尚未正式确认奥达在袭击中身亡，哈马斯也未对此进行回应。
 
-分别用闽南话、客家话讲了一遍“做人，一定要有情有义”，她强调，这是两岸同文同种的根魂。
+但部分以媒称，初步评估显示，奥达已经死亡。
 
-《给阿嬷的情书》以侨批为载体、以细腻质朴的镜头讲述一个跨越山海的潮汕侨乡守望故事。
+内塔尼亚胡和卡茨在声明说，奥达参与策划2023年10月7日哈马斯对以色列的突袭，当时他担任哈马斯情报部门负责人。
 
-当天在北京举行的国台办例行新闻发布会上，朱凤莲提到，潮汕地区和台湾地区在语言、习俗方面有很多相近的地方。
+奥达在约一周前接替遭以军暗杀的哈马斯时任军事领导人伊兹丁·哈达德。
 
-看过影片的台湾民众对片中大量的潮汕方言、诚信与情义的内核和浓厚的家国情怀，特别有感触。
+据美联社报道，以军26日晚对加沙城发动两次空袭，造成至少3人死亡，12人受伤。
 
-她指出，台湾民众喜爱这部电影，说明对中华文化有共同传承和强烈共鸣。
+巴勒斯坦官方通讯社“瓦法”也有报道说，以军26日晚轰炸加沙城西部一栋居民楼，造成3人死亡，多人受伤。
 
-今年截至目前，已有9部台湾电影在大陆院线上映。
+据《华尔街日报》此前报道，以色列已经查出所有参与2023年10月7日哈马斯突袭以色列事件中的巴勒斯坦人，并形成名单。
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 15:03 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 15:13 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 14:48 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 14:51 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 15:15 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 14:49 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 14:49 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 15:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 15:17 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 15:17 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 14:54 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 15:06 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 15:22 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 15:12 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 15:08 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 15:07 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 15:13 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 14:57 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 14:59 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 15:04 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 15:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 14:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 14:57 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/5455559.shtml)
-- 2026-06-29 15:01 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/826975.shtml)
-- 2026-06-29 14:55 - [新一代影后杨紫](http://www.share.minike.top/Article/details/996297.shtml)
-- 2026-06-29 14:52 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/85727379371.shtml)
-- 2026-06-29 14:54 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/031770160350.shtml)
-- 2026-06-29 15:10 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/95519088.shtml)
-- 2026-06-29 14:58 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/827822058297.shtml)
-- 2026-06-29 14:53 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/84160315.shtml)
-- 2026-06-29 15:13 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/257815.shtml)
-- 2026-06-29 15:15 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.kurohicncr.top/Article/details/03397300564.shtml)
-- 2026-06-29 14:48 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/393242355060.shtml)
-- 2026-06-29 15:17 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/94079178705.shtml)
-- 2026-06-29 14:59 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/19377922.shtml)
-- 2026-06-29 15:14 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/8561320789.shtml)
-- 2026-06-29 14:59 - [周生如故](https://www.blog.kurohicncr.top/Article/details/38298.shtml)
+- 2026-06-29 15:13 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/37454992069.shtml)
+- 2026-06-29 15:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/769412248953.shtml)
+- 2026-06-29 15:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/058530.shtml)
+- 2026-06-29 15:08 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/45575802145.shtml)
+- 2026-06-29 15:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/873481320572.shtml)
+- 2026-06-29 15:20 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/76109239.shtml)
+- 2026-06-29 15:21 - [妹妹的正确用法！](https://www.blog.kurohicncr.top/Article/details/4886557.shtml)
+- 2026-06-29 15:20 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/0480229011.shtml)
+- 2026-06-29 15:22 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/556924890965.shtml)
+- 2026-06-29 15:12 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/67702460297.shtml)
+- 2026-06-29 14:55 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/50852.shtml)
+- 2026-06-29 14:55 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.minike.top/Article/details/955027.shtml)
+- 2026-06-29 15:09 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/3095530353.shtml)
+- 2026-06-29 15:22 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/97111267.shtml)
+- 2026-06-29 14:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/287263851033.shtml)

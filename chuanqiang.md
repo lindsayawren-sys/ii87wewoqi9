@@ -1,59 +1,57 @@
-# 国家金融监管总局：加大重点产业链上下游小微企业信贷投放
+# 瑞银：AI未来方向“Token、路径、渗透率” 中国数据中心行业下半年起将加速扩张
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新经纬5月19日电 国家金融监督管理总局网站19日消息，国家金融监管总局近日印发了《关于做好2026年小微企业金融服务工作的通知》(简称《通知》)。 此举意在深入贯彻落实中央经济工作会议和全国金融系统工作会议精神，引导金融机构加力支持小微和民营企业经营发展，提升金融服务质量。 《通知》指出，2026年要坚持稳中求进工作总基调和“两个毫不动摇”，深刻把握金融工作的政治性和人民性
+文/新浪财经香港站 赵岚 过去一两年，AI对大众消费行为的重塑，对中国一众互联网企业形成冲击，依靠算法、搜索、撮合来用户与商家的格局正在被打破。 瑞银认为，中国互联网行业股价走势稍显落后但仍有上升机会，未来竞争格局稳定、全球扩张能力强、盈利韧性突出的企业将有动力。 瑞银同时关注到AI催生的数据中心需求，认为中国在电力和算力方面已实现了全国性的协调，为AI大规模普及做好了准备。
 
 ## 正文
 
-中新经纬5月19日电 国家金融监督管理总局网站19日消息，国家金融监管总局近日印发了《关于做好2026年小微企业金融服务工作的通知》(简称《通知》)。
+文/新浪财经香港站 赵岚 过去一两年，AI对大众消费行为的重塑，对中国一众互联网企业形成冲击，依靠算法、搜索、撮合来用户与商家的格局正在被打破。
 
-此举意在深入贯彻落实中央经济工作会议和全国金融系统工作会议精神，引导金融机构加力支持小微和民营企业经营发展，提升金融服务质量。
+瑞银认为，中国互联网行业股价走势稍显落后但仍有上升机会，未来竞争格局稳定、全球扩张能力强、盈利韧性突出的企业将有动力。
 
-《通知》指出，2026年要坚持稳中求进工作总基调和“两个毫不动摇”，深刻把握金融工作的政治性和人民性，树立和践行正确政绩观，充分发挥支持小微企业融资协调工作机制作用，推动小微企业金融服务“稳投放、优结构、提质量、可持续”，提升民营企业金融服务水平，助力经济持续稳中向好，激发高质量发展的动力活力。
+瑞银同时关注到AI催生的数据中心需求，认为中国在电力和算力方面已实现了全国性的协调，为AI大规模普及做好了准备。
 
-稳投放，即推动银行业金融机构提供与经济发展相适应，与小微企业、民营企业需求相匹配的信贷供给，实现贷款质的有效提升和量的合理增长。
+互联网企业的核心挑战：AI重塑大众消费行为 瑞银中国互联网研究主管方锦聪认为，过去一两年里，人工智能对大众消费行为的重塑，是当下互联网企业面临的核心挑战。
 
-优结构，即做好首贷、信用贷、中长期贷款支持，增加小微企业法人贷款投放，重点支持科技、消费、外贸等领域。
+互联网企业在过去主要依靠算法、搜索、供需，平台撮合来触达用户、连接商家与消费者，流量格局十分稳固。
 
-具体看，《通知》提到，优化信贷结构。
+如今，流量来源已经发生根本性变化：传统渠道的影响力逐步减弱，AI应用、对话交互窗口乃至智能代理，成为了新的流量入口。
 
-银行业金融机构要围绕发展新质生产力，加强科技和创新型小微企业金融服务，助力高水平科技自立自强。
+直接动摇了互联网企业原本的流量主导地位。
 
-创新优化消费领域小微和民营企业金融产品，支持构建多元化消费场景，助力提振消费扩大内需。
+同时，用户的内容消费模式也迎来阶段性变革。
 
 ## 相关推荐
 
-- 2026-06-29 15:11 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 14:52 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 15:01 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 15:01 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 14:53 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 14:49 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 14:59 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 15:14 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 15:01 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 15:02 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 15:10 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 15:14 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 14:56 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 15:05 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 15:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 15:04 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 14:58 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 15:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 15:00 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 15:22 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 14:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 15:04 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 15:06 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 15:07 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/123000774227.shtml)
-- 2026-06-29 15:03 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/2313207112.shtml)
-- 2026-06-29 14:49 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/121071010007.shtml)
-- 2026-06-29 14:54 - [未来5年全国能源体系将呈现这些特征](http://www.share.minike.top/Article/details/6914915.shtml)
-- 2026-06-29 15:06 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/14999.shtml)
-- 2026-06-29 14:49 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/4663996.shtml)
-- 2026-06-29 15:05 - [双高胎](https://www.share.minike.top/Article/details/8141039724.shtml)
-- 2026-06-29 15:01 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/380704.shtml)
-- 2026-06-29 14:56 - [流金岁月](https://www.share.minike.top/Article/details/588274065720.shtml)
-- 2026-06-29 14:52 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/4495580.shtml)
-- 2026-06-29 15:17 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/79027.shtml)
-- 2026-06-29 15:12 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/410345.shtml)
-- 2026-06-29 14:59 - [扫黑风暴](https://www.blog.minike.top/Article/details/60095.shtml)
-- 2026-06-29 15:05 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/81803433377.shtml)
-- 2026-06-29 15:10 - [A股](https://www.blog.minike.top/Article/details/7858749960.shtml)
+- 2026-06-29 15:16 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/5027636.shtml)
+- 2026-06-29 15:10 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.kurohicncr.top/Article/details/6888052.shtml)
+- 2026-06-29 14:54 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/61209.shtml)
+- 2026-06-29 15:03 - [韩国国脚无缘上亿韩元奖金](https://www.blog.kurohicncr.top/Article/details/41307446.shtml)
+- 2026-06-29 15:01 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.minike.top/Article/details/5034962.shtml)
+- 2026-06-29 15:03 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/3329947696.shtml)
+- 2026-06-29 14:57 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/765926802.shtml)
+- 2026-06-29 15:15 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/6504995.shtml)
+- 2026-06-29 14:59 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/563380196947.shtml)
+- 2026-06-29 15:15 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/523487821.shtml)
+- 2026-06-29 15:01 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/591575383.shtml)
+- 2026-06-29 15:01 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/08429475437.shtml)
+- 2026-06-29 15:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/710211642849.shtml)
+- 2026-06-29 15:15 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/624160800729.shtml)
+- 2026-06-29 15:10 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/2713343976.shtml)

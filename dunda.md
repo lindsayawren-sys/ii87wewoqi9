@@ -1,58 +1,46 @@
-# 谷歌DeepMind创始人德米斯・哈萨比斯，现身成为Anthropic早期投资人
+# 5月26日人民币对美元中间价报6.8288 上调30个基点
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-谷歌DeepMind创始人德米斯・哈萨比斯爵士是Anthropic的早期投资人。这笔此前从未对外披露的持股，凸显出这位诺贝尔奖得主在整个人工智能行业的影响力正持续攀升。 知情人士透露，哈萨比斯曾以天使投资人身份注资Anthropic。如今这家企业已然成为谷歌在 AI 领域的核心竞争对手，同时也是全球发展速度最快的初创企业之一。 除此之外，谷歌还通过云业务与 AI 合作项目，向A
+中新网5月26日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年5月26日银行间外汇市场人民币汇率中间价为1美元对人民币6.8288元，上调30个基点。
 
 ## 正文
 
-谷歌DeepMind创始人德米斯・哈萨比斯爵士是Anthropic的早期投资人。
-
-这笔此前从未对外披露的持股，凸显出这位诺贝尔奖得主在整个人工智能行业的影响力正持续攀升。
-
-知情人士透露，哈萨比斯曾以天使投资人身份注资Anthropic。
-
-如今这家企业已然成为谷歌在 AI 领域的核心竞争对手，同时也是全球发展速度最快的初创企业之一。
-
-除此之外，谷歌还通过云业务与 AI 合作项目，向Anthropic投入了数十亿美元资金。
-
-据接近该公司的消息人士称，Anthropic首席执行官达里奥・阿莫迪一向将哈萨比斯视作行业榜样，目前这家企业的投资方给出的估值已达9000 亿美元。
-
-据创投数据平台 PitchBook 与 Dealroom 统计，自 2021 年以来，从DeepMind出走的科研人员已创办十余家 AI 初创公司，累计融资规模至少达 140 亿美元，哈萨比斯此次投资消息也随之传出。
-
-其中既包括同样由他创立的英国异构实验室，也有难言智能，两家企业仅在上个月就合计斩获超 30 亿美元融资。
+中新网5月26日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年5月26日银行间外汇市场人民币汇率中间价为1美元对人民币6.8288元，上调30个基点。
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 14:52 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 15:15 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 15:13 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 15:12 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 14:56 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 14:48 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 14:56 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 14:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 15:12 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 15:09 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 15:02 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 14:59 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 15:11 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 15:23 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 15:05 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 15:08 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 15:13 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 15:18 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 15:17 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 15:09 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 15:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 15:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 15:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 15:14 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 15:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:13 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/4416494.shtml)
-- 2026-06-29 14:50 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/9129968004.shtml)
-- 2026-06-29 14:51 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/807730649.shtml)
-- 2026-06-29 15:17 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/6450929.shtml)
-- 2026-06-29 14:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/20690492.shtml)
-- 2026-06-29 15:17 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/4682539080.shtml)
-- 2026-06-29 15:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/8044177372.shtml)
-- 2026-06-29 14:55 - [医院大厅放钢琴是形式主义吗](https://www.share.kurohicncr.top/Article/details/09178636.shtml)
-- 2026-06-29 15:08 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/01060774.shtml)
-- 2026-06-29 14:48 - [一生一世](http://www.share.minike.top/Article/details/8733260.shtml)
-- 2026-06-29 15:11 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/31499709970.shtml)
-- 2026-06-29 14:49 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/0773226587.shtml)
-- 2026-06-29 14:55 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/0783209026.shtml)
-- 2026-06-29 15:08 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/3480311959.shtml)
-- 2026-06-29 15:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/65478795.shtml)
+- 2026-06-29 15:10 - [韩媒破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/434091289888.shtml)
+- 2026-06-29 14:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/435128382.shtml)
+- 2026-06-29 15:04 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.minike.top/Article/details/21460.shtml)
+- 2026-06-29 15:11 - [一生一世](https://www.share.kurohicncr.top/Article/details/46924669.shtml)
+- 2026-06-29 15:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/63706491497.shtml)
+- 2026-06-29 15:07 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/874278.shtml)
+- 2026-06-29 15:20 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/636694.shtml)
+- 2026-06-29 15:21 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/979339663.shtml)
+- 2026-06-29 15:12 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/25269802103.shtml)
+- 2026-06-29 15:20 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/52504755186.shtml)
+- 2026-06-29 15:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/221071714930.shtml)
+- 2026-06-29 15:06 - [A股](https://www.blog.minike.top/Article/details/848749389.shtml)
+- 2026-06-29 14:54 - [AG 钟意](https://www.share.minike.top/Article/details/140507379.shtml)
+- 2026-06-29 15:02 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/460781.shtml)
+- 2026-06-29 15:02 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/103640894.shtml)

@@ -1,56 +1,56 @@
-# “华北豹第一县”山西和顺拍到“动物全家福”
+# PBF Energy拟发行5亿美元2034年到期优先票据
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网晋中5月19日电 (刘小红)近日，素有“华北豹第一县”之称的山西省和顺县成功拍摄到国家一级保护动物华北豹的最新活动影像，再次印证了和顺县优质的生态环境与野生动物保护成效。 作为“省级生态文明建设示范区”，和顺县始终坚守生态保护底线，生态本底持续向好。目前，全县草原综合植被盖度达65.03%，森林覆盖率提升至30.96%。当地科学划定约1200平方公里野生动物生态保护功能区
+美国独立炼油商PBF Energy Inc．今日宣布，公司计划公开发行5亿美元于2034年到期的优先无担保票据。此次发行将依照市场条件及其他因素进行，所募资金主要用于偿还2026年底到期的定期贷款及一般公司用途。 公告显示，此次发行的优先票据将由PBF Energy Inc．及其子公司PBF Finance Corporation作为共同发行人，部分现有及未来境内子公司提供担保
 
 ## 正文
 
-中新网晋中5月19日电 (刘小红)近日，素有“华北豹第一县”之称的山西省和顺县成功拍摄到国家一级保护动物华北豹的最新活动影像，再次印证了和顺县优质的生态环境与野生动物保护成效。
+美国独立炼油商PBF Energy Inc．今日宣布，公司计划公开发行5亿美元于2034年到期的优先无担保票据。
 
-作为“省级生态文明建设示范区”，和顺县始终坚守生态保护底线，生态本底持续向好。
+此次发行将依照市场条件及其他因素进行，所募资金主要用于偿还2026年底到期的定期贷款及一般公司用途。
 
-目前，全县草原综合植被盖度达65.03%，森林覆盖率提升至30.96%。
+公告显示，此次发行的优先票据将由PBF Energy Inc．及其子公司PBF Finance Corporation作为共同发行人，部分现有及未来境内子公司提供担保。
 
-当地科学划定约1200平方公里野生动物生态保护功能区，着力打造华北豹核心栖息地“安全区”，成为世界珍稀濒危物种华北豹不可多得的种源地，也是其繁衍扩散的关键生态通道，成功擦亮“华北豹第一县”特色生态品牌。
+PBF Energy计划于5月27日起面向合格机构投资者开展路演推介。
 
-得益于持续完善的保护体系，和顺县华北豹种群实现稳定繁衍生息。
+值得注意的是，就在此次融资计划宣布前一天，评级机构穆迪将PBF Energy的企业家族评级从“B3”下调至“Caa1”，展望维持“负面”，理由包括公司成本高企、炼油利润率环境充满挑战，以及年内将有多笔债务到期。
 
-当地目前维持着约40只成年个体的稳定繁殖种群，雄雌比例约1:3，每年约有10只至20只幼豹降生，种群发展态势良好。
+此前，标普已于2025年11月将PBF的评级从“B-”下调至“CCC+”，同样持负面展望。
 
-良好的生态环境不仅滋养了华北豹，也为众多珍稀野生动物提供了栖息家园。
+在此背景下，此次融资被视为公司主动管理债务期限结构的积极举措。
 
-除华北豹外，和顺县境内还栖息着黑鹳、金雕、丹顶鹤等多种国家一级保护动物，各类珍禽异兽在此和谐共生，共同勾勒出一幅人与自然和谐共生的美丽画卷。
+从业务面看，PBF Energy近期迎来关键转折。
 
 ## 相关推荐
 
-- 2026-06-29 15:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 14:49 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 14:59 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 15:14 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 15:02 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 14:58 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 15:05 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 14:56 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 14:49 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 15:13 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 14:56 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 14:59 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 15:22 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 15:17 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 15:00 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 15:03 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 15:11 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 15:14 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 15:16 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 15:09 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:51 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/578835731.shtml)
-- 2026-06-29 14:57 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/8439841.shtml)
-- 2026-06-29 15:03 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.kurohicncr.top/Article/details/1479177.shtml)
-- 2026-06-29 15:10 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/812907692552.shtml)
-- 2026-06-29 15:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/89093408866.shtml)
-- 2026-06-29 14:51 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/3868227184.shtml)
-- 2026-06-29 15:01 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/9894589928.shtml)
-- 2026-06-29 14:54 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/1037662798.shtml)
-- 2026-06-29 15:11 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/5945675861.shtml)
-- 2026-06-29 15:15 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/33839533661.shtml)
-- 2026-06-29 14:51 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/787495.shtml)
-- 2026-06-29 15:07 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/165250432900.shtml)
-- 2026-06-29 15:07 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/128542318.shtml)
-- 2026-06-29 14:56 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/406685855022.shtml)
-- 2026-06-29 15:12 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/781306.shtml)
+- 2026-06-29 14:56 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/64274561880.shtml)
+- 2026-06-29 14:55 - [急先锋](https://www.share.minike.top/Article/details/6766790.shtml)
+- 2026-06-29 15:03 - [网警提醒4类高考查分陷阱考生速看](https://www.share.kurohicncr.top/Article/details/09114711.shtml)
+- 2026-06-29 14:56 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/5350918.shtml)
+- 2026-06-29 15:22 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/293620856303.shtml)
+- 2026-06-29 15:07 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/9042292.shtml)
+- 2026-06-29 15:15 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/08218922.shtml)
+- 2026-06-29 15:16 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/37078.shtml)
+- 2026-06-29 15:09 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/00576.shtml)
+- 2026-06-29 15:14 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/549715307373.shtml)
+- 2026-06-29 15:08 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/404653450213.shtml)
+- 2026-06-29 15:20 - [哈兰德这该死的胜负欲](http://www.share.minike.top/Article/details/8419737161.shtml)
+- 2026-06-29 15:18 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/46938.shtml)
+- 2026-06-29 15:10 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/047671522.shtml)
+- 2026-06-29 15:21 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/497086700.shtml)

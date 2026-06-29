@@ -1,56 +1,54 @@
-# 内蒙古农信篮球俱乐部因行贿未遂与操纵比赛遭篮协重罚
+# 陕西甘泉发生一起桥梁垮塌事件致3人受伤
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-来源：行长要鉴 中国篮球协会5月20日发布处罚公告，因内蒙古农信篮球俱乐部人员犯对非国家工作人员行贿罪（未遂）及参与操纵比赛，对该俱乐部作出罚款100万元、收回2023-2024赛季WCBA亚军奖项、中止注册资格三年的处罚，同时对4名涉案个人分别处以终身禁业与三年禁业。 处罚决定显示，依据（2025）内0102刑初251号刑事判决书和（2026）内01刑终20号刑事裁定书认定的
+中新网陕西延安5月25日电 (李一璠)记者25日从陕西省延安市甘泉县交通运输局获悉，受强降雨影响该县境内发生一起桥梁垮塌事件。 当日，甘泉县交通运输局发布情况通报称，5月25日凌晨2时许，受持续强降雨影响，甘泉县与高速公路连接线K5+500处发生山体崩塌，冲击桥墩，导致桥梁垮塌，造成2车受损3人受伤。 伤者已第一时间送医救治，生命体征平稳。险情发生后，市县两级应急、交通、公安、
 
 ## 正文
 
-来源：行长要鉴 中国篮球协会5月20日发布处罚公告，因内蒙古农信篮球俱乐部人员犯对非国家工作人员行贿罪（未遂）及参与操纵比赛，对该俱乐部作出罚款100万元、收回2023-2024赛季WCBA亚军奖项、中止注册资格三年的处罚，同时对4名涉案个人分别处以终身禁业与三年禁业。
+中新网陕西延安5月25日电 (李一璠)记者25日从陕西省延安市甘泉县交通运输局获悉，受强降雨影响该县境内发生一起桥梁垮塌事件。
 
-处罚决定显示，依据（2025）内0102刑初251号刑事判决书和（2026）内01刑终20号刑事裁定书认定的事实，在2023-2024赛季WCBA期间，俱乐部总经理郭佳洁、运动员邹启佳为俱乐部谋取不正当利益，实施对非国家工作人员行贿行为（未遂）；时任俱乐部主教练杨赞、时任山西兴瑞职业篮球俱乐部副总经理马骏存在参与、动议或协助操纵比赛的行为。
+当日，甘泉县交通运输局发布情况通报称，5月25日凌晨2时许，受持续强降雨影响，甘泉县与高速公路连接线K5+500处发生山体崩塌，冲击桥墩，导致桥梁垮塌，造成2车受损3人受伤。
 
-据此，中国篮协对郭佳洁、邹启佳终身限制从事与篮球相关活动，对杨赞、马骏限制从事与篮球相关活动三年；对俱乐部罚款100万元，收回其2023-2024赛季WCBA亚军奖项，并中止注册资格三年。
+伤者已第一时间送医救治，生命体征平稳。
 
-这家因违规受罚的俱乐部，曾是内蒙古农信社着力打造的体育名片。
+险情发生后，市县两级应急、交通、公安、卫健等部门立即赶赴现场开展救援抢险。
 
-2018年12月，内蒙古农信篮球俱乐部由内蒙古自治区农村信用社联合社牵头发起注册成立，成为内蒙古首家职业篮球俱乐部，唯一股东为内蒙古呼和浩特金谷农村商业银行股份有限公司工会委员会，篮球名宿巴特尔曾任俱乐部董事长。
+官方提示，该路段地质条件复杂，当前桥梁排险抢修工作正在进行，请驾乘人员择道绕行，注意行车安全。
 
-在农信社体系持续的大额资金支持下，俱乐部迅速崛起。
-
-2019年6月获得WCBA参赛资格后，引进多名国家队球员，在2020-2021、2021-2022赛季连续夺冠，2022-2023赛季获得亚军，创下两冠一亚的佳绩，被视为WCBA“金元篮球”的典型代表。
-
-然而辉煌未能持续。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 14:50 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 15:00 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 15:06 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 14:52 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 14:50 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 14:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 14:55 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 15:07 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 15:03 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 15:19 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 14:57 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 15:15 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 15:20 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 15:05 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 14:54 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 15:03 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 14:55 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 15:08 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 15:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 15:03 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 15:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/545019874536.shtml)
-- 2026-06-29 15:04 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/281219428877.shtml)
-- 2026-06-29 14:48 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/01450291.shtml)
-- 2026-06-29 15:00 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/007346063463.shtml)
-- 2026-06-29 15:10 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/630750.shtml)
-- 2026-06-29 14:52 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/16981.shtml)
-- 2026-06-29 14:58 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/48010899086.shtml)
-- 2026-06-29 14:51 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/64610.shtml)
-- 2026-06-29 15:15 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/7327216637.shtml)
-- 2026-06-29 14:50 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/36841.shtml)
-- 2026-06-29 14:50 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/64522950.shtml)
-- 2026-06-29 14:54 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/342069.shtml)
-- 2026-06-29 15:15 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/49086190.shtml)
-- 2026-06-29 14:52 - [王祖蓝现场观看美加墨世界杯](http://www.blog.minike.top/Article/details/3089377.shtml)
-- 2026-06-29 15:06 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/7887094.shtml)
+- 2026-06-29 15:13 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/01065.shtml)
+- 2026-06-29 14:58 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/7271754.shtml)
+- 2026-06-29 14:56 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/64845159.shtml)
+- 2026-06-29 15:10 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/518398409.shtml)
+- 2026-06-29 15:21 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/1740367.shtml)
+- 2026-06-29 15:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/2241223.shtml)
+- 2026-06-29 15:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/389550944668.shtml)
+- 2026-06-29 15:01 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/819668196600.shtml)
+- 2026-06-29 15:23 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/68989317.shtml)
+- 2026-06-29 15:13 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/4896860646.shtml)
+- 2026-06-29 14:55 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/94638697727.shtml)
+- 2026-06-29 15:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/420623.shtml)
+- 2026-06-29 15:18 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/121944.shtml)
+- 2026-06-29 15:15 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/3494806383.shtml)
+- 2026-06-29 15:17 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/219435455976.shtml)

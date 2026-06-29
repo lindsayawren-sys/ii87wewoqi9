@@ -1,60 +1,60 @@
-# 酒价内参5月19日价格发布：青花郎下跌5元
+# 深圳2025年常住人口增加25.90万人
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月19日整体窄幅波动。如果主要单品各取一瓶整体打包售卖，今日总售价为10012元，较昨日小幅下跌18元。得益于茅台系两款产品特别是飞天茅台的大幅走强，总价依然稳居万元整数关口上方。市场在昨日大幅冲高后今日出现技术性回调，终端交投情绪保持平稳，核心单品的涨跌分化依然显著。 今日白酒市场11大单
+中新社深圳5月25日电 (记者 索有为)《深圳市2025年国民经济和社会发展统计公报》(下称“公报”)25日正式发布。公报显示，2025年年末深圳常住人口1824.85万人，比上年末增加25.90万人。其中，城镇常住人口1820.96万人，占常住人口比重为99.79%。近期，内地多个城市陆续发布去年国民经济和社会发展统计公报。“深圳发布”称，在已公布的内地各大城市中，深圳常住人
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月19日整体窄幅波动。
+中新社深圳5月25日电 (记者 索有为)《深圳市2025年国民经济和社会发展统计公报》(下称“公报”)25日正式发布。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为10012元，较昨日小幅下跌18元。
+公报显示，2025年年末深圳常住人口1824.85万人，比上年末增加25.90万人。
 
-得益于茅台系两款产品特别是飞天茅台的大幅走强，总价依然稳居万元整数关口上方。
+其中，城镇常住人口1820.96万人，占常住人口比重为99.79%。
 
-市场在昨日大幅冲高后今日出现技术性回调，终端交投情绪保持平稳，核心单品的涨跌分化依然显著。
+近期，内地多个城市陆续发布去年国民经济和社会发展统计公报。
 
-今日白酒市场11大单品三涨七跌一平，输家占据明显优势。
+“深圳发布”称，在已公布的内地各大城市中，深圳常住人口增量暂列全国城市首位。
 
-上涨方面，飞天茅台一马当先，上涨10元/瓶，创下近一月最高价纪录；精品茅台上涨3元/瓶，喜获六连阳继续高位运行；水晶剑南春上涨1元/瓶。
+公报还显示，深圳2025年全年旅客运输总量24600.61万人次，比上年增长7.5%。
 
-下跌方面，国窖1573与古井贡古20跌幅居前，均下跌6元/瓶，都回吐了昨日全部涨幅；青花汾20、习酒君品及青花郎均下跌5元/瓶，昨天涨幅也是尽数失守；洋河梦之蓝M6+下跌4元/瓶；五粮液普五八代小幅下跌1元/瓶。
+旅客运输周转量1311.82亿人公里，增长7.6%。
 
-五粮液1618的价格环比保持不变，近半月的走势相对平稳。
+全年公共交通客运总量47.81亿人次，比上年增长2.4%。
 
 ## 相关推荐
 
-- 2026-06-29 14:52 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 15:15 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 15:07 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 14:49 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 14:54 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 15:08 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 14:57 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 14:59 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 15:03 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 15:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 14:53 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 14:57 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 15:13 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 15:11 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 15:02 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 15:16 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 15:15 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 15:01 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 15:19 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 15:20 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 14:58 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 15:05 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 15:23 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 15:15 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 14:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 15:15 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 14:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 15:04 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [中国战机大片上新](https://www.share.minike.top/Article/details/80828901.shtml)
-- 2026-06-29 14:53 - [德云色预测世界杯16强](https://www.share.kurohicncr.top/Article/details/38955230.shtml)
-- 2026-06-29 14:52 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/90097.shtml)
-- 2026-06-29 15:17 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/975744538.shtml)
-- 2026-06-29 15:12 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/179053020037.shtml)
-- 2026-06-29 15:03 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/1927229.shtml)
-- 2026-06-29 15:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/230194587214.shtml)
-- 2026-06-29 15:10 - [医药股集体爆发](http://www.blog.kurohicncr.top/Article/details/598232.shtml)
-- 2026-06-29 15:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/0743520.shtml)
-- 2026-06-29 15:14 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.minike.top/Article/details/61629957.shtml)
-- 2026-06-29 15:14 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/57150.shtml)
-- 2026-06-29 15:15 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/645493370093.shtml)
-- 2026-06-29 15:13 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/48073116517.shtml)
-- 2026-06-29 14:57 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/653377442.shtml)
-- 2026-06-29 14:56 - [Canna纳尔8-0对位单杀Doran](https://www.share.minike.top/Article/details/18528.shtml)
+- 2026-06-29 15:01 - [啊啊啊](http://www.share.minike.top/Article/details/504264220.shtml)
+- 2026-06-29 15:07 - [如何“亲菌子”又“远小人儿”](https://www.blog.minike.top/Article/details/162933.shtml)
+- 2026-06-29 15:23 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/1937180058.shtml)
+- 2026-06-29 15:20 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/620692.shtml)
+- 2026-06-29 14:55 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/3817746.shtml)
+- 2026-06-29 15:16 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/960844102.shtml)
+- 2026-06-29 15:09 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/7200539.shtml)
+- 2026-06-29 15:07 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/253840261995.shtml)
+- 2026-06-29 15:00 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/76835808380.shtml)
+- 2026-06-29 14:58 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/0016295819.shtml)
+- 2026-06-29 15:17 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/74894698.shtml)
+- 2026-06-29 15:22 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/854745009.shtml)
+- 2026-06-29 15:19 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/485793.shtml)
+- 2026-06-29 15:06 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/752162584.shtml)
+- 2026-06-29 14:59 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/907691.shtml)

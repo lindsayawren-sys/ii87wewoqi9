@@ -1,60 +1,57 @@
-# 山海为卷创意为笔 海内外设计师以零碳理念活化宁德风物
+# 从“指尖”到“山间”，数字公益为黄河上游添新绿
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网宁德5月20日电 (记者 叶茂)20日，福建省宁德市东湖之畔，“零聚山海·宁藏风物”2026宁德国际文创产品设计大赛工作营在“东湖之星”电动游船上正式开营，共邀请33位来自英国、日本、泰国以及中国多地的设计团队与高校青年参与。 现场，宁德畲族代表以赠送彩带的畲族传统习俗欢迎来自各地的参赛设计团队。宁德市人大常委会副主任、市文化强市建设指挥部副指挥长张雄向竞赛授旗，为本次文
+中新网5月26日电(记者 邵萌)站在甘肃省兰州市七里河区魏岭乡的山头上放眼望去，可以看到成片的云杉和侧柏幼苗抽出新枝，在风中轻轻摇曳的景象。 这些树背后，是一场以“数字技术+公益”模式推动生态修复的创新型公益实践。 2025年11月起，中国网络社会组织联合会联合中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字
 
 ## 正文
 
-中新网宁德5月20日电 (记者 叶茂)20日，福建省宁德市东湖之畔，“零聚山海·宁藏风物”2026宁德国际文创产品设计大赛工作营在“东湖之星”电动游船上正式开营，共邀请33位来自英国、日本、泰国以及中国多地的设计团队与高校青年参与。
+中新网5月26日电(记者 邵萌)站在甘肃省兰州市七里河区魏岭乡的山头上放眼望去，可以看到成片的云杉和侧柏幼苗抽出新枝，在风中轻轻摇曳的景象。
 
-现场，宁德畲族代表以赠送彩带的畲族传统习俗欢迎来自各地的参赛设计团队。
+这些树背后，是一场以“数字技术+公益”模式推动生态修复的创新型公益实践。
 
-宁德市人大常委会副主任、市文化强市建设指挥部副指挥长张雄向竞赛授旗，为本次文创大赛工作营拉开序幕。
+2025年11月起，中国网络社会组织联合会联合中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，“浦发银行绿谷”公益生态林项目等公益故事入选。
 
-在日本东京从事艺术指导和电影导演工作的千原徹也说，“当地域、人、文化、学生以及我们聚在一起时，就能够创造出一个新事物，非常期待和大家一起度过接下来的时间。
+位于黄河上游的七里河区南部山区地理位置独特，拥有丰富的自然生态本底与发展潜力。
 
-” 2026宁德国际文创产品设计大赛工作营为期2天，由宁德市文化强市建设指挥部指导，宁德市文旅局、宁德市旅发集团共同主办，国内外设计师与高校代表将穿梭于宁德山海之间，把宁德当成一本正在翻开的“城市灵感手册”，边走边记录、边看边想象。
+荒山生态修复，成为当地守护黄河的重要一环。
 
-记者了解到，设计师们将沿着“文化、自然、产业”三条线索一路探访：宁德博物馆的历史脉络、古城老街的生活气息、大京沙滩与白水洋的自然能量，再到古田食用菌、霞浦海产品，以及畲族银饰代表性企业盈盛号文化产业基地的产业现场……宁德的过去、现在与未来在行走中被串联起来，也悄然生长成每个人的创意种子。
+自2023年起，浦发银行联合中国青少年发展基金会通过“线上+线下”模式，实施“浦发银行绿谷”公益生态林项目，为七里河区魏岭乡植树造林10000棵，帮助改善黄河上游生态环境。
 
-SMART度假产业专家委员会秘书长、AIM国际设计竞赛组委会主席王旭说，期待通过设计师们创作的宁德零碳主题文创、非遗特色文创和城市潮流文创，助力宁德文旅发展，也让更多人认识和了解“零碳城市”的理念。
+在浦发银行面向员工搭建的“我的碳足迹”线上平台，无论是午饭后上传一张“光盘行动”照片，还是用线上会议替代实体会议，每一个低碳行为，都能积攒成“减碳量”，所有员工的累计“减碳量”与上海环境能源交易所 CEA(全国碳市场碳排放配额)折算后得出捐赠善款金额，全部用于本公益生态林项目，凝聚成助力荒山变绿的力量。
 
-据介绍，本次大赛主题“零聚山海”，既是“宁德”与“凝聚”的巧妙谐音，也把数字“0”变成了一个关于零碳、循环与创新起点的符号。
+让更多外部力量汇入的，是另一套积分捐赠机制。
 
 ## 相关推荐
 
-- 2026-06-29 15:15 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 14:49 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 15:03 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 15:09 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 14:57 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 14:53 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 15:03 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 15:11 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 15:17 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 15:17 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 15:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 15:02 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 15:15 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 15:04 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 15:01 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 15:09 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 14:56 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 15:19 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 14:58 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 15:09 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 15:17 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 15:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 14:57 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 14:54 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 15:22 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:00 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.minike.top/Article/details/11858315.shtml)
-- 2026-06-29 15:01 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/25841276.shtml)
-- 2026-06-29 14:58 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/557208779740.shtml)
-- 2026-06-29 14:58 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/050541296.shtml)
-- 2026-06-29 15:05 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/72355020252.shtml)
-- 2026-06-29 15:04 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/81574.shtml)
-- 2026-06-29 15:14 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/403289980.shtml)
-- 2026-06-29 15:12 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/115359591.shtml)
-- 2026-06-29 15:05 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/62310.shtml)
-- 2026-06-29 15:09 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/07075.shtml)
-- 2026-06-29 14:48 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/341383187.shtml)
-- 2026-06-29 14:53 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/32128347840.shtml)
-- 2026-06-29 15:07 - [中国避暑神器在欧洲卖爆了](http://www.blog.minike.top/Article/details/10057822.shtml)
-- 2026-06-29 15:13 - [久坐小心“死臀综合征”](http://www.blog.minike.top/Article/details/5976679417.shtml)
-- 2026-06-29 15:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/507410958088.shtml)
+- 2026-06-29 15:23 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/216156772534.shtml)
+- 2026-06-29 14:55 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/00570.shtml)
+- 2026-06-29 15:11 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/03292.shtml)
+- 2026-06-29 15:17 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/6090819.shtml)
+- 2026-06-29 14:54 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/47690.shtml)
+- 2026-06-29 14:56 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/3684964019.shtml)
+- 2026-06-29 15:14 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/03490903.shtml)
+- 2026-06-29 14:59 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/71220013249.shtml)
+- 2026-06-29 14:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/839969.shtml)
+- 2026-06-29 15:05 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/402488208035.shtml)
+- 2026-06-29 15:15 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/43693784703.shtml)
+- 2026-06-29 15:13 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/404342924.shtml)
+- 2026-06-29 15:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/464060852.shtml)
+- 2026-06-29 15:21 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/6369927.shtml)
+- 2026-06-29 14:56 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/213258621460.shtml)

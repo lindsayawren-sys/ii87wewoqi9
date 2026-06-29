@@ -1,61 +1,57 @@
-# 在美国开电动车每年或将多花130美元
+# 22亿罚款，监管重拳砸向富途和老虎！
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-为筹措公路养护资金，美国国会一项新法案拟对电动汽车车主征收年度费用 内容速览 美国众议院一项两党联合提案计划向电动汽车车主收取年度注册费，以此为公路基建项目筹集资金。 车主加油时，每加仑汽油缴纳的税费每年可为全美洲际公路养护提供 300 亿美元资金。但完全不使用汽油的电动汽车该如何承担道路使用成本？ 美国众议院一项提案若正式立法，全美电动汽车车主每年需缴纳一笔注册费，用于道路修
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：翠鸟资本 文|翠鸟资本 一场震动行业的“监管风暴”，在五月轰然来袭。 日前，中国证监会联合八部门印发《综合整治非法跨境证券期货基金经营活动实施方案》，并正式对富途控股、老虎证券、长桥证券等头部跨境互联网券商作出行政处罚事先告知。 其中，富途拟被罚没约18.5亿元，老虎证券拟被罚没约4.11亿元，消息落
 
 ## 正文
 
-为筹措公路养护资金，美国国会一项新法案拟对电动汽车车主征收年度费用 内容速览 美国众议院一项两党联合提案计划向电动汽车车主收取年度注册费，以此为公路基建项目筹集资金。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-车主加油时，每加仑汽油缴纳的税费每年可为全美洲际公路养护提供 300 亿美元资金。
+来源：翠鸟资本 文|翠鸟资本 一场震动行业的“监管风暴”，在五月轰然来袭。
 
-但完全不使用汽油的电动汽车该如何承担道路使用成本？
+日前，中国证监会联合八部门印发《综合整治非法跨境证券期货基金经营活动实施方案》，并正式对富途控股、老虎证券、长桥证券等头部跨境互联网券商作出行政处罚事先告知。
 
-美国众议院一项提案若正式立法，全美电动汽车车主每年需缴纳一笔注册费，用于道路修缮。
+其中，富途拟被罚没约18.5亿元，老虎证券拟被罚没约4.11亿元，消息落地后，两家美股上市公司股价应声暴跌，跌幅一度超过30%。
 
-不过电动车行业支持者认为，这项收费标准对车主而言负担过重。
+业内人士评论，这一纸罚单，或许标志着跨境互联网券商“野蛮生长”时代的彻底终结。
 
-该法案由密苏里州共和党众议员萨姆・格雷夫斯与华盛顿州民主党众议员里克・拉森联合发起，属于两党共同提案。
+“出海先锋”沦为“监管靶心” 富途与老虎证券的崛起，是中国居民全球资产配置需求爆发与移动互联网红利叠加的产物。
 
-法案拟定电动车年度注册费初始标准为130 美元，此后每两年上调一次，最终涨至 150 美元。
+富途证券由腾讯前员工李华于2012年创立，依托腾讯的流量与技术基因，其推出的富途牛牛APP以极致的用户体验迅速在内地投资者中打开市场。
 
-仍需烧油、但燃油经济性优于传统燃油车的插电混动汽车车主也无法豁免，每年需缴纳 35 美元，后续逐步上调至 50 美元。
+老虎证券则由小米创始人雷军的天使投资加持，创始人巫天华同样出身互联网大厂，其打法更加激进，以“零佣金”等策略快速抢占市场份额。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 15:09 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 14:55 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 15:14 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 14:52 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 15:07 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 14:54 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 15:09 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 15:07 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 15:16 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 14:50 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 14:58 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 15:15 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 15:07 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 14:55 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 14:58 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 14:56 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 15:21 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 15:06 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 15:20 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 15:17 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 15:00 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 15:15 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 15:13 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 15:10 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 15:02 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/352685427152.shtml)
-- 2026-06-29 15:07 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/2656066.shtml)
-- 2026-06-29 15:06 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/827344.shtml)
-- 2026-06-29 15:09 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/77164.shtml)
-- 2026-06-29 15:09 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.minike.top/Article/details/4086407849.shtml)
-- 2026-06-29 15:15 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/5472536.shtml)
-- 2026-06-29 14:58 - [袁隆平院士 不容诋毁！](https://www.share.minike.top/Article/details/3507240.shtml)
-- 2026-06-29 15:12 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/411287.shtml)
-- 2026-06-29 15:05 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/4590952649.shtml)
-- 2026-06-29 15:08 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/597727079.shtml)
-- 2026-06-29 15:17 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/292221956926.shtml)
-- 2026-06-29 14:48 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/33338.shtml)
-- 2026-06-29 15:15 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/7997413211.shtml)
-- 2026-06-29 15:17 - [女心理师](https://www.share.minike.top/Article/details/10387.shtml)
-- 2026-06-29 15:03 - [上海一小区水池内出现一条鳄鱼](https://www.share.kurohicncr.top/Article/details/667430.shtml)
+- 2026-06-29 15:16 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/7804569949.shtml)
+- 2026-06-29 15:02 - [周杰伦演唱会真的好多人啊](https://www.share.kurohicncr.top/Article/details/3886066.shtml)
+- 2026-06-29 14:56 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/889856363.shtml)
+- 2026-06-29 14:54 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/724939795.shtml)
+- 2026-06-29 15:16 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/2965015684.shtml)
+- 2026-06-29 15:14 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/9788820.shtml)
+- 2026-06-29 15:07 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/291520.shtml)
+- 2026-06-29 15:04 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/352279741980.shtml)
+- 2026-06-29 15:13 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/35128.shtml)
+- 2026-06-29 15:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/37275046238.shtml)
+- 2026-06-29 15:18 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/28199.shtml)
+- 2026-06-29 15:12 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/3641426749.shtml)
+- 2026-06-29 15:01 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/65267.shtml)
+- 2026-06-29 14:55 - [扬名立万](http://www.share.minike.top/Article/details/300051754.shtml)
+- 2026-06-29 14:58 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/352310339181.shtml)

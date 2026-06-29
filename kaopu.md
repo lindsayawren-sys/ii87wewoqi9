@@ -1,53 +1,49 @@
-# 新加坡国务资政李显龙到访广西：在南宁体验打油茶
+# 英国宣布对俄罗斯加密货币网络实施新制裁
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 15:15 来源：中国新闻网 5月19日，新加坡国务资政李显龙在南宁参观中国—东盟特色商品汇聚中心时体验打油茶。“打油茶”是瑶族油茶习俗的俗称。油茶主要流传于广西侗族、瑶族等少数民族聚居区，拥有千年历史。(陈秋霞 制作 徐妙巧） 责任编辑：【罗攀】
+据一份电邮声明，英国宣布对俄罗斯加密货币网络实施制裁。 新的制裁方案针对加密货币交易所和“A7网络”，英国称俄罗斯利用该网络规避现有限制。 此次新增的18个制裁对象包括Huobi Global SA、Exmo Exchange、Eurasian Savings Bank和Sergey Mendeleev等。责任编辑：江学思
 
 ## 正文
 
-发布时间：2026年05月19日 15:15 来源：中国新闻网 5月19日，新加坡国务资政李显龙在南宁参观中国—东盟特色商品汇聚中心时体验打油茶。
+据一份电邮声明，英国宣布对俄罗斯加密货币网络实施制裁。
 
-“打油茶”是瑶族油茶习俗的俗称。
+新的制裁方案针对加密货币交易所和“A7网络”，英国称俄罗斯利用该网络规避现有限制。
 
-油茶主要流传于广西侗族、瑶族等少数民族聚居区，拥有千年历史。
+此次新增的18个制裁对象包括Huobi Global SA、Exmo Exchange、Eurasian Savings Bank和Sergey Mendeleev等。
 
-(陈秋霞 制作 徐妙巧） 责任编辑：【罗攀】
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 14:53 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 15:10 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 14:51 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 15:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 14:56 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 14:50 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 15:14 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 14:50 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 15:02 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 15:04 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 15:10 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 15:16 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 14:59 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 15:14 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 15:18 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 14:57 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 15:22 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 15:19 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 15:04 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 15:20 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 15:15 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 15:10 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 14:55 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 15:12 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 15:10 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:59 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/540003624.shtml)
-- 2026-06-29 15:06 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/389565187560.shtml)
-- 2026-06-29 14:51 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/2388712.shtml)
-- 2026-06-29 15:16 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/471483909.shtml)
-- 2026-06-29 14:54 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/5301109996.shtml)
-- 2026-06-29 15:16 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/0911764.shtml)
-- 2026-06-29 14:58 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/948508.shtml)
-- 2026-06-29 15:07 - [周生如故](https://www.share.kurohicncr.top/Article/details/19130.shtml)
-- 2026-06-29 15:15 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/26276185.shtml)
-- 2026-06-29 15:08 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/73981239.shtml)
-- 2026-06-29 15:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/74357524028.shtml)
-- 2026-06-29 14:49 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.kurohicncr.top/Article/details/343115011565.shtml)
-- 2026-06-29 15:06 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/136754.shtml)
-- 2026-06-29 15:09 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/88710844801.shtml)
-- 2026-06-29 15:08 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/533127840.shtml)
+- 2026-06-29 14:55 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/468795109.shtml)
+- 2026-06-29 15:02 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/70078360072.shtml)
+- 2026-06-29 15:02 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/248424.shtml)
+- 2026-06-29 15:03 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/374227149599.shtml)
+- 2026-06-29 15:19 - [时光音乐会](http://www.share.minike.top/Article/details/133846705231.shtml)
+- 2026-06-29 15:15 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/540838951.shtml)
+- 2026-06-29 15:01 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/6665703883.shtml)
+- 2026-06-29 15:13 - [NBA交易](https://www.share.kurohicncr.top/Article/details/5320707964.shtml)
+- 2026-06-29 15:09 - [首尔商铺禁止洪明甫入内](https://www.share.minike.top/Article/details/94708.shtml)
+- 2026-06-29 15:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/84628.shtml)
+- 2026-06-29 15:03 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/6210287.shtml)
+- 2026-06-29 15:23 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/43425748625.shtml)
+- 2026-06-29 15:06 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/0857017.shtml)
+- 2026-06-29 15:03 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/53303713.shtml)
+- 2026-06-29 15:10 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/56268.shtml)

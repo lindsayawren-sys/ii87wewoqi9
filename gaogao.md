@@ -1,58 +1,57 @@
-# 应收账款积压压力仍困扰小微企业，普惠金融需从“做大”转向“做强”
+# 香港中旅第一季度收入为11亿港元 同比增长13%
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 来源：华夏时报 “如果考核只强调总体规模，就可能难以准确反映金融资源是否真正流向更小、更弱、更需要支持的群体。”中国人民大学中国普惠金融研究院院长贝多广指出，“普惠金融战略推进过程中，既要关注规模增长，也要关注结构优化和金融健康。” 5月19日，2026清华五道口全球金融论坛在成都进入第二天议程。在“普惠金融与
+香港中旅（00308）发布公告，集团于截至2026年3月31日止3个月取得收入为11.0亿港元，较2025年第一季度增长13%；并于第一季度取得未包括投资性物业公允价值变动的调整净利润为1.3亿港元，较2025年第一季度增长101%。剔除本年度不再纳入集团合并报表的旅游地产业务后，集团第一季度收入与2025年同期对比增长23%。 2026年第一季度旅游景区及相关业务接待人数合共
 
 ## 正文
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 来源：华夏时报 “如果考核只强调总体规模，就可能难以准确反映金融资源是否真正流向更小、更弱、更需要支持的群体。
+香港中旅（00308）发布公告，集团于截至2026年3月31日止3个月取得收入为11.0亿港元，较2025年第一季度增长13%；并于第一季度取得未包括投资性物业公允价值变动的调整净利润为1.3亿港元，较2025年第一季度增长101%。
 
-”中国人民大学中国普惠金融研究院院长贝多广指出，“普惠金融战略推进过程中，既要关注规模增长，也要关注结构优化和金融健康。
+剔除本年度不再纳入集团合并报表的旅游地产业务后，集团第一季度收入与2025年同期对比增长23%。
 
-” 5月19日，2026清华五道口全球金融论坛在成都进入第二天议程。
+2026年第一季度旅游景区及相关业务接待人数合共约615万人次，较2025年第一季度增长19%。
 
-在“普惠金融与中小企业融资发展”主题论坛上，多位重量级嘉宾围绕相关议题展开深入讨论。
+第一季度收入增长主要由于（i）集团于2025年10月27日完成收购的吉林省松花湖国际度假区开发有限公司及中旅（北京）冰雪体育发展有限公司，为集团带来新的收入增长点；（ii）集团其他存量项目接待人数上升导致收入上升。
 
-与会专家普遍认为，在“十五五”开局之年，中国已建成全球最大规模的普惠信贷体系，普惠金融正从“做大”向“做强”转变。
+第一季度利润增长主要由于集团于2025年12月22日透过实物分派完成将旅游地产业务从集团分拆，旅游地产业务的财务业绩自实物分派完成当日起从集团的综合财务报表中分拆，集团实现剥离持续亏损企业；及集团的旅游景区及相关业务收入上升。
 
-然而，中小企业融资难、融资贵这一世界性难题远未终结，如何推动信贷资源精准流向“更需要支持的群体”、如何以数字技术弥合信息不对称、如何构建风险共担的财政金融协同机制，仍是各方关注的焦点。
-
-关注更小、更弱、更需要支持的群体 “讨论普惠金融与企业融资，不能只把融资理解为银行贷款。
-
-”贝多广表示。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 15:12 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 15:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 14:51 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 14:54 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 14:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 15:03 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 15:01 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 15:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 14:57 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 14:50 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 14:55 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 15:13 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 14:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 15:02 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 15:12 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 15:17 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 14:59 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 15:17 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 15:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 15:19 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 14:57 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 14:54 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 15:20 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 14:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 15:11 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 15:21 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:52 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/54663427048.shtml)
-- 2026-06-29 14:54 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/907155.shtml)
-- 2026-06-29 15:05 - [日本主帅：对战胜巴西很有信心](https://www.blog.kurohicncr.top/Article/details/964516.shtml)
-- 2026-06-29 15:08 - [周杰伦演唱会真的好多人啊](https://www.share.kurohicncr.top/Article/details/69211089.shtml)
-- 2026-06-29 15:07 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/095063615.shtml)
-- 2026-06-29 15:05 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/61759345632.shtml)
-- 2026-06-29 14:52 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/27335.shtml)
-- 2026-06-29 15:01 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/07172036854.shtml)
-- 2026-06-29 14:58 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/30884.shtml)
-- 2026-06-29 15:07 - [ENC瓦中国香港负印度数据图](http://www.blog.minike.top/Article/details/8519420.shtml)
-- 2026-06-29 15:01 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/84240477079.shtml)
-- 2026-06-29 14:51 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/297992931.shtml)
-- 2026-06-29 15:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/418089.shtml)
-- 2026-06-29 15:05 - [中国战机大片上新](https://www.share.minike.top/Article/details/1350315363.shtml)
-- 2026-06-29 14:55 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/840736.shtml)
+- 2026-06-29 14:56 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/20978.shtml)
+- 2026-06-29 15:21 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/97430171982.shtml)
+- 2026-06-29 15:18 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/30585.shtml)
+- 2026-06-29 14:59 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/50691.shtml)
+- 2026-06-29 14:55 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/26330.shtml)
+- 2026-06-29 15:06 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/318380505393.shtml)
+- 2026-06-29 15:10 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/067459090599.shtml)
+- 2026-06-29 15:20 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/72635.shtml)
+- 2026-06-29 15:07 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/50592.shtml)
+- 2026-06-29 15:07 - [南非老帅布罗斯的梦没能做完](http://www.blog.kurohicncr.top/Article/details/84310726042.shtml)
+- 2026-06-29 15:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/2279740148.shtml)
+- 2026-06-29 15:01 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/61473688214.shtml)
+- 2026-06-29 15:04 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/631063.shtml)
+- 2026-06-29 15:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/842502617180.shtml)
+- 2026-06-29 15:01 - [送你一朵小红花](http://www.share.minike.top/Article/details/756565190216.shtml)

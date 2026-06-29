@@ -1,55 +1,58 @@
-# 港股异动 | 劲方医药-B(02595)午前涨超6% GDF15/IL-6双抗注射液获CDE临床受理
+# 英伟达新品价格或几乎翻倍！产业上下游博弈进入新阶段
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-来源：智通财经网 劲方医药-B（02595）午前涨超6%，截至发稿，涨5.08%，报35.96港元，成交额1681.63万港元。 消息面上，CDE官网最新公示显示，劲方医药申报的GFS202A注射液临床试验申请，已于5月12日正式获得受理，受理号为CXSL2600491。公开资料显示，GFS202A为全球首款靶向GDF15与IL-6的双特异性抗体。 西南证券发布研报称，公司以产
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！尽管财报业绩超预期，人工智能（AI）算力总龙头英伟达自身股价仍连续两个交易日下跌，而核心供应链环节企业股价再度上攻，A股小伙伴也密集上涨。根据投资机构最新报告预测，在供应链成本持续攀升背景下，英伟达即将推出的新一代产品价格将几乎翻倍。对此英伟达方面暂无回应。 业内分析师对证券时报记者表示，AI硬件行业来到价
 
 ## 正文
 
-来源：智通财经网 劲方医药-B（02595）午前涨超6%，截至发稿，涨5.08%，报35.96港元，成交额1681.63万港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-消息面上，CDE官网最新公示显示，劲方医药申报的GFS202A注射液临床试验申请，已于5月12日正式获得受理，受理号为CXSL2600491。
+尽管财报业绩超预期，人工智能（AI）算力总龙头英伟达自身股价仍连续两个交易日下跌，而核心供应链环节企业股价再度上攻，A股小伙伴也密集上涨。
 
-公开资料显示，GFS202A为全球首款靶向GDF15与IL-6的双特异性抗体。
+根据投资机构最新报告预测，在供应链成本持续攀升背景下，英伟达即将推出的新一代产品价格将几乎翻倍。
 
-西南证券发布研报称，公司以产品矩阵进军胰腺癌、非小细胞肺癌、恶病质等大适应症市场，力求覆盖 1L 及各线治疗，产品进度全球领先；预计 2026-2028 年收入分别为 0.85/1.02/3.11亿元，分别同比-35%/+20%/+205%，首次覆盖，建议积极关注。
+对此英伟达方面暂无回应。
 
-责任编辑：孙同怀
+业内分析师对证券时报记者表示，AI硬件行业来到价值重构的关键节点。
+
+其中，内存与互联环节已经成为关键的物理瓶颈，产业链上下游博弈进入新阶段。
+
+GPU成本占比下降 受益于人工智能需求的持续爆发，英伟达2027财年第一财季（2026年2月至2026年4月）交出了一份超预期的“成绩单”，核心业务数据中心营收750亿美元，同比增长92%。
+
+作为核心驱动，Blackwell架构产品持续强劲，GB300与VL72机架需求尤为旺盛，头部模型厂商与超大规模云厂商已累计部署数十万片Blackwell GPU，创下公司史上最快产品上量速度。
 
 ## 相关推荐
 
-- 2026-06-29 15:17 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 14:48 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 15:16 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 15:09 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 15:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 14:48 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 14:48 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 15:16 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 14:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 15:16 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 15:10 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 15:16 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 14:55 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 15:02 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 14:56 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 15:19 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 15:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 15:02 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 15:04 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 14:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 14:58 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 15:09 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 15:23 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 15:08 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 15:22 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 15:17 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 15:01 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:57 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/570729.shtml)
-- 2026-06-29 15:15 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/07684412.shtml)
-- 2026-06-29 15:05 - [青春环游记第三季](http://www.blog.minike.top/Article/details/26423.shtml)
-- 2026-06-29 14:58 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/903388464363.shtml)
-- 2026-06-29 15:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/23139615.shtml)
-- 2026-06-29 15:15 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.minike.top/Article/details/23180.shtml)
-- 2026-06-29 14:51 - [光与夜之恋](http://www.share.minike.top/Article/details/412620600.shtml)
-- 2026-06-29 14:59 - [四川宜宾地震](https://www.share.kurohicncr.top/Article/details/7537987326.shtml)
-- 2026-06-29 14:55 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/87333910773.shtml)
-- 2026-06-29 15:17 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/4873546625.shtml)
-- 2026-06-29 15:17 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/78399112.shtml)
-- 2026-06-29 15:00 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/306326998902.shtml)
-- 2026-06-29 15:15 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/25537452130.shtml)
-- 2026-06-29 15:08 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.kurohicncr.top/Article/details/446964.shtml)
-- 2026-06-29 14:54 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/026286.shtml)
+- 2026-06-29 15:21 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/5379861.shtml)
+- 2026-06-29 15:15 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/75870.shtml)
+- 2026-06-29 15:19 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/242494.shtml)
+- 2026-06-29 15:21 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/319364901257.shtml)
+- 2026-06-29 15:22 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/40541420.shtml)
+- 2026-06-29 15:13 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/4848717988.shtml)
+- 2026-06-29 15:13 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/96662903.shtml)
+- 2026-06-29 15:10 - [千与千寻](https://www.blog.minike.top/Article/details/43339441.shtml)
+- 2026-06-29 15:16 - [端午节加班工资应该怎么算](https://www.share.minike.top/Article/details/91743.shtml)
+- 2026-06-29 15:03 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/37203077.shtml)
+- 2026-06-29 14:55 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/2178639.shtml)
+- 2026-06-29 15:11 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/57435148387.shtml)
+- 2026-06-29 15:08 - [比亚迪为什么卖得越多市值越低](http://www.share.kurohicncr.top/Article/details/034120.shtml)
+- 2026-06-29 14:54 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/72110981.shtml)
+- 2026-06-29 15:01 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/0851623827.shtml)

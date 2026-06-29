@@ -1,57 +1,58 @@
-# AMD苏姿丰重仓中国AI，预判50亿用户红利
+# 首钢朗泽于5月26日至5月29日招股 拟全球发售4000万股
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-记者丨陶力 董静怡 编辑丨骆一帆 包芳鸣 视频丨肖航 5月19日，上海前滩香格里拉酒店，成为中国AI圈的焦点。 AMD首次将全球AI开发者大会移师中国，这场原本计划容纳不到1000人的技术盛会，最终报名人数超过2000名。当AMD董事长兼CEO苏姿丰身着简约正装现身Demo展区时，现场瞬间掀起热潮。她所到之处，被开发者和媒体里三层外三层围堵，大家纷纷将手机举过头顶拍摄，不少人踮
+首钢朗泽（02553）于2026年5月26日至2026年5月29日招股，该公司拟全球发售4000万股H股（视乎超额配股权行使与否而定），其中香港发售占10%（可予重新分配），国际发售占90%（可予重新分配及视乎超额配股权行使与否而定），另有15%超额配股权。发售价将为每股发售股份14.60港元-17.10港元，每手200股，预期H股将于2026年6月3日上午九时正开始在联交所买
 
 ## 正文
 
-记者丨陶力 董静怡 编辑丨骆一帆 包芳鸣 视频丨肖航 5月19日，上海前滩香格里拉酒店，成为中国AI圈的焦点。
+首钢朗泽（02553）于2026年5月26日至2026年5月29日招股，该公司拟全球发售4000万股H股（视乎超额配股权行使与否而定），其中香港发售占10%（可予重新分配），国际发售占90%（可予重新分配及视乎超额配股权行使与否而定），另有15%超额配股权。
 
-AMD首次将全球AI开发者大会移师中国，这场原本计划容纳不到1000人的技术盛会，最终报名人数超过2000名。
+发售价将为每股发售股份14.60港元-17.10港元，每手200股，预期H股将于2026年6月3日上午九时正开始在联交所买卖。
 
-当AMD董事长兼CEO苏姿丰身着简约正装现身Demo展区时，现场瞬间掀起热潮。
+截至2023年、2024年及2025年12月31日止年度，公司的收入分别为人民币5.93亿元、人民币5.64亿元及人民币5.22亿元。
 
-她所到之处，被开发者和媒体里三层外三层围堵，大家纷纷将手机举过头顶拍摄，不少人踮脚争抢合影机会，场面堪比大型“追星现场”。
+公司的主要收入来自销售乙醇及微生物蛋白以及沼气和粗醇等副产品，同时公司也为寻求在其设施中实施公司专有的合成生物技术的工业客户提供低碳综合性解决方案。
 
-“你们兴奋吗？
+公司将自全球发售收到的所得款项净额将为：约4.87亿港元（相当于约人民币4.25亿元），假设每股股份发售价为14.60港元（即最低发售价）；约5.33亿港元（相当于约人民币4.66亿元），假设每股股份发售价为15.85港元（即发售价范围的中位值）；或约5.8亿港元（相当于约人民币5.06亿元），假设每股股份发售价为17.10港元（即最高发售价）。
 
-”在随后的演讲中，苏姿丰以一句热情的问候开篇，在近10分钟的演讲中，她预判未来五年全球AI活跃用户将突破50亿，大语言模型单一交互时代即将落幕，多智能体AI成为新赛道。
+约24.5%的所得款项净额预计将在未来两年用于公司的河北首朗二期生产设施。
 
-“无论你是谈论数据中心、PC，还是边缘设备，AI实际上正在重新定义计算的每一层。
+约24.8%的所得款项净额预计将于未来两年用于资助公司在内蒙古包头建设和开发SAF生产设施（SAF设施）的费用。
 
-” 目前，AMD明确将中国定位为路线图核心驱动力量，以端到端全栈算力，深度参与中国智能体与企业级AI生态建设。
+约15.7%的所得款项净额预计将用于未来三年内菌株、生产设备及工艺以及公司智能生产管理系统的研究与开发，以提升公司的生产效率。
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 15:07 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 15:09 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 15:05 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 15:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 15:13 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 15:08 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 14:52 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 14:57 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 15:13 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 15:16 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 15:13 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 15:14 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 15:14 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 14:56 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 15:09 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 15:12 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 15:01 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 15:23 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 15:09 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 15:13 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 14:57 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 15:19 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [叶一茜森碟一起回北京了](https://www.share.minike.top/Article/details/244027807532.shtml)
-- 2026-06-29 14:50 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/06725843.shtml)
-- 2026-06-29 15:14 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/78885624277.shtml)
-- 2026-06-29 15:15 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/212956.shtml)
-- 2026-06-29 14:51 - [上班主打一个薪尽自然凉](http://www.share.kurohicncr.top/Article/details/371043.shtml)
-- 2026-06-29 15:01 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/14033577.shtml)
-- 2026-06-29 15:04 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/7843806.shtml)
-- 2026-06-29 14:59 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/01446785923.shtml)
-- 2026-06-29 15:16 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/06010918599.shtml)
-- 2026-06-29 15:03 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/23149832.shtml)
-- 2026-06-29 14:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/706556.shtml)
-- 2026-06-29 14:53 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/7077390.shtml)
-- 2026-06-29 14:54 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/7802115.shtml)
-- 2026-06-29 15:12 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/63849529.shtml)
-- 2026-06-29 15:10 - [国家体育总局政策法规司原副司长获刑](https://www.blog.kurohicncr.top/Article/details/0875434.shtml)
+- 2026-06-29 15:24 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/0638387323.shtml)
+- 2026-06-29 14:58 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/501872272.shtml)
+- 2026-06-29 15:22 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/587531843.shtml)
+- 2026-06-29 15:02 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/7291706539.shtml)
+- 2026-06-29 15:10 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/860757.shtml)
+- 2026-06-29 15:12 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/5143690257.shtml)
+- 2026-06-29 14:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/1105815.shtml)
+- 2026-06-29 14:55 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/44626983911.shtml)
+- 2026-06-29 14:59 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/289191928304.shtml)
+- 2026-06-29 15:11 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/44093044.shtml)
+- 2026-06-29 15:09 - [美伊同意停止互袭](http://www.share.kurohicncr.top/Article/details/5536997.shtml)
+- 2026-06-29 15:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/37694209.shtml)
+- 2026-06-29 15:09 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/168370.shtml)
+- 2026-06-29 15:12 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/136932085579.shtml)
+- 2026-06-29 15:00 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/448875108477.shtml)

@@ -1,59 +1,59 @@
-# 黑石集团与谷歌据悉拟联手打造AI云业务 抢占算力市场
+# A股“电商代运营第一股”不想只做代运营生意 若羽臣再度递表港交所 自有品牌成色几何？
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-据知情人士透露，Alphabet Inc．旗下谷歌正计划与黑石集团合作成立一家人工智能（AI）云业务公司，以在快速增长的市场中与CoreWeave等企业竞争。 知情人士表示，该项目将依托黑石提供的50亿美元股权资本，黑石集团将成为控股股东。由于项目仍处于保密阶段，这些人士不愿具名。其中一位知情人士称，若计入杠杆融资，总投资规模将达到250亿美元。 知情人士称，到2027年，该项
+A股“电商代运营第一股”，已不满足于做代运营生意了。 4月27日，距离首次递表失效过去一个月，广州若羽臣科技股份有限公司（以下简称若羽臣，SZ003010）再度向港交所递交上市申请，中信建投国际与广发证券担任联席保荐人。 这一次，若羽臣的故事重点不再是帮别人卖货的代运营商，而是一个自有品牌收入占比过半的消费集团。2025年，若羽臣营收飙至34.32亿元，其中自有品牌收入占比52
 
 ## 正文
 
-据知情人士透露，Alphabet Inc．旗下谷歌正计划与黑石集团合作成立一家人工智能（AI）云业务公司，以在快速增长的市场中与CoreWeave等企业竞争。
+A股“电商代运营第一股”，已不满足于做代运营生意了。
 
-知情人士表示，该项目将依托黑石提供的50亿美元股权资本，黑石集团将成为控股股东。
+4月27日，距离首次递表失效过去一个月，广州若羽臣科技股份有限公司（以下简称若羽臣，SZ003010）再度向港交所递交上市申请，中信建投国际与广发证券担任联席保荐人。
 
-由于项目仍处于保密阶段，这些人士不愿具名。
+这一次，若羽臣的故事重点不再是帮别人卖货的代运营商，而是一个自有品牌收入占比过半的消费集团。
 
-其中一位知情人士称，若计入杠杆融资，总投资规模将达到250亿美元。
+2025年，若羽臣营收飙至34.32亿元，其中自有品牌收入占比52.8%，绽家、斐萃两大抖音爆品风头无两。
 
-知情人士称，到2027年，该项目力争建设约500兆瓦的计算能力。
+在递表前半个月，若羽臣还以4382.21万美元（约合人民币2.99亿元）全资收购了从事高端护肤品牌奥伦纳素研发与销售工作的Bespoke Holding Corporation和Erno Laszlo Group Ltd．，用以丰富其品牌组合。
 
-谷歌发言人未予置评，黑石方面未立即回应置评请求。
+《每日经济新闻》记者注意到，奥伦纳素仍处于亏损中，商誉减值风险不容忽视。
 
-责任编辑：王永生
+此外，2025年，若羽臣销售及营销开支高企，已是研发开支的50余倍。
+
+公司商品销售收入几乎全部都来自线上渠道，对电商平台依赖度极高，特别是近五成销售额“押注”在抖音。
 
 ## 相关推荐
 
-- 2026-06-29 15:01 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 15:00 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 15:17 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 15:10 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 14:58 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 14:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 15:00 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 15:14 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 14:49 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 15:15 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 14:54 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 15:17 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 15:01 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 15:03 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 15:15 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 15:01 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 15:13 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 14:58 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 15:01 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 15:03 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 15:11 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 15:07 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 15:20 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 15:01 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 14:56 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 15:16 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 15:04 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 15:13 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:57 - [网警提醒4类高考查分陷阱考生速看](http://www.share.minike.top/Article/details/6809591258.shtml)
-- 2026-06-29 14:58 - [周杰伦演唱会真的好多人啊](http://www.share.kurohicncr.top/Article/details/33229081751.shtml)
-- 2026-06-29 14:55 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/57355.shtml)
-- 2026-06-29 15:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/474560.shtml)
-- 2026-06-29 15:11 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/8271871.shtml)
-- 2026-06-29 15:10 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/063536884.shtml)
-- 2026-06-29 15:04 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/11648927999.shtml)
-- 2026-06-29 15:13 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/998657624020.shtml)
-- 2026-06-29 14:54 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/31846559.shtml)
-- 2026-06-29 14:52 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/1406478621.shtml)
-- 2026-06-29 15:09 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/343171250.shtml)
-- 2026-06-29 15:17 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/261492658451.shtml)
-- 2026-06-29 14:57 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/420280021166.shtml)
-- 2026-06-29 15:02 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/098575379.shtml)
-- 2026-06-29 15:09 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/788845796843.shtml)
+- 2026-06-29 14:57 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/863604.shtml)
+- 2026-06-29 15:15 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/698916589281.shtml)
+- 2026-06-29 15:14 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/295922296.shtml)
+- 2026-06-29 15:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/23403192006.shtml)
+- 2026-06-29 15:00 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/492555227028.shtml)
+- 2026-06-29 15:18 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/394774.shtml)
+- 2026-06-29 15:07 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/31085957008.shtml)
+- 2026-06-29 15:12 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/27068811878.shtml)
+- 2026-06-29 14:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/995292381649.shtml)
+- 2026-06-29 15:03 - [千与千寻](http://www.share.kurohicncr.top/Article/details/069216220.shtml)
+- 2026-06-29 15:04 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/290957093096.shtml)
+- 2026-06-29 15:22 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/7806201407.shtml)
+- 2026-06-29 15:04 - [扬名立万](https://www.share.kurohicncr.top/Article/details/14062682939.shtml)
+- 2026-06-29 15:19 - [韩媒破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/02750.shtml)
+- 2026-06-29 15:12 - [端午节加班工资应该怎么算](http://www.blog.kurohicncr.top/Article/details/6115964732.shtml)

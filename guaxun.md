@@ -1,56 +1,61 @@
-# 黑猫投诉4月数据说：受五一影响OTA投诉环比增长近三成
+# 少儿重疾险纠纷频发，理赔责任如何认定？
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-黑猫大数据中心联合黑猫投诉 【下载黑猫投诉客户端】平台发布4月数据说，截至2026年4月底，黑猫投诉平台累计收到消费者有效投诉近3507万件，企业回复近2727万件，投诉解决超2311万件，其中4月有效投诉近90万件。 黑猫大数据中心依托消费投诉数据，从分布、趋势、行业热点问题等多个角度全面梳理、盘点消费者投诉情况及关注热点，全面客观地反映消费行业发展动态、热点舆情事件、企业服
+来源：北京金融法院 近年来，随着居民保障意识的提升与家庭风险防护需求的增强，为孩子投保少儿重大疾病保险成为许多父母的选择。而由于少儿重疾险的合同条款专业程度高，理解较为复杂，家长与保险机构之间易产生相关理赔纠纷。 本期“金融案鉴”，我们将介绍三起典型的少儿重疾险合同纠纷，解析金融审判如何认定理赔责任、守护未成年人合法权益。 案情简介 01 案例一 杨某为其子赵某某投保少儿重大疾
 
 ## 正文
 
-黑猫大数据中心联合黑猫投诉 【下载黑猫投诉客户端】平台发布4月数据说，截至2026年4月底，黑猫投诉平台累计收到消费者有效投诉近3507万件，企业回复近2727万件，投诉解决超2311万件，其中4月有效投诉近90万件。
+来源：北京金融法院 近年来，随着居民保障意识的提升与家庭风险防护需求的增强，为孩子投保少儿重大疾病保险成为许多父母的选择。
 
-黑猫大数据中心依托消费投诉数据，从分布、趋势、行业热点问题等多个角度全面梳理、盘点消费者投诉情况及关注热点，全面客观地反映消费行业发展动态、热点舆情事件、企业服务质量。
+而由于少儿重疾险的合同条款专业程度高，理解较为复杂，家长与保险机构之间易产生相关理赔纠纷。
 
-随着五一小长假临近，4月黑猫投诉平台旅游出行相关领域投诉增长显著。
+本期“金融案鉴”，我们将介绍三起典型的少儿重疾险合同纠纷，解析金融审判如何认定理赔责任、守护未成年人合法权益。
 
-其中，OTA领域投诉近2万件，环比增长27.42%，投诉以酒店、机票预订为主，火车票投诉占比同比回落。
+案情简介 01 案例一 杨某为其子赵某某投保少儿重大疾病保险。
 
-航司领域投诉超5000件，退改手续费乱象突出，油价上涨致使航班取消相关投诉增多。
+后赵某某入院接受全麻开颅手术，出院记录载明主要诊断为某罕见病，保险公司以被保险人所患疾病属于免责条款规定的“先天性畸形、变形或染色体异常”为由拒绝赔付。
 
-此外，娱乐票务投诉环比大涨，演出门票不退票、高额退票费问题频发。
+法院认定保险公司未履行对免责条款的提示和明确说明义务，免责条款不发生效力。
 
-五一节前OTA投诉量增势迅猛 4月黑猫投诉平台OTA领域投诉量近2万件，环比增长27.42%。
+02 案例二 李某为其子张某某投保少儿重大疾病保险。
 
-投诉量变化与节假日节奏高度相关：月初，受清明节出行带动，投诉量小幅攀升；月中，进入五一出行预订高峰，消费者集中预订机票、酒店、门票，订单量激增直接推动投诉量显著上涨；月底，人们陆续启程前往目的地，出行需求集中释放，进一步带动投诉量快速走高。
+后张某某确诊某罕见病，保险公司以投保前孩子曾出现体检指标异常、投保人未履行如实告知义务为由拒绝赔付。
 
 ## 相关推荐
 
-- 2026-06-29 14:52 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 14:58 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 15:16 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 14:56 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 15:02 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 14:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 15:12 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 14:51 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 14:51 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 14:52 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 14:58 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 14:59 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 15:07 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 15:08 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 15:10 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 15:17 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 15:02 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 15:22 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 15:12 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 15:02 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 15:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 15:11 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 14:56 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 15:01 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 15:17 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/146800063.shtml)
-- 2026-06-29 15:17 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.kurohicncr.top/Article/details/09454087469.shtml)
-- 2026-06-29 15:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/42635.shtml)
-- 2026-06-29 15:03 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/524729.shtml)
-- 2026-06-29 15:06 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/211166.shtml)
-- 2026-06-29 15:07 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/277359.shtml)
-- 2026-06-29 15:16 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/6911135.shtml)
-- 2026-06-29 14:53 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/512519485722.shtml)
-- 2026-06-29 15:12 - [世界杯超牛补水广告出现了](http://www.blog.kurohicncr.top/Article/details/705234458.shtml)
-- 2026-06-29 14:57 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/30287859905.shtml)
-- 2026-06-29 15:12 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/008837318244.shtml)
-- 2026-06-29 15:03 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/07914700.shtml)
-- 2026-06-29 15:04 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/4110890884.shtml)
-- 2026-06-29 14:57 - [王楚钦3比0周启豪](https://www.blog.minike.top/Article/details/681586755.shtml)
-- 2026-06-29 14:48 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.kurohicncr.top/Article/details/302025539713.shtml)
+- 2026-06-29 15:09 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/76691167.shtml)
+- 2026-06-29 15:14 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/66832064.shtml)
+- 2026-06-29 15:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/3799313882.shtml)
+- 2026-06-29 15:08 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/8784599408.shtml)
+- 2026-06-29 15:00 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/3523778.shtml)
+- 2026-06-29 15:20 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/61034757.shtml)
+- 2026-06-29 14:57 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/64292.shtml)
+- 2026-06-29 15:06 - [恋与深空 731](https://www.blog.minike.top/Article/details/7681562016.shtml)
+- 2026-06-29 15:14 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/30037449.shtml)
+- 2026-06-29 15:21 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/90722365.shtml)
+- 2026-06-29 15:13 - [斗破苍穹](https://www.share.minike.top/Article/details/577282.shtml)
+- 2026-06-29 15:12 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.minike.top/Article/details/6178080.shtml)
+- 2026-06-29 14:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/51699577049.shtml)
+- 2026-06-29 15:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/72579.shtml)
+- 2026-06-29 14:55 - [明星大侦探第四季](https://www.share.minike.top/Article/details/95299025361.shtml)

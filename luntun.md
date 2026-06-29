@@ -1,60 +1,56 @@
-# 603319承认：公众号文章不符合信披规则
+# 龟兹小巷的“青春之力”：“00后”返乡青年让传统服饰焕新生
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月19日晚，美湖股份（603319）发布关于公司签署日常经营合同事项的监管工作函的回复公告，对此前上交所出具的监管工作函进行回复。 美湖股份称，本次与七腾机器人有限公司（简称“七腾”）签订的合同属于框架合同，合同销售额具有不确定性。七腾向公司的年度采购额9
+中新网新疆库车5月26日电 (苟继鹏)26日，在新疆库车市萨克萨克街道的龟兹小巷里，缝纫机哒哒作响，“00后”青年古丽伊科拉姆·阿布利肯在自己的服装店内忙个不停，为顾客加班赶制艾德莱斯裙。 “2025年我回到从小长大的老街，和做了四十多年裁缝的母亲一起创办这家服装店，主要经营艾德莱斯绸服饰定制。”古丽伊科拉姆说，不到一年时间，她的店铺就从60平方米扩张到130平方米，带动10名
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网新疆库车5月26日电 (苟继鹏)26日，在新疆库车市萨克萨克街道的龟兹小巷里，缝纫机哒哒作响，“00后”青年古丽伊科拉姆·阿布利肯在自己的服装店内忙个不停，为顾客加班赶制艾德莱斯裙。
 
-5月19日晚，美湖股份（603319）发布关于公司签署日常经营合同事项的监管工作函的回复公告，对此前上交所出具的监管工作函进行回复。
+“2025年我回到从小长大的老街，和做了四十多年裁缝的母亲一起创办这家服装店，主要经营艾德莱斯绸服饰定制。
 
-美湖股份称，本次与七腾机器人有限公司（简称“七腾”）签订的合同属于框架合同，合同销售额具有不确定性。
+”古丽伊科拉姆说，不到一年时间，她的店铺就从60平方米扩张到130平方米，带动10名当地群众就业，累计销售额超50万元。
 
-七腾向公司的年度采购额9.43亿元为可能的最高订单额，系根据合同最高采购量18万台估算而来，公司的最终销售额视七腾下达的具体订单情况而定。
+“小时候跟着妈妈在裁缝铺里长大，这里以前都是泥土房，现在改造后变成吸引全国游客的网红街区，既熟悉又新鲜，这里肯定有我们的机会。
 
-本合同对于订单下达的时间、订单的数量不具有约束性，因此本合同的销售额具有不确定性。
+”回忆起返乡的决定，古丽伊科拉姆说，自己的想法很简单，就是把母亲攒了几十年的裁缝手艺，和年轻人的新想法结合起来，让大家重新爱上新疆传统服饰。
 
-截至本回复出具日，七腾向公司发放订单涉及执行器90台。
+不同于传统艾德莱斯绸服饰的固定款式，古丽伊科拉姆和母亲主打私人定制，还在设计上大胆融合，用艾德莱斯绸做立领旗袍、拼接改良马面裙，甚至尝试结合汉服元素做出独具特色的新中式服饰。
 
-美湖股份还表示，本次签订的合同涉及的产品为四足机器狗的零部件产品，不属于人形机器人产品。
+“每天都在做新设计，每个顾客的要求都不一样，我们就顺着需求创新。
 
-公司在微信公众号上发布关于签署具身智能合同订单信息，公司未能关注到市场对具身智能与人形机器人存在概念混同的情形，未在发布的信息中明确说明公司产品配套四足机器狗而非人形机器人，上述发布的信息可能存在对投资者的决策产生误导。
+”古丽伊科拉姆介绍，艾德莱斯绸的制作讲究花纹对齐，做一条裙子需要整整7米布料，还要用特殊裁法拼接，让上下花纹严丝合缝，这份对工艺的坚持，也让店里的定制服装收获不少回头客。
 
 ## 相关推荐
 
-- 2026-06-29 14:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 15:00 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 15:05 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 15:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 15:13 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 15:01 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 15:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 14:56 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 15:04 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 14:52 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 15:13 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 15:17 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 15:11 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 15:01 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 15:19 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 15:04 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 15:02 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 15:03 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 15:18 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 15:03 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 15:16 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 15:06 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 15:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 15:01 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:17 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/974663600103.shtml)
-- 2026-06-29 15:07 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/601664.shtml)
-- 2026-06-29 15:03 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/8395864.shtml)
-- 2026-06-29 14:51 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/74466583.shtml)
-- 2026-06-29 15:16 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/0124474.shtml)
-- 2026-06-29 14:53 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/20955465745.shtml)
-- 2026-06-29 15:09 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/279456.shtml)
-- 2026-06-29 14:53 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/99728.shtml)
-- 2026-06-29 14:49 - [王祖蓝现场观看美加墨世界杯](http://www.blog.minike.top/Article/details/278019245953.shtml)
-- 2026-06-29 15:11 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/116097.shtml)
-- 2026-06-29 15:10 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/789530694870.shtml)
-- 2026-06-29 14:56 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/84962.shtml)
-- 2026-06-29 15:13 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/29714851757.shtml)
-- 2026-06-29 14:55 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/19731670.shtml)
-- 2026-06-29 14:51 - [送你一朵小红花](http://www.blog.minike.top/Article/details/229211.shtml)
+- 2026-06-29 15:21 - [马斯克也站到了光里](https://www.blog.kurohicncr.top/Article/details/558397588.shtml)
+- 2026-06-29 15:05 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/76389514941.shtml)
+- 2026-06-29 15:18 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/74785209.shtml)
+- 2026-06-29 15:17 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/877842.shtml)
+- 2026-06-29 14:55 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/64072179027.shtml)
+- 2026-06-29 15:16 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/011625374.shtml)
+- 2026-06-29 15:23 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/0498434.shtml)
+- 2026-06-29 15:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/05762361952.shtml)
+- 2026-06-29 15:22 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/78213936823.shtml)
+- 2026-06-29 15:15 - [恋与深空底线不该被娱乐化](http://www.blog.minike.top/Article/details/768955.shtml)
+- 2026-06-29 15:20 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/35475974105.shtml)
+- 2026-06-29 15:14 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/154140.shtml)
+- 2026-06-29 14:55 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/3988259.shtml)
+- 2026-06-29 15:02 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/365063551177.shtml)
+- 2026-06-29 15:03 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/61414472315.shtml)

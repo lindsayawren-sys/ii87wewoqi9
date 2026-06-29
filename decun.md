@@ -1,57 +1,61 @@
-# 体检报告频现“钙化灶”，是癌变前兆吗
+# 清退类固收产品？宜人智科紧急回应
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-拿到体检报告，不少市民看到“钙化灶” 三个字便心生恐慌，下意识与癌症画上等号。对此，镇江江大附院影像科主任医师周群详细拆解乳腺、甲状腺、肺部、前列腺、血管等常见部位钙化灶的医学含义。 周群介绍，钙化本身并非独立疾病，而是一种影像学表现，相当于人体组织经历损伤、炎症后自我修复留下的“痕迹”。 乳腺钙化灶是乳腺组织内钙质沉积形成，无法通过触摸感知，只能依靠钼靶精准检出。从临床来看，
+近期，市场出现关于“头部助贷机构良性清退类固收产品”的相关讨论，5月25日，宜人智科就此发布声明称：公司作为独立运营的上市公司主体，与其他业务板块分属独立的业务体系，运营管理完全隔离，彼此经营独立、互不影响。宜人智科未开展任何财富管理类相关业务。 近日，市场有消息称，宜人智科母公司宜信正对旗下类固收产品进行“良性清退”。截至5月22日美东时间收盘，宜人智科（YRD.N）股价大跌
 
 ## 正文
 
-拿到体检报告，不少市民看到“钙化灶” 三个字便心生恐慌，下意识与癌症画上等号。
+近期，市场出现关于“头部助贷机构良性清退类固收产品”的相关讨论，5月25日，宜人智科就此发布声明称：公司作为独立运营的上市公司主体，与其他业务板块分属独立的业务体系，运营管理完全隔离，彼此经营独立、互不影响。
 
-对此，镇江江大附院影像科主任医师周群详细拆解乳腺、甲状腺、肺部、前列腺、血管等常见部位钙化灶的医学含义。
+宜人智科未开展任何财富管理类相关业务。
 
-周群介绍，钙化本身并非独立疾病，而是一种影像学表现，相当于人体组织经历损伤、炎症后自我修复留下的“痕迹”。
+近日，市场有消息称，宜人智科母公司宜信正对旗下类固收产品进行“良性清退”。
 
-乳腺钙化灶是乳腺组织内钙质沉积形成，无法通过触摸感知，只能依靠钼靶精准检出。
+截至5月22日美东时间收盘，宜人智科（YRD.N）股价大跌14.44%，收于1.6美元，市值1.4亿美元。
 
-从临床来看，超过八成乳腺钙化均为良性，粗大圆形、斑点状、弧形、条状钙化，多源于退化纤维腺瘤、乳腺血管老化、哺乳后乳腺组织改变等情况，一般无需治疗，定期随访观察即可。
+5月25日，中国证券报·中证金牛座记者以媒体身份致电宜信客服采访产品清退相关问题，截至发稿前未获得有效反馈信息。
 
-而细小多形性、线样分支状，且成簇密集分布的微钙化，存在潜在风险，可能关联乳腺早期病变，需通过穿刺活检进一步明确性质。
+据了解，宜信成立于2006年，总部设立在北京，业务覆盖普惠金融、财富管理等板块，旗下拥有美股上市公司宜人智科与非上市的宜信财富等主体。
 
-甲状腺钙化多数也属于良性范畴。
+宜人智科，原名宜人金科，自2024年6月，品牌升级为为宜人智科，其前身为宜人贷，于2015年12月18日登陆纽约证券交易所。
 
-块状、弧状、蛋壳样等粗大钙化，良性概率极高，只需定期复查即可。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 15:09 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 15:04 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 15:07 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 15:17 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 15:15 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 15:16 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 15:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 15:04 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 15:02 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 15:10 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 15:16 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 15:06 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 15:02 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 15:16 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 15:19 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 15:17 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 15:08 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 15:22 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 15:14 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 15:10 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 15:20 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 15:18 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 15:03 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 15:01 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 15:02 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [青春环游记第三季](http://www.share.minike.top/Article/details/6141713.shtml)
-- 2026-06-29 15:08 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/16339405365.shtml)
-- 2026-06-29 14:52 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.kurohicncr.top/Article/details/40108352.shtml)
-- 2026-06-29 15:05 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/96903294.shtml)
-- 2026-06-29 15:14 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/9792556.shtml)
-- 2026-06-29 15:07 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/44448.shtml)
-- 2026-06-29 15:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/504014.shtml)
-- 2026-06-29 15:08 - [世界杯超牛补水广告出现了](http://www.share.minike.top/Article/details/562406534664.shtml)
-- 2026-06-29 15:14 - [美伊同意停止互袭](https://www.blog.kurohicncr.top/Article/details/41706.shtml)
-- 2026-06-29 15:02 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/410879882377.shtml)
-- 2026-06-29 14:59 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/381298158.shtml)
-- 2026-06-29 15:01 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/294051882.shtml)
-- 2026-06-29 14:50 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/4651355800.shtml)
-- 2026-06-29 15:00 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/73447.shtml)
-- 2026-06-29 15:16 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/835024024915.shtml)
+- 2026-06-29 15:09 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/2521746878.shtml)
+- 2026-06-29 14:58 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/2564864418.shtml)
+- 2026-06-29 15:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/96285867513.shtml)
+- 2026-06-29 15:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/904184108.shtml)
+- 2026-06-29 15:03 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/5807357765.shtml)
+- 2026-06-29 15:15 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/8713570674.shtml)
+- 2026-06-29 15:14 - [扬名立万](https://www.share.kurohicncr.top/Article/details/080187142859.shtml)
+- 2026-06-29 15:04 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/4656889.shtml)
+- 2026-06-29 15:08 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/49190341.shtml)
+- 2026-06-29 15:19 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/632239.shtml)
+- 2026-06-29 15:00 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/6206858.shtml)
+- 2026-06-29 14:57 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/01147644.shtml)
+- 2026-06-29 15:02 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/34478518.shtml)
+- 2026-06-29 14:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/232146087500.shtml)
+- 2026-06-29 15:00 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/50886.shtml)

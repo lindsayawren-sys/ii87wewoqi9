@@ -1,59 +1,61 @@
-# 土耳其南部发生枪击事件 已致6死8伤
+# 法拉利推出纯电动超跑Luce：售价64万美元 乔尼・艾夫操刀设计
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新社北京5月19日电 安卡拉消息：土耳其南部梅尔辛省当地时间18日发生一起枪击事件，造成6人死亡、8人受伤。 综合土耳其阿纳多卢通讯社、英国广播公司等媒体报道，当天，一名男子在梅尔辛省恰姆利亚伊拉区枪杀自己的前妻后，开车来到塔尔苏斯区一家餐馆，枪杀餐馆老板和一名员工。此后，这名男子又在另外几个地点开枪打死打伤多人。 截至当晚，此次事件造成6人死亡、8人受伤。伤者称不认识枪手。
+这款新车命名源自意大利语中的 “光芒”。如今电动汽车在美国市场热度消退，法拉利推出 Luce，也将考验顶级富豪群体的购车意愿。 内容速览 法拉利正式发布首款纯电动车型 Luce，由苹果前设计主管乔尼・艾夫联合设计，售价 64 万美元。 这是一款大量运用玻璃材质、主打通透采光与宽绰空间的电动座驾，和传统印象中的法拉利截然不同。 本周日，这家欧洲市值最高的汽车厂商，正式揭开了旗下首
 
 ## 正文
 
-中新社北京5月19日电 安卡拉消息：土耳其南部梅尔辛省当地时间18日发生一起枪击事件，造成6人死亡、8人受伤。
+这款新车命名源自意大利语中的 “光芒”。
 
-综合土耳其阿纳多卢通讯社、英国广播公司等媒体报道，当天，一名男子在梅尔辛省恰姆利亚伊拉区枪杀自己的前妻后，开车来到塔尔苏斯区一家餐馆，枪杀餐馆老板和一名员工。
+如今电动汽车在美国市场热度消退，法拉利推出 Luce，也将考验顶级富豪群体的购车意愿。
 
-此后，这名男子又在另外几个地点开枪打死打伤多人。
+内容速览 法拉利正式发布首款纯电动车型 Luce，由苹果前设计主管乔尼・艾夫联合设计，售价 64 万美元。
 
-截至当晚，此次事件造成6人死亡、8人受伤。
+这是一款大量运用玻璃材质、主打通透采光与宽绰空间的电动座驾，和传统印象中的法拉利截然不同。
 
-伤者称不认识枪手。
+本周日，这家欧洲市值最高的汽车厂商，正式揭开了旗下首款无内燃机车型的面纱。
 
-土耳其警方和宪兵部队已出动直升机和无人机搜捕枪手。
+新车名为Luce（读音：卢切），名字取自意大利语里的 “光芒”。
 
-土耳其总统埃尔多安18日称此为一次“野蛮”袭击。
+当前电动汽车在美国这一全球顶级豪华车市场遇冷，这款车型也将检验超级富豪对电动车的接受度。
 
-(完)
+该车由知名设计师、苹果前高管乔尼・艾夫参与打造。
 
 ## 相关推荐
 
-- 2026-06-29 15:02 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 15:14 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 14:55 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 15:12 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 15:00 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 15:13 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 15:07 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 15:00 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 15:01 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 14:54 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 14:50 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 14:56 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 14:59 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 14:57 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 15:13 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 15:12 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 15:15 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 15:22 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 15:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 15:19 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 15:03 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 15:19 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 14:59 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 15:08 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 15:19 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 15:18 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 15:07 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 15:08 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:05 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/731182002.shtml)
-- 2026-06-29 15:06 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/47785.shtml)
-- 2026-06-29 15:13 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/23697224021.shtml)
-- 2026-06-29 14:53 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/48200427.shtml)
-- 2026-06-29 14:54 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/426230.shtml)
-- 2026-06-29 15:04 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/01361.shtml)
-- 2026-06-29 15:01 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/938435202777.shtml)
-- 2026-06-29 14:57 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/517185139.shtml)
-- 2026-06-29 15:12 - [国家体育总局政策法规司原副司长获刑](http://www.share.minike.top/Article/details/199400512.shtml)
-- 2026-06-29 15:05 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/415974363669.shtml)
-- 2026-06-29 15:13 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/17064.shtml)
-- 2026-06-29 15:13 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/432987740811.shtml)
-- 2026-06-29 15:17 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/2777739462.shtml)
-- 2026-06-29 14:59 - [手游300亿数据或被军事化运用](https://www.blog.minike.top/Article/details/9868454337.shtml)
-- 2026-06-29 15:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/247633151291.shtml)
+- 2026-06-29 15:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/92288.shtml)
+- 2026-06-29 14:57 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/36714.shtml)
+- 2026-06-29 15:05 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/04254.shtml)
+- 2026-06-29 15:03 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/259833398324.shtml)
+- 2026-06-29 14:59 - [人民日报评“AI脸看腻了”](http://www.share.kurohicncr.top/Article/details/9258470.shtml)
+- 2026-06-29 15:22 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/16967775741.shtml)
+- 2026-06-29 15:17 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/451789410508.shtml)
+- 2026-06-29 15:22 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/41905227614.shtml)
+- 2026-06-29 15:04 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/868690.shtml)
+- 2026-06-29 15:20 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/76752.shtml)
+- 2026-06-29 15:12 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/0618254.shtml)
+- 2026-06-29 14:58 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/72315959884.shtml)
+- 2026-06-29 15:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/25251.shtml)
+- 2026-06-29 14:59 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/696314588422.shtml)
+- 2026-06-29 15:04 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/43061.shtml)

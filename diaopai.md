@@ -1,60 +1,58 @@
-# 股价靠热门概念翻红，泛地产股跨界是真转型还是纯炒作？
+# 2025年《中国河流泥沙公报》发布
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！界面新闻记者 | 王婷婷 科技题材持续走红，A股泛地产板块顺势借力，成为市场资金青睐标的。 近日，不少上市房企与地产产业链个股纷纷迎来股价回暖，京投发展（600683.SH）、合肥城建（002208.SZ）、金螳螂（002081.SZ）、蒙娜丽莎（00291
+中新网5月26日电 据“中国水利”微信公众号消息，近日，水利部发布2025年《中国河流泥沙公报》。 公报显示，2025年主要河流代表水文站总径流量为11710亿立方米，较多年平均年径流量偏小18%，较近10年平均径流量偏小17%，较上年度径流量偏小25%；代表站年总输沙量为4.01亿吨，较多年平均年输沙量偏小71%，较近10年平均年输沙量偏大8%，与上年度输沙量基本持平。202
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网5月26日电 据“中国水利”微信公众号消息，近日，水利部发布2025年《中国河流泥沙公报》。
 
-界面新闻记者 | 王婷婷 科技题材持续走红，A股泛地产板块顺势借力，成为市场资金青睐标的。
+公报显示，2025年主要河流代表水文站总径流量为11710亿立方米，较多年平均年径流量偏小18%，较近10年平均径流量偏小17%，较上年度径流量偏小25%；代表站年总输沙量为4.01亿吨，较多年平均年输沙量偏小71%，较近10年平均年输沙量偏大8%，与上年度输沙量基本持平。
 
-近日，不少上市房企与地产产业链个股纷纷迎来股价回暖，京投发展（600683.SH）、合肥城建（002208.SZ）、金螳螂（002081.SZ）、蒙娜丽莎（002918.SZ）等标的均迎来行情回升，原因均是依托商业航天、算力等热门概念。
+2025年长江径流量占全国总量的59%，流域总体呈现“先枯后丰”，其中汉江旱涝急转，接连形成7次编号洪水；黄河输沙量占全国总量的64%，平均含沙量为7.50千克每立方米，支流大黑河发生历史最大洪水，北洛河最大含沙量达1070千克每立方米，为各代表站最高；海河流域潮白河发生1959年以来最大洪水。
 
-以国资背景房企京投发展为例，该股在5月8日-12日强势拿下三连板，股价一举刷新历史纪录。
+2025年重点河段、重要水库及湖泊冲淤保持平稳，长江重庆主城区河段呈微淤状态，荆江河段冲淤变幅较小；黄河宁蒙河段以淤积为主，下游河道则主要表现为冲刷。
 
-冲高过后该股迎来短期调整，连续四个交易日震荡回落。
+长江三峡水库和丹江口水库库区淤积量分别为5200万吨、731万吨，排沙比分别为5.6%、26%；洞庭湖和鄱阳湖湖区冲刷量分别为199万吨和218万吨；黄河小浪底水库库区淤积量为0.914亿立方米。
 
-5月19日，京投发展再度迎来回暖行情，开盘后股价迅速翻红。
+2025年《中国河流泥沙公报》编制范围包括长江、黄河、淮河、海河、珠江、松花江、辽河、钱塘江、闽江、塔里木河、黑河和疏勒河等12条主要河流及青海湖区。
 
-截至当天收盘，个股报价16.62元/股，总市值123.12亿元。
+主要内容包括河流主要水文站的年径流量、年输沙量及其年内分布和洪水泥沙特征，重点河段冲淤变化，重要水库及湖泊冲淤变化和重要泥沙事件。
 
-从今年全年来看，京投发展自年初至今累计涨幅已达300%，是A股地产板块年初至今涨幅最高的房企。
+《中国河流泥沙公报》的及时发布为流域综合治理、水旱灾害防御、水资源管理、涉水工程建设运行及水生态修复等提供了科学依据，为社会公众了解中国河流泥沙状况提供了平台。
 
 ## 相关推荐
 
-- 2026-06-29 15:04 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 15:08 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 14:53 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 15:14 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 14:48 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 15:12 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 15:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 15:09 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 14:51 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 14:54 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 14:57 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 14:58 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 15:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 15:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 15:08 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 15:20 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 15:21 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 15:17 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 15:14 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 15:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 15:22 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 15:01 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 15:00 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 15:19 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 15:12 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 14:56 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.minike.top/Article/details/76883725938.shtml)
-- 2026-06-29 14:54 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/90396.shtml)
-- 2026-06-29 14:50 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/864291800.shtml)
-- 2026-06-29 15:17 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/16498319.shtml)
-- 2026-06-29 14:48 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/142642.shtml)
-- 2026-06-29 15:08 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.minike.top/Article/details/8798833.shtml)
-- 2026-06-29 15:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/34066.shtml)
-- 2026-06-29 14:59 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/938053.shtml)
-- 2026-06-29 14:56 - [ENC瓦中国香港负印度数据图](http://www.share.minike.top/Article/details/1736872.shtml)
-- 2026-06-29 15:06 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/70489023459.shtml)
-- 2026-06-29 14:55 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/97320843201.shtml)
-- 2026-06-29 15:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/5768911598.shtml)
-- 2026-06-29 14:51 - [比亚迪市值为何蒸发8000亿](https://www.share.kurohicncr.top/Article/details/53466765.shtml)
-- 2026-06-29 15:06 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/6494726.shtml)
-- 2026-06-29 15:00 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/68617273.shtml)
+- 2026-06-29 15:20 - [A股](http://www.share.minike.top/Article/details/0737652.shtml)
+- 2026-06-29 14:54 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/607190.shtml)
+- 2026-06-29 15:05 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/234108112.shtml)
+- 2026-06-29 15:11 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/26533887.shtml)
+- 2026-06-29 15:02 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/426989485941.shtml)
+- 2026-06-29 15:18 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/65499992.shtml)
+- 2026-06-29 15:03 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/699633.shtml)
+- 2026-06-29 15:21 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/36183881848.shtml)
+- 2026-06-29 15:13 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/232903.shtml)
+- 2026-06-29 15:19 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/0195897.shtml)
+- 2026-06-29 15:07 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/0895284.shtml)
+- 2026-06-29 14:59 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/294805907684.shtml)
+- 2026-06-29 15:03 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/9284097633.shtml)
+- 2026-06-29 15:19 - [航空运输旅客服务质量国标将实施](https://www.share.kurohicncr.top/Article/details/847190174710.shtml)
+- 2026-06-29 15:03 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/522212004.shtml)

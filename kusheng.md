@@ -1,59 +1,49 @@
-# 美国参议院的程序性投票显示对伊朗战争的反对声音增强
+# 俄专家：俄中友好关系是当今世界亟需的稳定基石丨世界观
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-由共和党控制的美国参议院周二在一次程序性投票中，对继续进行伊朗战争表现出越来越强的反对意见，这反映出人们对这场给美国人造成经济损失对外冲突的政治不安情绪日益加深。 来自路易斯安那州的参议员Bill Cassidy与其他三位共和党籍参议员一起投票支持一项停止敌对行动的决议，使其得以进入最终投票阶段。这是Cassidy首次支持这项决议。 50比47的投票结果清楚地表明，在特朗普考虑
+发布时间：2026年05月26日 15:08 来源：中国新闻网 在谈及当前俄中关系时，俄罗斯科学院中国与现代亚洲研究所世界政治与战略分析中心主任叶卡捷琳娜·扎克利亚济明斯卡娅(Ekaterina Zaklyazminskaya)指出：“放眼当下，(世界)地缘政治风云动荡，而俄中两国情谊历经长久沉淀，根基深厚。中国与俄罗斯之间的友好关系，正是当今全球局势最亟需的稳定基石。” 在她
 
 ## 正文
 
-由共和党控制的美国参议院周二在一次程序性投票中，对继续进行伊朗战争表现出越来越强的反对意见，这反映出人们对这场给美国人造成经济损失对外冲突的政治不安情绪日益加深。
+发布时间：2026年05月26日 15:08 来源：中国新闻网 在谈及当前俄中关系时，俄罗斯科学院中国与现代亚洲研究所世界政治与战略分析中心主任叶卡捷琳娜·扎克利亚济明斯卡娅(Ekaterina Zaklyazminskaya)指出：“放眼当下，(世界)地缘政治风云动荡，而俄中两国情谊历经长久沉淀，根基深厚。
 
-来自路易斯安那州的参议员Bill Cassidy与其他三位共和党籍参议员一起投票支持一项停止敌对行动的决议，使其得以进入最终投票阶段。
+中国与俄罗斯之间的友好关系，正是当今全球局势最亟需的稳定基石。
 
-这是Cassidy首次支持这项决议。
+” 在她看来，俄中两国秉持践行的新型国家相处模式，为全球南方国家树立了典范。
 
-50比47的投票结果清楚地表明，在特朗普考虑对伊朗发动新一轮军事行动之际，对军事行动的支持正在减弱。
-
-目前尚不清楚该决议最终能否在参议院获得通过。
-
-特朗普表示，应沙乌地阿拉伯和其他海湾国家的要求，他推迟了原定于周二对伊朗的新一轮轰炸。
-
-但他威胁伊朗，如果德黑兰不与他达成协议，将再次遭受重创。
-
-前述决议要求停止敌对行动，但并不会立即强制停止军事行动。
+(记者 吴辛茹） 责任编辑：【王高飞】
 
 ## 相关推荐
 
-- 2026-06-29 15:12 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 14:57 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 15:00 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 15:14 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 14:54 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 15:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 15:03 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 15:04 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 14:56 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 14:55 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 15:17 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 15:02 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 15:08 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 15:23 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 15:21 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 15:13 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 15:16 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 15:14 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 15:00 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 15:03 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 15:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 15:18 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 15:17 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 15:18 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/97803942.shtml)
-- 2026-06-29 15:02 - [市民骑哈啰单车79分钟被收费30元](https://www.share.kurohicncr.top/Article/details/100003421.shtml)
-- 2026-06-29 14:51 - [这一刀 会很帅](https://www.share.minike.top/Article/details/22385762715.shtml)
-- 2026-06-29 14:57 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/181945.shtml)
-- 2026-06-29 15:13 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/08723.shtml)
-- 2026-06-29 14:57 - [妹妹的正确用法！](https://www.blog.kurohicncr.top/Article/details/909303686678.shtml)
-- 2026-06-29 15:11 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/231142266.shtml)
-- 2026-06-29 14:56 - [张真源解读相思锁](http://www.share.minike.top/Article/details/321163168234.shtml)
-- 2026-06-29 15:08 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/72228018333.shtml)
-- 2026-06-29 14:49 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/90801464246.shtml)
-- 2026-06-29 15:03 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/88012107350.shtml)
-- 2026-06-29 15:06 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/54709.shtml)
-- 2026-06-29 15:11 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/1595801006.shtml)
-- 2026-06-29 15:09 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/2197881.shtml)
-- 2026-06-29 14:49 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/428138482.shtml)
+- 2026-06-29 15:02 - [青春环游记第三季](https://www.share.minike.top/Article/details/49219788410.shtml)
+- 2026-06-29 15:20 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/126921531469.shtml)
+- 2026-06-29 14:58 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/26712.shtml)
+- 2026-06-29 15:21 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/1815073.shtml)
+- 2026-06-29 14:58 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/88647.shtml)
+- 2026-06-29 15:10 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/275925109.shtml)
+- 2026-06-29 15:05 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/5684024728.shtml)
+- 2026-06-29 15:04 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/835120407888.shtml)
+- 2026-06-29 15:00 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/09576.shtml)
+- 2026-06-29 14:54 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/0795419765.shtml)
+- 2026-06-29 15:01 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/47561244.shtml)
+- 2026-06-29 14:55 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/29510994.shtml)
+- 2026-06-29 15:08 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/4455016401.shtml)
+- 2026-06-29 14:56 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/73370.shtml)
+- 2026-06-29 15:10 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.kurohicncr.top/Article/details/2494886750.shtml)

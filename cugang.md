@@ -1,61 +1,56 @@
-# 美银调查：40%基金经理视“二次通胀”为头号威胁，投资者正有序逐险而非疯狂扫货
+# （台海观澜）廿载守望 在福建泉州读懂“闽台缘”
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-美国银行周二公布的5月全球基金经理调查显示，“二次通胀”已取代地缘政治冲突，成为机构投资者的最大尾部风险。40%的受访者将其列为首要担忧，远高于其他选项。 与此同时，基金经理们对美股的配置达到了创纪录的超配水平。净50%的受访者表示超配美股，较4月的13%大幅飙升37个百分点，创下该项调查的历史最大月度增幅。这表明，尽管存在通胀反复的担忧，但市场对企业盈利和AI相关资本支出的乐
+中新社泉州5月27日电 题：廿载守望 在福建泉州读懂“闽台缘” 中新社记者 孙虹 “台胞捐赠的藏品涵盖宗教造像、陶瓷器皿、名人手稿、古籍文献、谱牒家书等多个品类。”中国唯一一座以反映大陆与台湾历史关系为主题的国家一级博物馆——中国闽台缘博物馆馆长郑国防向中新社记者介绍，这些藏品见证了两岸同胞同心共绘闽台缘的深厚情谊。 2006年5月27日，坐落于福建泉州的中国闽台缘博物馆正式对
 
 ## 正文
 
-美国银行周二公布的5月全球基金经理调查显示，“二次通胀”已取代地缘政治冲突，成为机构投资者的最大尾部风险。
+中新社泉州5月27日电 题：廿载守望 在福建泉州读懂“闽台缘” 中新社记者 孙虹 “台胞捐赠的藏品涵盖宗教造像、陶瓷器皿、名人手稿、古籍文献、谱牒家书等多个品类。
 
-40%的受访者将其列为首要担忧，远高于其他选项。
+”中国唯一一座以反映大陆与台湾历史关系为主题的国家一级博物馆——中国闽台缘博物馆馆长郑国防向中新社记者介绍，这些藏品见证了两岸同胞同心共绘闽台缘的深厚情谊。
 
-与此同时，基金经理们对美股的配置达到了创纪录的超配水平。
+2006年5月27日，坐落于福建泉州的中国闽台缘博物馆正式对外开放。
 
-净50%的受访者表示超配美股，较4月的13%大幅飙升37个百分点，创下该项调查的历史最大月度增幅。
+20年来，该馆通过各种方式充实文物藏品24560件、馆藏谱牒11456册、两岸家书9649件/套，其中40%的藏品为台胞捐赠；累计接待观众逾1770万人次，其中台胞逾103.8万人次。
 
-这表明，尽管存在通胀反复的担忧，但市场对企业盈利和AI相关资本支出的乐观情绪正在压倒避险需求。
+“闽台缘”不只体现在馆名，更分布在馆里的各个角落。
 
-与激进的股票配置形成鲜明对比的是，投资者对债券市场极为谨慎。
+郑国防说，馆内收藏着数不尽的两岸故事，见证了300多个两岸家族的团圆、数千位游子的笑与泪。
 
-由于担忧持续的通胀和财政赤字，62%的基金经理预计，30年期美债收益率将在未来12个月内升至6%，仅20%的受访者认为收益率会跌至4%。
+志愿讲解员黄芳萍还记得，2019年7月自己第一次正式上岗讲解，接待的是一个台湾进香团。
 
-在宏观经济判断上，悲观情绪显著消退。
+当她用闽南语说出“大家好”时，全团长辈们突然安静下来，有人眼眶泛红。
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 15:16 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 15:04 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 15:05 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 14:53 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 15:07 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 14:50 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 14:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 15:16 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 14:58 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 14:55 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 14:53 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 14:52 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 14:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 15:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 15:18 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 15:08 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 14:59 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 15:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 15:14 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 15:17 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 15:07 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 15:10 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 15:18 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 15:20 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:02 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/237410.shtml)
-- 2026-06-29 15:10 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/17533632102.shtml)
-- 2026-06-29 14:59 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/53485.shtml)
-- 2026-06-29 14:51 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.kurohicncr.top/Article/details/743647867.shtml)
-- 2026-06-29 15:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/10352.shtml)
-- 2026-06-29 15:06 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/06111474.shtml)
-- 2026-06-29 14:52 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/5195502.shtml)
-- 2026-06-29 15:03 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/206759887092.shtml)
-- 2026-06-29 15:13 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/947021.shtml)
-- 2026-06-29 15:11 - [5万块的威力](http://www.share.minike.top/Article/details/551571.shtml)
-- 2026-06-29 15:12 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/68153.shtml)
-- 2026-06-29 14:55 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/88221086492.shtml)
-- 2026-06-29 14:51 - [金牌调解](http://www.blog.minike.top/Article/details/9558103679.shtml)
-- 2026-06-29 14:59 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/282906.shtml)
-- 2026-06-29 14:49 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.minike.top/Article/details/00978.shtml)
+- 2026-06-29 14:54 - [5万块的威力](http://www.share.minike.top/Article/details/9487237.shtml)
+- 2026-06-29 15:09 - [送你一朵小红花](http://www.share.minike.top/Article/details/034219.shtml)
+- 2026-06-29 15:02 - [人民日报评“AI脸看腻了”](https://www.blog.kurohicncr.top/Article/details/4449429044.shtml)
+- 2026-06-29 15:21 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/767296.shtml)
+- 2026-06-29 15:16 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/398177081.shtml)
+- 2026-06-29 15:18 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/5699238.shtml)
+- 2026-06-29 14:57 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/9650009686.shtml)
+- 2026-06-29 15:21 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/245197166372.shtml)
+- 2026-06-29 15:18 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/240344686298.shtml)
+- 2026-06-29 15:17 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/40245.shtml)
+- 2026-06-29 15:13 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/182631.shtml)
+- 2026-06-29 15:21 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/3524506153.shtml)
+- 2026-06-29 15:11 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/479067965438.shtml)
+- 2026-06-29 14:57 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/2446822.shtml)
+- 2026-06-29 14:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/286268340.shtml)

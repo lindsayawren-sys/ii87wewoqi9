@@ -1,50 +1,61 @@
-# 网连山海，文明共赴
+# 国台办回应特朗普称“会和赖清德谈谈”
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 14:34 来源：中国新闻网 文明，是岁月沉淀的瑰宝，是山河孕育的华章；互鉴，是融通四海的胸怀，是时代前行的力量；互联网，让每一种文明都有被看见的温度，让每一份思想都有可奔赴的远方。5月19日，2026年中国网络文明大会网络文明国际交流互鉴分论坛在广西南宁举行。网络文明交流互鉴——网连山海，文明共赴！ 责任编辑：【任帅】
+中新网5月27日电 5月27日，国台办举行例行新闻发布会。有记者问：近日，美国总统特朗普在被问及就美对台军售做出决定前，是否会与赖清德通话时称，会和他“谈谈”。赖清德称若有机会对话，将强调对美军购是维护台湾安全、维护台海和平稳定的必要手段。请问对此有何评论？国台办发言人陈斌华表示，我们坚决反对美国与中国台湾地区开展任何形式的官方往来，坚决反对美国向台湾出售武器。敦促美方落实好中
 
 ## 正文
 
-发布时间：2026年05月19日 14:34 来源：中国新闻网 文明，是岁月沉淀的瑰宝，是山河孕育的华章；互鉴，是融通四海的胸怀，是时代前行的力量；互联网，让每一种文明都有被看见的温度，让每一份思想都有可奔赴的远方。
+中新网5月27日电 5月27日，国台办举行例行新闻发布会。
 
-5月19日，2026年中国网络文明大会网络文明国际交流互鉴分论坛在广西南宁举行。
+有记者问：近日，美国总统特朗普在被问及就美对台军售做出决定前，是否会与赖清德通话时称，会和他“谈谈”。
 
-网络文明交流互鉴——网连山海，文明共赴！
+赖清德称若有机会对话，将强调对美军购是维护台湾安全、维护台海和平稳定的必要手段。
 
-责任编辑：【任帅】
+请问对此有何评论？
+
+国台办发言人陈斌华表示，我们坚决反对美国与中国台湾地区开展任何形式的官方往来，坚决反对美国向台湾出售武器。
+
+敦促美方落实好中美元首会晤重要共识，恪守一个中国原则和中美三个联合公报，慎之又慎处理台湾问题，停止向“台独”分裂势力发出错误信号，以实际行动维护台海和平稳定和中美关系稳定发展态势。
+
+民进党当局蓄意“倚美谋独”、“以武谋独”，升高两岸对立对抗，破坏台海和平稳定，是不折不扣的“两岸和平破坏者”、“台海危机制造者”。
+
+正告民进党当局，祖国统一势不可挡，买再多武器都是螳臂当车，只会让“台独”加速败亡。
 
 ## 相关推荐
 
-- 2026-06-29 15:05 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 15:13 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 15:07 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 15:01 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 15:03 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 14:55 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 14:54 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 15:00 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 15:06 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 14:56 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 15:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 15:11 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 14:57 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 15:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 15:12 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 15:00 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 15:07 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 15:20 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 14:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 14:57 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 15:02 - [新一代影后杨紫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 15:00 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 15:21 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 15:20 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 14:58 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 15:23 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 14:55 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/362926.shtml)
-- 2026-06-29 15:17 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/684852809184.shtml)
-- 2026-06-29 14:55 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/0716345.shtml)
-- 2026-06-29 14:56 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/3279496.shtml)
-- 2026-06-29 14:52 - [绘画区你赢了](https://www.share.minike.top/Article/details/12404147911.shtml)
-- 2026-06-29 15:00 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/213614383675.shtml)
-- 2026-06-29 14:55 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/9931590750.shtml)
-- 2026-06-29 15:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/3167195.shtml)
-- 2026-06-29 14:56 - [韩媒破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/35785.shtml)
-- 2026-06-29 14:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/512845.shtml)
-- 2026-06-29 15:17 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/996870643.shtml)
-- 2026-06-29 14:59 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/034057617503.shtml)
-- 2026-06-29 15:03 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/26191024966.shtml)
-- 2026-06-29 15:10 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/656291317.shtml)
-- 2026-06-29 15:10 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/489376283900.shtml)
+- 2026-06-29 15:14 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/463918.shtml)
+- 2026-06-29 15:02 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/701746823206.shtml)
+- 2026-06-29 15:04 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/0745808.shtml)
+- 2026-06-29 15:01 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/703564297.shtml)
+- 2026-06-29 15:14 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.minike.top/Article/details/48205184374.shtml)
+- 2026-06-29 14:59 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/9121125.shtml)
+- 2026-06-29 15:11 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/46426839.shtml)
+- 2026-06-29 15:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/313824199.shtml)
+- 2026-06-29 14:59 - [恋与深空 731](https://www.share.minike.top/Article/details/18061.shtml)
+- 2026-06-29 15:00 - [扬名立万](https://www.share.kurohicncr.top/Article/details/84710.shtml)
+- 2026-06-29 15:08 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/39780876.shtml)
+- 2026-06-29 15:10 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/9522716406.shtml)
+- 2026-06-29 15:05 - [比亚迪为什么卖得越多市值越低](http://www.blog.kurohicncr.top/Article/details/880864199147.shtml)
+- 2026-06-29 15:17 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/6498297.shtml)
+- 2026-06-29 15:22 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/78416194705.shtml)

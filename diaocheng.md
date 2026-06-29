@@ -1,47 +1,54 @@
-# 独家视频丨习近平为俄罗斯总统普京举行欢迎仪式
+# 伊朗强调美伊谅解备忘录公布时应解冻120亿美元资产
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-视频：习近平举行仪式欢迎俄罗斯总统访华来源：央视新闻客户端 5月20日上午，国家主席习近平在北京人民大会堂东门外广场为来华进行国事访问的俄罗斯总统普京举行欢迎仪式。 总监制丨申勇 监制丨龚雪辉 记者丨史伟 王鹏飞 朱超 郁振一 黎兵 张洛嘉 邢彬 摄像丨总台时政摄像团队
+伊朗半官方的塔斯尼姆通讯社报道，据接近谈判团队的消息人士透露，伊朗强调与美国的谅解备忘录在宣布时，伊朗被冻结的约240亿美元资产中的一半应予以解冻。 并称其余一半应在60天内完成转移。 伊朗代表团赴卡塔尔谈判旨在就资金落实及获取途径达成共识。 会谈“总体上是积极的，并推动了整体谈判的进展。” 谈判期间必须解冻伊朗被冻结的资产。责任编辑：江学思
 
 ## 正文
 
-视频：习近平举行仪式欢迎俄罗斯总统访华来源：央视新闻客户端 5月20日上午，国家主席习近平在北京人民大会堂东门外广场为来华进行国事访问的俄罗斯总统普京举行欢迎仪式。
+伊朗半官方的塔斯尼姆通讯社报道，据接近谈判团队的消息人士透露，伊朗强调与美国的谅解备忘录在宣布时，伊朗被冻结的约240亿美元资产中的一半应予以解冻。
 
-总监制丨申勇 监制丨龚雪辉 记者丨史伟 王鹏飞 朱超 郁振一 黎兵 张洛嘉 邢彬 摄像丨总台时政摄像团队
+并称其余一半应在60天内完成转移。
+
+伊朗代表团赴卡塔尔谈判旨在就资金落实及获取途径达成共识。
+
+会谈“总体上是积极的，并推动了整体谈判的进展。
+
+” 谈判期间必须解冻伊朗被冻结的资产。
+
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 14:57 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 14:53 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 15:07 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 15:14 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 15:09 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 15:04 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 14:48 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 14:50 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 15:02 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 14:51 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 15:00 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 14:57 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 14:51 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 15:04 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 15:07 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 15:08 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 15:11 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 14:54 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 15:02 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 15:01 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 15:01 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 15:22 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 15:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 15:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 15:09 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:10 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/2597238.shtml)
-- 2026-06-29 15:15 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/166194022801.shtml)
-- 2026-06-29 14:58 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/587436230323.shtml)
-- 2026-06-29 14:54 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/5449993532.shtml)
-- 2026-06-29 15:12 - [苹果回应恋与深空低分](https://www.blog.minike.top/Article/details/2538756330.shtml)
-- 2026-06-29 14:56 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/70715.shtml)
-- 2026-06-29 15:01 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/7136269.shtml)
-- 2026-06-29 14:51 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/57846.shtml)
-- 2026-06-29 14:56 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/4794503091.shtml)
-- 2026-06-29 15:03 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/9816482538.shtml)
-- 2026-06-29 15:11 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/59740.shtml)
-- 2026-06-29 15:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/551377.shtml)
-- 2026-06-29 15:08 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/94560580.shtml)
-- 2026-06-29 15:14 - [斛珠夫人](http://www.blog.minike.top/Article/details/22903512563.shtml)
-- 2026-06-29 15:08 - [速度与激情9](https://www.blog.minike.top/Article/details/365408322.shtml)
+- 2026-06-29 15:00 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.minike.top/Article/details/365719.shtml)
+- 2026-06-29 15:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/20114138343.shtml)
+- 2026-06-29 15:10 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/08832777809.shtml)
+- 2026-06-29 15:18 - [起风了](http://www.blog.minike.top/Article/details/3424611880.shtml)
+- 2026-06-29 15:04 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/370955152800.shtml)
+- 2026-06-29 15:01 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/25565459313.shtml)
+- 2026-06-29 14:59 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/1265651.shtml)
+- 2026-06-29 15:12 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/17229534.shtml)
+- 2026-06-29 15:10 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/8165090.shtml)
+- 2026-06-29 15:05 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/64105446372.shtml)
+- 2026-06-29 15:15 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/039329953.shtml)
+- 2026-06-29 15:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/7246032.shtml)
+- 2026-06-29 15:21 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/431723.shtml)
+- 2026-06-29 15:18 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/0279811.shtml)
+- 2026-06-29 14:57 - [媒体：网络测评不能只剩“生意”](https://www.share.kurohicncr.top/Article/details/280563.shtml)

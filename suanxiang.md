@@ -1,61 +1,49 @@
-# 小摩：百度集团-SW目标价升至225港元 维持“增持”评级
+# 突刺砺胆！直击武警刺杀对抗训练
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，重新评估百度集团-SW（09888）的业务架构。小摩将百度港股目标价由195港元上调至225港元，百度（BIDU.US）美股目标价由200美元上调至230美元，维持“增持”评级。该行预测，随着AI业务占比机械式上升，而广告业务的拖累因基数变小而减弱，此趋势将在2026年持续强化。 报告认为，市场早前预期资金会在昆仑芯上市后从百度轮换至昆仑芯。然而，百度今年第
+发布时间：2026年05月26日 09:50 来源：中国新闻网 近日，武警第二机动总队某部组织不同典型作战条件下刺杀对抗训练，淬炼官兵近身搏杀硬功，磨砺血性和胆气，强化实战应变本领，进一步提升胜战打赢本领。(作者：翟振江 陈荣斌 李文迪 白乙森 张东明） 责任编辑：【魏聪聪】
 
 ## 正文
 
-摩根大通发布研报称，重新评估百度集团-SW（09888）的业务架构。
+发布时间：2026年05月26日 09:50 来源：中国新闻网 近日，武警第二机动总队某部组织不同典型作战条件下刺杀对抗训练，淬炼官兵近身搏杀硬功，磨砺血性和胆气，强化实战应变本领，进一步提升胜战打赢本领。
 
-小摩将百度港股目标价由195港元上调至225港元，百度（BIDU.US）美股目标价由200美元上调至230美元，维持“增持”评级。
-
-该行预测，随着AI业务占比机械式上升，而广告业务的拖累因基数变小而减弱，此趋势将在2026年持续强化。
-
-报告认为，市场早前预期资金会在昆仑芯上市后从百度轮换至昆仑芯。
-
-然而，百度今年第一季的业绩打破了这一说法。
-
-百度核心AI业务收入达136亿元人民币，同比增长49%，首次在百度核心业务中占比过半，达52%。
-
-该行更新的分类加总估值法（SOTP）显示，仅AI业务的估值已对应每份ADS达169美元，高于未计入传统业务、爱奇艺或净现金前的当前股价水平。
-
-责任编辑：卢昱君
+(作者：翟振江 陈荣斌 李文迪 白乙森 张东明） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 14:53 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 15:12 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 15:17 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 15:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 15:09 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 15:10 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 14:48 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 14:51 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 14:51 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 15:08 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 14:52 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 14:48 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 15:10 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 14:54 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 15:01 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 14:58 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 15:04 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 15:18 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 15:09 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 15:23 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 15:13 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 15:18 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 15:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 15:16 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 15:16 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 15:18 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 15:05 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 14:54 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 15:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [A股](http://www.blog.minike.top/Article/details/841879.shtml)
-- 2026-06-29 14:54 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/48090.shtml)
-- 2026-06-29 15:10 - [扫黑风暴](http://www.share.minike.top/Article/details/19563.shtml)
-- 2026-06-29 15:08 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/7318191645.shtml)
-- 2026-06-29 14:53 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/926336766.shtml)
-- 2026-06-29 14:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/78384268.shtml)
-- 2026-06-29 15:09 - [105年初心滚烫](http://www.blog.minike.top/Article/details/7176159812.shtml)
-- 2026-06-29 15:02 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/1628258963.shtml)
-- 2026-06-29 15:12 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/01097397.shtml)
-- 2026-06-29 15:16 - [小娘惹](http://www.share.minike.top/Article/details/559042.shtml)
-- 2026-06-29 15:13 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/280223.shtml)
-- 2026-06-29 15:08 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/122021793.shtml)
-- 2026-06-29 15:15 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/26147236769.shtml)
-- 2026-06-29 15:01 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/95361816117.shtml)
-- 2026-06-29 14:57 - [逆天祖国人](http://www.share.minike.top/Article/details/558165941.shtml)
+- 2026-06-29 15:23 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/6174320994.shtml)
+- 2026-06-29 15:01 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/4892765442.shtml)
+- 2026-06-29 15:04 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/9712245.shtml)
+- 2026-06-29 15:22 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/553089.shtml)
+- 2026-06-29 15:01 - [105年初心滚烫](https://www.blog.minike.top/Article/details/8204326.shtml)
+- 2026-06-29 15:19 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/38816048.shtml)
+- 2026-06-29 15:15 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/6152812.shtml)
+- 2026-06-29 15:09 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/16958.shtml)
+- 2026-06-29 15:06 - [叶一茜森碟一起回北京了](http://www.share.kurohicncr.top/Article/details/3211651193.shtml)
+- 2026-06-29 15:14 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/0199490.shtml)
+- 2026-06-29 15:19 - [韩媒破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/84753463.shtml)
+- 2026-06-29 15:23 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/7405614312.shtml)
+- 2026-06-29 15:06 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/5972017.shtml)
+- 2026-06-29 15:06 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/275171.shtml)
+- 2026-06-29 15:19 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/410235722.shtml)

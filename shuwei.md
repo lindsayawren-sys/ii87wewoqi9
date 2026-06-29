@@ -1,57 +1,57 @@
-# 习近平同俄罗斯总统普京会谈
+# 第二十二届文博会落幕 吸引超3.5万名海外专业观众
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-新华社北京5月20日电(记者杨依军、温馨)5月20日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。两国元首一致同意《中俄睦邻友好合作条约》继续延期。 两国元首先后举行小范围、大范围会谈。 习近平指出，今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。中俄两国签署睦邻友好合作条约，以法律形式确立了长期睦邻友好、全面战略
+中新社深圳5月25日电 (记者 索有为)第二十二届中国(深圳)国际文化产业博览交易会(下称“文博会”)25日在深圳落幕，为期5天的文博会总参与人次突破280万，超过13万名专业采购商从世界各地前来参会，其中包括来自110个国家和地区、超3.5万名海外专业观众。据组委会通报，本届文博会打造全国文化产业招商引资重要平台，一大批优质项目集中亮相，11个重点项目现场签约，涵盖文旅开发、
 
 ## 正文
 
-新华社北京5月20日电(记者杨依军、温馨)5月20日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。
+中新社深圳5月25日电 (记者 索有为)第二十二届中国(深圳)国际文化产业博览交易会(下称“文博会”)25日在深圳落幕，为期5天的文博会总参与人次突破280万，超过13万名专业采购商从世界各地前来参会，其中包括来自110个国家和地区、超3.5万名海外专业观众。
 
-两国元首一致同意《中俄睦邻友好合作条约》继续延期。
+据组委会通报，本届文博会打造全国文化产业招商引资重要平台，一大批优质项目集中亮相，11个重点项目现场签约，涵盖文旅开发、数字科技、文化贸易、城市更新等多个领域。
 
-两国元首先后举行小范围、大范围会谈。
+广东展团展期共举办69场活动，组织51个专业采购商团、1500余名专业采购商到场对接，现场签约和意向签约金额超100亿元人民币。
 
-习近平指出，今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。
+本届文博会集中呈现文化与科技深度融合最新成果。
 
-中俄两国签署睦邻友好合作条约，以法律形式确立了长期睦邻友好、全面战略协作的制度基础，中俄关系由此实现跨越式发展。
+华为、腾讯、阿里千问等200余家AI头部企业和近百项AI最新应用场景项目集中亮相，人工智能、数字演艺、未来科技、AI切磋大会、跨境电商等新展区全面落地，文化科技龙头集聚，AI应用集中迸发。
 
-中俄关系一步一个脚印走到今天这个高度，是因为双方以“千磨万击还坚劲”的毅力不断深化政治互信和战略协作，以“更上一层楼”的精神拓展各领域合作，以“乱云飞渡仍从容”的勇气捍卫国际公道正义、推动构建人类命运共同体。
+其中，中国国家版本馆展出五代吴越国“雷峰塔经”等古籍精品，以典籍实物与数字交互屏结合的方式让观众感受数字技术赋予传统文化的时代价值；辽宁展区深度开发《簪花仕女图》《洛神赋图》等辽宁博物馆馆藏国宝级书画价值，通过数智化手段打造虚实结合、动静相称的沉浸式场景；深圳龙岗展区AI数字人、MR虚实融合体验、AI短剧、玉雕垂直领域大模型等悉数登场；前海展区AI相框、3D打印等前沿应用集中亮相，打造沉浸式科技体验空间。
 
-当前国际形势下，作为联合国安理会常任理事国和世界重要大国，中俄两国要着眼战略长远，以更高质量的全面战略协作助力各自国家发展振兴，推动构建更加公正合理的全球治理体系。
+同步举办的文博会艺术季上，俄罗斯马林斯基交响乐团、法国凡尔赛宫皇家歌剧院管弦乐团献演，推出10台19场国际顶级剧目。
 
-习近平指出，中俄两国坚持在平等相待、相互尊重、重信守义、合作共赢的基础上发展新时代全面战略协作伙伴关系，政治互信不断深化，经贸、投资、能源、科技、人文、地方等合作持续推进，民心相通更加牢固。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:17 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 14:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 15:02 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 15:02 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 15:02 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 14:55 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 15:04 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 15:14 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 14:59 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 15:00 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 14:57 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 15:02 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 15:20 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 15:14 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 14:54 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 15:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 15:05 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 15:19 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 15:14 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 15:03 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 15:15 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 14:58 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/83650712.shtml)
-- 2026-06-29 15:00 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/93326880.shtml)
-- 2026-06-29 14:56 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/8814661412.shtml)
-- 2026-06-29 14:53 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/23431315.shtml)
-- 2026-06-29 15:12 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/09916122.shtml)
-- 2026-06-29 14:55 - [沙丘](http://www.blog.minike.top/Article/details/36791642276.shtml)
-- 2026-06-29 15:17 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/615087.shtml)
-- 2026-06-29 15:05 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/8472253.shtml)
-- 2026-06-29 15:07 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/9935911.shtml)
-- 2026-06-29 15:00 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/5557288.shtml)
-- 2026-06-29 15:17 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/350832875.shtml)
-- 2026-06-29 15:09 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/82165148.shtml)
-- 2026-06-29 14:55 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/5486981926.shtml)
-- 2026-06-29 15:01 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/9111383.shtml)
-- 2026-06-29 15:16 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/055192.shtml)
+- 2026-06-29 15:07 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/513565828964.shtml)
+- 2026-06-29 15:14 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/95776561.shtml)
+- 2026-06-29 15:06 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/21451.shtml)
+- 2026-06-29 15:20 - [美媒：空警-3000服役即成全球最强](https://www.share.kurohicncr.top/Article/details/64609079.shtml)
+- 2026-06-29 15:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/04414.shtml)
+- 2026-06-29 15:09 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/698711.shtml)
+- 2026-06-29 14:58 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/904575.shtml)
+- 2026-06-29 14:57 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/7070204.shtml)
+- 2026-06-29 15:07 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/5098665.shtml)
+- 2026-06-29 15:13 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/459608695.shtml)
+- 2026-06-29 15:22 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/79471553.shtml)
+- 2026-06-29 14:58 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/128059.shtml)
+- 2026-06-29 15:23 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/24530084.shtml)
+- 2026-06-29 15:14 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/391428027.shtml)
+- 2026-06-29 15:07 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/4966607.shtml)

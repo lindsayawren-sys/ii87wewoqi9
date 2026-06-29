@@ -1,61 +1,60 @@
-# 9连跌停！002082，最新公告！
+# 凭祥外贸“换芯”记
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-连续9个交易日跌停后，ST万邦（维权）（002082）迎来重磅消息。 5月18日晚，ST万邦公告称，全资子公司万邦德制药集团有限公司近日收到国家知识产权局的《授予发明专利权通知书》，专利名称为“一种二硫环肽化合物及其制备方法和应用”。 本专利涉及一种具有特定二硫键结构的环肽化合物，以及其制备方法和广泛的临床应用。作为黑皮质素受体的高选择性配体，可在急性或慢性炎性疾病、自身免疫性
+广西云-广西日报记者 管林华 通讯员 邱 洁 黄 聪 实习生 郑星宇 5月19日9时许，南疆国门凭祥友谊关口岸迎来了繁忙时刻。越南司机阮文雄驾驶货车驶入智能卡口，摇下车窗，面部对准摄像头——车辆放行声音响起，栏杆上抬。从停车到放行，不足3分钟。他拿起副驾驶座上的咖啡杯，打开盖子，热咖啡的白气袅袅飘散。 “以前过关要等一两个小时。”他用中文说，“现在咖啡还没凉，人就过来了。” 友
 
 ## 正文
 
-连续9个交易日跌停后，ST万邦（维权）（002082）迎来重磅消息。
+广西云-广西日报记者 管林华 通讯员 邱 洁 黄 聪 实习生 郑星宇 5月19日9时许，南疆国门凭祥友谊关口岸迎来了繁忙时刻。
 
-5月18日晚，ST万邦公告称，全资子公司万邦德制药集团有限公司近日收到国家知识产权局的《授予发明专利权通知书》，专利名称为“一种二硫环肽化合物及其制备方法和应用”。
+越南司机阮文雄驾驶货车驶入智能卡口，摇下车窗，面部对准摄像头——车辆放行声音响起，栏杆上抬。
 
-本专利涉及一种具有特定二硫键结构的环肽化合物，以及其制备方法和广泛的临床应用。
+从停车到放行，不足3分钟。
 
-作为黑皮质素受体的高选择性配体，可在急性或慢性炎性疾病、自身免疫性疾病、糖尿病、癌症等领域治疗提供新的候选药物分子。
+他拿起副驾驶座上的咖啡杯，打开盖子，热咖啡的白气袅袅飘散。
 
-同时，该化合物新颖的结构具有良好的靶向性、稳定性、生物活性。
+“以前过关要等一两个小时。
 
-对阿尔茨海默病、帕金森病、重症肌无力、肥胖与超重、天疱疮等疾病的创新药物研发具有重要意义。
+”他用中文说，“现在咖啡还没凉，人就过来了。
 
-从上述发明专利的适用领域来看，对阿尔茨海默病创新药的研发意义尤为抢眼。
+” 友谊关，中国通往东盟最便捷的陆路口岸。
 
-目前，阿尔茨海默病（俗称“老年痴呆症”、简称“AD”）的治疗是一项世界性难题。
+每天，上千辆跨境货车享受“秒级通关”。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 14:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 14:55 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 15:02 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 15:06 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 15:17 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 15:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 15:08 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 14:52 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 15:13 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 14:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 15:15 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 14:57 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 15:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 15:00 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 15:16 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 15:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 15:22 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 15:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 15:04 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 15:04 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 15:13 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 15:00 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 14:59 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 15:21 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 15:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 15:12 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 14:56 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 15:20 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:13 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/3608905523.shtml)
-- 2026-06-29 15:01 - [请回答王牌2019](http://www.blog.minike.top/Article/details/580246386.shtml)
-- 2026-06-29 15:06 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/644761.shtml)
-- 2026-06-29 15:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/29135.shtml)
-- 2026-06-29 15:06 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/77854835908.shtml)
-- 2026-06-29 14:53 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/789195.shtml)
-- 2026-06-29 15:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/01888395196.shtml)
-- 2026-06-29 14:58 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/3877042745.shtml)
-- 2026-06-29 15:02 - [斗破苍穹](https://www.blog.minike.top/Article/details/419742834.shtml)
-- 2026-06-29 15:08 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/0065817.shtml)
-- 2026-06-29 15:17 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/92231526231.shtml)
-- 2026-06-29 15:18 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/400503784.shtml)
-- 2026-06-29 15:16 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/6825100.shtml)
-- 2026-06-29 14:53 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/825041.shtml)
-- 2026-06-29 15:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/5501082.shtml)
+- 2026-06-29 15:14 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/807232437.shtml)
+- 2026-06-29 15:05 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/557086731.shtml)
+- 2026-06-29 15:18 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/5242098066.shtml)
+- 2026-06-29 14:57 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/553064310176.shtml)
+- 2026-06-29 15:17 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/40338420.shtml)
+- 2026-06-29 15:22 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/7215809.shtml)
+- 2026-06-29 15:21 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/540371277907.shtml)
+- 2026-06-29 15:14 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/9910793651.shtml)
+- 2026-06-29 15:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/34034745894.shtml)
+- 2026-06-29 15:01 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/141620305.shtml)
+- 2026-06-29 15:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/23335.shtml)
+- 2026-06-29 15:03 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/010259013.shtml)
+- 2026-06-29 15:07 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.kurohicncr.top/Article/details/210009013.shtml)
+- 2026-06-29 14:56 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/505930999226.shtml)
+- 2026-06-29 14:57 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/52013.shtml)

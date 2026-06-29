@@ -1,59 +1,59 @@
-# “熊猫专列·锦绣天府号”首发 蜀锦宋韵解锁高端文旅出行新范式
+# 国台办驳斥马英九不能访陆传闻
 
-> 更新时间：2026-06-29 15:18:02 UTC+8
+> 更新时间：2026-06-29 15:24:03 UTC+8
 
 ## 摘要
 
-中新网成都5月19日电 (记者 王鹏)蜀锦宋韵主题高端旅游列车“熊猫专列·锦绣天府号”19日在成都首发，标志着“熊猫专列”家族再添新成员。 据了解，自2021年“熊猫专列”旅游产品推出以来，已先后在贵州、云南、山东、新疆、甘肃、黑龙江等30多个省区市开行。旅游列车将观光与出行深度融合，以“快旅慢游、一线多游、省心便捷、环境舒适”的特点，满足游客多元化的出行需求，目前已形成“安逸
+中新网5月27日电 5月27日，国台办举行例行新闻发布会。有记者问：马英九基金会一直大力推进两岸交流。日前台媒报道，传闻马英九去年访问大陆时有情绪管控不佳问题，大陆方面内部达成共识，不再让马英九访问大陆。请问对此有何评论？国台办发言人陈斌华表示，所谓“大陆有关部门达成共识不再让马英九先生访问大陆”的说法纯属捕风捉影，是彻彻底底的谣言。近年来，马英九基金会开展了系列两岸交流活动，
 
 ## 正文
 
-中新网成都5月19日电 (记者 王鹏)蜀锦宋韵主题高端旅游列车“熊猫专列·锦绣天府号”19日在成都首发，标志着“熊猫专列”家族再添新成员。
+中新网5月27日电 5月27日，国台办举行例行新闻发布会。
 
-据了解，自2021年“熊猫专列”旅游产品推出以来，已先后在贵州、云南、山东、新疆、甘肃、黑龙江等30多个省区市开行。
+有记者问：马英九基金会一直大力推进两岸交流。
 
-旅游列车将观光与出行深度融合，以“快旅慢游、一线多游、省心便捷、环境舒适”的特点，满足游客多元化的出行需求，目前已形成“安逸号”“什邡号”“成都号”及“锦绣天府号”四代谱系化产品体系。
+日前台媒报道，传闻马英九去年访问大陆时有情绪管控不佳问题，大陆方面内部达成共识，不再让马英九访问大陆。
 
-“锦绣天府号”列车聚焦高端文旅赛道，以“蜀锦宋韵”为核心美学定位，将东方古典美学与轻奢旅居体验深度融合。
+请问对此有何评论？
 
-全列编组18节，定员92席，设46间私密客房，构建起锦榻、锦卧、锦雅、锦食、锦集五大主题空间，复刻《营造法式》建筑美学，兼具住宿、餐饮、休闲、观景、非遗体验等多元功能。
+国台办发言人陈斌华表示，所谓“大陆有关部门达成共识不再让马英九先生访问大陆”的说法纯属捕风捉影，是彻彻底底的谣言。
 
-“第一个要体验的，当然就是在火车上有非常好的房间可以睡觉。
+近年来，马英九基金会开展了系列两岸交流活动，促进了两岸同胞特别是青年交流往来。
 
-”旅客丁月惠说，她和朋友听说“熊猫专列·锦绣天府号”首发，专程前来体验，“南北疆一起玩只要16天，又可以在火车上过夜，很适合我们退休人员长途旅行。
+两岸同胞都是中国人、一家人，走亲走近、走到一起的大潮流是任何力量都阻挡不了的。
 
-” 据了解，本次首发线路为16天南北疆全景深度之旅，列车从成都出发，串联天山天池、喀纳斯、赛里木湖等新疆标志性景点，一站式领略雪山、湖泊、草原、丝路遗迹等极致风光。
+(中新网“燕新台”工作室)
 
 ## 相关推荐
 
-- 2026-06-29 15:11 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 15:13 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 15:10 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 15:01 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 15:17 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 15:14 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 14:52 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 15:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 14:58 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 14:56 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 14:54 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 15:16 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 14:56 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 15:16 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 15:22 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 15:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 14:54 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 14:59 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 15:22 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 15:23 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 15:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 15:21 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 15:00 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 15:20 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 14:56 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 15:19 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:06 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/87576972.shtml)
-- 2026-06-29 15:11 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/08042.shtml)
-- 2026-06-29 14:54 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/503949853.shtml)
-- 2026-06-29 15:10 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/9712028576.shtml)
-- 2026-06-29 15:09 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/258236.shtml)
-- 2026-06-29 14:56 - [未来5年全国能源体系将呈现这些特征](http://www.blog.minike.top/Article/details/1542296577.shtml)
-- 2026-06-29 15:17 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/62290.shtml)
-- 2026-06-29 14:58 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/84141583.shtml)
-- 2026-06-29 15:04 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/319798187.shtml)
-- 2026-06-29 15:10 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/5359782.shtml)
-- 2026-06-29 14:56 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/45624989183.shtml)
-- 2026-06-29 14:58 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/97621.shtml)
-- 2026-06-29 15:01 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/121831.shtml)
-- 2026-06-29 15:17 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/538079789512.shtml)
-- 2026-06-29 14:56 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/5237490.shtml)
+- 2026-06-29 15:14 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/64703584671.shtml)
+- 2026-06-29 15:12 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/76836067054.shtml)
+- 2026-06-29 15:03 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/7218858.shtml)
+- 2026-06-29 15:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/8196298150.shtml)
+- 2026-06-29 15:09 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/1229433758.shtml)
+- 2026-06-29 15:20 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/801828421941.shtml)
+- 2026-06-29 14:56 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/757882494.shtml)
+- 2026-06-29 14:59 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/94835817.shtml)
+- 2026-06-29 15:02 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/9242203.shtml)
+- 2026-06-29 15:20 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/2584780.shtml)
+- 2026-06-29 15:13 - [105年初心滚烫](http://www.blog.minike.top/Article/details/896074266258.shtml)
+- 2026-06-29 15:17 - [乔家的儿女](http://www.blog.minike.top/Article/details/5384481913.shtml)
+- 2026-06-29 14:59 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/9963368.shtml)
+- 2026-06-29 15:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/209807.shtml)
+- 2026-06-29 14:58 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/600595145.shtml)
