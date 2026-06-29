@@ -1,56 +1,52 @@
-# 李强会见俄罗斯总统普京
+# 习近平党建思想鲜明提出“十四个坚持”
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新社北京5月20日电 5月20日下午，中国国务院总理李强在北京人民大会堂会见来华进行国事访问的俄罗斯总统普京。 李强表示，在当前国际局势动荡加剧的背景下，中俄关系始终保持着稳定性确定性。今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。今天上午，习近平主席同总统先生举行会晤，就双边关系发展作出进一步规划部署。中方愿同俄方一道遵循两国元首战略引领，筑
+全国党建工作座谈会15日在京召开。 会议认为，党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想。习近平党建思想是习近平新时代中国特色社会主义思想的重要组成部分，为发展马克思主义建党学说作出重大原创性贡献，对强党强国具有重大现实意义和长远指导意义。
 
 ## 正文
 
-中新社北京5月20日电 5月20日下午，中国国务院总理李强在北京人民大会堂会见来华进行国事访问的俄罗斯总统普京。
+全国党建工作座谈会15日在京召开。
 
-李强表示，在当前国际局势动荡加剧的背景下，中俄关系始终保持着稳定性确定性。
+会议认为，党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想。
 
-今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。
+习近平党建思想是习近平新时代中国特色社会主义思想的重要组成部分，为发展马克思主义建党学说作出重大原创性贡献，对强党强国具有重大现实意义和长远指导意义。
 
-今天上午，习近平主席同总统先生举行会晤，就双边关系发展作出进一步规划部署。
-
-中方愿同俄方一道遵循两国元首战略引领，筑牢政治互信，加大相互支持，继续保持定力，推动双方合作迈上新台阶，更好造福两国人民。
-
-李强指出，中方愿同俄方进一步扩大贸易规模，落实好双边升级版投资协定，深化能源、农业、互联互通、绿色低碳等领域合作，加强共建“一带一路”同欧亚经济联盟对接，保障中欧班列安全稳定高质量发展，实现更高水平的互利共赢。
-
-双方要办好“中俄教育年”等人文活动，深化青少年、文化、旅游、体育等交流合作，不断增进人民相知相亲。
-
-中方愿同俄方加强在多边平台的协作，积极落实全球治理倡议，推动国际社会共同捍卫公平正义。
+会议指出，习近平党建思想是加强新时代党的建设的根本遵循。
 
 ## 相关推荐
 
-- 2026-06-29 15:56 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 15:32 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 15:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 15:38 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 15:44 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 15:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 15:55 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 15:39 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 15:44 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 15:40 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 15:53 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 15:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 15:43 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 15:54 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 15:57 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 15:50 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 15:44 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 15:58 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 15:58 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 15:50 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 15:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 15:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 16:01 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 15:49 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:48 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/74892179.shtml)
-- 2026-06-29 15:48 - [四川宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/80868179814.shtml)
-- 2026-06-29 15:35 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/82222.shtml)
-- 2026-06-29 15:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/488948449.shtml)
-- 2026-06-29 15:41 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/359302861.shtml)
-- 2026-06-29 15:55 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/6657592114.shtml)
-- 2026-06-29 15:40 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/15309.shtml)
-- 2026-06-29 15:46 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/62826.shtml)
-- 2026-06-29 15:48 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/964959492427.shtml)
-- 2026-06-29 15:39 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/41130.shtml)
-- 2026-06-29 15:41 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.minike.top/Article/details/392047986.shtml)
-- 2026-06-29 15:57 - [流金岁月](http://www.blog.minike.top/Article/details/656554.shtml)
-- 2026-06-29 15:37 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/999091503241.shtml)
-- 2026-06-29 15:51 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/889048544.shtml)
-- 2026-06-29 15:54 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/948600064.shtml)
+- 2026-06-29 16:01 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/23960986650.shtml)
+- 2026-06-29 15:44 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/6708221.shtml)
+- 2026-06-29 15:59 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/54229114.shtml)
+- 2026-06-29 15:47 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/0911733377.shtml)
+- 2026-06-29 15:40 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/70650381.shtml)
+- 2026-06-29 15:49 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/38495546776.shtml)
+- 2026-06-29 16:00 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/32609405.shtml)
+- 2026-06-29 16:01 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/1315724738.shtml)
+- 2026-06-29 16:05 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/3557805082.shtml)
+- 2026-06-29 15:41 - [恋与深空 731](http://www.share.minike.top/Article/details/46799648.shtml)
+- 2026-06-29 16:05 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/65890629986.shtml)
+- 2026-06-29 15:57 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/78800.shtml)
+- 2026-06-29 15:55 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/656894822.shtml)
+- 2026-06-29 16:04 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.kurohicncr.top/Article/details/176865.shtml)
+- 2026-06-29 15:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/0916709.shtml)

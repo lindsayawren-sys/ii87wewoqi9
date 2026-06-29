@@ -1,60 +1,56 @@
-# 黑龙江民革省委助力牡丹江市东安区经济发展座谈会召开
+# 广州预计今年端午假期客流超1800万人次
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-民革省委助力牡丹江市东安区经济发展座谈会召开 5月19日，在第十届中俄博览会暨第三十五届哈洽会举办之际，民革省委召开助力牡丹江市东安区经济发展座谈会。会议旨在搭建对接平台，组织民革党员企业家进一步深入了解东安区发展优势与合作机遇，共同探索助力地方经济高质量发展的契合点与路径。民革省委秘书长张福良主持会议并作总结讲话。 牡丹江市东安区政府副区长赵捃凯、民革省委宣传联络部部长左洪佳
+中新网广州6月16日电 (记者 蔡敏婕)广州市交通部门16日预计，今年端午假期市民出行以中短途近郊游、家庭游及市内出行为主。其间，广州市离穗抵穗人员流动量预计达1837.1万人次，同比增长3.5%。 2026年端午假期为6月19日至6月21日，叠加“龙舟水”高发时段、高速公路不实行免费通行等因素研判，预计广州全市高速路网车流总量(不含过境)将超过795万车次，同比小幅下降1.1
 
 ## 正文
 
-民革省委助力牡丹江市东安区经济发展座谈会召开 5月19日，在第十届中俄博览会暨第三十五届哈洽会举办之际，民革省委召开助力牡丹江市东安区经济发展座谈会。
+中新网广州6月16日电 (记者 蔡敏婕)广州市交通部门16日预计，今年端午假期市民出行以中短途近郊游、家庭游及市内出行为主。
 
-会议旨在搭建对接平台，组织民革党员企业家进一步深入了解东安区发展优势与合作机遇，共同探索助力地方经济高质量发展的契合点与路径。
+其间，广州市离穗抵穗人员流动量预计达1837.1万人次，同比增长3.5%。
 
-民革省委秘书长张福良主持会议并作总结讲话。
+2026年端午假期为6月19日至6月21日，叠加“龙舟水”高发时段、高速公路不实行免费通行等因素研判，预计广州全市高速路网车流总量(不含过境)将超过795万车次，同比小幅下降1.1%。
 
-牡丹江市东安区政府副区长赵捃凯、民革省委宣传联络部部长左洪佳、省商务厅区域合作发展处二级调研员乔直、东安区商务局局长夏晖及7位民革党员企业家代表参加座谈。
+广州交通部门预测端午假期前一日(6月18日)，提前出城、通勤接学、休闲娱乐等多股车流交织，当日交通运行呈现一定的“假期前”出行特征：预计中心区车流在16时前后明显增多，17:00至19:30期间路网运行或持续处于“中度拥堵”以上的繁忙状态，易出现短暂的车多缓行情况。
 
-会议组织观看了牡丹江市东安区宣传推介视频，直观展示了东安区的区位优势、产业基础、发展规划与营商环境。
+假期三日，广州市内交通预计整体运行平稳，市民出行以应节活动、休闲娱乐、聚餐聚会等为主，出行热点主要集中在北京路、天河城-正佳广场、珠江新城等重点商圈，永庆坊、广州动物园、长隆旅游景区、花都融创乐园等地标景点，西关、沙面、市桥等老牌食街食肆集中区域人气也将较旺。
 
-随后，赵捃凯详细介绍了东安区经济社会发展情况、重点产业方向及招商引资政策，并诚邀各位企业家到东安区投资兴业、共谋发展。
+此外，假期期间，中大北门对出的珠江河段将迎来广州国际龙舟邀请赛等大型赛事，天河猎德、海珠龙潭等多处河涌也有传统龙舟趁景活动，预计吸引大批市民前往现场观赛，周边道路易出现局部的车流聚集情况。
 
-哈尔滨市锦秀实业集团董事会主席朱海蓉、京东集团政企业务黑龙江省区负责人高延博 、哈尔滨合智创达科技发展有限公司总经理韩凯、黑龙江省乐磁集团董事长贾仰龙、黑河市品俄经贸有限公司总经理王彦彬、黑龙江华信军融科技有限公司总经理石亚夫依次介绍了企业发展情况、业务布局及投资方向，并围绕产业合作、项目落地、政策配套等内容与东安区参会领导展开深入互动交流，初步达成多项合作意向。
+广州交通部门预测，高快速路假期车流以应节观赛、近郊休闲、短途出游及家庭“一站式”度假出行为主，珠三角、邻近地市间的交通交互较多。
 
-张福良秘书长作会议总结讲话。
+受收费政策、高油价等多种因素影响，预计路网整体车流规模及缓行程度较前一假期(五一假期)有所减轻，城区主要对外通道局部路段车流较大。
 
 ## 相关推荐
 
-- 2026-06-29 15:42 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 15:50 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 15:32 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 15:52 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 15:57 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 15:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 15:32 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 15:48 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 15:44 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 15:46 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 15:30 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 15:35 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 15:50 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 15:55 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 16:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 15:59 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 15:53 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 15:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 15:53 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 16:00 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 15:47 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 15:47 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 15:53 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 15:39 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/9917978158.shtml)
-- 2026-06-29 15:31 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/133179655.shtml)
-- 2026-06-29 15:33 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/92906.shtml)
-- 2026-06-29 15:53 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/42014.shtml)
-- 2026-06-29 15:31 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/73712322.shtml)
-- 2026-06-29 15:34 - [工作靠AI算不算职场作弊](http://www.share.minike.top/Article/details/442875.shtml)
-- 2026-06-29 15:31 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/18778.shtml)
-- 2026-06-29 15:31 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/7288918.shtml)
-- 2026-06-29 15:43 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/99317505228.shtml)
-- 2026-06-29 15:50 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/41507.shtml)
-- 2026-06-29 15:31 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/87122.shtml)
-- 2026-06-29 15:31 - [滾石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/402216377904.shtml)
-- 2026-06-29 15:47 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/8475741021.shtml)
-- 2026-06-29 15:43 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/046960265.shtml)
-- 2026-06-29 15:37 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/7014905291.shtml)
+- 2026-06-29 15:45 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/96712575.shtml)
+- 2026-06-29 15:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/2306231.shtml)
+- 2026-06-29 15:46 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/188609.shtml)
+- 2026-06-29 16:01 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/24361275473.shtml)
+- 2026-06-29 16:01 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/03718883.shtml)
+- 2026-06-29 15:51 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/3410375178.shtml)
+- 2026-06-29 16:04 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/29193531000.shtml)
+- 2026-06-29 15:47 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/06452.shtml)
+- 2026-06-29 15:36 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/6988160.shtml)
+- 2026-06-29 15:39 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/4586961.shtml)
+- 2026-06-29 15:51 - [小娘惹](http://www.blog.minike.top/Article/details/66196362.shtml)
+- 2026-06-29 15:38 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.minike.top/Article/details/6658811.shtml)
+- 2026-06-29 15:49 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/58599662.shtml)
+- 2026-06-29 15:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/029662681.shtml)
+- 2026-06-29 15:58 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/36773808877.shtml)

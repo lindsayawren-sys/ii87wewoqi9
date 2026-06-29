@@ -1,56 +1,61 @@
-# 华泰期货：苹果低位偏弱，红枣震荡整理
+# 长江有色: 出口放量、价差扩大打开盈利空间+ 前补库提振 17日铝价或上涨
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 白旭宇 苹果观点 市场要闻与重要数据 期货方面，昨日收盘苹果2610合约7393元/吨，较前一日变动+3元/吨，幅度+0.04%。现货方面，山东栖霞80# 一二级晚富士价格3.20元/斤，较前一日变动+0.00元/斤，现货基差AP10-990，较前一日变动+38；陕西洛川70# 以上半商品晚富士价格3.75元/斤，较前一日变动+0.00元/斤，现货基差A
+长江有色金属网 长江铝价alu.ccmn.cn短评：利空出尽及伦铝库存连降至低位提供支撑，隔夜伦铝收涨0.24%；新能源需求持续扩张、出口放量、价差扩大打开盈利空间，节前补库提振，今现铝或迎涨。 【铝期货市场】：利空出尽及伦铝库存连降至低位提供支撑，隔夜伦铝超跌反弹，最新收盘报价3391美元/吨，收涨8美元，涨幅0.24%，成交量41806手减少6285手，持仓量634150手
 
 ## 正文
 
-来源：华泰期货 作者： 白旭宇 苹果观点 市场要闻与重要数据 期货方面，昨日收盘苹果2610合约7393元/吨，较前一日变动+3元/吨，幅度+0.04%。
+长江有色金属网 长江铝价alu.ccmn.cn短评：利空出尽及伦铝库存连降至低位提供支撑，隔夜伦铝收涨0.24%；新能源需求持续扩张、出口放量、价差扩大打开盈利空间，节前补库提振，今现铝或迎涨。
 
-现货方面，山东栖霞80# 一二级晚富士价格3.20元/斤，较前一日变动+0.00元/斤，现货基差AP10-990，较前一日变动+38；陕西洛川70# 以上半商品晚富士价格3.75元/斤，较前一日变动+0.00元/斤，现货基差AP10+110，较前一日变动+38。
+【铝期货市场】：利空出尽及伦铝库存连降至低位提供支撑，隔夜伦铝超跌反弹，最新收盘报价3391美元/吨，收涨8美元，涨幅0.24%，成交量41806手减少6285手，持仓量634150手减少9244手。
 
-近期市场资讯，苹果产区库存果行情维持弱稳运行，客商数量较前期略有增加，多挑选性价比较高货源，整体成交速度一般，低价货源走货略好转，目前产区多处于农忙阶段，产地冷库用工紧张且用工费用上涨。
+晚间沪铝高开后偏强震荡；主力月2606合约最新收盘价报23895元/吨，涨65元，涨幅0.27%。
 
-西北地区近期多以小单车客户要货居多，中大型客户调货有限，果农货源降价促售，价格混乱。
+伦敦金属交易所（LME）6月16日伦铝最新库存量报318000吨，较上个交易日下降1500吨，跌幅0.47%。
 
-山东产区少量客商调片红性价比高的货源，整体成交一般。
+长江铝业网讯：6月16日现货铝价，长江现货A00铝锭价报23800元/吨，跌330元；广东现货A00铝锭价报23780元/吨，跌340元。
 
-新季苹果果农陆续疏果，陕西富平等地陆续开始套袋。
+宏观层面，美伊停战谅解备忘录完成电子签署——允许伊朗签后立即售油、停火延60天、霍尔木兹海峡重开，油价预期下修（高盛/大摩下调Brent预测），通胀担忧缓解，12月加息隐含概率从70%降至约60%，美元指数继续走弱，利多金属估值。
 
-栖霞80#一二级片红价格2.5-4.0元/斤，80#统货1.5-2.0元/斤附近。
+市场焦点转本周三美联储议息（沃什首秀），普遍预期维持3.50%-3.75%不变，声明及点阵图为下一阶段指引。
 
-陕西洛川产区果农统货价格2.3-2.8元/斤，客商半商品出库价格3.5-4.2元/斤。
+国内方面，5月PPI涨幅受国际输入性影响略有扩大但整体平稳；1-5月高技术产业投资+4.5%，集成电路制造+11%、锂电+24.9%、信息服务业+13.8%，设备工器具购置+9.3%，新质生产力投资持续放量。
 
 ## 相关推荐
 
-- 2026-06-29 15:47 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 15:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 15:31 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 15:33 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 15:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 15:58 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 15:34 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 15:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 15:30 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 15:53 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 15:40 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 15:59 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 15:39 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 15:45 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 15:55 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 16:03 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 15:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 15:45 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 15:38 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 15:38 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 15:42 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 16:00 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 15:45 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 16:00 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 15:56 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:45 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.kurohicncr.top/Article/details/428657.shtml)
-- 2026-06-29 15:42 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/844940.shtml)
-- 2026-06-29 15:59 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/17306248795.shtml)
-- 2026-06-29 15:31 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/008604.shtml)
-- 2026-06-29 15:32 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/178570297591.shtml)
-- 2026-06-29 15:37 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/31708239.shtml)
-- 2026-06-29 15:51 - [中国战机大片上新](https://www.share.minike.top/Article/details/20899.shtml)
-- 2026-06-29 15:46 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/711260343113.shtml)
-- 2026-06-29 15:45 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/25422771.shtml)
-- 2026-06-29 15:41 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/266047489078.shtml)
-- 2026-06-29 15:41 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/5723669312.shtml)
-- 2026-06-29 15:33 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/3532643.shtml)
-- 2026-06-29 15:30 - [吴建豪老婆](http://www.share.minike.top/Article/details/311833.shtml)
-- 2026-06-29 15:35 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/4783334046.shtml)
-- 2026-06-29 15:32 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/276880.shtml)
+- 2026-06-29 15:43 - [媒体：中国田径压力与期待并存](https://www.blog.minike.top/Article/details/257970.shtml)
+- 2026-06-29 15:55 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/4125541.shtml)
+- 2026-06-29 15:37 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/69460.shtml)
+- 2026-06-29 15:54 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/16850993521.shtml)
+- 2026-06-29 15:52 - [光与夜之恋](http://www.blog.minike.top/Article/details/375713440.shtml)
+- 2026-06-29 15:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/08356.shtml)
+- 2026-06-29 15:41 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/876510.shtml)
+- 2026-06-29 15:53 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/70644.shtml)
+- 2026-06-29 15:54 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/482735261.shtml)
+- 2026-06-29 15:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/24219484216.shtml)
+- 2026-06-29 15:56 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/15451448.shtml)
+- 2026-06-29 15:44 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/255122.shtml)
+- 2026-06-29 15:48 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/96398645926.shtml)
+- 2026-06-29 15:39 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/396829715799.shtml)
+- 2026-06-29 16:03 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/211517686.shtml)

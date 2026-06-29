@@ -1,61 +1,58 @@
-# 外媒：普京访华凸显中俄深化双边关系意义重大
+# 作价43.29亿元，华信信托拍卖券商股权，破产重整再进一步
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-全球媒体聚焦 | 外媒：普京访华凸显中俄深化双边关系意义重大 5月19日至20日，俄罗斯总统普京对中国进行国事访问。中俄两国元首会晤吸引世界目光，国际多家媒体给予高度关注。报道认为，中俄两国关系不断深化意义重大，而在短短一周之内美俄两国元首接连访华，也凸显了中国在全球秩序中的影响力日益提升。 《莫斯科时报》报道称，普京总统此次访华，随行人员包括多位政府部长以及俄罗斯大型国有和私
+北京商报讯（记者 廖蒙）这家信托公司风险处置迎来新进展。6月15日，华信信托股份有限公司（以下简称“华信信托”）官网发布公告指出，根据华信信托司法重整工作安排，华信信托管理人与大连海创汇通投资有限公司（以下简称“海创汇通”）拟将大通证券股份有限公司（以下简称“大通证券”）51.59%的股权进行拍卖。 结合京东资产交易平台展示的拍卖信息，本次拍卖的大通证券股权合计17.03亿股，
 
 ## 正文
 
-全球媒体聚焦 | 外媒：普京访华凸显中俄深化双边关系意义重大 5月19日至20日，俄罗斯总统普京对中国进行国事访问。
+北京商报讯（记者 廖蒙）这家信托公司风险处置迎来新进展。
 
-中俄两国元首会晤吸引世界目光，国际多家媒体给予高度关注。
+6月15日，华信信托股份有限公司（以下简称“华信信托”）官网发布公告指出，根据华信信托司法重整工作安排，华信信托管理人与大连海创汇通投资有限公司（以下简称“海创汇通”）拟将大通证券股份有限公司（以下简称“大通证券”）51.59%的股权进行拍卖。
 
-报道认为，中俄两国关系不断深化意义重大，而在短短一周之内美俄两国元首接连访华，也凸显了中国在全球秩序中的影响力日益提升。
+结合京东资产交易平台展示的拍卖信息，本次拍卖的大通证券股权合计17.03亿股，起拍价为43.29亿元，与评估价一致。
 
-《莫斯科时报》报道称，普京总统此次访华，随行人员包括多位政府部长以及俄罗斯大型国有和私营企业的负责人。
+拍卖时间则为6月30日10时至7月1日10时止（延时除外）。
 
-报道援引俄总统新闻秘书‌佩斯科夫的表态称，俄罗斯在代表团的构成方面不存在与任何国家的竞争关系，俄方正在与中国发展独立且多方面的合作关系。
+截至6月16日17时35分，这一拍卖标的已经获得79人关注，8949人围观，目前暂无报名者。
 
-美国消费者新闻与商业频道(CNBC)援引俄总统新闻秘书佩斯科夫的话报道称，俄方对此次访问寄予很高期望。
+而本次拟拍卖的股权共计三部分，具体包括华信信托所持有的大通证券9.32亿股股份、华信信托二级全资子公司海创汇通所持有的3.02亿股股份，以及海创汇通指定第三方承接大连华根机械有限公司所持有的大通证券4.68亿股股份，合计持股比例为51.59%，其中23.44%已经被质押。
 
-普京总统此次访华将进一步推动中俄新时代全面战略协作伙伴关系的发展。
+对于处置旗下大通证券股权，华信信托此前已有公告。
 
-报道援引分析人士的话表示，俄罗斯代表团的规模和构成表明，普京总统希望在多个领域扩大同中国的双边合作。
+2026年2月，华信信托重整案第一次债权人会议中，三项议案均表决通过，其中就包括《关于处置大通证券股份有限公司股份的方案》。
 
 ## 相关推荐
 
-- 2026-06-29 15:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 15:34 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 15:42 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 15:56 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 15:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 15:35 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 15:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 15:51 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 15:40 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 15:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 15:59 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 15:38 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 15:48 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 15:59 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 15:54 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 15:50 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 15:56 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 15:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 15:58 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 15:45 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 16:00 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 16:05 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 16:00 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 16:02 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 16:03 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 15:45 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 15:57 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/0648614.shtml)
-- 2026-06-29 15:41 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/4357296283.shtml)
-- 2026-06-29 15:44 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/70011479517.shtml)
-- 2026-06-29 15:52 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/977872106463.shtml)
-- 2026-06-29 15:42 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/00735196.shtml)
-- 2026-06-29 15:46 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/97397699597.shtml)
-- 2026-06-29 15:43 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/5715464169.shtml)
-- 2026-06-29 15:58 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/342508708811.shtml)
-- 2026-06-29 15:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/3940544.shtml)
-- 2026-06-29 15:42 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/8435882.shtml)
-- 2026-06-29 15:32 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/169835.shtml)
-- 2026-06-29 15:41 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/3351999348.shtml)
-- 2026-06-29 15:42 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/75093452.shtml)
-- 2026-06-29 15:32 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/1024065301.shtml)
-- 2026-06-29 15:45 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/419654649.shtml)
+- 2026-06-29 16:05 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/75119040.shtml)
+- 2026-06-29 15:40 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/084333600.shtml)
+- 2026-06-29 15:56 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/3711053264.shtml)
+- 2026-06-29 15:38 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/4005986.shtml)
+- 2026-06-29 15:59 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/73430689.shtml)
+- 2026-06-29 15:38 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/172800.shtml)
+- 2026-06-29 15:52 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/200662.shtml)
+- 2026-06-29 15:45 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/51621.shtml)
+- 2026-06-29 15:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/532710.shtml)
+- 2026-06-29 15:51 - [一见倾心](http://www.share.kurohicncr.top/Article/details/388262906639.shtml)
+- 2026-06-29 15:59 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/860704560.shtml)
+- 2026-06-29 15:52 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/9789187.shtml)
+- 2026-06-29 15:43 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/5450385389.shtml)
+- 2026-06-29 15:41 - [新能源车能当外接空调用吗](http://www.share.kurohicncr.top/Article/details/03432600424.shtml)
+- 2026-06-29 16:05 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/3488441275.shtml)

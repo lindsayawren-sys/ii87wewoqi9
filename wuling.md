@@ -1,59 +1,57 @@
-# 施罗德3只公募基金拟“转手”路博迈，原因看这里
+# 六网织就新未来丨地下管网焕新 你的城市将迎来哪些改变？
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-来源：国际金融报 外资公募对中国市场依旧保持信心。 5月20日，施罗德基金发布声明称，已向中国证监会提交了旗下部分公开募集证券投资基金的变更注册申请，拟将所管理的施罗德恒享债券型证券投资基金（下称“施罗德恒享”）、施罗德中国动力股票型证券投资基金（下称“施罗德中国动力”）、施罗德添源纯债债券型证券投资基金（下称“施罗德添源”）的基金管理人由施罗德基金变更为路博迈基金。 同时，路
+地下管网作为城市重要基础设施，担负着输送物质、能量和传输信息的作用，维系城市正常运行和生产生活，是城市的“生命线”。我国拥有位居世界首位的地下管网规模，也面临着大量管网已达或超设计寿命的挑战，管网老化漏损、排水防涝不足、管线多头开挖等问题突出。尤其夏季强降雨来临，城市内涝问题愈发凸显。“十五五”时期，全国管网改造总投资将超过5万亿元。那么这笔资金将为我们的城市带来一张什么样的网
 
 ## 正文
 
-来源：国际金融报 外资公募对中国市场依旧保持信心。
+地下管网作为城市重要基础设施，担负着输送物质、能量和传输信息的作用，维系城市正常运行和生产生活，是城市的“生命线”。
 
-5月20日，施罗德基金发布声明称，已向中国证监会提交了旗下部分公开募集证券投资基金的变更注册申请，拟将所管理的施罗德恒享债券型证券投资基金（下称“施罗德恒享”）、施罗德中国动力股票型证券投资基金（下称“施罗德中国动力”）、施罗德添源纯债债券型证券投资基金（下称“施罗德添源”）的基金管理人由施罗德基金变更为路博迈基金。
+我国拥有位居世界首位的地下管网规模，也面临着大量管网已达或超设计寿命的挑战，管网老化漏损、排水防涝不足、管线多头开挖等问题突出。
 
-同时，路博迈基金发布提示性公告称，基金管理人变更的议案如经基金份额持有人大会审议通过，将同步承接相关变更基金的部分核心投资人员。
+尤其夏季强降雨来临，城市内涝问题愈发凸显。
 
-双方均表示，将致力于确保平稳过渡，并将基金份额持有人利益置于首位。
+“十五五”时期，全国管网改造总投资将超过5万亿元。
 
-基于集团战略转型 根据施罗德基金声明，上述产品的变动将以完成基金变更注册、相关基金份额持有人大会审议通过为前提。
+那么这笔资金将为我们的城市带来一张什么样的网？
 
-施罗德基金将与相关方密切配合，平稳完成基金份额持有人大会召开及后续工作，确保平稳开展相关基金变更基金管理人工作，切实维护基金份额持有人的合法权益。
+一起来看。
 
-Wind数据显示，截至今年一季度末，施罗德恒享、施罗德中国动力、施罗德添源的规模分别为3.47亿元、7.77亿元、5.03亿元。
+全国管网改造总投资超5万亿 城市地下管网包括燃气、供水、排水、污水、热力市政管线和综合管廊等，目前我国城市地下管网总长度约390万公里，累计建成地下综合管廊约7700公里。
 
-据记者了解，此次基金管理人变更是基于施罗德集团的战略调整。
+“十五五”期间，全国将继续建设改造城市地下管网约77万公里，其中，燃气管网约20万公里、排水管网约17.5万公里、供水管网约17.5万公里、污水管网约10万公里、供热管网约12万公里。
 
 ## 相关推荐
 
-- 2026-06-29 15:44 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 15:48 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 15:54 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 15:36 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 15:46 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 15:49 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 15:43 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 15:43 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 15:45 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 15:31 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 15:30 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 15:34 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 15:42 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 15:36 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 16:00 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 16:03 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 15:46 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 15:37 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 16:02 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 15:50 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 16:03 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 15:37 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 15:44 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 15:49 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:46 - [美人鱼](http://www.blog.minike.top/Article/details/695545.shtml)
-- 2026-06-29 15:44 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/11131.shtml)
-- 2026-06-29 15:47 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/4881949.shtml)
-- 2026-06-29 15:46 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/61741044837.shtml)
-- 2026-06-29 15:51 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/210028809.shtml)
-- 2026-06-29 15:58 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/855216864273.shtml)
-- 2026-06-29 15:57 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/879946.shtml)
-- 2026-06-29 15:32 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/999152.shtml)
-- 2026-06-29 15:57 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/58489277.shtml)
-- 2026-06-29 15:37 - [金牌调解](http://www.blog.minike.top/Article/details/89580.shtml)
-- 2026-06-29 15:42 - [光与夜之恋](http://www.blog.minike.top/Article/details/397008.shtml)
-- 2026-06-29 15:37 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/427823142.shtml)
-- 2026-06-29 15:46 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/898078574443.shtml)
-- 2026-06-29 15:45 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.minike.top/Article/details/62891.shtml)
-- 2026-06-29 15:40 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.minike.top/Article/details/528145725.shtml)
+- 2026-06-29 15:44 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/92402649815.shtml)
+- 2026-06-29 15:49 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.minike.top/Article/details/7720881374.shtml)
+- 2026-06-29 15:36 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/12293.shtml)
+- 2026-06-29 15:48 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/450000.shtml)
+- 2026-06-29 15:55 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/689325.shtml)
+- 2026-06-29 16:01 - [105年初心滚烫](http://www.share.minike.top/Article/details/372806480.shtml)
+- 2026-06-29 16:04 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/67148411.shtml)
+- 2026-06-29 15:42 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/774497424652.shtml)
+- 2026-06-29 15:44 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/5203934048.shtml)
+- 2026-06-29 15:57 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/472542444601.shtml)
+- 2026-06-29 15:57 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/455058158124.shtml)
+- 2026-06-29 15:51 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/61633444546.shtml)
+- 2026-06-29 15:37 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/86156.shtml)
+- 2026-06-29 15:41 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/835482.shtml)
+- 2026-06-29 15:46 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/1606113.shtml)

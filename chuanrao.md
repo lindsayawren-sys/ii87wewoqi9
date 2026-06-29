@@ -1,61 +1,58 @@
-# 罕见毒株引发刚果（金）埃博拉疫情，传播风险几何？
+# 福建漳州非遗戏剧交流团赴台归来：台胞盼两岸多交流
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 近日，刚果(金)东部伊图里省暴发新一轮埃博拉疫情，备受国际社会关注：此次流行的病毒毒株是什么？传播风险究竟有多大？国际社会应如何有效处置应对？ 本轮疫情情况如何？ 非洲疾病预防控制中心于15日宣布了刚果(金)伊图里省暴发埃博拉疫情。该国卫生部说，截至当天，全国共有80例死亡病例，其中4例死亡病例经检测确认感染埃博拉病毒。同日，乌干达卫生部说，一名输入性确诊病
+中新网漳州6月17日电 (记者 张金川)“当《大名府》的锣鼓响起，台下观众跟着无台词表演的杂耍情节鼓掌欢笑时，我深深体会到非遗最动人的模样，就是能引发情感共鸣。”福建省漳州市布袋木偶传承保护中心负责人许洁莉17日向中新网记者分享赴台交流感受时如是说。 6月10日，受台湾方面邀请，漳州市漳台交流协会组织漳州非遗戏剧交流团一行24人赴台湾新北市、苗栗县开展文化演出和文化交流活动。以
 
 ## 正文
 
-中新网5月19日电 近日，刚果(金)东部伊图里省暴发新一轮埃博拉疫情，备受国际社会关注：此次流行的病毒毒株是什么？
+中新网漳州6月17日电 (记者 张金川)“当《大名府》的锣鼓响起，台下观众跟着无台词表演的杂耍情节鼓掌欢笑时，我深深体会到非遗最动人的模样，就是能引发情感共鸣。
 
-传播风险究竟有多大？
+”福建省漳州市布袋木偶传承保护中心负责人许洁莉17日向中新网记者分享赴台交流感受时如是说。
 
-国际社会应如何有效处置应对？
+6月10日，受台湾方面邀请，漳州市漳台交流协会组织漳州非遗戏剧交流团一行24人赴台湾新北市、苗栗县开展文化演出和文化交流活动。
 
-本轮疫情情况如何？
+以芗剧(歌仔戏)、木偶戏的艺术表演和闽南唱腔的语言输出为载体，向台湾民众传递两岸相同的价值观和美学观，传递“两岸一家亲”的历史记忆和同宗同源的情感联结。
 
-非洲疾病预防控制中心于15日宣布了刚果(金)伊图里省暴发埃博拉疫情。
+6月14日，漳州非遗戏剧交流团圆满完成为期5天的赴台开展文化交流活动返回漳州。
 
-该国卫生部说，截至当天，全国共有80例死亡病例，其中4例死亡病例经检测确认感染埃博拉病毒。
+“漳州布袋布偶戏与台湾掌中戏同根同源，连闽南语念白都毫无隔阂。
 
-同日，乌干达卫生部说，一名输入性确诊病例在该国死亡。
+”许洁莉透露，此次漳州市布袋木偶传承保护中心带去的经典剧目还有《两个猎人》《白蛇传》(选段)及《花木兰》(选段)等，既有传统技艺的“十指弄乾坤”，又有创新表达，台湾观众的热烈反响证明了两岸文化的一脉相承。
 
-随后，世界卫生组织于17日宣布，刚果(金)和乌干达出现的埃博拉疫情已构成“国际关注的突发公共卫生事件”。
+漳州市漳台交流协会相关负责人介绍，此次赴台交流深受岛内民众喜爱。
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 15:42 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 15:42 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 15:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 15:40 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 15:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 15:43 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 15:41 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 15:31 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 15:50 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 15:55 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 15:31 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 15:32 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 15:39 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 15:50 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 15:53 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 15:36 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 15:38 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 15:53 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 15:40 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 15:46 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 15:54 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 15:44 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 15:39 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 15:43 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 15:54 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 15:46 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/38098392414.shtml)
-- 2026-06-29 15:31 - [女心理师](http://www.share.kurohicncr.top/Article/details/37291.shtml)
-- 2026-06-29 15:43 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/556825.shtml)
-- 2026-06-29 15:39 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/6910279300.shtml)
-- 2026-06-29 15:45 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/0147503945.shtml)
-- 2026-06-29 15:36 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/90849.shtml)
-- 2026-06-29 15:55 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/126142677.shtml)
-- 2026-06-29 15:35 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/154500037295.shtml)
-- 2026-06-29 15:42 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/722892.shtml)
-- 2026-06-29 15:31 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/008697360.shtml)
-- 2026-06-29 15:34 - [T1 KC](http://www.share.kurohicncr.top/Article/details/5657501.shtml)
-- 2026-06-29 15:55 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/6416628.shtml)
-- 2026-06-29 15:40 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/284417405.shtml)
-- 2026-06-29 15:54 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/72781190.shtml)
-- 2026-06-29 15:48 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/574478661.shtml)
+- 2026-06-29 15:47 - [20年前的周杰伦](http://www.share.minike.top/Article/details/067052195.shtml)
+- 2026-06-29 15:37 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/32256477983.shtml)
+- 2026-06-29 15:51 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/393234434973.shtml)
+- 2026-06-29 15:48 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/56037870795.shtml)
+- 2026-06-29 15:44 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/325466241835.shtml)
+- 2026-06-29 15:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/196744.shtml)
+- 2026-06-29 16:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/78857985.shtml)
+- 2026-06-29 15:54 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/177654686891.shtml)
+- 2026-06-29 16:02 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/36969.shtml)
+- 2026-06-29 15:36 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/935654.shtml)
+- 2026-06-29 15:48 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/76910.shtml)
+- 2026-06-29 15:36 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/1198676594.shtml)
+- 2026-06-29 15:49 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/725537247909.shtml)
+- 2026-06-29 15:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/2228012540.shtml)
+- 2026-06-29 16:01 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/5089782943.shtml)

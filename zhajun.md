@@ -1,57 +1,56 @@
-# 丹麦籍巨轮首泊天津港 边检“绿色通道”助力高效通关
+# 券商扩表提速 年内发债规模突破万亿元
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网天津5月19日电 (记者 周亚强)19日，丹麦籍集装箱巨轮“阿莱塔马士基”靠泊天津港码头。在东港边检站“绿色通道”全程护航下，该轮首航天津港实现“靠泊即作业、离港零延时”，4000余标准箱装卸作业比原计划提前近2小时完成。 “阿莱塔马士基”轮是马士基航运A-class系列集装箱船，总长351米、型宽54米，最大载箱量15794标准箱，载重吨位超17万吨，配备双燃料发动机，
+2026年，券商债券融资火热，年内发债规模突破万亿元，行业扩表进程明显加快。 6月16日，中国银河证券披露了最新一期短期融资券发行结果，本次发行规模40亿元，最终票面利率为1.49%，认购倍数为3.4325倍。 在此之前，多家上市券商已密集落地债券发行，其中华安证券完成15亿元债券募资，申万宏源证券发行36亿元债券，长江证券募资10亿元。 据Wind统计，截至6月16日，年内已
 
 ## 正文
 
-中新网天津5月19日电 (记者 周亚强)19日，丹麦籍集装箱巨轮“阿莱塔马士基”靠泊天津港码头。
+2026年，券商债券融资火热，年内发债规模突破万亿元，行业扩表进程明显加快。
 
-在东港边检站“绿色通道”全程护航下，该轮首航天津港实现“靠泊即作业、离港零延时”，4000余标准箱装卸作业比原计划提前近2小时完成。
+6月16日，中国银河证券披露了最新一期短期融资券发行结果，本次发行规模40亿元，最终票面利率为1.49%，认购倍数为3.4325倍。
 
-“阿莱塔马士基”轮是马士基航运A-class系列集装箱船，总长351米、型宽54米，最大载箱量15794标准箱，载重吨位超17万吨，配备双燃料发动机，为目前全球最先进的集装箱船舶之一。
+在此之前，多家上市券商已密集落地债券发行，其中华安证券完成15亿元债券募资，申万宏源证券发行36亿元债券，长江证券募资10亿元。
 
-此次系该轮2024年建成投入运营后首次到访天津港。
+据Wind统计，截至6月16日，年内已有70家券商机构在境内发行债券，发行境内债券数量合计505只，累计发行规模为11272.11亿元，同比大增86%。
 
-为保障首航万无一失，东港边检站提前启动专项保障机制，与码头公司、船舶代理建立“三方联动”渠道，实时掌握船舶轨迹、船员信息及靠泊计划，量身制定“一船一策”保障方案。
+值得关注的是，本次万亿级发债潮呈现出显著的头部集中特征。
 
-依托国际贸易“单一窗口”平台，执勤民警提前完成全部船员证件信息核查与风险评估，最大限度压缩通关准备时间。
+目前，国泰海通、中信证券、中国银河、广发证券、中信建投境内发债规模分别达到1174亿元、883亿元、760亿元、698亿元、652亿元，成为年内发债规模排名行业前五的券商。
 
-船舶靠港后，专项执勤组第一时间登轮查验，确保作业快速展开。
+在业内人士看来，券商密集发债，既是券商债务“借新还旧”的需要，也是券商业务扩张的需要。
 
-“4000多集装箱的作业量比预计时间提前了近2个小时，这为我们节省了宝贵的时间成本。
+“多因素叠加，推动券商发债节奏加快。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 15:30 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 15:33 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 15:54 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 15:44 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 15:30 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 15:42 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 15:42 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 15:47 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 15:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 15:32 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 16:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 15:51 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 15:39 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 15:41 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 15:42 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 15:59 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 15:58 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 16:01 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 16:04 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 15:40 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:54 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/771060.shtml)
-- 2026-06-29 15:46 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/97328.shtml)
-- 2026-06-29 15:39 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/60909.shtml)
-- 2026-06-29 15:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/9394906.shtml)
-- 2026-06-29 15:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/0077871025.shtml)
-- 2026-06-29 15:35 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/4455620898.shtml)
-- 2026-06-29 15:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/7890475.shtml)
-- 2026-06-29 15:54 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/313242.shtml)
-- 2026-06-29 15:58 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/94034.shtml)
-- 2026-06-29 15:40 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/8294242703.shtml)
-- 2026-06-29 15:50 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/863153508352.shtml)
-- 2026-06-29 15:33 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/971410076006.shtml)
-- 2026-06-29 15:50 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/0840475125.shtml)
-- 2026-06-29 15:51 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/823038.shtml)
-- 2026-06-29 15:46 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/88946149.shtml)
+- 2026-06-29 15:38 - [小娘惹](https://www.share.minike.top/Article/details/230712.shtml)
+- 2026-06-29 15:55 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/22495850.shtml)
+- 2026-06-29 15:36 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/58388608.shtml)
+- 2026-06-29 15:55 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/292743.shtml)
+- 2026-06-29 15:53 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/7642711974.shtml)
+- 2026-06-29 15:36 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.kurohicncr.top/Article/details/53761511580.shtml)
+- 2026-06-29 15:51 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.minike.top/Article/details/1647507.shtml)
+- 2026-06-29 15:52 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/32503.shtml)
+- 2026-06-29 15:50 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/31351926.shtml)
+- 2026-06-29 15:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/95198.shtml)
+- 2026-06-29 15:56 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/182589.shtml)
+- 2026-06-29 15:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/2163624.shtml)
+- 2026-06-29 15:49 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/881057797.shtml)
+- 2026-06-29 15:49 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/930736.shtml)
+- 2026-06-29 15:52 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/814546668.shtml)

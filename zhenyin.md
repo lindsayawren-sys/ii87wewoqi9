@@ -1,59 +1,57 @@
-# 广西柳州再发生3.6级地震
+# 市监总局谈腾讯收购喜马拉雅：将逐条监督承诺，确保落地见效
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网柳州5月20日电(林馨)据中国地震台网正式测定，北京时间2026年5月20日8时13分在广西柳州市柳南区(北纬24.41度，东经109.26度)发生3.6级地震，震源深度8公里。 此次震中位于柳南区洛满镇，距离柳南区城区14公里，柳州市城区18公里。地震灾害情况正在进一步了解当中。 5月17日至19日，柳州市柳南区接连发生多起地震。在18日同一天内，更是先后发生两次5.2
+发布时间：2026年06月16日 18:51 来源：中国新闻网 6月16日上午，市场监管总局召开2026年二季度例行新闻发布会。市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，近期，市场监管总局附条件批准了腾讯收购喜马拉雅股权案。 经多轮磋商，参与交易双方作出具有针对性的承诺，总局评估后认为这些承诺可以有效减少对竞争的不利影响，为此予以附条件批准。 腾讯、喜马拉雅作出的承诺主
 
 ## 正文
 
-中新网柳州5月20日电(林馨)据中国地震台网正式测定，北京时间2026年5月20日8时13分在广西柳州市柳南区(北纬24.41度，东经109.26度)发生3.6级地震，震源深度8公里。
+发布时间：2026年06月16日 18:51 来源：中国新闻网 6月16日上午，市场监管总局召开2026年二季度例行新闻发布会。
 
-此次震中位于柳南区洛满镇，距离柳南区城区14公里，柳州市城区18公里。
+市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，近期，市场监管总局附条件批准了腾讯收购喜马拉雅股权案。
 
-地震灾害情况正在进一步了解当中。
+经多轮磋商，参与交易双方作出具有针对性的承诺，总局评估后认为这些承诺可以有效减少对竞争的不利影响，为此予以附条件批准。
 
-5月17日至19日，柳州市柳南区接连发生多起地震。
+腾讯、喜马拉雅作出的承诺主要包括：一是不提高平台服务价格、不降低服务水平。
 
-在18日同一天内，更是先后发生两次5.2级地震。
+二是保障免费内容供给。
 
-据柳州市抗震救灾指挥部5月19日晚通报，已设置临时安置点7个，集中安置群众4100余人，累计调拨帐篷1428顶、毛巾被7200床、垫被7000张、折叠床7500张、手电筒600个、发电机12台。
+三是解除独家授权。
 
-目前安置点物资准备充分，社会秩序平稳安定。
+四是不向汽车厂商搭售。
 
-截至5月19日17时，已收到爱心企业、爱心人士善款272余万元，捐赠物资折合367余万元。
+五是不限制主播入驻与内容分发。
 
 ## 相关推荐
 
-- 2026-06-29 15:45 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 15:57 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 15:39 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 15:38 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 15:31 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 15:54 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 15:36 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 15:42 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 15:59 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 15:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 15:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 15:47 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 15:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 15:41 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 15:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 15:57 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 15:36 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 15:42 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 15:59 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 15:38 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 15:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 16:04 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 15:41 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 16:05 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:56 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/5699195078.shtml)
-- 2026-06-29 15:53 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/9548285907.shtml)
-- 2026-06-29 15:34 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/295288.shtml)
-- 2026-06-29 15:52 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/914023296044.shtml)
-- 2026-06-29 15:44 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/8959406025.shtml)
-- 2026-06-29 15:41 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/121100832694.shtml)
-- 2026-06-29 15:50 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/2607392.shtml)
-- 2026-06-29 15:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/78544.shtml)
-- 2026-06-29 15:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/662751.shtml)
-- 2026-06-29 15:31 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/142029358488.shtml)
-- 2026-06-29 15:47 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/2457220.shtml)
-- 2026-06-29 15:51 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/790352.shtml)
-- 2026-06-29 15:48 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/36437931405.shtml)
-- 2026-06-29 15:50 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/7916501.shtml)
-- 2026-06-29 15:53 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/934424604.shtml)
+- 2026-06-29 16:01 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/22289511075.shtml)
+- 2026-06-29 16:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/426638636.shtml)
+- 2026-06-29 15:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/86216.shtml)
+- 2026-06-29 15:36 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/0963924114.shtml)
+- 2026-06-29 15:48 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/4235871.shtml)
+- 2026-06-29 15:49 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/350736837206.shtml)
+- 2026-06-29 15:43 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/43947.shtml)
+- 2026-06-29 16:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/3074387.shtml)
+- 2026-06-29 15:58 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/1868269554.shtml)
+- 2026-06-29 15:52 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/467241578.shtml)
+- 2026-06-29 15:55 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/37998504301.shtml)
+- 2026-06-29 15:44 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/76371198.shtml)
+- 2026-06-29 16:01 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/857942055062.shtml)
+- 2026-06-29 15:44 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/661766997693.shtml)
+- 2026-06-29 16:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/747990.shtml)

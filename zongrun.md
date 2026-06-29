@@ -1,55 +1,56 @@
-# 习近平：以更高质量的中俄全面战略协作助力各自国家发展振兴
+# 备忘录显示：软银愿景基金首席财务官即将离职
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-新华社北京5月20日电 5月20日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。 习近平指出，今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。中俄关系之所以一步一个脚印走到今天这个高度，就是因为我们能够以“千磨万击还坚劲”的毅力不断深化政治互信和战略协作，能够以“更上一层楼”的精神拓展各领域合作，能够以“乱云飞渡仍
+一份内部备忘录显示，软银集团旗下愿景基金投资部门的首席财务官纳夫尼特·戈维尔（Navneet Govil）将在任职十年后离职。 软银投资顾问公司首席执行官亚历克斯·克拉维尔（Alex Clavel）在备忘录中写道，公司将在适当时候公布有关职责交接的详细信息。 软银愿景基金拒绝置评。 作为软银投资顾问公司首席财务官的戈维尔于2016年加入软银，此时距离首期愿景基金成立还有一年。该
 
 ## 正文
 
-新华社北京5月20日电 5月20日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。
+一份内部备忘录显示，软银集团旗下愿景基金投资部门的首席财务官纳夫尼特·戈维尔（Navneet Govil）将在任职十年后离职。
 
-习近平指出，今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。
+软银投资顾问公司首席执行官亚历克斯·克拉维尔（Alex Clavel）在备忘录中写道，公司将在适当时候公布有关职责交接的详细信息。
 
-中俄关系之所以一步一个脚印走到今天这个高度，就是因为我们能够以“千磨万击还坚劲”的毅力不断深化政治互信和战略协作，能够以“更上一层楼”的精神拓展各领域合作，能够以“乱云飞渡仍从容”的勇气捍卫国际公道正义、推动构建人类命运共同体。
+软银愿景基金拒绝置评。
 
-当前，国际形势变乱交织，单边霸权逆流横行，但求和平、谋发展、促合作仍是民心所向、大势所趋。
+作为软银投资顾问公司首席财务官的戈维尔于2016年加入软银，此时距离首期愿景基金成立还有一年。
 
-作为联合国安理会常任理事国和世界重要大国，中俄两国要着眼战略长远，以更高质量的全面战略协作助力各自国家发展振兴，推动构建更加公正合理的全球治理体系。
+该基金凭借其高确定性的投资决策，彻底颠覆了初创企业投资领域。
+
+备忘录称，在“公司应对重大市场波动、转型及前所未有的变革过程中，戈维尔一直是整个业务的重要合作伙伴”。
+
+戈维尔的离职正值软银CEO孙正义将重心转向人工智能热潮之际，该浪潮正在重塑科技行业，其中包括对ChatGPT开发商OpenAI的大手笔投资。
+
+戈维尔具有印度血统，在赞比亚出生并长大，曾在美国求学，并在辉瑞PFE.N和CATechnologies等公司担任过财务职位。
 
 ## 相关推荐
 
-- 2026-06-29 15:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 15:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 15:53 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 15:47 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 15:51 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 15:34 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 15:44 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 15:41 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 15:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 15:37 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 15:46 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 15:58 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 15:36 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 15:56 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 15:41 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 16:02 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 15:40 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 16:05 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 15:58 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 15:59 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 15:53 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 15:58 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 15:47 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 15:54 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 16:00 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:42 - [42岁郭碧婷纯素颜状态](https://www.blog.kurohicncr.top/Article/details/48093314.shtml)
-- 2026-06-29 15:45 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/3285044398.shtml)
-- 2026-06-29 15:52 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/15414.shtml)
-- 2026-06-29 15:58 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/799083.shtml)
-- 2026-06-29 15:38 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/11978.shtml)
-- 2026-06-29 15:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/84332088230.shtml)
-- 2026-06-29 15:47 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/7567086832.shtml)
-- 2026-06-29 15:50 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/8840270155.shtml)
-- 2026-06-29 15:47 - [崔韩率还以为韩娱来新人了](https://www.share.minike.top/Article/details/9346472508.shtml)
-- 2026-06-29 15:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/173659183.shtml)
-- 2026-06-29 15:43 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/318852960409.shtml)
-- 2026-06-29 15:31 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/1794822.shtml)
-- 2026-06-29 15:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/459830756401.shtml)
-- 2026-06-29 15:40 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/17959578.shtml)
-- 2026-06-29 15:39 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/10904620299.shtml)
+- 2026-06-29 16:03 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/9182029.shtml)
+- 2026-06-29 15:52 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/376863687.shtml)
+- 2026-06-29 15:36 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/7354758.shtml)
+- 2026-06-29 16:03 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/25059.shtml)
+- 2026-06-29 15:40 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/960525722278.shtml)
+- 2026-06-29 15:46 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/5628203.shtml)
+- 2026-06-29 15:58 - [20年前的周杰伦](https://www.share.minike.top/Article/details/22765.shtml)
+- 2026-06-29 15:53 - [一生一世](http://www.blog.kurohicncr.top/Article/details/55069.shtml)
+- 2026-06-29 15:45 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/018121982.shtml)
+- 2026-06-29 15:58 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/65853658.shtml)
+- 2026-06-29 15:56 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/513237.shtml)
+- 2026-06-29 15:37 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/5341858377.shtml)
+- 2026-06-29 15:51 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/380055371.shtml)
+- 2026-06-29 15:45 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/9376345.shtml)
+- 2026-06-29 16:03 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/84328174.shtml)

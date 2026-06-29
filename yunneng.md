@@ -1,57 +1,48 @@
-# 习近平：推动中俄两国互信根基越扎越牢 友谊之路越走越宽
+# 第十九届中国餐饮产业发展大会在浙江台州举行
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-5月20日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。 习近平指出，坚定不移推动中俄关系长期、健康、稳定、高质量发展，是双方着眼两国根本利益和世界发展大势作出的战略选择。两国各部门要全力落实好我和普京总统达成的重要共识，充分把握历史机遇，推动两国的互信根基越扎越牢、合作成色越来越足、友谊之路越走越宽。 普京说：“新时代俄中全面战略协作伙伴关系
+发布时间：2026年06月17日 14:04 来源：中国新闻网 6月14日至6月16日，第十九届中国餐饮产业发展大会在浙江台州举行。业界人士齐聚东海之滨，共同探讨服务业高质量发展背景下餐饮产业的创新路径。(周健） 责任编辑：【罗攀】
 
 ## 正文
 
-5月20日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。
+发布时间：2026年06月17日 14:04 来源：中国新闻网 6月14日至6月16日，第十九届中国餐饮产业发展大会在浙江台州举行。
 
-习近平指出，坚定不移推动中俄关系长期、健康、稳定、高质量发展，是双方着眼两国根本利益和世界发展大势作出的战略选择。
+业界人士齐聚东海之滨，共同探讨服务业高质量发展背景下餐饮产业的创新路径。
 
-两国各部门要全力落实好我和普京总统达成的重要共识，充分把握历史机遇，推动两国的互信根基越扎越牢、合作成色越来越足、友谊之路越走越宽。
-
-普京说：“新时代俄中全面战略协作伙伴关系是现代国家间关系的典范，它建立在平等互利、相互支持、睦邻友好原则的基础之上。
-
-我们的目标是增进俄中两国人民的福祉与繁荣，正是这些坚不可摧的根基，让我们的关系经受住了一次次的考验，展现出韧性与稳定性。
-
-” 总监制丨申勇 监制丨龚雪辉 记者丨史伟 王鹏飞 王晓东 赵化 刘会民 摄像丨李铮 钟锋 胡玮 段德文 程铖 李增仁 鄂介甫 王策 录音丨程爱华 翻译丨田湉 (央视新闻客户端)
+(周健） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 15:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 15:32 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 15:53 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 15:56 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 15:32 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 15:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 15:46 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 15:56 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 15:42 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 15:52 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 15:44 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 15:41 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 15:49 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 15:44 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 15:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 15:49 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 16:06 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 15:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 15:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 15:43 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 15:55 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 15:53 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 15:43 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 16:01 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 15:50 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 16:02 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 15:44 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:45 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/498076241.shtml)
-- 2026-06-29 15:36 - [沉睡花园](https://www.blog.minike.top/Article/details/2856089970.shtml)
-- 2026-06-29 15:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/83314.shtml)
-- 2026-06-29 15:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/448138012571.shtml)
-- 2026-06-29 15:50 - [曝歌手第七期帮唱阵容](http://www.share.minike.top/Article/details/342509.shtml)
-- 2026-06-29 15:56 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/54196319.shtml)
-- 2026-06-29 15:48 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/87765.shtml)
-- 2026-06-29 15:34 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/032808391.shtml)
-- 2026-06-29 15:34 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/086119649904.shtml)
-- 2026-06-29 15:37 - [一见倾心](http://www.share.kurohicncr.top/Article/details/4099612.shtml)
-- 2026-06-29 15:49 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/77849.shtml)
-- 2026-06-29 15:48 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/604771441460.shtml)
-- 2026-06-29 15:58 - [BB大王横店拍戏](http://www.share.kurohicncr.top/Article/details/22719.shtml)
-- 2026-06-29 15:32 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/8904905842.shtml)
-- 2026-06-29 15:43 - [逃狱兄弟](https://www.share.minike.top/Article/details/633581.shtml)
+- 2026-06-29 15:48 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/0573510175.shtml)
+- 2026-06-29 15:47 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/306905527.shtml)
+- 2026-06-29 15:39 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/120999494607.shtml)
+- 2026-06-29 15:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/14315137757.shtml)
+- 2026-06-29 15:44 - [我和我的家乡](https://www.share.minike.top/Article/details/342520.shtml)
+- 2026-06-29 15:47 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/578884224574.shtml)
+- 2026-06-29 15:40 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/81224.shtml)
+- 2026-06-29 15:43 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/3862708.shtml)
+- 2026-06-29 16:05 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/454103230613.shtml)
+- 2026-06-29 16:00 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.kurohicncr.top/Article/details/220861.shtml)
+- 2026-06-29 15:39 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/8636840033.shtml)
+- 2026-06-29 15:52 - [端午节加班工资应该怎么算](http://www.share.minike.top/Article/details/2271380779.shtml)
+- 2026-06-29 15:48 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/4684038.shtml)
+- 2026-06-29 15:36 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/06243720774.shtml)
+- 2026-06-29 16:01 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/37154.shtml)

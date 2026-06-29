@@ -1,60 +1,57 @@
-# “华北豹第一县”山西和顺拍到“动物全家福”
+# 今年以来广东完成近9000艘次海洋渔船“体检”
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网晋中5月19日电 (刘小红)近日，素有“华北豹第一县”之称的山西省和顺县成功拍摄到国家一级保护动物华北豹的最新活动影像，再次印证了和顺县优质的生态环境与野生动物保护成效。 作为“省级生态文明建设示范区”，和顺县始终坚守生态保护底线，生态本底持续向好。目前，全县草原综合植被盖度达65.03%，森林覆盖率提升至30.96%。当地科学划定约1200平方公里野生动物生态保护功能区
+中新网广州6月16日电 (记者 方伟彬)今年6月正值第25个全国“安全生产月”。广东省海洋综合执法总队16日在汕尾市海洋综合执法码头举行2026年全省渔船安全应急演练。 据通报，近年来，广东省海洋综合执法总队纵深推进安全生产治本攻坚三年行动，今年以来累计检验海洋渔船8874艘次、内陆渔船2132艘次，整改安全隐患4282处，处置海上险情31起，成功救助船舶31艘、人员68人，坚
 
 ## 正文
 
-中新网晋中5月19日电 (刘小红)近日，素有“华北豹第一县”之称的山西省和顺县成功拍摄到国家一级保护动物华北豹的最新活动影像，再次印证了和顺县优质的生态环境与野生动物保护成效。
+中新网广州6月16日电 (记者 方伟彬)今年6月正值第25个全国“安全生产月”。
 
-作为“省级生态文明建设示范区”，和顺县始终坚守生态保护底线，生态本底持续向好。
+广东省海洋综合执法总队16日在汕尾市海洋综合执法码头举行2026年全省渔船安全应急演练。
 
-目前，全县草原综合植被盖度达65.03%，森林覆盖率提升至30.96%。
+据通报，近年来，广东省海洋综合执法总队纵深推进安全生产治本攻坚三年行动，今年以来累计检验海洋渔船8874艘次、内陆渔船2132艘次，整改安全隐患4282处，处置海上险情31起，成功救助船舶31艘、人员68人，坚决守牢“不安全、不出海”底线，以高水平安全护航海洋经济高质量发展。
 
-当地科学划定约1200平方公里野生动物生态保护功能区，着力打造华北豹核心栖息地“安全区”，成为世界珍稀濒危物种华北豹不可多得的种源地，也是其繁衍扩散的关键生态通道，成功擦亮“华北豹第一县”特色生态品牌。
+当天的活动紧扣“人人讲安全、个个会应急——排查整治风险隐患”主题，结合新版《中华人民共和国渔业法》实施及“中国渔政亮剑2026”“商渔共治”等专项行动，统筹开展安全宣教与实操实训。
 
-得益于持续完善的保护体系，和顺县华北豹种群实现稳定繁衍生息。
+现场设立宣传咨询台，通过展板展示、专家答疑、有奖问答等形式，向渔民普及渔业法律法规、防灾减灾及自救互救知识，为100余人次解答疑难问题，赠送救生衣200余件、灭火器20余个，发放宣传资料千余份。
 
-当地目前维持着约40只成年个体的稳定繁殖种群，雄雌比例约1:3，每年约有10只至20只幼豹降生，种群发展态势良好。
+在技能实训环节，授课老师现场演示了救生衣、救生筏、消防设备及通导设备的规范操作，并手把手指导渔民代表掌握心肺复苏术和AED除颤仪使用方法。
 
-良好的生态环境不仅滋养了华北豹，也为众多珍稀野生动物提供了栖息家园。
+随后的海上实景演练模拟渔船起火、人员落水等险情，执法人员与船东船长快速联动，高效完成消防灭火、释放救生筏及落水人员搜救等科目。
 
-除华北豹外，和顺县境内还栖息着黑鹳、金雕、丹顶鹤等多种国家一级保护动物，各类珍禽异兽在此和谐共生，共同勾勒出一幅人与自然和谐共生的美丽画卷。
+活动还组织商渔船船长面对面交流，共商防范商渔船碰撞风险举措。
 
 ## 相关推荐
 
-- 2026-06-29 15:51 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 15:38 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 15:40 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 15:54 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 15:44 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 15:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 15:34 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 15:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 15:45 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 15:37 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 15:48 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 15:53 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 15:33 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 15:56 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 15:41 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 16:00 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 16:02 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 15:37 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 15:42 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 15:47 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 15:38 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 15:39 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 15:58 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 15:44 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 16:03 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:42 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/7775064728.shtml)
-- 2026-06-29 15:45 - [广东一地发现极危植物新物种](https://www.blog.minike.top/Article/details/2736990409.shtml)
-- 2026-06-29 15:31 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/4749992.shtml)
-- 2026-06-29 15:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/0569632586.shtml)
-- 2026-06-29 15:48 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/86513159.shtml)
-- 2026-06-29 15:43 - [重度抑郁女孩没钱去做心理咨询](http://www.share.minike.top/Article/details/6456952653.shtml)
-- 2026-06-29 15:34 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/27490808735.shtml)
-- 2026-06-29 15:51 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/471002666829.shtml)
-- 2026-06-29 15:54 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/39215173596.shtml)
-- 2026-06-29 15:30 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/28327361669.shtml)
-- 2026-06-29 15:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/78499313853.shtml)
-- 2026-06-29 15:49 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/78924961.shtml)
-- 2026-06-29 15:52 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/0780336.shtml)
-- 2026-06-29 15:37 - [行程万里不忘初心](http://www.share.minike.top/Article/details/41724026701.shtml)
-- 2026-06-29 15:54 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/37021245624.shtml)
+- 2026-06-29 15:59 - [央视起底直播诈骗连环套](http://www.share.kurohicncr.top/Article/details/990086.shtml)
+- 2026-06-29 15:57 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/949327605360.shtml)
+- 2026-06-29 15:59 - [崔韩率还以为韩娱来新人了](http://www.share.kurohicncr.top/Article/details/251109732879.shtml)
+- 2026-06-29 15:57 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.minike.top/Article/details/86506.shtml)
+- 2026-06-29 16:05 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/9283675164.shtml)
+- 2026-06-29 15:57 - [扫黑风暴](https://www.share.minike.top/Article/details/053235954896.shtml)
+- 2026-06-29 16:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/856027514.shtml)
+- 2026-06-29 15:51 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/0520238966.shtml)
+- 2026-06-29 15:44 - [疑似吴建豪老婆正脸照](http://www.share.kurohicncr.top/Article/details/7588728.shtml)
+- 2026-06-29 16:05 - [天道](https://www.share.kurohicncr.top/Article/details/64477739.shtml)
+- 2026-06-29 15:38 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/97217240.shtml)
+- 2026-06-29 15:58 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/05273078.shtml)
+- 2026-06-29 15:39 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/76779544.shtml)
+- 2026-06-29 15:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/16318920929.shtml)
+- 2026-06-29 15:36 - [东方风云榜](https://www.share.minike.top/Article/details/7306822863.shtml)

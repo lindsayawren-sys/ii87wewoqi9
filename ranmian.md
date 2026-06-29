@@ -1,58 +1,58 @@
-# 中国发布AI伦理指引 与东盟合作添“安全阀”
+# 广西发放超千万元消费券促东盟水果热销
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-【东盟专线】中国发布AI伦理指引 与东盟合作添“安全阀” 中新社南宁5月19日电 (张广权)《人工智能应用伦理安全指引1.0》19日在广西南宁发布。这份指引被视为中国与东盟在AI(人工智能)领域建立伦理安全共识、实现规则对接的重要参考文件。 参与该指引研究的中国政法大学人工智能法研究院院长张凌寒在接受采访时透露，她在与东盟国家专家交流中注意到，对方对AI发展存在多重担忧：本土小
+中新社南宁6月16日电 (俞靖)6月16日，由广西壮族自治区商务厅牵头推出的“东盟水果汇聚广西”政府专享消费券上线京东平台，中国(港澳台地区除外)消费者搜索“东盟水果消费券”等关键词，均可参与领券，采购东盟以及广西优质水果等生鲜好物。此举旨在深化中国与东盟农产品贸易合作，拓宽东盟水果等优质农产品销路。此次消费券发布活动将投放超1000万元人民币东盟水果专属消费券，活动周期贯穿6
 
 ## 正文
 
-【东盟专线】中国发布AI伦理指引 与东盟合作添“安全阀” 中新社南宁5月19日电 (张广权)《人工智能应用伦理安全指引1.0》19日在广西南宁发布。
+中新社南宁6月16日电 (俞靖)6月16日，由广西壮族自治区商务厅牵头推出的“东盟水果汇聚广西”政府专享消费券上线京东平台，中国(港澳台地区除外)消费者搜索“东盟水果消费券”等关键词，均可参与领券，采购东盟以及广西优质水果等生鲜好物。
 
-这份指引被视为中国与东盟在AI(人工智能)领域建立伦理安全共识、实现规则对接的重要参考文件。
+此举旨在深化中国与东盟农产品贸易合作，拓宽东盟水果等优质农产品销路。
 
-参与该指引研究的中国政法大学人工智能法研究院院长张凌寒在接受采访时透露，她在与东盟国家专家交流中注意到，对方对AI发展存在多重担忧：本土小众语言和文化能否存续、既有的数字鸿沟是否会进一步拉大、中小国家能否在全球AI治理中为本国价值观发声。
+此次消费券发布活动将投放超1000万元人民币东盟水果专属消费券，活动周期贯穿6月至9月，结合618“东盟水果汇聚广西”活动、暑期消费、中秋国庆假期等节点分批次投放，形成长期连贯的促销节奏。
 
-张凌寒认为，中国此次发布的指引强调“普惠共享”与“以人为本”，恰恰回应了上述来自全球南方国家的共性关切。
+广西商务厅介绍，广西作为中国唯一与东盟陆海相连的省份，是东盟水果进入中国的首站枢纽。
 
-张凌寒称，已有不少全球南方国家通过不同渠道表达了希望参照中国治理理念的意愿。
+广西通过“政府引导+平台赋能”的模式发放消费券，扩大东盟水果在中国的消费市场，助力广西本地生鲜产业拓宽销路。
 
-中国电子技术标准化研究院副院长范科峰在发布现场指出，随着智能体、具身智能等新形态发展，AI应用正从内容生成向辅助决策、交互控制方向拓展，就业替代、情感依赖等伦理安全问题日益凸显。
+目前，广西依托东盟水果集散枢纽区位优势，持续完善跨境生鲜供应链体系，搭建起高效数字化通道，形成可复制、可推广的跨境农产品电商促消费样板，真正实现“东盟果品入华、桂品行销全国”的双向流通。
 
-该指引面向应用开发、服务提供、应用使用等环节提出了实践建议。
+据悉，前述专享消费券发布是2026年“共享大市场·出口中国”——“东盟水果汇聚广西”活动的重要组成部分。
 
-当前，广西正加快建设中国—东盟国家人工智能应用合作中心，致力于打造“北上广研发+广西集成+东盟应用”的差异化发展路径。
+广西正借多项活动造势，增强“东盟出产+广西集散+中国畅销”的品牌效应。
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 15:54 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 15:49 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 15:40 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 15:35 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 15:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 15:47 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 15:58 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 15:36 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 15:48 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 15:34 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 15:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 15:59 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 15:58 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 15:53 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 15:46 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 15:47 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 15:51 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 16:04 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 15:43 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 16:03 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 15:56 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 15:40 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 15:38 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:45 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/291764171.shtml)
-- 2026-06-29 15:33 - [众星恭喜吴建豪](https://www.blog.kurohicncr.top/Article/details/267191.shtml)
-- 2026-06-29 15:56 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/82719480.shtml)
-- 2026-06-29 15:33 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/07007560.shtml)
-- 2026-06-29 15:50 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/415581.shtml)
-- 2026-06-29 15:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/9345661.shtml)
-- 2026-06-29 15:51 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/1782601769.shtml)
-- 2026-06-29 15:32 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/661639.shtml)
-- 2026-06-29 15:50 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/79359.shtml)
-- 2026-06-29 15:52 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/65020400.shtml)
-- 2026-06-29 15:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/03930.shtml)
-- 2026-06-29 15:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/826429982.shtml)
-- 2026-06-29 15:54 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/546295308.shtml)
-- 2026-06-29 15:34 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/85543.shtml)
-- 2026-06-29 15:50 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/69807357031.shtml)
+- 2026-06-29 16:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/151973377137.shtml)
+- 2026-06-29 15:52 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/0515844753.shtml)
+- 2026-06-29 15:57 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/90561248526.shtml)
+- 2026-06-29 15:51 - [毒液2](https://www.share.minike.top/Article/details/2215939469.shtml)
+- 2026-06-29 16:00 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.minike.top/Article/details/492913.shtml)
+- 2026-06-29 16:04 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/753460240585.shtml)
+- 2026-06-29 15:57 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/82998.shtml)
+- 2026-06-29 15:44 - [绘画区你赢了](http://www.share.minike.top/Article/details/485729.shtml)
+- 2026-06-29 15:59 - [唐艺昕告别浪姐千字长文](http://www.share.kurohicncr.top/Article/details/800380662.shtml)
+- 2026-06-29 15:40 - [首尔商铺禁止洪明甫入内](http://www.blog.minike.top/Article/details/76159266664.shtml)
+- 2026-06-29 15:49 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/8003427591.shtml)
+- 2026-06-29 16:03 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/2276667755.shtml)
+- 2026-06-29 15:40 - [新能源车能当外接空调用吗](https://www.blog.kurohicncr.top/Article/details/4584829.shtml)
+- 2026-06-29 16:01 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/6718346.shtml)
+- 2026-06-29 15:56 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/09433166924.shtml)

@@ -1,61 +1,60 @@
-# Lunai Bioworks宣布1比8反向拆股，5月22日生效以维持纳斯达克上市地位
+# 日本央行30年来首次将利率上调至1%
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-AI驱动的生命科学公司Lunai Bioworks周三宣布，将对其普通股实施1比8的反向股票分割。该拆股将于美国东部时间2026年5月22日凌晨12：01正式生效，当日纳斯达克开盘后将以拆股调整后的价格进行交易，股票代码仍为“LNAI”，但将启用新的CUSIP编号。 拆股细节：流通股从3627万股缩减至453万股 根据公司向SEC提交的文件，此次反向拆股方案已于2026年5月8
+日本央行已将短期政策利率上调至“约1%”，使借贷成本升至31年来的最高水平，该国正逐步适应持续的通胀环境。 此次加息0.25个百分点符合广泛预期，分析师表示，这是日本央行在多年超低利率和通缩后努力实现货币政策正常化的关键里程碑。 日本央行的政策利率上一次达到1%是在1995年，当时该央行在20世纪80年代末日本资产泡沫破裂后正在下调借贷成本。 自2024年将日本拉出负利率以来，
 
 ## 正文
 
-AI驱动的生命科学公司Lunai Bioworks周三宣布，将对其普通股实施1比8的反向股票分割。
+日本央行已将短期政策利率上调至“约1%”，使借贷成本升至31年来的最高水平，该国正逐步适应持续的通胀环境。
 
-该拆股将于美国东部时间2026年5月22日凌晨12：01正式生效，当日纳斯达克开盘后将以拆股调整后的价格进行交易，股票代码仍为“LNAI”，但将启用新的CUSIP编号。
+此次加息0.25个百分点符合广泛预期，分析师表示，这是日本央行在多年超低利率和通缩后努力实现货币政策正常化的关键里程碑。
 
-拆股细节：流通股从3627万股缩减至453万股 根据公司向SEC提交的文件，此次反向拆股方案已于2026年5月8日召开的特别股东大会上获得批准。
+日本央行的政策利率上一次达到1%是在1995年，当时该央行在20世纪80年代末日本资产泡沫破裂后正在下调借贷成本。
 
-股东授权董事会在1比3至1比30的区间内确定最终比例，董事会随后选定了1比8的比例。
+自2024年将日本拉出负利率以来，日本央行在2025年两次加息。
 
-生效后，每8股现有普通股将自动合并为1股新股。
+外界预计该央行将形成大约每半年逐步收紧一次的模式。
 
-公司流通股总数将从约3627万股缩减至约453万股。
+在周二做出决定之前，越来越多的经济学家表示，他们预计日本央行在2026年至少还会再加息一次。
 
-普通股的面值及授权股份总数保持不变。
+周二的举措是在日本央行货币政策委员会为期两天的政策会议结束后宣布的。
 
-零碎股份将向上取整为整股，持有电子账簿形式股份的股东无需采取任何行动。
+由于该行行长植田和男上周住院，委员会成员减少至八人。
 
 ## 相关推荐
 
-- 2026-06-29 15:36 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 15:59 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 15:50 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 15:45 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 15:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 15:30 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 15:37 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 15:37 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 15:58 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 15:39 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 15:43 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 15:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 15:49 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 15:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 15:51 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 15:56 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 15:41 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 15:43 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 15:36 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 16:05 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 16:03 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 15:56 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 15:36 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 15:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 16:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 15:42 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 15:57 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 15:51 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 15:55 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:34 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/135160.shtml)
-- 2026-06-29 15:50 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/53278574.shtml)
-- 2026-06-29 15:59 - [《贺子珍》](http://www.share.minike.top/Article/details/7314708769.shtml)
-- 2026-06-29 15:31 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/617064.shtml)
-- 2026-06-29 15:37 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/59148578786.shtml)
-- 2026-06-29 15:40 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/951830167908.shtml)
-- 2026-06-29 15:32 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/66655955654.shtml)
-- 2026-06-29 15:56 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/494407837193.shtml)
-- 2026-06-29 15:54 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/633525584708.shtml)
-- 2026-06-29 15:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/2749431.shtml)
-- 2026-06-29 15:56 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/040221438.shtml)
-- 2026-06-29 15:49 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/26030465.shtml)
-- 2026-06-29 15:31 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.minike.top/Article/details/92130.shtml)
-- 2026-06-29 15:34 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/178850.shtml)
-- 2026-06-29 15:36 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/17543.shtml)
+- 2026-06-29 15:45 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/17562155222.shtml)
+- 2026-06-29 15:48 - [恋与深空失控领地](http://www.share.minike.top/Article/details/423755.shtml)
+- 2026-06-29 15:53 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/79956551.shtml)
+- 2026-06-29 15:54 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/8907928281.shtml)
+- 2026-06-29 15:42 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/2204096.shtml)
+- 2026-06-29 15:46 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/50930030.shtml)
+- 2026-06-29 15:47 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/6054854040.shtml)
+- 2026-06-29 16:02 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/62930277079.shtml)
+- 2026-06-29 16:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/246174988803.shtml)
+- 2026-06-29 15:37 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/57051.shtml)
+- 2026-06-29 15:42 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/787344.shtml)
+- 2026-06-29 15:46 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/166106926.shtml)
+- 2026-06-29 15:51 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/468708.shtml)
+- 2026-06-29 16:02 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/97621916797.shtml)
+- 2026-06-29 15:58 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/42084200362.shtml)

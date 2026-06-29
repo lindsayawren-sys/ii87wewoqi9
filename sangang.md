@@ -1,60 +1,44 @@
-# 全球长期债券收益率攀升至近二十年来的最高水平
+# 央行行长潘功胜：推动中长期资金对股市、债市的投资力度
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-长期国债遭大举抛售，推动收益率攀升至全球金融危机时期以来高位，业内策略师警示，债市跌势仍有延续空间。受油价上涨带动，全球通胀预期大幅升温，彭博统计的十年期及以上主权债券平均到期收益率，已升至2008年7月以来最高水平。伊朗局势动荡致使霍尔木兹海峡这条关键航运要道通行受阻，国际原油价格随之大涨。巴克莱银行伦敦研究部门主管帕特里克・科菲表示：“财政现状、持续存在的通胀风险、地缘政治
+发布时间：2026年06月17日 13:57 来源：中国新闻网 央行行长潘功胜：推动中长期资金对股市、债市的投资力度 责任编辑：【李光伟】
 
 ## 正文
 
-长期国债遭大举抛售，推动收益率攀升至全球金融危机时期以来高位，业内策略师警示，债市跌势仍有延续空间。
-
-受油价上涨带动，全球通胀预期大幅升温，彭博统计的十年期及以上主权债券平均到期收益率，已升至2008年7月以来最高水平。
-
-伊朗局势动荡致使霍尔木兹海峡这条关键航运要道通行受阻，国际原油价格随之大涨。
-
-巴克莱银行伦敦研究部门主管帕特里克・科菲表示：“财政现状、持续存在的通胀风险、地缘政治不确定性，再加上投资者投资诉求趋于严苛，多重因素正推动市场对长久期资产进行大范围重新定价。
-
-短期内，除霍尔木兹海峡恢复正常通航外，几乎没有其他利好因素能彻底扭转当前债券抛售行情。
-
-”自伊朗局势冲突爆发以来，美国30年期美债收益率飙升近60个基点，触及5.20%，创下2007年7月以来新高。
-
-与此同时，受政治危机冲击英国国债市场影响，英国同期限债券收益率攀升至1998年以来峰值，超越澳大利亚，成为发达市场中收益率最高的品种。
-
-责任编辑：王永生
+发布时间：2026年06月17日 13:57 来源：中国新闻网 央行行长潘功胜：推动中长期资金对股市、债市的投资力度 责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-29 15:56 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 15:53 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 15:35 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 15:54 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 15:41 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 15:38 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 15:41 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 15:57 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 15:53 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 15:54 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 15:38 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 15:45 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 15:57 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 15:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 15:49 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 16:01 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 15:46 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 15:50 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 15:38 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 16:04 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 15:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 15:46 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 16:01 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 15:52 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 15:44 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 16:02 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:56 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/0843727938.shtml)
-- 2026-06-29 15:34 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/68512.shtml)
-- 2026-06-29 15:55 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/92436068656.shtml)
-- 2026-06-29 15:59 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/20050257412.shtml)
-- 2026-06-29 15:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/2721590.shtml)
-- 2026-06-29 15:33 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/573845245.shtml)
-- 2026-06-29 15:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/4179716867.shtml)
-- 2026-06-29 15:43 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/86752932676.shtml)
-- 2026-06-29 15:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/045783.shtml)
-- 2026-06-29 15:48 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/20793287232.shtml)
-- 2026-06-29 15:37 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/410515585.shtml)
-- 2026-06-29 15:52 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/29442696.shtml)
-- 2026-06-29 15:37 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/2394646702.shtml)
-- 2026-06-29 15:32 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/149421.shtml)
-- 2026-06-29 15:44 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/801691.shtml)
+- 2026-06-29 15:38 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/7806392.shtml)
+- 2026-06-29 15:43 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/933497.shtml)
+- 2026-06-29 15:40 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/05513674.shtml)
+- 2026-06-29 15:58 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/2983021.shtml)
+- 2026-06-29 15:50 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/29581371.shtml)
+- 2026-06-29 15:46 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/4764309877.shtml)
+- 2026-06-29 15:50 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/3895581068.shtml)
+- 2026-06-29 15:47 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/237658431.shtml)
+- 2026-06-29 15:49 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/3337689.shtml)
+- 2026-06-29 16:01 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/14929034544.shtml)
+- 2026-06-29 15:45 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/875432042.shtml)
+- 2026-06-29 15:51 - [爱很美味](http://www.blog.minike.top/Article/details/81247557717.shtml)
+- 2026-06-29 15:45 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/8087789877.shtml)
+- 2026-06-29 15:41 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/69594.shtml)
+- 2026-06-29 16:04 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/07138607045.shtml)

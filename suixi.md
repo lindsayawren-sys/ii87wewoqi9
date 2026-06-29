@@ -1,47 +1,55 @@
-# 文脉华章丨在这所“大学校”里领悟传承与创新
+# 一组图帮你查漏补缺 高考报志愿前先了解这些事
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-视频：文脉华章丨在这所“大学校”里领悟传承与创新来源：人民网-中国共产党新闻网 博物馆是中华文明灿烂成就的集中展示，是坚定文化自信的重要源泉。习近平总书记高度重视博物馆在文化传承和历史教育中的重要作用，他曾说“一个博物馆就是一所大学校”，并多次强调“让收藏在博物馆里的文物、陈列在广阔大地上的遗产、书写在古籍里的文字都活起来”。 文案、制作：黄瑾 资料来源：人民日报、央视新闻等
+2026年高考志愿填报将陆续展开。什么是平行志愿？什么是院校调档分数线？志愿填报前，了解这些概念很重要。一组图帮你查漏补缺： （来源：阳光高考信息平台）
 
 ## 正文
 
-视频：文脉华章丨在这所“大学校”里领悟传承与创新来源：人民网-中国共产党新闻网 博物馆是中华文明灿烂成就的集中展示，是坚定文化自信的重要源泉。
+2026年高考志愿填报将陆续展开。
 
-习近平总书记高度重视博物馆在文化传承和历史教育中的重要作用，他曾说“一个博物馆就是一所大学校”，并多次强调“让收藏在博物馆里的文物、陈列在广阔大地上的遗产、书写在古籍里的文字都活起来”。
+什么是平行志愿？
 
-文案、制作：黄瑾 资料来源：人民日报、央视新闻等
+什么是院校调档分数线？
+
+志愿填报前，了解这些概念很重要。
+
+一组图帮你查漏补缺： （来源：阳光高考信息平台）
 
 ## 相关推荐
 
-- 2026-06-29 15:40 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 15:31 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 15:45 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 15:39 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 15:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 15:36 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 15:51 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 15:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 15:56 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 15:52 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 15:57 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 15:59 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 15:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 15:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 15:41 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 15:40 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 15:51 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 15:46 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 15:40 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 15:44 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 15:44 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 15:45 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 15:47 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 16:02 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 15:37 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 15:40 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/744217551.shtml)
-- 2026-06-29 15:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/4974668501.shtml)
-- 2026-06-29 15:53 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/960278.shtml)
-- 2026-06-29 15:36 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/238066604.shtml)
-- 2026-06-29 15:58 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/0599377.shtml)
-- 2026-06-29 15:48 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/078792465346.shtml)
-- 2026-06-29 15:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/46102464092.shtml)
-- 2026-06-29 15:52 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/22018085554.shtml)
-- 2026-06-29 15:41 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/4918873.shtml)
-- 2026-06-29 15:56 - [光与夜之恋](http://www.share.minike.top/Article/details/828952966531.shtml)
-- 2026-06-29 15:44 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/250655.shtml)
-- 2026-06-29 15:38 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/0750276203.shtml)
-- 2026-06-29 15:32 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/4275175.shtml)
-- 2026-06-29 15:42 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/7048827.shtml)
-- 2026-06-29 15:44 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/91822657467.shtml)
+- 2026-06-29 15:44 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/0214149.shtml)
+- 2026-06-29 15:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/7785361725.shtml)
+- 2026-06-29 15:52 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/336509084697.shtml)
+- 2026-06-29 15:51 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/179794156.shtml)
+- 2026-06-29 15:57 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/1633711.shtml)
+- 2026-06-29 15:57 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/077982463043.shtml)
+- 2026-06-29 16:01 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/414979408.shtml)
+- 2026-06-29 15:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/555337687.shtml)
+- 2026-06-29 15:44 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/64227457134.shtml)
+- 2026-06-29 15:54 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/91372.shtml)
+- 2026-06-29 15:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/2539639514.shtml)
+- 2026-06-29 16:02 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/987607937.shtml)
+- 2026-06-29 15:46 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/3731457174.shtml)
+- 2026-06-29 15:44 - [高市早苗口齿不清被质疑醉酒](http://www.share.kurohicncr.top/Article/details/0757662.shtml)
+- 2026-06-29 16:02 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/373449.shtml)

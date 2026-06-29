@@ -1,58 +1,61 @@
-# 鹅卵石路变“T台” 浙江宁海前童古镇“村秀”展现非遗魅力
+# 新疆首批地产樱桃直供香港
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网宁波5月20日电 (刘子琳 吴帅 葛鹏超)青石板路蜿蜒向前，河埠头边杨柳轻拂。近日，在浙江宁波宁海前童古镇，一场没有聚光灯和专业T台的“村秀”吸引了不少游客驻足。 古镇街巷间，“夏植染·村秀”专场发布会以最贴近乡土的方式，展示着非遗与时尚碰撞出的新模样。 “这不是化学颜料的艳丽，而是板蓝根的深沉、茜草的暖红、艾草的青绿，是从大自然里借来的颜色。”活动发起人夏子说。 作为土
+中新社乌鲁木齐6月16日电 (胡嘉琛)记者16日从喀什海关获悉，一批产自新疆喀什地区的优质樱桃，经冷链运输至深圳的口岸后运往香港。这是新疆首批地产樱桃直供香港。 喀什地区地处新疆南部，光热资源丰富、昼夜温差大，产出的樱桃汁水丰盈、甜度出众。 “在高效通关与冷链物流双重保障下，香港民众可以品尝到新疆鲜果的风味。”销售此批樱桃的喀什市一家合作社负责人高起方说。 据悉，喀什海关指导企
 
 ## 正文
 
-中新网宁波5月20日电 (刘子琳 吴帅 葛鹏超)青石板路蜿蜒向前，河埠头边杨柳轻拂。
+中新社乌鲁木齐6月16日电 (胡嘉琛)记者16日从喀什海关获悉，一批产自新疆喀什地区的优质樱桃，经冷链运输至深圳的口岸后运往香港。
 
-近日，在浙江宁波宁海前童古镇，一场没有聚光灯和专业T台的“村秀”吸引了不少游客驻足。
+这是新疆首批地产樱桃直供香港。
 
-古镇街巷间，“夏植染·村秀”专场发布会以最贴近乡土的方式，展示着非遗与时尚碰撞出的新模样。
+喀什地区地处新疆南部，光热资源丰富、昼夜温差大，产出的樱桃汁水丰盈、甜度出众。
 
-“这不是化学颜料的艳丽，而是板蓝根的深沉、茜草的暖红、艾草的青绿，是从大自然里借来的颜色。
+“在高效通关与冷链物流双重保障下，香港民众可以品尝到新疆鲜果的风味。
 
-”活动发起人夏子说。
+”销售此批樱桃的喀什市一家合作社负责人高起方说。
 
-作为土生土长的宁海人，夏子从小接触草木染。
+据悉，喀什海关指导企业完成出境水果果园注册登记，并协助建立质量追溯体系，确保果品来源可查、去向可追，符合香港食品安全标准。
 
-多年在外工作后，她还是选择回到家乡，重新拾起传统染布技艺。
+喀什海关稽查处处长杨晓怡称，截至今年5月，喀什海关累计帮助19家企业完成供港水果包装厂及出境水果果园注册登记，助力当地企业开拓粤港澳大湾区市场、深化两地经贸合作。
 
-在她看来，非遗不该只停留在展柜和博物馆里，“我想让老祖宗的手艺走到太阳底下，让更多人看见”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 15:49 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 15:48 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 15:41 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 15:30 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 15:41 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 15:43 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 15:31 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 15:36 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 15:44 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 15:46 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 15:44 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 16:00 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 15:39 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 15:38 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 16:04 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 15:43 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 15:40 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 15:45 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 15:53 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 15:39 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 15:54 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 15:36 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 16:00 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 16:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 15:50 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 15:44 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:44 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/415845235372.shtml)
-- 2026-06-29 15:43 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/978702151578.shtml)
-- 2026-06-29 15:45 - [首尔商铺禁止洪明甫入内](http://www.share.kurohicncr.top/Article/details/37318250507.shtml)
-- 2026-06-29 15:47 - [美媒：空警-3000服役即成全球最强](http://www.blog.minike.top/Article/details/6929184693.shtml)
-- 2026-06-29 15:32 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/078765782.shtml)
-- 2026-06-29 15:47 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/9431823.shtml)
-- 2026-06-29 15:32 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/742178862318.shtml)
-- 2026-06-29 15:42 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/44613091.shtml)
-- 2026-06-29 15:52 - [众星恭喜吴建豪](http://www.blog.minike.top/Article/details/9509147271.shtml)
-- 2026-06-29 15:39 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/4702338.shtml)
-- 2026-06-29 15:36 - [东方风云榜红毯](http://www.share.minike.top/Article/details/943462435.shtml)
-- 2026-06-29 15:54 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/562000147.shtml)
-- 2026-06-29 15:37 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/4413825.shtml)
-- 2026-06-29 15:45 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/584211.shtml)
-- 2026-06-29 15:46 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/417148.shtml)
+- 2026-06-29 15:40 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/4152056.shtml)
+- 2026-06-29 15:57 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/29474.shtml)
+- 2026-06-29 15:46 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/4961107.shtml)
+- 2026-06-29 15:41 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/26717142870.shtml)
+- 2026-06-29 16:03 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/092659950.shtml)
+- 2026-06-29 15:59 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/35746.shtml)
+- 2026-06-29 15:37 - [斛珠夫人](http://www.blog.minike.top/Article/details/1613299673.shtml)
+- 2026-06-29 15:53 - [人形机器人](https://www.blog.kurohicncr.top/Article/details/175868.shtml)
+- 2026-06-29 15:52 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/969148.shtml)
+- 2026-06-29 16:00 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/34435.shtml)
+- 2026-06-29 16:03 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/4830531877.shtml)
+- 2026-06-29 16:01 - [女心理师](https://www.blog.kurohicncr.top/Article/details/656013114899.shtml)
+- 2026-06-29 15:41 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/43825613401.shtml)
+- 2026-06-29 15:51 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/298001232.shtml)
+- 2026-06-29 15:59 - [一见倾心](https://www.blog.minike.top/Article/details/8369269427.shtml)

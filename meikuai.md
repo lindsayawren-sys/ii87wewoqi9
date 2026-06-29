@@ -1,58 +1,47 @@
-# 美股与美债收益率相关性跌至1999年以来最低，格林斯潘难题重现？
+# 新疆昌吉：冬小麦进入灌浆期 精准施策助丰收
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-根据嘉信理财策略师Kevin Gordon分享的数据，标普500指数与美国国债收益率之间的滚动30日相关性已降至1999年以来的最低水平，这一罕见信号引发市场关注。 相关性跌至负值区间 数据显示，标普500指数与10年期美债收益率的30日滚动相关系数已滑入负值区域，意味着两者在当前呈现反向走势，收益率攀升的同时股市承压。这种情况在过去25年间较为罕见，上一次出现类似水平的负相关
+发布时间：2026年06月16日 09:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-根据嘉信理财策略师Kevin Gordon分享的数据，标普500指数与美国国债收益率之间的滚动30日相关性已降至1999年以来的最低水平，这一罕见信号引发市场关注。
-
-相关性跌至负值区间 数据显示，标普500指数与10年期美债收益率的30日滚动相关系数已滑入负值区域，意味着两者在当前呈现反向走势，收益率攀升的同时股市承压。
-
-这种情况在过去25年间较为罕见，上一次出现类似水平的负相关性正是在1999年互联网泡沫破灭前夕。
-
-通常情况下，在经济稳健增长阶段，收益率与股价呈正相关：收益率上升反映增长预期向好，股市随之走高。
-
-而当前两者的背离走势，更类似于因通胀或货币政策收紧引发的“避险模式”，投资者因担心高收益率压制估值而抛售股票。
-
-历史启示：互联网泡沫时期的镜像 市场环境与1999年的相似性不仅体现在相关性指标上。
-
-摩根士丹利MUFG证券的分析显示，当前市场的因子结构与互联网泡沫时期高度吻合：价值因子跑输、动量因子大幅跑赢、低波动与小市值因子走弱，这三大特征在1990年代末也曾同时出现。
-
-然而，也有研究指出，当前存在关键差异。
+发布时间：2026年06月16日 09:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 15:51 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 15:30 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 15:35 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 15:30 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 15:56 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 15:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 15:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 15:56 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 15:49 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 15:37 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 15:40 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 15:37 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 15:54 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 15:54 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 15:45 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 15:45 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 15:44 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 15:36 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 15:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 15:57 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 15:41 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 16:05 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 15:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 15:44 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 15:43 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 15:47 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 15:56 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/117606311.shtml)
-- 2026-06-29 15:51 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/8377974.shtml)
-- 2026-06-29 15:56 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/15622726694.shtml)
-- 2026-06-29 15:45 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/192073114.shtml)
-- 2026-06-29 15:34 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/380561.shtml)
-- 2026-06-29 15:45 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/298965316.shtml)
-- 2026-06-29 15:47 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/9651977.shtml)
-- 2026-06-29 15:47 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/252907247476.shtml)
-- 2026-06-29 15:38 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/55252.shtml)
-- 2026-06-29 15:59 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/26343781762.shtml)
-- 2026-06-29 15:39 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/16705850145.shtml)
-- 2026-06-29 15:35 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/79725480.shtml)
-- 2026-06-29 15:57 - [发反科学内容为何会有200万粉丝](http://www.blog.minike.top/Article/details/204286846456.shtml)
-- 2026-06-29 15:43 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/620457.shtml)
-- 2026-06-29 16:00 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/980596660.shtml)
+- 2026-06-29 15:52 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/031776436035.shtml)
+- 2026-06-29 15:51 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/664236545.shtml)
+- 2026-06-29 16:02 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/63624167907.shtml)
+- 2026-06-29 16:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/030902281935.shtml)
+- 2026-06-29 15:40 - [第一炉香](http://www.share.kurohicncr.top/Article/details/59614638.shtml)
+- 2026-06-29 15:51 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/095415312941.shtml)
+- 2026-06-29 15:44 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.kurohicncr.top/Article/details/02668725.shtml)
+- 2026-06-29 16:00 - [乔家的儿女](https://www.share.minike.top/Article/details/1889860047.shtml)
+- 2026-06-29 15:41 - [东方风云榜](https://www.blog.minike.top/Article/details/3079751.shtml)
+- 2026-06-29 15:54 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/97165028020.shtml)
+- 2026-06-29 16:00 - [驻日美军航母沦为“毒窝”](http://www.blog.kurohicncr.top/Article/details/571056426.shtml)
+- 2026-06-29 16:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/40504347945.shtml)
+- 2026-06-29 15:57 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/543675103.shtml)
+- 2026-06-29 16:02 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/59431.shtml)
+- 2026-06-29 15:51 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/74216561978.shtml)

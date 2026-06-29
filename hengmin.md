@@ -1,58 +1,46 @@
-# 香港中旅拟以实物分派方式分拆港澳文旅及以介绍方式将其于联交所主板独立上市
+# 浦江中国公布于今日上午起复牌
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-香港中旅（00308）公布，公司计划以实物分派方式分拆港澳文旅及以介绍方式将港澳文旅股份于联交所主板独立上市。公司已根据应用指引第15项就建议分拆向联交所提交分拆建议，而联交所已确认公司可进行建议分拆。 于2026年5月20日，港澳文旅向联交所提交上市申请，以申请批准港澳文旅股份以介绍式于联交所主板上市及买卖。 本次分拆不涉及新股发行，仅向塬股东实物分派股份，不构成港交所第 1
+浦江中国（01417）公布，公司股份将于2026年6月16日上午9点起复牌。责任编辑：卢昱君
 
 ## 正文
 
-香港中旅（00308）公布，公司计划以实物分派方式分拆港澳文旅及以介绍方式将港澳文旅股份于联交所主板独立上市。
-
-公司已根据应用指引第15项就建议分拆向联交所提交分拆建议，而联交所已确认公司可进行建议分拆。
-
-于2026年5月20日，港澳文旅向联交所提交上市申请，以申请批准港澳文旅股份以介绍式于联交所主板上市及买卖。
-
-本次分拆不涉及新股发行，仅向塬股东实物分派股份，不构成港交所第 14 章项下交易。
-
-分拆完成后，上市公司将保留旅游景区及配套服务业务；港澳文旅承接客运、酒店、旅游证件及相关服务，专注港澳市场运营。
-
-公司表示，分拆有助于两大板块聚焦主业、提升运营效率，同时各自拥有独立融资平台，便于投资者精准估值，符合公司及股东整体利益。
+浦江中国（01417）公布，公司股份将于2026年6月16日上午9点起复牌。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 15:30 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 15:55 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 15:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 15:54 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 15:52 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 15:33 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 15:38 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 15:42 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 15:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 15:39 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 15:55 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 15:45 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 15:40 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 16:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 15:42 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 15:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 16:04 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 15:58 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 15:43 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 15:37 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 15:56 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 15:45 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 16:01 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 15:51 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 16:00 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:47 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/29527273955.shtml)
-- 2026-06-29 15:36 - [T1零封KC MSI](http://www.share.minike.top/Article/details/62354.shtml)
-- 2026-06-29 15:49 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/6421390.shtml)
-- 2026-06-29 15:56 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/9328856.shtml)
-- 2026-06-29 15:51 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/217430.shtml)
-- 2026-06-29 15:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/45794.shtml)
-- 2026-06-29 15:44 - [毒液2](http://www.share.kurohicncr.top/Article/details/183169.shtml)
-- 2026-06-29 15:43 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/768570441.shtml)
-- 2026-06-29 15:48 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/31502955.shtml)
-- 2026-06-29 15:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/928050.shtml)
-- 2026-06-29 15:37 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/833248470.shtml)
-- 2026-06-29 15:40 - [女心理师](http://www.share.minike.top/Article/details/33032002.shtml)
-- 2026-06-29 15:51 - [沙丘](http://www.blog.minike.top/Article/details/81605.shtml)
-- 2026-06-29 15:45 - [小娘惹](https://www.share.minike.top/Article/details/2521844522.shtml)
-- 2026-06-29 15:38 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/966472.shtml)
+- 2026-06-29 15:44 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/52376.shtml)
+- 2026-06-29 16:03 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/823438.shtml)
+- 2026-06-29 15:46 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/0451243.shtml)
+- 2026-06-29 15:38 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/945020882665.shtml)
+- 2026-06-29 15:37 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.minike.top/Article/details/8591239.shtml)
+- 2026-06-29 15:37 - [人形机器人](https://www.share.kurohicncr.top/Article/details/112656.shtml)
+- 2026-06-29 16:03 - [爱很美味](https://www.share.kurohicncr.top/Article/details/66520310.shtml)
+- 2026-06-29 15:56 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/0235945.shtml)
+- 2026-06-29 16:02 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/42871035.shtml)
+- 2026-06-29 15:45 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/269077668025.shtml)
+- 2026-06-29 16:05 - [AG 宫斗](https://www.blog.minike.top/Article/details/511816701.shtml)
+- 2026-06-29 16:03 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/7091030699.shtml)
+- 2026-06-29 15:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/370611605317.shtml)
+- 2026-06-29 15:38 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/03748588.shtml)
+- 2026-06-29 15:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/92368889045.shtml)

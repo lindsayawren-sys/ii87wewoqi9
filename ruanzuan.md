@@ -1,56 +1,56 @@
-# 基流科技港股IPO：收入规模仅同行一半市场份额反高0.1个点 研发费用率仅个位数过半发明专利系受让取得
+# 摩根士丹利下调原油价格预期 因美伊签署协议后供应将增加
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：渚 4月29日，上海基流科技股份有限公司（以下简称“基流科技”或“公司”）向联交所主板提交上市申请，国泰君安国际为独家保荐人。 成立短短3年时间，基流科技估值暴涨至91.6亿元，PE高达294倍，远超行业平均水平。估值大涨之际，实控人胡效赫累计减持套现3600万元。 业绩层面，基流科技净利润与现金流严重背离，经调整净利润的增长更多是“纸面富贵
+摩根士丹利大幅下调未来几个季度的石油价格预测，因美国和伊朗达成重新开放霍尔木兹海峡的临时协议，有望恢复地区石油产量并增加供应。 包括Martijn Rats在内的分析师在6月15日的报告中表示，作为实物交易基准价格的即期布伦特原油价格预计第三季度均价为每桶90美元，此前预期为100美元；最后三个月均价预计为每桶80美元，调低了15美元。他们说，中东地区产量复苏的进程提前了一到两
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：渚 4月29日，上海基流科技股份有限公司（以下简称“基流科技”或“公司”）向联交所主板提交上市申请，国泰君安国际为独家保荐人。
+摩根士丹利大幅下调未来几个季度的石油价格预测，因美国和伊朗达成重新开放霍尔木兹海峡的临时协议，有望恢复地区石油产量并增加供应。
 
-成立短短3年时间，基流科技估值暴涨至91.6亿元，PE高达294倍，远超行业平均水平。
+包括Martijn Rats在内的分析师在6月15日的报告中表示，作为实物交易基准价格的即期布伦特原油价格预计第三季度均价为每桶90美元，此前预期为100美元；最后三个月均价预计为每桶80美元，调低了15美元。
 
-估值大涨之际，实控人胡效赫累计减持套现3600万元。
+他们说，中东地区产量复苏的进程提前了一到两周。
 
-业绩层面，基流科技净利润与现金流严重背离，经调整净利润的增长更多是“纸面富贵”，而非真金白银的流入。
+他们说：“仍有许多问题需要谈判，关键风险依然存在，但就目前而言，这是朝着缓和冲突和通过霍尔木兹海峡出口更多石油迈出的关键一步。
 
-与此同时，大量资金滞留在基流科技的应收账款中，造成营运资金持续承压。
+”他们指的是华盛顿和德黑兰定于周五在瑞士签署的协议。
 
-此外，截至目前，基流科技共持有9项授权发明专利，其中有5项系受让取得，而非公司自主研发取得。
+协议消息公布后，油价已跌至3月以来的最低点，尽管协议文本尚未公布，且贸易商、托运人和生产商对于如何具体实施才能恢复水路运输仍抱有很大疑虑。
 
-且该部分专利属可编程网络及软件定义网络领域，与公司主营的AI算力集群并无强相关。
+前述分析师指出，油轮运输可能需要“数周”时间才能恢复，因为需要清除水雷、重建船东和保险公司的商业信心，以及此前被转移的船舶返回这个地区。
 
-PE高达294倍 估值大涨之际实控人减持套现3600万 2023年2月，基流科技正式成立，定义为全栈自主的算力建筑商，专注搭建智算系统的软硬件全栈基础设施。
+他们补充说，预计产量从7月中旬开始逐步提高，“我们假设50%的损失产量到9月恢复，到12月恢复80%，其余部分在2027年初恢复。
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 15:48 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 15:30 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 15:50 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 15:42 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 15:57 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 15:34 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 15:34 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 15:52 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 15:38 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 15:37 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 15:52 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 15:58 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 15:42 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 15:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 15:54 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 15:49 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 15:44 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 15:47 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 15:53 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/305761.shtml)
-- 2026-06-29 15:52 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/02678480.shtml)
-- 2026-06-29 15:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/91362741.shtml)
-- 2026-06-29 15:38 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/674655788167.shtml)
-- 2026-06-29 15:47 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/21246900881.shtml)
-- 2026-06-29 15:42 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/04426664.shtml)
-- 2026-06-29 15:46 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/87629291147.shtml)
-- 2026-06-29 15:36 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/45609805.shtml)
-- 2026-06-29 15:33 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/5918583.shtml)
-- 2026-06-29 15:46 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/99855.shtml)
-- 2026-06-29 15:50 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/830108956539.shtml)
-- 2026-06-29 15:34 - [《贺子珍》](http://www.blog.minike.top/Article/details/85161192018.shtml)
-- 2026-06-29 15:44 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/619198679091.shtml)
-- 2026-06-29 15:40 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/33545407717.shtml)
-- 2026-06-29 15:53 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/799778526.shtml)
+- 2026-06-29 15:52 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/85241.shtml)
+- 2026-06-29 15:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/332570.shtml)
+- 2026-06-29 15:52 - [哈兰德这该死的胜负欲](http://www.share.minike.top/Article/details/98951346866.shtml)
+- 2026-06-29 15:59 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/162285369.shtml)
+- 2026-06-29 15:42 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/088121990.shtml)
+- 2026-06-29 16:05 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/839706.shtml)
+- 2026-06-29 15:58 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/3204195.shtml)
+- 2026-06-29 16:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/07188813.shtml)
+- 2026-06-29 15:47 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/08134918.shtml)
+- 2026-06-29 15:58 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/008802563.shtml)
+- 2026-06-29 15:47 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/192717102.shtml)
+- 2026-06-29 15:46 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/012653.shtml)
+- 2026-06-29 16:05 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/37041469070.shtml)
+- 2026-06-29 15:53 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/702521.shtml)
+- 2026-06-29 15:38 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/196464625.shtml)

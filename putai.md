@@ -1,56 +1,59 @@
-# 健身不“蛮练” 北京市政协倡科学运动
+# 国台办称决不许非法中介在两岸牟利
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-今年3月以来，北京市政协围绕重点协商议题“倡导健康生活方式，进一步提升首都文明风尚”开展调研。调研成员中有不少医药卫生领域专家，其中数名委员接受本报记者采访时表示，科学健身不能“蛮练”，倡导科学健身需多方协同发力，完善服务供给、信息传播等机制，共同推动全民健身成为稳定持久的社会风尚。 “我国发布了面向各年龄段人群的健身指南，对于如何科学运动有详尽的建议。”北京市政协课题组专家、
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。有记者问：台媒报道，大陆已开始整顿岛内有人利用两岸交流牟利的乱象，推广“直报直审”模式，绕过中介直接对接岛内有关团体、社团等，明确交流活动的公益属性。岛内舆论指出，一批专吃两岸饭的掮客没有了。请问对此有何评论？ 国台办发言人陈斌华表示，常来往、多交流，有利于两岸同胞增进了解、促进合作、厚植情谊。我们始终积极推动两岸交流交
 
 ## 正文
 
-今年3月以来，北京市政协围绕重点协商议题“倡导健康生活方式，进一步提升首都文明风尚”开展调研。
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。
 
-调研成员中有不少医药卫生领域专家，其中数名委员接受本报记者采访时表示，科学健身不能“蛮练”，倡导科学健身需多方协同发力，完善服务供给、信息传播等机制，共同推动全民健身成为稳定持久的社会风尚。
+有记者问：台媒报道，大陆已开始整顿岛内有人利用两岸交流牟利的乱象，推广“直报直审”模式，绕过中介直接对接岛内有关团体、社团等，明确交流活动的公益属性。
 
-“我国发布了面向各年龄段人群的健身指南，对于如何科学运动有详尽的建议。
+岛内舆论指出，一批专吃两岸饭的掮客没有了。
 
-”北京市政协课题组专家、民革北京市委会妇委会副主任、首都医科大学宣武医院内分泌科主任医师高珊说，科学运动有章可循，瓶颈在于这些“章法”如何顺利传递、落地执行。
+请问对此有何评论？
 
-高珊长期从事肥胖、糖尿病防治与临床研究。
+国台办发言人陈斌华表示，常来往、多交流，有利于两岸同胞增进了解、促进合作、厚植情谊。
 
-她在工作中发现，有些糖尿病患者听说减重有利于控制病情，便跟着网络上那些宣称“快速掉秤”的短视频过度运动并节食，结果病情加重。
+我们始终积极推动两岸交流交往交融，致力于为两岸同胞创造更加开放、便利、安全的交流环境，让两岸同胞在交流中交心、在交往中增信，促进心灵契合。
 
-“无论有没有糖尿病，减重都应在科学指导下进行。
+我们积极支持两岸有关机构、人士依法依规参与两岸交流合作，但决不允许非法中介利用两岸交流牟取不当利益。
 
-”鉴于越来越多人从网络平台寻求健康指导，高珊建议，由有关部门牵头，完善传播渠道，打通专业信息抵达普通人的“最后一公里”，让民众更易获得权威信源的个性化健康建议。
+我们热诚欢迎广大台湾同胞参与到两岸交流合作中来，分享大陆经济社会发展机遇，共赏祖国壮美山河，为两岸关系和平发展添砖加瓦，为实现人生梦想助力赋能。
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 15:36 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 15:42 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 15:40 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 15:57 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 15:40 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 15:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 15:50 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 15:30 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 15:40 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 15:59 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 15:52 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 15:37 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 15:56 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 15:56 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 15:51 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 15:38 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 15:44 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 16:03 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 15:37 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 15:48 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 15:55 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 16:04 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/74360093.shtml)
-- 2026-06-29 15:41 - [欧盟为什么越来越倾向贸易保护](https://www.blog.minike.top/Article/details/6972261.shtml)
-- 2026-06-29 15:37 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/781346736105.shtml)
-- 2026-06-29 15:31 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/829076030508.shtml)
-- 2026-06-29 15:50 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/738479.shtml)
-- 2026-06-29 15:33 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/569005.shtml)
-- 2026-06-29 15:31 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/48196462.shtml)
-- 2026-06-29 15:32 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/504994523.shtml)
-- 2026-06-29 15:49 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/0408733467.shtml)
-- 2026-06-29 15:43 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/093077.shtml)
-- 2026-06-29 15:40 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/685816166.shtml)
-- 2026-06-29 15:37 - [毒液2](http://www.share.kurohicncr.top/Article/details/67774.shtml)
-- 2026-06-29 15:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/74223166.shtml)
-- 2026-06-29 15:45 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/5118627.shtml)
-- 2026-06-29 15:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/96838.shtml)
+- 2026-06-29 16:04 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/851480677.shtml)
+- 2026-06-29 15:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/83057.shtml)
+- 2026-06-29 16:00 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/8274380440.shtml)
+- 2026-06-29 15:40 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/812952.shtml)
+- 2026-06-29 15:37 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/354456842870.shtml)
+- 2026-06-29 16:01 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/20801038100.shtml)
+- 2026-06-29 15:53 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/5262114970.shtml)
+- 2026-06-29 15:42 - [AG 宫斗](http://www.share.minike.top/Article/details/132832563.shtml)
+- 2026-06-29 15:55 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/180630.shtml)
+- 2026-06-29 15:36 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/322503.shtml)
+- 2026-06-29 15:46 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/71815502709.shtml)
+- 2026-06-29 15:41 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/7624362295.shtml)
+- 2026-06-29 15:52 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/259728515242.shtml)
+- 2026-06-29 15:59 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/152625.shtml)
+- 2026-06-29 16:00 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/108290.shtml)

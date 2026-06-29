@@ -1,59 +1,46 @@
-# 大宗商品综述：原油和黄金价格下跌 镍价上涨
+# “数爱无疆”数字公益故事展播 | 一颗耙耙柑的数字公益与生态守望
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-随着投资者权衡伊朗局势，原油价格周二小幅走低。对通胀的担忧拖累金价下滑。受印尼减产以及控制出口消息的影响，镍价上涨。 原油：油价小幅走低 交易员权衡特朗普对伊朗的最新威胁 原油价格周二在震荡中小幅走低，投资者在权衡美国总统特朗普最新发出的要恢复打击伊朗的威胁。自4月初达成停火以来，特朗普已多次发出军事打击威胁，但最后都没有实施。 WTI原油跌至每桶104美元附近。特朗普周二表示
+发布时间：2026年06月16日 20:40 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由小红书科技有限公司推送的“
 
 ## 正文
 
-随着投资者权衡伊朗局势，原油价格周二小幅走低。
+发布时间：2026年06月16日 20:40 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。
 
-对通胀的担忧拖累金价下滑。
+2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由小红书科技有限公司推送的“一颗耙耙柑的数字公益与生态守望”作品入选。
 
-受印尼减产以及控制出口消息的影响，镍价上涨。
-
-原油：油价小幅走低 交易员权衡特朗普对伊朗的最新威胁 原油价格周二在震荡中小幅走低，投资者在权衡美国总统特朗普最新发出的要恢复打击伊朗的威胁。
-
-自4月初达成停火以来，特朗普已多次发出军事打击威胁，但最后都没有实施。
-
-WTI原油跌至每桶104美元附近。
-
-特朗普周二表示，如果伊朗不同意美国的和平条件，“我们可能不得不再给他们一次重大打击”。
-
-就在不到一天前，他曾表示自己刚刚取消了一次预定的打击行动。
+责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 15:43 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 15:40 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 15:32 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 15:49 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 15:45 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 15:35 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 15:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 15:39 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 15:36 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 15:39 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 15:45 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 15:30 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 15:59 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 15:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 15:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 15:39 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 16:05 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 15:42 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 15:43 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 15:44 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 16:00 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 15:59 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 15:47 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:44 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/93965.shtml)
-- 2026-06-29 15:39 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/606530436066.shtml)
-- 2026-06-29 15:45 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/057868627.shtml)
-- 2026-06-29 15:55 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/711734.shtml)
-- 2026-06-29 15:43 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/8241289985.shtml)
-- 2026-06-29 15:35 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/34253982092.shtml)
-- 2026-06-29 15:38 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/761349934972.shtml)
-- 2026-06-29 15:53 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/96247009382.shtml)
-- 2026-06-29 15:30 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/2043455.shtml)
-- 2026-06-29 15:56 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/2089747206.shtml)
-- 2026-06-29 15:30 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/133117118.shtml)
-- 2026-06-29 15:45 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/57243839.shtml)
-- 2026-06-29 15:46 - [当我回母校教书](http://www.share.minike.top/Article/details/85099174.shtml)
-- 2026-06-29 15:57 - [起风了](https://www.blog.minike.top/Article/details/64597765866.shtml)
-- 2026-06-29 15:37 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/55722.shtml)
+- 2026-06-29 15:56 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/757657353392.shtml)
+- 2026-06-29 15:50 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/0539428.shtml)
+- 2026-06-29 16:00 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/7210765114.shtml)
+- 2026-06-29 15:58 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/383959644.shtml)
+- 2026-06-29 15:58 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/45885098458.shtml)
+- 2026-06-29 16:04 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/7599425.shtml)
+- 2026-06-29 16:03 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/528061199.shtml)
+- 2026-06-29 15:45 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/452289.shtml)
+- 2026-06-29 15:36 - [四川宜宾地震](https://www.share.minike.top/Article/details/756015247774.shtml)
+- 2026-06-29 15:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/3792951.shtml)
+- 2026-06-29 15:40 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/273398674497.shtml)
+- 2026-06-29 15:47 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/319878328223.shtml)
+- 2026-06-29 15:42 - [发反科学内容为何会有200万粉丝](http://www.blog.minike.top/Article/details/3072371.shtml)
+- 2026-06-29 15:55 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/68885.shtml)
+- 2026-06-29 15:41 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/586596.shtml)

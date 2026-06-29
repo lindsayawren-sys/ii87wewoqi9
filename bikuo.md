@@ -1,61 +1,59 @@
-# 数读家纺年报 | 富安娜业绩承压销售费率达32.4% 梦洁股份三年以上应收账款占比近半
+# 苹果将于明年推出带摄像头的AirPods和新一代折叠屏iPhone
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。这意味着，存
+苹果公司计划于2027年底推出配备摄像头的耳机AirPods，作为新品发布计划的一部分，这款产品将帮助苹果进军人工智能设备市场。 据知情人士透露，苹果计划在推出下一代折叠屏手机以及一款纪念iPhone问世20周年的新机型前后发布该这款备。 知情人士称这将是苹果迄今力度最大的新品发布。相关产品有望在John Ternus于9月1日接任首席执行官后，为苹果提供增长动力。 过去数月，
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。
+苹果公司计划于2027年底推出配备摄像头的耳机AirPods，作为新品发布计划的一部分，这款产品将帮助苹果进军人工智能设备市场。
 
-国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。
+据知情人士透露，苹果计划在推出下一代折叠屏手机以及一款纪念iPhone问世20周年的新机型前后发布该这款备。
 
-与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。
+知情人士称这将是苹果迄今力度最大的新品发布。
 
-这意味着，存量房翻新已正式取代新房装修，成为家居消费的主要需求来源。
+相关产品有望在John Ternus于9月1日接任首席执行官后，为苹果提供增长动力。
 
-另一方面，“以旧换新”政策持续释放红利。
+过去数月，这三款产品均已进入开发后期阶段。
 
-2025年，社会消费品零售总额达50.12万亿元，同比增长3.7%。
+媒体5月曾报道，苹果已加快新一代AirPods的研发，目前原型机的硬件和软件均接近最终版本。
 
-其中，家具类消费品全年零售额实现同比增长14.6%，较2024年显著提速，智能家居和适老化改造成为新增长极；建筑及装潢材料类受房地产市场转型期影响，零售额同比下降约2.7%，但降幅已明显收窄。
+苹果还在为未来设备开发一系列新芯片，采用下一代半导体制造工艺。
 
-截至4月30日，A股7家家纺（按申万三级行业分类）上市公司均已披露2025年报。
+苹果目前正将这些计划于明年秋季推出的产品与代号“Bell”的iOS 28同步测试。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 15:46 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 15:56 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 15:40 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 15:38 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 15:34 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 16:00 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 15:52 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 15:35 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 15:43 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 15:33 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 15:55 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 15:40 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 15:59 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 15:36 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 15:51 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 15:47 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 16:02 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 15:52 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 16:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 15:55 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 15:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 16:02 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 16:02 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 15:36 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 16:02 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 15:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 16:03 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:44 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/35800.shtml)
-- 2026-06-29 15:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/8939527.shtml)
-- 2026-06-29 15:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/343443755.shtml)
-- 2026-06-29 15:46 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/6881783904.shtml)
-- 2026-06-29 15:45 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/40886.shtml)
-- 2026-06-29 15:43 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/9062894.shtml)
-- 2026-06-29 15:33 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/079772626068.shtml)
-- 2026-06-29 15:52 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/556507695.shtml)
-- 2026-06-29 15:59 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/435230868501.shtml)
-- 2026-06-29 15:32 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/015530.shtml)
-- 2026-06-29 15:38 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/73052.shtml)
-- 2026-06-29 15:33 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/0468450770.shtml)
-- 2026-06-29 15:41 - [极限挑战第一季](https://www.blog.minike.top/Article/details/544307163.shtml)
-- 2026-06-29 15:48 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/964880834.shtml)
-- 2026-06-29 15:32 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/9291897401.shtml)
+- 2026-06-29 15:52 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/8263801.shtml)
+- 2026-06-29 16:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/3917402.shtml)
+- 2026-06-29 15:54 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/7006300194.shtml)
+- 2026-06-29 15:54 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/42659274430.shtml)
+- 2026-06-29 15:45 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/34492858600.shtml)
+- 2026-06-29 15:50 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/749046772278.shtml)
+- 2026-06-29 15:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/85723363.shtml)
+- 2026-06-29 15:38 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/061021268511.shtml)
+- 2026-06-29 16:01 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.kurohicncr.top/Article/details/06739.shtml)
+- 2026-06-29 16:01 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/5213601.shtml)
+- 2026-06-29 15:57 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/76295.shtml)
+- 2026-06-29 15:39 - [血糖高的人能吃西瓜吗](http://www.blog.minike.top/Article/details/478991818.shtml)
+- 2026-06-29 16:03 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/06693.shtml)
+- 2026-06-29 15:43 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/146326828.shtml)
+- 2026-06-29 15:47 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/09664484.shtml)

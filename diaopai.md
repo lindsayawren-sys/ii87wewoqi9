@@ -1,46 +1,58 @@
-# 从深山到海外 辽宁新宾小花环闯出大市场
+# 王信：以可持续金融及国际合作促进国际金融治理体系改革
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月20日 18:40 来源：中国新闻网 近日，记者走进辽宁省抚顺市新宾满族自治县。当地依托丰富的林木资源，将农户收集的树枝、木块等加工成节庆花环工艺品远销海外；当地企业今年3月首次采用“9810”海外仓模式出口，提前将货物备货至海外，大幅提升配送效率，有效拓宽外销渠道，让山区特色工艺品快速走向全球。(禹瑞斋 韩浩天 王翕瞳) 责任编辑：【李季】
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，中国人民银行研究局（参事室）局长（主任）王信参加2026陆家嘴论坛并表示，可持续金融的发展和国际合作可以促进国际金融治理的改革。 王信表示，可持续金融发展及相关国际合作，可从四大维度发力，推动国际金融治理改革，助力构建更加公平、包容且更具韧性的国际金融治理体系。 首先，在国际货币体系层面，绿色
 
 ## 正文
 
-发布时间：2026年05月20日 18:40 来源：中国新闻网 近日，记者走进辽宁省抚顺市新宾满族自治县。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，中国人民银行研究局（参事室）局长（主任）王信参加2026陆家嘴论坛并表示，可持续金融的发展和国际合作可以促进国际金融治理的改革。
 
-当地依托丰富的林木资源，将农户收集的树枝、木块等加工成节庆花环工艺品远销海外；当地企业今年3月首次采用“9810”海外仓模式出口，提前将货物备货至海外，大幅提升配送效率，有效拓宽外销渠道，让山区特色工艺品快速走向全球。
+王信表示，可持续金融发展及相关国际合作，可从四大维度发力，推动国际金融治理改革，助力构建更加公平、包容且更具韧性的国际金融治理体系。
 
-(禹瑞斋 韩浩天 王翕瞳) 责任编辑：【李季】
+首先，在国际货币体系层面，绿色低碳转型将带动大规模投融资活动，涵盖碳市场、能源市场、电力市场的互联互通建设，新能源关键矿产贸易往来，跨境绿色投融资扩容等内容。
+
+同时，多国陆续发行绿色主权债券，进一步增加全球安全资产供给。
+
+各类绿色投融资与贸易活动，将持续发挥货币定价、结算、贸易流通、投融资结算及价值储藏等职能。
+
+绿色低碳转型成效显著、可持续金融发展领先的经济体，其货币在国际货币体系中将获得更大发挥空间。
+
+与此同时，国际货币体系的演进，也需要及时、充分适配绿色低碳转型带来的全球金融发展新格局。
+
+第二，在全球金融稳定体系层面，目前各界已形成共识，气候变化、生态环境恶化、生物多样性减少等问题，会通过经济金融渠道引发金融风险，主要分为物理风险和转型风险两类。
 
 ## 相关推荐
 
-- 2026-06-29 15:56 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 15:48 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 15:36 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 15:54 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 15:49 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 15:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 15:59 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 15:58 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 15:46 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 15:40 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 15:45 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 15:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 15:45 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 15:54 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 16:04 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 15:39 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 15:47 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 15:51 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 15:37 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 16:03 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 15:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 15:43 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:58 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.minike.top/Article/details/076563092288.shtml)
-- 2026-06-29 15:51 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/16576.shtml)
-- 2026-06-29 15:38 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/16621.shtml)
-- 2026-06-29 15:31 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/65747500153.shtml)
-- 2026-06-29 15:55 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/96398309306.shtml)
-- 2026-06-29 15:57 - [周生如故](https://www.blog.minike.top/Article/details/67209808831.shtml)
-- 2026-06-29 15:47 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/204932864.shtml)
-- 2026-06-29 15:40 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/888248757679.shtml)
-- 2026-06-29 15:55 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/2867469.shtml)
-- 2026-06-29 15:32 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/5851371.shtml)
-- 2026-06-29 15:34 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/50411.shtml)
-- 2026-06-29 15:57 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/649352.shtml)
-- 2026-06-29 15:40 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/766166184906.shtml)
-- 2026-06-29 15:55 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/6537961836.shtml)
-- 2026-06-29 15:59 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/97776593759.shtml)
+- 2026-06-29 16:03 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/107736958518.shtml)
+- 2026-06-29 15:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/3001033.shtml)
+- 2026-06-29 15:51 - [普京介绍前线战事](https://www.share.minike.top/Article/details/5930442.shtml)
+- 2026-06-29 15:42 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/489393.shtml)
+- 2026-06-29 15:42 - [我国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/02451.shtml)
+- 2026-06-29 15:50 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/294406.shtml)
+- 2026-06-29 15:59 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/5496901307.shtml)
+- 2026-06-29 16:02 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/647895594.shtml)
+- 2026-06-29 15:45 - [AG 宫斗](https://www.share.minike.top/Article/details/798144.shtml)
+- 2026-06-29 15:53 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/07304.shtml)
+- 2026-06-29 15:40 - [疑似吴建豪老婆正脸照](http://www.share.kurohicncr.top/Article/details/7539806.shtml)
+- 2026-06-29 16:01 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/55073608.shtml)
+- 2026-06-29 15:53 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/294952151.shtml)
+- 2026-06-29 15:55 - [中餐厅南北饮食差异](https://www.share.kurohicncr.top/Article/details/44414.shtml)
+- 2026-06-29 16:03 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/0685455.shtml)

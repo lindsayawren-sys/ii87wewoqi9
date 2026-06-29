@@ -1,59 +1,59 @@
-# 习近平同俄罗斯总统普京茶叙
+# 保险VIP尊享旅游团正在变大型“购物杀猪盘”！4家保险公司被文旅部点名
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-新华社北京5月20日电(记者孙奕)5月20日晚，国家主席习近平在北京人民大会堂同俄罗斯总统普京举行茶叙。 习近平指出，多年来，我同普京总统保持频密交往，共同引领中俄新时代全面战略协作伙伴关系持续走深走实，推动两国睦邻友好更加深入人心，开创了相互尊重、公平正义、合作共赢的新型大国关系范式，为变乱交织的世界持续注入宝贵的稳定性。今天我同普京总统又就推进中俄全面战略协作伙伴关系达成新
+来源：险联社 “保险代理人变“导游”，打着VIP客户回馈旗号，把人推到购物店，洗脑、强迫，兜售一堆价值不明的玉石，一场对保险客户的大型围猎活动，正在愈演愈烈。” 部分保险机构和代理人给客户的“VIP尊享旅游团”正在变成对客户的一场大型“购物杀猪盘”围猎活动。 邀约VIP客户参加低价甚至免费旅行团，然后甩给当地旅行社，带到购物点强制购物，不是高价玉石，就是“野生动物制品”。 在销
 
 ## 正文
 
-新华社北京5月20日电(记者孙奕)5月20日晚，国家主席习近平在北京人民大会堂同俄罗斯总统普京举行茶叙。
+来源：险联社 “保险代理人变“导游”，打着VIP客户回馈旗号，把人推到购物店，洗脑、强迫，兜售一堆价值不明的玉石，一场对保险客户的大型围猎活动，正在愈演愈烈。
 
-习近平指出，多年来，我同普京总统保持频密交往，共同引领中俄新时代全面战略协作伙伴关系持续走深走实，推动两国睦邻友好更加深入人心，开创了相互尊重、公平正义、合作共赢的新型大国关系范式，为变乱交织的世界持续注入宝贵的稳定性。
+” 部分保险机构和代理人给客户的“VIP尊享旅游团”正在变成对客户的一场大型“购物杀猪盘”围猎活动。
 
-今天我同普京总统又就推进中俄全面战略协作伙伴关系达成新的重要共识。
+邀约VIP客户参加低价甚至免费旅行团，然后甩给当地旅行社，带到购物点强制购物，不是高价玉石，就是“野生动物制品”。
 
-为者常成，行者常至。
+在销售人员强迫、洗脑之下，本以为是“尊享旅游团”，到最后，买了几万甚至十几万价值不明的东西。
 
-相信在双方不懈努力下，中俄关系一定会延续高质量发展态势，竿头日进，更上层楼。
+保险机构或代理人负责拉人、旅行社负责行程、地接团队负责收割，已经变成一条完整的灰色产业链，大有愈演愈烈之势。
 
-普京表示，此访务实高效、成果丰硕。
+最近，文化旅游部公布13个旅游市场强制消费问题典型案例，其中6个案例涉及中国人寿、人保人寿、合众人寿、平安人寿4家保险公司的代理人。
 
-我同习近平主席共同回顾了俄中关系的发展历程，就广泛议题深入交换意见，明确了下一步两国合作方向，有利于确保俄中关系始终保持蓬勃发展势头。
+具体来看： 1、关在港澳购物店内购物 中国人寿贵州万山支公司销售人员杨某荣在未取得旅行社业务经营许可证的情况下，以880元/人的团费组织招徕保险客户参加“港澳7日游”，高某在不具备领队条件的情况下为该团游客提供领队服务。
 
-俄方期待继续同中方保持密切沟通，加强战略协调，以俄中关系的确定性、稳定性为世界和平繁荣作出新贡献。
+游客反映在香港和澳门期间被关在购物店内购物。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 15:33 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 15:48 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 15:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 15:43 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 15:35 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 15:48 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 15:37 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 15:30 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 15:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 15:55 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 15:45 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 15:50 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 15:46 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 16:03 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 15:37 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 15:40 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 15:52 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 15:48 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 15:43 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 15:38 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 15:41 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 16:05 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 15:52 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 16:04 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 16:00 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:40 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/211244678.shtml)
-- 2026-06-29 15:59 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/99825118861.shtml)
-- 2026-06-29 15:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/3748749438.shtml)
-- 2026-06-29 15:53 - [大范围炎热天气将至](https://www.share.kurohicncr.top/Article/details/45395791.shtml)
-- 2026-06-29 15:59 - [欧盟为什么越来越倾向贸易保护](http://www.share.kurohicncr.top/Article/details/412657.shtml)
-- 2026-06-29 15:31 - [博主：美航母沦为毒品集散窝点](http://www.share.minike.top/Article/details/4118573549.shtml)
-- 2026-06-29 15:40 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/12038904.shtml)
-- 2026-06-29 15:53 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/829889751428.shtml)
-- 2026-06-29 15:33 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/62838.shtml)
-- 2026-06-29 15:45 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/748258.shtml)
-- 2026-06-29 15:55 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/3721395.shtml)
-- 2026-06-29 15:30 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/172688312.shtml)
-- 2026-06-29 15:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/89106892.shtml)
-- 2026-06-29 15:33 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/60934965.shtml)
-- 2026-06-29 15:35 - [105年初心滚烫](https://www.blog.minike.top/Article/details/320949810.shtml)
+- 2026-06-29 15:49 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/520826435969.shtml)
+- 2026-06-29 15:37 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/8070310.shtml)
+- 2026-06-29 15:45 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/353266906.shtml)
+- 2026-06-29 15:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/99621216132.shtml)
+- 2026-06-29 15:59 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/57145583.shtml)
+- 2026-06-29 16:04 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/5437350.shtml)
+- 2026-06-29 15:56 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/4424357.shtml)
+- 2026-06-29 15:36 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/9306123.shtml)
+- 2026-06-29 16:02 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/2277345.shtml)
+- 2026-06-29 16:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/290699260.shtml)
+- 2026-06-29 15:58 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/7201174788.shtml)
+- 2026-06-29 15:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/5489233064.shtml)
+- 2026-06-29 16:00 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/7255569.shtml)
+- 2026-06-29 15:59 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/430562437.shtml)
+- 2026-06-29 15:37 - [汪东城回应45岁婚约](https://www.share.minike.top/Article/details/60736.shtml)

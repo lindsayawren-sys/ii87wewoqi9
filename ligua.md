@@ -1,56 +1,59 @@
-# RPX Gold公布Wawa项目最新进展，融资1410万加元推进预可研
+# 水涨荷花高 建交76载，中缅“胞波”情谊深长
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-RPX Gold Inc．周二发布公司运营更新，详细阐述了自2026年1月以来取得的重大进展，以及推进Wawa黄金项目走向预可行性研究并最终实现金矿生产的下一步计划。 PEA结果亮眼：税后净现值5.23亿加元，投资回收期不足一年 公司于2026年2月18日发布了初步经济评估报告，结果显示Wawa黄金项目具有极强的经济效益。在基准金价3500美元/盎司假设下，项目税后净现值达5.
+中新网6月17日电 缅甸总统敏昂莱于6月15日至19日对中国进行国事访问。 中缅是传统友好邻邦和命运共同体。建交76年来，双方秉持共同倡导的和平共处五项原则精神，同甘共苦、守望相助、团结协作，中缅关系取得长足发展。 “亲戚越走越亲，朋友越走越近”。从共同倡导践行和平共处五项原则，到携手共建中缅命运共同体，跨越千年的“胞波”情谊，越来越深入人心。 中国有诗云：“今年花胜去年红。”
 
 ## 正文
 
-RPX Gold Inc．周二发布公司运营更新，详细阐述了自2026年1月以来取得的重大进展，以及推进Wawa黄金项目走向预可行性研究并最终实现金矿生产的下一步计划。
+中新网6月17日电 缅甸总统敏昂莱于6月15日至19日对中国进行国事访问。
 
-PEA结果亮眼：税后净现值5.23亿加元，投资回收期不足一年 公司于2026年2月18日发布了初步经济评估报告，结果显示Wawa黄金项目具有极强的经济效益。
+中缅是传统友好邻邦和命运共同体。
 
-在基准金价3500美元/盎司假设下，项目税后净现值达5.23亿加元，税后内部收益率高达99.7%，初始资本支出仅约5100万加元，投资回收期不足一年。
+建交76年来，双方秉持共同倡导的和平共处五项原则精神，同甘共苦、守望相助、团结协作，中缅关系取得长足发展。
 
-若以4500美元/盎司金价计算，税后净现值升至9.35亿加元，内部收益率达181%。
+“亲戚越走越亲，朋友越走越近”。
 
-PEA报告基于2026年矿产资源评估，其中指示资源量较2024年评估增长了48%。
+从共同倡导践行和平共处五项原则，到携手共建中缅命运共同体，跨越千年的“胞波”情谊，越来越深入人心。
 
-成功融资1410万加元，资金充足推进PFS 公司于5月13日完成股权融资，募集总收益约1410万加元，获得超额认购。
+中国有诗云：“今年花胜去年红。
 
-此次融资吸引了新的机构投资者及现有股东参与，将为环境基线研究、资源转换钻探以及推进PFS提供资金支持。
+”缅甸谚语说：“水涨荷花高。
 
-公司预计将在2027年上半年完成预可行性研究。
+”相信中缅命运共同体建设将取得更多务实成果，更好地造福两国人民，中缅关系也将迎来更加美好的明天。
 
 ## 相关推荐
 
-- 2026-06-29 15:40 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 15:39 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 15:42 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 15:34 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 15:30 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 15:59 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 15:34 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 15:48 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 15:49 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 15:55 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 15:47 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 15:59 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 15:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 15:54 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 15:37 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 15:38 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 15:59 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 15:40 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 15:58 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 15:54 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 16:00 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 16:00 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 15:45 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/449314698.shtml)
-- 2026-06-29 15:39 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.kurohicncr.top/Article/details/724585.shtml)
-- 2026-06-29 15:44 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/69509888961.shtml)
-- 2026-06-29 15:47 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/568369.shtml)
-- 2026-06-29 15:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/1084373600.shtml)
-- 2026-06-29 15:58 - [沙丘](https://www.blog.minike.top/Article/details/481581.shtml)
-- 2026-06-29 15:53 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/435969004541.shtml)
-- 2026-06-29 15:35 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/84411680.shtml)
-- 2026-06-29 15:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/70087380527.shtml)
-- 2026-06-29 15:39 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/84260.shtml)
-- 2026-06-29 15:52 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/317434487887.shtml)
-- 2026-06-29 15:45 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/609072134.shtml)
-- 2026-06-29 15:51 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/457931115667.shtml)
-- 2026-06-29 15:52 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/3367275342.shtml)
-- 2026-06-29 15:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/86818.shtml)
+- 2026-06-29 15:57 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/98010.shtml)
+- 2026-06-29 16:03 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/403701625.shtml)
+- 2026-06-29 15:39 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/1272401261.shtml)
+- 2026-06-29 15:55 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/673710.shtml)
+- 2026-06-29 15:57 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/48462089305.shtml)
+- 2026-06-29 16:03 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/6144866.shtml)
+- 2026-06-29 16:03 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/24836.shtml)
+- 2026-06-29 15:46 - [当我回母校教书](https://www.blog.minike.top/Article/details/839397446.shtml)
+- 2026-06-29 16:05 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.kurohicncr.top/Article/details/67825657799.shtml)
+- 2026-06-29 16:05 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/55200.shtml)
+- 2026-06-29 15:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/0742312.shtml)
+- 2026-06-29 15:46 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/84991589.shtml)
+- 2026-06-29 15:50 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/108217357422.shtml)
+- 2026-06-29 15:44 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/0819410485.shtml)
+- 2026-06-29 15:57 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/8686706.shtml)

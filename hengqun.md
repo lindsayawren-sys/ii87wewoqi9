@@ -1,61 +1,56 @@
-# 贷款市场报价利率连续12个月不变，专业解读来了
+# 从“老抠门”到“土专家”：灵丘科技小院让雁北农夫完成种植逆袭
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-5月20日，中国人民银行授权全国银行间同业拆借中心公布5月LPR（贷款市场报价利率）报价：1年期品种报3.0%，上月为3.0%；5年期以上品种报3.5%，上月为3.5%。这是自2025年6月以来LPR连续第12个月维持不变。 5月两个期限品种的LPR报价保持不变，符合市场预期。当月LPR报价的定价基础没有变化。上月LPR报价公布以来，政策利率（央行7天期逆回购利率）未发生变化。
+中新网大同6月17日电 (胡健 马静波 宋佳烨)初夏时节，山西省大同市灵丘县清泥涧村的梯田绿意盎然。一大早，64岁的有机蔬菜大棚种植户谢玉凯就在田间为村民讲解农用酵素的使用方法——这位曾经对有机种植心存疑虑的普通农户，如今已蜕变为十里八乡闻名的农技“土专家”。 走进老谢的蔬菜大棚，西红柿泛着红晕，豆角翠绿笔直，葡萄饱满圆润。喷施农用酵素近三年，他的作物根系又深又壮，叶片肥厚油亮
 
 ## 正文
 
-5月20日，中国人民银行授权全国银行间同业拆借中心公布5月LPR（贷款市场报价利率）报价：1年期品种报3.0%，上月为3.0%；5年期以上品种报3.5%，上月为3.5%。
+中新网大同6月17日电 (胡健 马静波 宋佳烨)初夏时节，山西省大同市灵丘县清泥涧村的梯田绿意盎然。
 
-这是自2025年6月以来LPR连续第12个月维持不变。
+一大早，64岁的有机蔬菜大棚种植户谢玉凯就在田间为村民讲解农用酵素的使用方法——这位曾经对有机种植心存疑虑的普通农户，如今已蜕变为十里八乡闻名的农技“土专家”。
 
-5月两个期限品种的LPR报价保持不变，符合市场预期。
+走进老谢的蔬菜大棚，西红柿泛着红晕，豆角翠绿笔直，葡萄饱满圆润。
 
-当月LPR报价的定价基础没有变化。
+喷施农用酵素近三年，他的作物根系又深又壮，叶片肥厚油亮，抗寒抗旱能力大幅提升，采摘期也显著延长。
 
-上月LPR报价公布以来，政策利率（央行7天期逆回购利率）未发生变化。
+“喷酵素离太近不行，太远也不行，这里面的门道很多，一点都不能含糊。
 
-这意味着5月LPR报价的定价基础稳定，已在很大程度上预示当月LPR报价会继续按兵不动。
+”老谢边说边示范着。
 
-当前报价行缺乏主动下调LPR报价加点的动力。
+改变始于2024年6月。
 
-数据显示，受流动性偏松带动，近期包括1年期商业银行（AAA级）同业存单到期收益率在内的主要市场利率出现一定幅度下行，其中，4月1年期商业银行（AAA级）同业存单到期收益率均值为1.47%，较上月下行7个基点，较上年末下行18个基点，创历史最低水平，显示商业银行在货币市场的批发融资成本在持续下降。
+全国首个依据全域有机农业科学理论体系打造的县域有机农业科技小院在灵丘县成立。
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 15:32 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 15:32 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 15:50 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 15:51 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 15:41 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 15:37 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 15:48 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 15:53 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 15:49 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 15:59 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 15:49 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 15:53 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 15:40 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 15:32 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 15:53 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 15:44 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 15:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 15:49 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 15:59 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 15:37 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 15:37 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 15:39 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 15:44 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 15:56 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.kurohicncr.top/Article/details/706293497922.shtml)
-- 2026-06-29 15:33 - [博主：美航母沦为毒品集散窝点](http://www.share.kurohicncr.top/Article/details/826162.shtml)
-- 2026-06-29 15:48 - [哈兰德这该死的胜负欲](http://www.share.minike.top/Article/details/4351901826.shtml)
-- 2026-06-29 15:42 - [青春环游记第三季](http://www.share.minike.top/Article/details/5074281.shtml)
-- 2026-06-29 15:53 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/69257.shtml)
-- 2026-06-29 15:57 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/56061.shtml)
-- 2026-06-29 15:51 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/732159835682.shtml)
-- 2026-06-29 15:34 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/386605148016.shtml)
-- 2026-06-29 15:43 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/85402775.shtml)
-- 2026-06-29 15:44 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/199224361927.shtml)
-- 2026-06-29 15:43 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/119553366.shtml)
-- 2026-06-29 15:58 - [如何“亲菌子”又“远小人儿”](https://www.share.kurohicncr.top/Article/details/525382666.shtml)
-- 2026-06-29 15:45 - [中国邮政上海分公司总经理李柏平被查](http://www.share.minike.top/Article/details/162862593.shtml)
-- 2026-06-29 15:39 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/436576398.shtml)
-- 2026-06-29 15:59 - [网约车司机转账15000元后被乘客拉黑](http://www.share.minike.top/Article/details/276372166.shtml)
+- 2026-06-29 15:36 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/184291354346.shtml)
+- 2026-06-29 15:48 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/223719.shtml)
+- 2026-06-29 15:47 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/351758313193.shtml)
+- 2026-06-29 16:03 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/213157.shtml)
+- 2026-06-29 15:52 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/598546.shtml)
+- 2026-06-29 15:59 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/637446280966.shtml)
+- 2026-06-29 15:52 - [博主：美航母沦为毒品集散窝点](http://www.share.kurohicncr.top/Article/details/335975358059.shtml)
+- 2026-06-29 15:37 - [首尔商铺禁止洪明甫入内](https://www.share.kurohicncr.top/Article/details/99092669.shtml)
+- 2026-06-29 15:55 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/3203115150.shtml)
+- 2026-06-29 16:05 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/4282649453.shtml)
+- 2026-06-29 15:49 - [一见倾心](https://www.share.kurohicncr.top/Article/details/815546973.shtml)
+- 2026-06-29 16:00 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/42156.shtml)
+- 2026-06-29 15:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/25001.shtml)
+- 2026-06-29 15:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/25571402052.shtml)
+- 2026-06-29 15:47 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/3947191047.shtml)

@@ -1,50 +1,58 @@
-# 2连板合百集团：与长鑫科技无任何业务往来
+# 端午节假期全国口岸日均出入境人员将达220万人次
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-转自：财联社【2连板合百集团：与长鑫科技无任何业务往来】财联社5月19日电，合百集团(000417)发布股票交易异常波动公告称，按照公司最新实缴比例穿透测算，公司间接持有长鑫科技发行前股份比例约0.0487%，间接投资长鑫科技的比例较低，间接投资金额较小，无法对长鑫科技决策产生影响。公司目前主营业务为零售与农产品批发，不涉及半导体、芯片及存储等相关领域，短期内也无转型计划。截至
+端午佳节将至，预计全国口岸将迎来出入境客流高峰。 据国家移民管理局预测，端午节假期全国口岸日均出入境人员将达220万人次，较去年端午节假期增长11.7%，单日最高通关量将突破235万人次。大型空港口岸出入境客流小幅增长，上海浦东、北京首都、广州白云、深圳宝安、北京大兴、成都天府等国际机场日均出入境人员预计分别为10.4万、5.2万、5.2万、2.1万、1.9万、1.7万人次。
 
 ## 正文
 
-转自：财联社【2连板合百集团：与长鑫科技无任何业务往来】财联社5月19日电，合百集团(000417)发布股票交易异常波动公告称，按照公司最新实缴比例穿透测算，公司间接持有长鑫科技发行前股份比例约0.0487%，间接投资长鑫科技的比例较低，间接投资金额较小，无法对长鑫科技决策产生影响。
+端午佳节将至，预计全国口岸将迎来出入境客流高峰。
 
-公司目前主营业务为零售与农产品批发，不涉及半导体、芯片及存储等相关领域，短期内也无转型计划。
+据国家移民管理局预测，端午节假期全国口岸日均出入境人员将达220万人次，较去年端午节假期增长11.7%，单日最高通关量将突破235万人次。
 
-截至本公告披露日，公司与长鑫科技无任何业务往来。
+大型空港口岸出入境客流小幅增长，上海浦东、北京首都、广州白云、深圳宝安、北京大兴、成都天府等国际机场日均出入境人员预计分别为10.4万、5.2万、5.2万、2.1万、1.9万、1.7万人次。
+
+端午节期间粤港澳三地将举办多场龙舟赛事和大型活动，跨境旅游和返乡探亲客流叠加，毗邻港澳陆路口岸通关流量将明显增多。
+
+其中，深圳罗湖、福田、深圳湾、广深港高铁西九龙站、莲塘口岸日均出入境人员预计将分别达到26万、24万、20万、13万、11万人次，珠海拱北、港珠澳大桥、青茂、横琴口岸日均出入境人员预计将分别达到37万、12.2万、11.5万、10.5万人次。
+
+国家移民管理局提示广大中外出入境旅客，出行前及时关注口岸客流变化和通关情况，仔细检查出入境证件签证是否有效；中国公民出境时需提前了解前往地安全形势、入境政策等，避免前往存在埃博拉病毒病疫情流行风险的国家和地区。
+
+通关过程中如遇困难，可随时拨打国家移民管理机构12367服务热线或向现场执勤的移民管理警察寻求帮助。
+
+(总台央视记者 武兵)
 
 ## 相关推荐
 
-- 2026-06-29 15:45 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 15:52 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 15:35 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 15:37 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 15:36 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 15:39 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 15:41 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 15:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 15:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 15:45 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 15:48 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 15:48 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 15:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 15:55 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 15:56 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 15:53 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 15:54 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 15:51 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 15:43 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 15:45 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 16:04 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 15:43 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 15:39 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 15:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 15:37 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 16:05 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:32 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/6340163.shtml)
-- 2026-06-29 15:43 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/253183542.shtml)
-- 2026-06-29 15:52 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/00963180.shtml)
-- 2026-06-29 15:59 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/295488182594.shtml)
-- 2026-06-29 15:45 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/832536132.shtml)
-- 2026-06-29 15:51 - [如何“亲菌子”又“远小人儿”](https://www.share.kurohicncr.top/Article/details/91446.shtml)
-- 2026-06-29 15:42 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/783290.shtml)
-- 2026-06-29 15:33 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/0741551583.shtml)
-- 2026-06-29 15:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/56223596648.shtml)
-- 2026-06-29 15:35 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/318670393.shtml)
-- 2026-06-29 15:41 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/4550249871.shtml)
-- 2026-06-29 15:40 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/3671145271.shtml)
-- 2026-06-29 15:44 - [挪威王储妃长子2次强奸被判4年](https://www.share.kurohicncr.top/Article/details/688615444.shtml)
-- 2026-06-29 15:48 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/8819037166.shtml)
-- 2026-06-29 15:52 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/61300337.shtml)
+- 2026-06-29 15:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/551314735296.shtml)
+- 2026-06-29 15:45 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/1407280.shtml)
+- 2026-06-29 15:44 - [送你一朵小红花](http://www.blog.minike.top/Article/details/639272254319.shtml)
+- 2026-06-29 16:04 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/007772591144.shtml)
+- 2026-06-29 15:42 - [恋与深空 731](https://www.blog.minike.top/Article/details/11143.shtml)
+- 2026-06-29 15:50 - [中餐厅南北饮食差异](https://www.share.kurohicncr.top/Article/details/88509.shtml)
+- 2026-06-29 15:48 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/95624653.shtml)
+- 2026-06-29 15:45 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/2875875.shtml)
+- 2026-06-29 15:51 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/7122240328.shtml)
+- 2026-06-29 15:56 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/20147.shtml)
+- 2026-06-29 15:59 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/095450817413.shtml)
+- 2026-06-29 15:43 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/368297956429.shtml)
+- 2026-06-29 15:55 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/19530205531.shtml)
+- 2026-06-29 15:58 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/97163.shtml)
+- 2026-06-29 15:46 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/49005.shtml)

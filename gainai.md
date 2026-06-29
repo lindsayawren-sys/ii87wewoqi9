@@ -1,58 +1,56 @@
-# 50个数字公益故事里，藏着中国温度
+# （美加墨世界杯）沙特1:1逼平乌拉圭 伊朗2:2战平新西兰
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网北京5月20日电(记者 谢艺观)在湖南常宁的乡村操场上，一场“致美山海音乐会”让乡村孩子在歌声中触摸艺术；在新疆喀什疏附县的校园里，广州援疆教师带着孩子们舞起醒狮，龙狮文化跨越万里扎根边疆；在江西寻乌，孩子们抱着AI智能吉他，写出一首首原创歌曲…… 为推动网络公益事业发展，助力网上正能量传播，在首届活动成功举办的基础上，中国网络社会组织联合会联合中国互联网发展基金会、中国
+中新社迈阿密/洛杉矶6月15日电 当地时间15日在美国迈阿密举行的美加墨世界杯H组比赛中，全场高达27次射门的乌拉圭队被严密防守的沙特阿拉伯队1:1逼平。G组的伊朗队当日在美国洛杉矶迎来本届杯赛首秀，他们以2:2战平新西兰队。沙特队曾在上届世界杯首战击败阿根廷队爆出冷门，此役出征的球员大部分来自本国联赛。随着苏亚雷斯等知名球星离开，乌拉圭队进攻端实力不比当年，但作为南美洲劲旅底
 
 ## 正文
 
-中新网北京5月20日电(记者 谢艺观)在湖南常宁的乡村操场上，一场“致美山海音乐会”让乡村孩子在歌声中触摸艺术；在新疆喀什疏附县的校园里，广州援疆教师带着孩子们舞起醒狮，龙狮文化跨越万里扎根边疆；在江西寻乌，孩子们抱着AI智能吉他，写出一首首原创歌曲…… 为推动网络公益事业发展，助力网上正能量传播，在首届活动成功举办的基础上，中国网络社会组织联合会联合中国互联网发展基金会、中国新闻网自2025年11月起继续组织开展2025“数爱无疆”数字公益故事征集展播活动。
+中新社迈阿密/洛杉矶6月15日电 当地时间15日在美国迈阿密举行的美加墨世界杯H组比赛中，全场高达27次射门的乌拉圭队被严密防守的沙特阿拉伯队1:1逼平。
 
-从308个征集案例中选出的50个优秀数字公益故事，共同勾勒出数字时代公益事业的鲜活图景，彰显着科技向善的时代温度。
+G组的伊朗队当日在美国洛杉矶迎来本届杯赛首秀，他们以2:2战平新西兰队。
 
-美育润心：让艺术种子破土萌芽 最动人的故事，往往始于微小的瞬间。
+沙特队曾在上届世界杯首战击败阿根廷队爆出冷门，此役出征的球员大部分来自本国联赛。
 
-2025年初冬的一个傍晚，夕阳的余晖洒在湖南省常宁市三角塘镇中心小学的操场上，一场“致美山海音乐会”，成为这个冬日里孩子们心中温暖的记忆。
+随着苏亚雷斯等知名球星离开，乌拉圭队进攻端实力不比当年，但作为南美洲劲旅底蕴犹存。
 
-音乐会在学生合唱团气势昂扬的《少年有志》中拉开序幕，歌手弦子演绎的歌曲《天空之外》和“简单对话”乐队带来的《橘子花般的》等歌曲，点燃全场；压轴出场的“房东的猫”则用标志性的民谣嗓音，将整场音乐会的情感氛围推向高潮。
+开场后乌拉圭队积极主动进攻，但立足防守的沙特队率先破门。
 
-这是“致美计划”公益项目的一个缩影。
+第41分钟，沙特队获得角球机会，卡努头球被扑出后，阿姆里跟进补射破门。
 
-自2022年启动以来，该项目已覆盖236所乡村小学，惠及乡村师生超过8.6万人次，走出了一条“美育+公益+互联网”的创新路径。
+落后的乌拉圭队加强高位压迫，而沙特队则以“铁桶阵”频频化解危机。
 
-科技赋能下，一座位于赣南的小城，也迎来了艺术教育的破局。
+乌拉圭队的强势进攻终于在第80分钟收获成效，巴尔韦德右路突破分球，阿劳霍禁区左侧低射远角破门，乌拉圭队艰难扳平比分。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 15:32 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 15:32 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 15:48 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 15:45 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 15:58 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 15:31 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 15:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 15:35 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 15:59 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 15:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 15:51 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 16:00 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 16:00 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 15:58 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 15:38 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 15:59 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 16:05 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 16:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 15:38 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 15:36 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 16:00 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:37 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/88961279.shtml)
-- 2026-06-29 15:59 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/5953392818.shtml)
-- 2026-06-29 15:41 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/97061224097.shtml)
-- 2026-06-29 15:36 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/57276493941.shtml)
-- 2026-06-29 15:55 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/26614.shtml)
-- 2026-06-29 15:31 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/59758678.shtml)
-- 2026-06-29 15:31 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/573678.shtml)
-- 2026-06-29 15:43 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/263289679491.shtml)
-- 2026-06-29 15:43 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/75784.shtml)
-- 2026-06-29 15:39 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/987705.shtml)
-- 2026-06-29 15:52 - [T1 KC](http://www.blog.kurohicncr.top/Article/details/61902736.shtml)
-- 2026-06-29 15:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/738855681.shtml)
-- 2026-06-29 15:43 - [上班主打一个薪尽自然凉](https://www.share.kurohicncr.top/Article/details/09748018.shtml)
-- 2026-06-29 15:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/609455.shtml)
-- 2026-06-29 15:36 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/35336.shtml)
+- 2026-06-29 15:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/00108425627.shtml)
+- 2026-06-29 16:03 - [当我回母校教书](https://www.blog.minike.top/Article/details/8532133.shtml)
+- 2026-06-29 15:41 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/07486334614.shtml)
+- 2026-06-29 15:59 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/4036036994.shtml)
+- 2026-06-29 15:55 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/01721.shtml)
+- 2026-06-29 16:03 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/716212927.shtml)
+- 2026-06-29 15:55 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/526672755.shtml)
+- 2026-06-29 15:44 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/59263.shtml)
+- 2026-06-29 15:57 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/670651485.shtml)
+- 2026-06-29 15:48 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/65634.shtml)
+- 2026-06-29 15:43 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/726420804082.shtml)
+- 2026-06-29 15:55 - [乔家的儿女](http://www.share.minike.top/Article/details/1835790191.shtml)
+- 2026-06-29 15:46 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/2658255364.shtml)
+- 2026-06-29 16:03 - [南非老帅布罗斯的梦没能做完](http://www.share.kurohicncr.top/Article/details/7401416.shtml)
+- 2026-06-29 15:43 - [Agent带来token消耗爆炸](https://www.blog.minike.top/Article/details/970807.shtml)

@@ -1,61 +1,60 @@
-# 战略收缩再进一步，AIG收购Everest哥伦比亚保险业务
+# 多家期货公司拟换董事长、总经理
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-AIG近日宣布，已与Everest Group达成最终协议，收购其哥伦比亚保险子公司Everest Compañía de Seguros Generales Colombia S.A．（简称Everest Colombia）。此项交易预计将于2027年初完成，财务条款尚未披露。 强化拉美布局，瞄准高增长市场 此次收购是AIG加强拉丁美洲业务战略的重要组成部分。AIG普通保险首
+来源：期货日报 6月16日，中期协公布了新一期期货公司高管人员专业能力水平评价测试合格人员名单，共20人通过测试。其中，1家公司拟调整董事长，4家公司拟调整总经理。 从中期协公布的最新一期期货公司高管人员专业能力水平评价测试合格人员名单看，此次期货公司高管人员调整覆盖董事层、经营层等多个核心岗位。其中，第一创业期货拟调整董事长，渤海期货、中原期货、天富期货和兴业期货等四家公司拟
 
 ## 正文
 
-AIG近日宣布，已与Everest Group达成最终协议，收购其哥伦比亚保险子公司Everest Compañía de Seguros Generales Colombia S.A．（简称Everest Colombia）。
+来源：期货日报 6月16日，中期协公布了新一期期货公司高管人员专业能力水平评价测试合格人员名单，共20人通过测试。
 
-此项交易预计将于2027年初完成，财务条款尚未披露。
+其中，1家公司拟调整董事长，4家公司拟调整总经理。
 
-强化拉美布局，瞄准高增长市场 此次收购是AIG加强拉丁美洲业务战略的重要组成部分。
+从中期协公布的最新一期期货公司高管人员专业能力水平评价测试合格人员名单看，此次期货公司高管人员调整覆盖董事层、经营层等多个核心岗位。
 
-AIG普通保险首席执行官Jon Hancock表示，此举将加速其在拉美最大、增长最快的保险市场之一的发展。
+其中，第一创业期货拟调整董事长，渤海期货、中原期货、天富期货和兴业期货等四家公司拟调整总经理。
 
-他补充道：“Everest Colombia团队对当地市场有深刻理解，其专注于企业和中高端市场的客户，与AIG在拉美地区扩展商业保险业务的承诺高度一致。
+公开信息显示，第一创业期货拟任董事长官德鹏曾在第一创业证券担任经纪业务分管领导及财富管理部负责人，负责经营管理及投资者保护工作。
 
-” 交易完成后，AIG的子公司将获得Everest Colombia 100%的股权，包括其授权业务、员工及现有保险合同。
+在此之前，他曾在方正证券工作，担任过经纪业务管理部行政负责人、分支机构管理部行政负责人等职位。
 
-交易背景：Everest全球零售业务剥离 此次出售是Everest集团执行其全球战略收缩的关键一步，旨在将业务重心聚焦于核心的全球再保险及批发与 specialty 保险业务。
+2025年以来期货公司高管密集调整被业内视为行业深度转型期的结构性变动。
 
-在此之前，Everest已于2025年10月将其全球商业零售保险的续约权出售给AIG，并于2026年3月签署了出售其加拿大零售业务的协议。
+2025年，我国期货市场资金总量不断增长、客户基础不断夯实，市场吸引力与国际化水平进一步提升。
 
 ## 相关推荐
 
-- 2026-06-29 15:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 15:45 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 15:35 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 15:48 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 15:53 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 15:31 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 15:35 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 15:33 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 15:56 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 15:54 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 15:44 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 15:56 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 15:31 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 15:59 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 15:34 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 15:58 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 15:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 15:42 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 15:56 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 15:42 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 15:56 - [链博会上的机器人太全能了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 15:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 15:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 16:01 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 16:05 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 15:48 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 15:51 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 15:47 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 15:57 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:57 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/81301398.shtml)
-- 2026-06-29 15:32 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/28787351.shtml)
-- 2026-06-29 15:36 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/6653158.shtml)
-- 2026-06-29 15:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/43664899725.shtml)
-- 2026-06-29 15:48 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/6287827982.shtml)
-- 2026-06-29 15:31 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/56268471.shtml)
-- 2026-06-29 15:33 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/0032896932.shtml)
-- 2026-06-29 15:42 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/277106901.shtml)
-- 2026-06-29 15:53 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/49550903.shtml)
-- 2026-06-29 15:56 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/42694263.shtml)
-- 2026-06-29 15:32 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/5478767846.shtml)
-- 2026-06-29 15:59 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/6486473588.shtml)
-- 2026-06-29 15:37 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/38118478.shtml)
-- 2026-06-29 15:43 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/10846458.shtml)
-- 2026-06-29 15:47 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/42674114.shtml)
+- 2026-06-29 15:53 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/0854195780.shtml)
+- 2026-06-29 15:52 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/1317723.shtml)
+- 2026-06-29 15:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/195325.shtml)
+- 2026-06-29 15:50 - [抓特务票房破亿](http://www.blog.minike.top/Article/details/1990779.shtml)
+- 2026-06-29 15:55 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/07051831.shtml)
+- 2026-06-29 15:44 - [小娘惹](http://www.share.kurohicncr.top/Article/details/689459544456.shtml)
+- 2026-06-29 15:40 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/9721000.shtml)
+- 2026-06-29 15:47 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/680159942.shtml)
+- 2026-06-29 15:59 - [韩国队如何把94%出线概率打到0%](http://www.blog.kurohicncr.top/Article/details/472165328.shtml)
+- 2026-06-29 16:05 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/15156112588.shtml)
+- 2026-06-29 15:49 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/8541706.shtml)
+- 2026-06-29 15:49 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/968218.shtml)
+- 2026-06-29 15:58 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/269675939.shtml)
+- 2026-06-29 15:55 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/6128133.shtml)
+- 2026-06-29 15:51 - [德国VS巴拉圭前瞻](https://www.share.minike.top/Article/details/08184813914.shtml)

@@ -1,58 +1,58 @@
-# 一张圆桌映照中国制造全球新坐标
+# 更换套餐阻碍重重 运营商“新老用户不同权”问题如何破解
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-5月14日在北京人民大会堂举行的欢迎宴会，至今仍被津津乐道。 一张圆桌，坐着特斯拉首席执行官马斯克、苹果首席执行官库克、英伟达首席执行官黄仁勋等美国企业家，同桌而坐的还有蓝思科技董事长周群飞、海信集团董事长贾少谦、万向集团董事长鲁伟鼎、福耀集团董事长曹晖等中国企业家。 很多人看到的是中美企业家同框的热闹，但抽离来看，这其实是中美产业链“你中有我、我中有你”的生动可视化，更是中国
+近日，多地消费者投诉，三大电信运营商普遍存在“新老用户不同权”现象。大量网友发文吐槽三大电信运营商的“杀熟”行为，反映办理低价套餐时，客服频繁使用“系统不支持”“套餐已下线”“只能线下办理”等话术反复推诿。只有反复交涉，甚至明确表态要“携号转网”或“向工信部投诉”，运营商才会“勉为其难地抛出一点优惠把你留住”。 有网友提出，“运营商将低价套餐仅限新用户办理，老用户却无法同权获取
 
 ## 正文
 
-5月14日在北京人民大会堂举行的欢迎宴会，至今仍被津津乐道。
+近日，多地消费者投诉，三大电信运营商普遍存在“新老用户不同权”现象。
 
-一张圆桌，坐着特斯拉首席执行官马斯克、苹果首席执行官库克、英伟达首席执行官黄仁勋等美国企业家，同桌而坐的还有蓝思科技董事长周群飞、海信集团董事长贾少谦、万向集团董事长鲁伟鼎、福耀集团董事长曹晖等中国企业家。
+大量网友发文吐槽三大电信运营商的“杀熟”行为，反映办理低价套餐时，客服频繁使用“系统不支持”“套餐已下线”“只能线下办理”等话术反复推诿。
 
-很多人看到的是中美企业家同框的热闹，但抽离来看，这其实是中美产业链“你中有我、我中有你”的生动可视化，更是中国制造新坐标的无声表达。
+只有反复交涉，甚至明确表态要“携号转网”或“向工信部投诉”，运营商才会“勉为其难地抛出一点优惠把你留住”。
 
-看到这一幕，网友纷纷好奇，坐在马斯克和库克中间的女人是谁？
+有网友提出，“运营商将低价套餐仅限新用户办理，老用户却无法同权获取，算不算价格歧视？
 
-她是蓝思科技董事长周群飞。
+”“客服以‘系统不支持’‘套餐已下线’为由拒绝老用户降档，但新用户却能正常办理同款套餐，这是否涉嫌欺诈？
 
-这个被称为“玻璃女王”的女人，向来低调，却凭实力让全球两大科技巨头都离不开她。
+”还有网友提出，“如果当时办理月租时没有特殊约定的话，这种‘新老用户不同权’的做法，是否已经违反了消费者权益保护法中关于知情权、选择权和公平交易权的规定？
 
-她创立的蓝思科技为初代iPhone造出玻璃面板，从此与苹果绑定，一合作就是二十年。
+”“消费者可以通过何种途径维护自己的权益？
 
-同时，蓝思科技也是特斯拉的全球一级核心供应商，还是其机器人战略的重要合作伙伴，2025年为特斯拉组装了几千台机器人。
+” 老用户要更换优惠套餐被设置各种阻碍 大量消费者投诉的“新老用户不同权”的一个主要问题就是：高性价比优惠套餐只向新用户或升档用户开放，老用户想改更便宜的套餐，却变得很难。
 
 ## 相关推荐
 
-- 2026-06-29 15:53 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 15:45 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 15:38 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 15:37 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 15:46 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 15:52 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 15:38 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 15:44 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 15:51 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 15:53 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 15:38 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 15:34 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 16:02 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 15:47 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 15:57 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 15:36 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 15:54 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 15:49 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 15:59 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 15:39 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 15:42 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 16:04 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 15:47 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 15:39 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:38 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/957611880.shtml)
-- 2026-06-29 15:49 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/103333654.shtml)
-- 2026-06-29 15:52 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/46769860256.shtml)
-- 2026-06-29 15:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/2269218802.shtml)
-- 2026-06-29 15:44 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/1420596741.shtml)
-- 2026-06-29 15:49 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/644549328.shtml)
-- 2026-06-29 15:59 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/859466.shtml)
-- 2026-06-29 15:57 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/1792292.shtml)
-- 2026-06-29 15:59 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/515660.shtml)
-- 2026-06-29 15:56 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/569402.shtml)
-- 2026-06-29 15:44 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/196971546671.shtml)
-- 2026-06-29 15:46 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/1256610195.shtml)
-- 2026-06-29 15:48 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/91129080203.shtml)
-- 2026-06-29 15:40 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/410660473350.shtml)
-- 2026-06-29 15:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/897825414641.shtml)
+- 2026-06-29 15:55 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/63116653.shtml)
+- 2026-06-29 15:43 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/929065965556.shtml)
+- 2026-06-29 16:02 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/1156341098.shtml)
+- 2026-06-29 15:58 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/3518293.shtml)
+- 2026-06-29 15:44 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/46103.shtml)
+- 2026-06-29 15:55 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/807806.shtml)
+- 2026-06-29 15:38 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/89972289547.shtml)
+- 2026-06-29 15:36 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/05829949414.shtml)
+- 2026-06-29 16:03 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/9128159092.shtml)
+- 2026-06-29 15:45 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/202365466208.shtml)
+- 2026-06-29 16:02 - [首尔商铺禁止洪明甫入内](http://www.share.kurohicncr.top/Article/details/49682958519.shtml)
+- 2026-06-29 15:47 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/70433975.shtml)
+- 2026-06-29 15:49 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/789176317112.shtml)
+- 2026-06-29 16:04 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/146459776.shtml)
+- 2026-06-29 15:49 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/504949.shtml)

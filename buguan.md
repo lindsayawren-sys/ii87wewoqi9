@@ -1,52 +1,56 @@
-# 韩国总统称集体劳动行动必须有适当的限度
+# 第四届法国国际龙舟嘉年华举行
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-韩国总统李在明周三在内阁会议上表示，社会团体要正常运作，就必须有适当的限制，这其中也包括集体劳动行动。 李在明说，虽然一些工会努力通过自身权利来维护自身利益是可以理解的，但也必须有一个适当的限度。 李在明表示，投资者和股东才是获得营业利润份额的人；他觉得通过正式的制度来分配固定比例的营业利润“难以理解”。责任编辑：于健 SF069
+中新网巴黎6月17日电 当地时间6月14日，第四届法国国际龙舟嘉年华在巴黎近郊城镇吕埃-马尔迈松举行。 本次活动由法国龙舟委员会主办，法国青田同乡会协办，以“屈原邂逅拿破仑”为核心创意，通过融合中国端午龙舟文化与法国深厚的历史底蕴，打造一场联通东西方文明的文体活动，为中法人文合作注入全新活力。 嘉年华期间的文艺展演环节，杨氏太极表演、民俗舞蹈、黄梅戏、说唱脸谱表演、潮州英歌舞等
 
 ## 正文
 
-韩国总统李在明周三在内阁会议上表示，社会团体要正常运作，就必须有适当的限制，这其中也包括集体劳动行动。
+中新网巴黎6月17日电 当地时间6月14日，第四届法国国际龙舟嘉年华在巴黎近郊城镇吕埃-马尔迈松举行。
 
-李在明说，虽然一些工会努力通过自身权利来维护自身利益是可以理解的，但也必须有一个适当的限度。
+本次活动由法国龙舟委员会主办，法国青田同乡会协办，以“屈原邂逅拿破仑”为核心创意，通过融合中国端午龙舟文化与法国深厚的历史底蕴，打造一场联通东西方文明的文体活动，为中法人文合作注入全新活力。
 
-李在明表示，投资者和股东才是获得营业利润份额的人；他觉得通过正式的制度来分配固定比例的营业利润“难以理解”。
+嘉年华期间的文艺展演环节，杨氏太极表演、民俗舞蹈、黄梅戏、说唱脸谱表演、潮州英歌舞等节目先后登场。
 
-责任编辑：于健 SF069
+开幕演出的核心亮点节目《塞纳河与龙舟节：屈原与拿破仑》由法国龙舟委员会主席蔡景瑞担任总策划和编导。
+
+该节目中，由迪迪埃·加诺特演绎的“拿破仑主题龙舟”与卢宇演绎的“屈原主题龙舟”在塞纳河中央实现象征性的“跨时空握手”，寓意中法文明在历史长河中的相知与共鸣。
+
+本届嘉年华共有来自中国、法国、丹麦、意大利、西班牙的11支龙舟队伍参赛。
+
+在混合组比赛中，中国苏州青商龙舟队夺得冠军，法国商合会龙舟队获得亚军，西班牙龙舟队获得季军。
+
+在女子组比赛中，意大利托斯卡纳健康女子队夺冠，西班牙女子龙舟队荣获亚军，法国兰斯女子龙舟队获得季军。
 
 ## 相关推荐
 
-- 2026-06-29 15:44 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 15:40 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 15:55 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 15:49 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 15:38 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 15:49 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 15:31 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 15:36 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 15:42 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 15:43 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 15:54 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 15:42 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 15:47 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 15:42 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 15:50 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 15:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 15:50 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 15:57 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 15:37 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 15:43 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 15:54 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 16:02 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 16:03 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 15:47 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:54 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/3162550.shtml)
-- 2026-06-29 15:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/41428.shtml)
-- 2026-06-29 15:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/5209876617.shtml)
-- 2026-06-29 15:42 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/53912914.shtml)
-- 2026-06-29 15:44 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.minike.top/Article/details/0313942.shtml)
-- 2026-06-29 15:54 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/50967606.shtml)
-- 2026-06-29 15:34 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/3878912349.shtml)
-- 2026-06-29 15:40 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/64946.shtml)
-- 2026-06-29 15:50 - [毒液2](https://www.share.minike.top/Article/details/7771126.shtml)
-- 2026-06-29 15:36 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/41871808.shtml)
-- 2026-06-29 15:34 - [我和我的家乡](http://www.share.minike.top/Article/details/989411050368.shtml)
-- 2026-06-29 15:50 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/41718388555.shtml)
-- 2026-06-29 15:30 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/236091.shtml)
-- 2026-06-29 15:44 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/2221705.shtml)
-- 2026-06-29 15:52 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/242762065.shtml)
+- 2026-06-29 15:43 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/1443279761.shtml)
+- 2026-06-29 15:58 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/36663.shtml)
+- 2026-06-29 15:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/02336042.shtml)
+- 2026-06-29 15:56 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/096896602.shtml)
+- 2026-06-29 15:42 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/977962.shtml)
+- 2026-06-29 16:03 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/102805218.shtml)
+- 2026-06-29 15:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/92870636.shtml)
+- 2026-06-29 15:51 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/84851.shtml)
+- 2026-06-29 15:56 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/39459890.shtml)
+- 2026-06-29 16:02 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/756300478133.shtml)
+- 2026-06-29 16:04 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/77436254.shtml)
+- 2026-06-29 16:01 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/90461221668.shtml)
+- 2026-06-29 16:02 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/1213554.shtml)
+- 2026-06-29 15:37 - [我和我的家乡](http://www.blog.minike.top/Article/details/2336327.shtml)
+- 2026-06-29 15:46 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/8078895993.shtml)

@@ -1,61 +1,60 @@
-# 美国EIA原油库存骤降786万桶，降幅远超预期
+# 新智认知（603869）股民索赔已有胜诉还可起诉，龙宇股份（603003）索赔案已有胜诉再提立案
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-美国能源信息署(EIA)周三公布的数据显示，截至5月15日当周，美国商业原油库存大幅减少786.3万桶，远超市场预期的减少294.2万桶。此次降幅创下2026年2月13日当周以来最大纪录。 成品油库存分化，战略储备释放创历史纪录 成品油方面，汽油库存减少154.8万桶，略低于市场预期的209.6万桶；而馏分油库存意外增加37.2万桶，与市场预期的减少107.2万桶形成反差。 更
+上海久诚律师事务所股票索赔律师许峰提示，新智认知（603869）虚假陈述引发的投资者索赔案还在推进中，如果投资者符合条件，目前还可起诉。（许峰律师专栏） 新智认知投资者索赔案已有投资者胜诉先例，许峰律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 此前2024年12月27日晚，新智认知公告收到证监会《行政处罚决定书》，经查明，新智认知2019年年度报告
 
 ## 正文
 
-美国能源信息署(EIA)周三公布的数据显示，截至5月15日当周，美国商业原油库存大幅减少786.3万桶，远超市场预期的减少294.2万桶。
+上海久诚律师事务所股票索赔律师许峰提示，新智认知（603869）虚假陈述引发的投资者索赔案还在推进中，如果投资者符合条件，目前还可起诉。
 
-此次降幅创下2026年2月13日当周以来最大纪录。
+（许峰律师专栏） 新智认知投资者索赔案已有投资者胜诉先例，许峰律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-成品油库存分化，战略储备释放创历史纪录 成品油方面，汽油库存减少154.8万桶，略低于市场预期的209.6万桶；而馏分油库存意外增加37.2万桶，与市场预期的减少107.2万桶形成反差。
+此前2024年12月27日晚，新智认知公告收到证监会《行政处罚决定书》，经查明，新智认知2019年年度报告、2020年年度报告、2021年年度报告存在虚假记载。
 
-更受关注的是战略石油储备的动态。
+许峰律师认为，综合以上违法事实，根据证券法规定，在2020年4月25日到2024年4月30日之间买入新智认知股票，并在2024年4月30日后卖出或继续持有股票的投资者，目前还可发起索赔。
 
-EIA数据显示，上周SPR库存减少992万桶，降至3.742亿桶，为2024年7月以来最低水平。
+（ST智知维权入口） 除了新智认知投资者索赔案还可起诉，2026年6月15日，许峰律师代理的龙宇股份（603003）股民索赔案再提交一次上海金融法院立案。
 
-此次单周降幅创下1982年8月以来的历史最大值，也是SPR连续第8周录得下降。
+2026年5月29日，许峰律师代理的龙宇股份投资者索赔案收到投资者一审胜诉判决。
 
-供需基本面：产量微降，出口小幅增加 供给端方面，上周美国国内原油产量减少0.8万桶/日，至1370.2万桶/日。
+2026年6月22日，再有部分案件将在上海金融法院开庭审理。
 
-原油出口量增加11.2万桶/日，至560.4万桶/日。
+许峰律师提示，部分投资者诉龙宇股份虚假陈述索赔案已有两审胜诉判决，目前该案还在索赔诉讼时效内，符合条件的投资者还可发起索赔。
 
 ## 相关推荐
 
-- 2026-06-29 15:42 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 15:45 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 15:40 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 15:58 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 15:32 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 15:51 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 15:56 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 15:41 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 15:36 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 15:59 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 15:37 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 15:58 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 15:52 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 15:48 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 15:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 15:46 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 15:38 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 15:49 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 15:49 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 15:46 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 15:51 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 15:49 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 16:03 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 15:45 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 15:53 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 15:49 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 16:00 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 15:53 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 15:54 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/45023533.shtml)
-- 2026-06-29 15:47 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/78607206.shtml)
-- 2026-06-29 15:46 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/61665593.shtml)
-- 2026-06-29 15:37 - [送你一朵小红花](http://www.share.minike.top/Article/details/4842829368.shtml)
-- 2026-06-29 15:43 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/23953834.shtml)
-- 2026-06-29 15:33 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/5401815746.shtml)
-- 2026-06-29 15:48 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/79676390496.shtml)
-- 2026-06-29 15:51 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/27233.shtml)
-- 2026-06-29 15:34 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/08941414026.shtml)
-- 2026-06-29 15:30 - [国家体育总局政策法规司原副司长获刑](http://www.share.minike.top/Article/details/84130687767.shtml)
-- 2026-06-29 15:49 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/37591893741.shtml)
-- 2026-06-29 15:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/061209.shtml)
-- 2026-06-29 15:34 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/50935890.shtml)
-- 2026-06-29 15:50 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/904690140.shtml)
-- 2026-06-29 15:35 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/854110556.shtml)
+- 2026-06-29 15:57 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/4199366.shtml)
+- 2026-06-29 15:50 - [女心理师](http://www.share.kurohicncr.top/Article/details/46567725318.shtml)
+- 2026-06-29 16:04 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/76148.shtml)
+- 2026-06-29 15:45 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/22268.shtml)
+- 2026-06-29 16:03 - [美媒：空警-3000服役即成全球最强](http://www.blog.minike.top/Article/details/843546996.shtml)
+- 2026-06-29 15:39 - [血糖高的人能吃西瓜吗](http://www.blog.minike.top/Article/details/14823.shtml)
+- 2026-06-29 15:54 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/42489871.shtml)
+- 2026-06-29 15:57 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/152204.shtml)
+- 2026-06-29 15:52 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/31153760.shtml)
+- 2026-06-29 15:56 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/22049.shtml)
+- 2026-06-29 15:42 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/919538.shtml)
+- 2026-06-29 16:00 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/32609582.shtml)
+- 2026-06-29 15:45 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/6962910.shtml)
+- 2026-06-29 15:43 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/64685452.shtml)
+- 2026-06-29 15:52 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/03004557.shtml)

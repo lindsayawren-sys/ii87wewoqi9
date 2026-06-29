@@ -1,57 +1,60 @@
-# 俄学者：新时代的老朋友，影响力早已远超远东
+# 世界黄金协会调查：全球央行增持意愿创纪录 黄金战略储备地位进一步提升
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-俄罗斯科学院中国与现代亚洲研究所学术主任亚历山大·卢金(Alexander Lukin)5月19日在《中国日报》撰文指出，今年恰逢《中俄睦邻友好合作条约》签署25周年及上海合作组织成立25周年，在此背景下，俄罗斯总统普京本周访华具有纪念意义。文章指出，中俄深化伙伴关系取得了切实成果，过去25年间，两国签署了300多项政府间条约和协议。双方设有五个政府间合作委员会，覆盖经贸、人文
+文章来源：财联社 世界黄金协会（WGC）周二发布的《2026年全球央行黄金储备调查报告》显示，受访央行储备管理者中有45%预计未来12个月将增加黄金持有量，该比例较上年上升2个百分点，创下历史新高。 在参与此次年度调查的74家央行中，54%的受访者表示其黄金储备将维持不变，仅有1%预计将减少持仓。此次调查于今年2月5日至5月19日期间进行。 大多数问卷回复是在2月底中东冲突爆发
 
 ## 正文
 
-俄罗斯科学院中国与现代亚洲研究所学术主任亚历山大·卢金(Alexander Lukin)5月19日在《中国日报》撰文指出，今年恰逢《中俄睦邻友好合作条约》签署25周年及上海合作组织成立25周年，在此背景下，俄罗斯总统普京本周访华具有纪念意义。
+文章来源：财联社 世界黄金协会（WGC）周二发布的《2026年全球央行黄金储备调查报告》显示，受访央行储备管理者中有45%预计未来12个月将增加黄金持有量，该比例较上年上升2个百分点，创下历史新高。
 
-文章指出，中俄深化伙伴关系取得了切实成果，过去25年间，两国签署了300多项政府间条约和协议。
+在参与此次年度调查的74家央行中，54%的受访者表示其黄金储备将维持不变，仅有1%预计将减少持仓。
 
-双方设有五个政府间合作委员会，覆盖经贸、人文、投资、能源和边境地区交往等所有合作领域。
+此次调查于今年2月5日至5月19日期间进行。
 
-中俄战略协作架构是全方位的——上至元首年度互访和总理定期会晤，下至地区、省市、高校和企业间合作。
+大多数问卷回复是在2月底中东冲突爆发后收到的，这场冲突引发油价上涨，并导致金价承压下挫。
 
-中俄两国的主要机构几乎都在对方国家拥有合作伙伴，这种全方位的合作体系，俄罗斯外交部称之为俄中两国彼此独有。
+此次调查发布之际，黄金正处于一个具有里程碑意义的时刻。
 
-文章认为，中俄伙伴关系并非基于意识形态相近，而是两国在新兴的多极化世界格局中的战略利益，即双方都致力于成为其中“一极”。
+世界黄金协会指出，黄金近期已超越美国国债，成为全球最大的储备资产，这凸显出官方机构在储备资产配置理念上的重大转变。
 
-冷战结束后，美西方不愿放弃其权力主导地位，因此，崛起的非西方力量在制衡西方影响力方面有共同利益：逐步重塑全球治理体系，争取更大的权利和影响力。
+世界黄金协会央行部门主管Shaokai Fan表示，各国央行对黄金依然保持浓厚兴趣，近期金价回落并未改变其增持黄金的意愿。
 
-印度、巴西、南非、印度尼西亚等国也是这一多极化进程中的潜力股。
+“各国央行依然非常看好黄金，事实上比以往任何时候都更加积极。
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 15:46 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 15:33 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 15:55 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 15:34 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 15:35 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 15:42 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 15:36 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 15:44 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 15:41 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 15:42 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 15:44 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 15:41 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 15:49 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 15:43 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 15:47 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 15:37 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 15:55 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 15:56 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 15:52 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 15:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 16:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 15:47 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 15:46 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 15:58 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:44 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/15642.shtml)
-- 2026-06-29 15:47 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/058572.shtml)
-- 2026-06-29 15:53 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/14030521.shtml)
-- 2026-06-29 15:44 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/58261577413.shtml)
-- 2026-06-29 15:57 - [评论员：日菲勾连各有盘算](https://www.blog.minike.top/Article/details/93042.shtml)
-- 2026-06-29 15:30 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/14699.shtml)
-- 2026-06-29 15:53 - [教育部发布高考志愿填报预警](https://www.blog.kurohicncr.top/Article/details/78124689912.shtml)
-- 2026-06-29 15:55 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/9849590.shtml)
-- 2026-06-29 15:40 - [105年初心滚烫](https://www.share.minike.top/Article/details/43160258.shtml)
-- 2026-06-29 15:47 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/97944.shtml)
-- 2026-06-29 15:50 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/770547.shtml)
-- 2026-06-29 15:42 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/130412108019.shtml)
-- 2026-06-29 15:37 - [请回答王牌2019](http://www.blog.minike.top/Article/details/920538.shtml)
-- 2026-06-29 15:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/6870388.shtml)
-- 2026-06-29 15:44 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/6037963.shtml)
+- 2026-06-29 15:36 - [人类对空调和其他家电有多双标](http://www.share.kurohicncr.top/Article/details/3934552028.shtml)
+- 2026-06-29 15:45 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/44741.shtml)
+- 2026-06-29 15:47 - [滾石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/0390229.shtml)
+- 2026-06-29 16:05 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/17331198586.shtml)
+- 2026-06-29 15:51 - [博主：全球股市进入“AI极端共振”](https://www.blog.minike.top/Article/details/0827041889.shtml)
+- 2026-06-29 16:03 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/839010579.shtml)
+- 2026-06-29 16:02 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/36401791931.shtml)
+- 2026-06-29 16:04 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/578981.shtml)
+- 2026-06-29 16:01 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/73495.shtml)
+- 2026-06-29 15:58 - [毒液2](https://www.share.kurohicncr.top/Article/details/45169416596.shtml)
+- 2026-06-29 15:57 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/7023518.shtml)
+- 2026-06-29 15:38 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/7330747336.shtml)
+- 2026-06-29 15:37 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/9984430.shtml)
+- 2026-06-29 15:57 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/775702.shtml)
+- 2026-06-29 16:04 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.kurohicncr.top/Article/details/742360720021.shtml)

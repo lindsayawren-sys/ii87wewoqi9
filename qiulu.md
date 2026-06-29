@@ -1,60 +1,56 @@
-# 前4月湖南工程机械对东盟出口25.5亿元 同比增长28.7%
+# “守护信用 共赢未来”——6·14信用记录关爱日活动：一次性信用修复政策落地见效，警惕“征信修复”骗局
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网长沙5月20日电(向一鹏)长沙海关20日发布数据显示，今年前4个月，湖南工程机械出口132.2亿元，同比增长18.2%；其中，对东盟出口25.5亿元，同比增长28.7%。 海外市场布局持续优化，新旧市场双向发力。传统核心市场根基稳固，东盟持续稳居湖南工程机械第一大贸易伙伴。非洲成为全新爆发式增长极，湖南对非洲工程机械出口19.2亿元，增速高达92.3%，其中对乌干达、塞内
+6月14日，中国人民银行上海总部在徐汇滨江海事塔广场举办“守护信用 共赢未来”主题宣传活动。 本次活动由中国人民银行上海总部主办，工商银行上海市分行、交通银行太平洋信用卡中心承办，在沪十余家商业银行及信用卡中心协办，围绕“守护信用 共赢未来”主题，通过征信知识宣讲、案例小品演绎、信用服务站答疑互动等形式，向社会公众普及征信权益保护与正确维权路径。 2025年12月，中国人民银行
 
 ## 正文
 
-中新网长沙5月20日电(向一鹏)长沙海关20日发布数据显示，今年前4个月，湖南工程机械出口132.2亿元，同比增长18.2%；其中，对东盟出口25.5亿元，同比增长28.7%。
+6月14日，中国人民银行上海总部在徐汇滨江海事塔广场举办“守护信用 共赢未来”主题宣传活动。
 
-海外市场布局持续优化，新旧市场双向发力。
+本次活动由中国人民银行上海总部主办，工商银行上海市分行、交通银行太平洋信用卡中心承办，在沪十余家商业银行及信用卡中心协办，围绕“守护信用 共赢未来”主题，通过征信知识宣讲、案例小品演绎、信用服务站答疑互动等形式，向社会公众普及征信权益保护与正确维权路径。
 
-传统核心市场根基稳固，东盟持续稳居湖南工程机械第一大贸易伙伴。
+2025年12月，中国人民银行发布一次性信用修复政策：针对2020年1月1日至2025年12月31日期间、单笔金额不超过1万元的逾期记录，若借款人在2026年3月31日前还清欠款，征信系统将不予展示该笔逾期信息。
 
-非洲成为全新爆发式增长极，湖南对非洲工程机械出口19.2亿元，增速高达92.3%，其中对乌干达、塞内加尔、纳米比亚出口实现跨越式增长，同比分别激增87.1倍、44.1倍、37倍。
+该政策旨在支持信用受损但积极还款的个人重塑信用，释放潜在的消费和投资能力。
 
-本土民营企业扛起湖南工程机械出口主力军大旗，增长势能强劲。
+中国人民银行上海总部金融服务二部副主任张丽红表示，上海总部高度重视、周密部署，辖内金融机构积极响应，政策落地取得积极效果。
 
-前4月，该省民营企业工程机械出口118.1亿元，同比增长42.1%，占全省出口总量89.3%。
+这体现了金融服务的包容性与公平性，帮助符合条件的公众重获信贷服务。
 
-主力装备全线热销，细分品类爆发增长。
+该政策采用“免申即享”模式，符合条件的借款人无需主动申请，金融机构将自动处理。
 
-湖南各类核心工程装备出口稳步攀升，履带式挖掘机出口24.3亿元、同比增长42.1%，机动叉车、混凝土搅拌车、泵车等产品均保持稳健增长。
+张丽红同时提醒，个人信用报告上的逾期记录自结清后保留五年，不会伴随终生，“不要因信用报告逾期丧失信心，信用报告不是金融机构审批贷款或信用卡时的唯一判断标准。
 
 ## 相关推荐
 
-- 2026-06-29 15:55 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 15:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 15:41 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 15:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 15:31 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 15:32 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 15:30 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 15:38 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 15:56 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 15:40 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 15:53 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 15:58 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 15:44 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 15:42 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 15:44 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 15:53 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 15:45 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 15:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 15:44 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 15:51 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 15:58 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 15:42 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 15:39 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 15:49 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:38 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/43956213.shtml)
-- 2026-06-29 15:47 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/8822371362.shtml)
-- 2026-06-29 15:34 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/61280173801.shtml)
-- 2026-06-29 15:57 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/731466285908.shtml)
-- 2026-06-29 15:39 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/5436823739.shtml)
-- 2026-06-29 15:51 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/52747.shtml)
-- 2026-06-29 15:50 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/327410.shtml)
-- 2026-06-29 15:55 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/5298650406.shtml)
-- 2026-06-29 15:30 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/216423654.shtml)
-- 2026-06-29 15:57 - [河南考699分女生已接到清华大学电话](https://www.share.minike.top/Article/details/073924839.shtml)
-- 2026-06-29 15:55 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/22031.shtml)
-- 2026-06-29 15:30 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/0195580.shtml)
-- 2026-06-29 15:59 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/5099535.shtml)
-- 2026-06-29 15:57 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/2721616301.shtml)
-- 2026-06-29 15:47 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/62677940.shtml)
+- 2026-06-29 15:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/94394.shtml)
+- 2026-06-29 16:03 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/08727081767.shtml)
+- 2026-06-29 16:04 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/1085980920.shtml)
+- 2026-06-29 15:56 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/009407.shtml)
+- 2026-06-29 15:41 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/35031444.shtml)
+- 2026-06-29 15:56 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/386665132491.shtml)
+- 2026-06-29 15:49 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/25643718708.shtml)
+- 2026-06-29 15:42 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/039064.shtml)
+- 2026-06-29 15:53 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/029052091.shtml)
+- 2026-06-29 15:49 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/65752.shtml)
+- 2026-06-29 15:44 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/6315298403.shtml)
+- 2026-06-29 15:48 - [永远有话聊的原因](http://www.share.minike.top/Article/details/721722.shtml)
+- 2026-06-29 16:01 - [上海一小区水池内出现一条鳄鱼](https://www.blog.kurohicncr.top/Article/details/529458191.shtml)
+- 2026-06-29 15:58 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/80961.shtml)
+- 2026-06-29 15:55 - [四川宜宾地震](https://www.share.kurohicncr.top/Article/details/98076.shtml)

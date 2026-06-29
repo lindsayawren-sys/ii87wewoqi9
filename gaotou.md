@@ -1,58 +1,45 @@
-# 算法时代，如何让阅读更加深入？
+# 6月17日人民币对美元中间价报6.8096 上调12个基点
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网北京5月20日电(记者 上官云)“读书破万卷，下笔如有神。” 如今，人们的阅读方式十分多样，一点屏幕，海量信息出现在眼前；戴上耳机，也可以惬意地“听书”。 日前，第二十三次全国国民阅读调查主要发现公布。数据显示，2025年中国成年国民综合阅读率为82.3%，较2024年的82.1%提升了0.2个百分点。此外，45.9%的成年国民表示倾向于“拿一本纸质图书阅读”。 在算法时
+中新网6月17日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年6月17日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8096元，上调12个基点。
 
 ## 正文
 
-中新网北京5月20日电(记者 上官云)“读书破万卷，下笔如有神。
-
-” 如今，人们的阅读方式十分多样，一点屏幕，海量信息出现在眼前；戴上耳机，也可以惬意地“听书”。
-
-日前，第二十三次全国国民阅读调查主要发现公布。
-
-数据显示，2025年中国成年国民综合阅读率为82.3%，较2024年的82.1%提升了0.2个百分点。
-
-此外，45.9%的成年国民表示倾向于“拿一本纸质图书阅读”。
-
-在算法时代，人们被海量信息包围，也容易被碎片化的阅读方式困于信息茧房之中。
-
-面对此情此景，如何让阅读变得更加优质、深入？
-
-“读屏”，随时随地？
+中新网6月17日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年6月17日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8096元，上调12个基点。
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 15:39 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 15:40 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 15:51 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 15:40 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 15:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 15:37 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 15:39 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 15:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 15:41 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 15:52 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 15:37 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 15:56 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 15:42 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 15:44 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 16:04 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 15:57 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 15:49 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 15:37 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 16:01 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 15:37 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 16:04 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 16:04 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 15:38 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 15:41 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:32 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/50447884.shtml)
-- 2026-06-29 15:49 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/534731666.shtml)
-- 2026-06-29 15:54 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/13977.shtml)
-- 2026-06-29 15:40 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.kurohicncr.top/Article/details/42750712849.shtml)
-- 2026-06-29 15:33 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/850727234.shtml)
-- 2026-06-29 15:31 - [吴建豪老婆](https://www.blog.minike.top/Article/details/832538508973.shtml)
-- 2026-06-29 15:51 - [女心理师](http://www.blog.minike.top/Article/details/16963.shtml)
-- 2026-06-29 15:59 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/330673516536.shtml)
-- 2026-06-29 15:53 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/929352906029.shtml)
-- 2026-06-29 15:30 - [世界杯上那些封神的门将](https://www.blog.kurohicncr.top/Article/details/2014162922.shtml)
-- 2026-06-29 15:52 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/54614.shtml)
-- 2026-06-29 15:52 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/369641.shtml)
-- 2026-06-29 15:30 - [84岁英国教授成中国网红](http://www.blog.kurohicncr.top/Article/details/88412.shtml)
-- 2026-06-29 15:59 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/411452359928.shtml)
-- 2026-06-29 15:39 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.kurohicncr.top/Article/details/144730.shtml)
+- 2026-06-29 15:55 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/113314733.shtml)
+- 2026-06-29 16:02 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/678020.shtml)
+- 2026-06-29 15:53 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/7252510915.shtml)
+- 2026-06-29 15:41 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/7808237654.shtml)
+- 2026-06-29 15:53 - [沙丘](https://www.blog.kurohicncr.top/Article/details/51927691.shtml)
+- 2026-06-29 15:36 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/1040127.shtml)
+- 2026-06-29 15:50 - [抓特务票房破亿](http://www.blog.kurohicncr.top/Article/details/8879564065.shtml)
+- 2026-06-29 15:49 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.minike.top/Article/details/45771.shtml)
+- 2026-06-29 15:52 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/09075.shtml)
+- 2026-06-29 15:47 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/2609068965.shtml)
+- 2026-06-29 16:00 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/10223.shtml)
+- 2026-06-29 15:56 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/6058706773.shtml)
+- 2026-06-29 15:39 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/629144.shtml)
+- 2026-06-29 15:53 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/66833908.shtml)
+- 2026-06-29 15:43 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/050648869.shtml)

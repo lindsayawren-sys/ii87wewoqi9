@@ -1,61 +1,60 @@
-# 广西力保柳州地震灾区生活必需品充足价稳
+# 6月17日美股成交额前20：SpaceX连涨3天 盘中市值一度超越亚马逊和微软
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月20日电 (林浩 韦佳秀)5月20日，广西壮族自治区商务厅介绍，柳州市柳南区“地震+暴雨”双重灾情发生后，广西第一时间启动生活必需品市场应急保供机制，通过精准施策、联保联供，保障柳州市生活必需品供应充足、价格平稳、市场秩序良好。5月18日以来，受多次地震与局部强降雨叠加影响，柳州市柳南区受灾。广西立即成立专项保供工作专班，搭建区、市、县三级上下联动、跨市区域协同的
+周二美股成交额第1名SpaceX收高4.83%，成交664.96亿美元。SpaceX纳斯达克上市后连涨三天，股价较开盘价上涨近50%，今日收盘股价上涨9.3美元，涨幅为4.83%，收于201.8美元，公司市值达到2.64万亿美元。 SpaceX市值周二盘中一度超越亚马逊和微软，在上市后短短数日内跻身全球市值前五大公司之列。SpaceX期权也于周二正式开始交易，为投资者提供了押注
 
 ## 正文
 
-中新网南宁5月20日电 (林浩 韦佳秀)5月20日，广西壮族自治区商务厅介绍，柳州市柳南区“地震+暴雨”双重灾情发生后，广西第一时间启动生活必需品市场应急保供机制，通过精准施策、联保联供，保障柳州市生活必需品供应充足、价格平稳、市场秩序良好。
+周二美股成交额第1名SpaceX收高4.83%，成交664.96亿美元。
 
-5月18日以来，受多次地震与局部强降雨叠加影响，柳州市柳南区受灾。
+SpaceX纳斯达克上市后连涨三天，股价较开盘价上涨近50%，今日收盘股价上涨9.3美元，涨幅为4.83%，收于201.8美元，公司市值达到2.64万亿美元。
 
-广西立即成立专项保供工作专班，搭建区、市、县三级上下联动、跨市区域协同的应急保供格局。
+SpaceX市值周二盘中一度超越亚马逊和微软，在上市后短短数日内跻身全球市值前五大公司之列。
 
-同时，广西商务厅派出工作组下沉柳州一线指导工作，会同柳州市商务部门执行24小时应急值守和日监测、日报告制度，同步开展商业系统灾情统计摸排，保障商业网点“稳而有序”，确保各项应急举措落地落实。
+SpaceX期权也于周二正式开始交易，为投资者提供了押注这只新上市股票前景的另一种渠道。
 
-依托自治区、市、县三级生活必需品保供体系，广西激活生活必需品联保联供机制，联动945家重点保供企业增加备货量，提升米面粮油、肉菜蛋奶、饮用水、方便食品等刚需商品备货量，前置储备应急物资。
+SpaceX股票盘中成交额超过340亿美元时，已经是英伟达、微软、特斯拉和苹果成交额总和的数倍。
 
-广西同步统筹南宁、桂林、玉林等周边城市货源，随时做好应急支援准备。
+第3名美光科技收跌6.18%，成交471.04亿美元。
 
-当前，柳州生活必需品库存充裕，可满足民众日常及应急需求。
+第5名英伟达收跌2.37%，成交258.64亿美元。
 
-其中大米库存可保障53天供应、食用油可保障30天供应、瓶装矿泉水可保障57天供应，肉类、蔬菜等生鲜品类库存充足，且可实现全天候动态补货。
+当地时间6月15日，美国芯片巨头英伟达发行250亿美元的公司债券，这是英伟达自2021年6月募资约50亿美元以来，首次现身公开债券市场。
 
 ## 相关推荐
 
-- 2026-06-29 15:48 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 15:34 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 15:47 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 15:43 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 15:31 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 15:53 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 15:44 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 15:43 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 15:35 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 15:51 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 15:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 15:44 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 15:36 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 15:37 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 15:53 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 16:02 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 15:51 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 15:43 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 16:04 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 15:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 16:03 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 15:41 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 15:41 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 15:39 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 16:01 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 15:47 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 16:01 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 15:37 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 15:42 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.kurohicncr.top/Article/details/434978114.shtml)
-- 2026-06-29 15:46 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/20557.shtml)
-- 2026-06-29 15:34 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/52566459.shtml)
-- 2026-06-29 15:45 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/685355088.shtml)
-- 2026-06-29 15:55 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/1894242.shtml)
-- 2026-06-29 15:58 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/75685.shtml)
-- 2026-06-29 15:36 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/369078353730.shtml)
-- 2026-06-29 15:38 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/6119206940.shtml)
-- 2026-06-29 15:30 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/430285697.shtml)
-- 2026-06-29 15:34 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/146352.shtml)
-- 2026-06-29 15:45 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/188418.shtml)
-- 2026-06-29 15:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/08699111936.shtml)
-- 2026-06-29 15:46 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/9424398.shtml)
-- 2026-06-29 15:48 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/4979091148.shtml)
-- 2026-06-29 15:51 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/382212728400.shtml)
+- 2026-06-29 15:41 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/87157479.shtml)
+- 2026-06-29 15:36 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/3446545785.shtml)
+- 2026-06-29 15:51 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/06308393.shtml)
+- 2026-06-29 15:51 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/8777752.shtml)
+- 2026-06-29 15:44 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/231609.shtml)
+- 2026-06-29 15:38 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/4262056.shtml)
+- 2026-06-29 15:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/64496368.shtml)
+- 2026-06-29 15:55 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/161312.shtml)
+- 2026-06-29 15:44 - [中国邮政上海分公司总经理李柏平被查](http://www.share.minike.top/Article/details/797419412564.shtml)
+- 2026-06-29 15:46 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/346143319.shtml)
+- 2026-06-29 16:03 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/66719763421.shtml)
+- 2026-06-29 15:47 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/34043.shtml)
+- 2026-06-29 16:00 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/733221356829.shtml)
+- 2026-06-29 15:41 - [7款商保创新药“转道”](https://www.blog.kurohicncr.top/Article/details/223511.shtml)
+- 2026-06-29 16:04 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/34661752331.shtml)

@@ -1,59 +1,58 @@
-# 赴港上市前夕：爱尔眼科大额补税或拖累盈利
+# 爆款频出+闭门拒客！科技基金火热行情下，公募基金如何布局？
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！21世纪经济报道 记者 韩利明 5月20日早盘前，曾有“眼茅”之称的爱尔眼科（300015.SZ）发布补税公告称，经税务自查，公司需补缴税款3.48亿元、滞纳金1.76亿元，合计5.24亿元，该税款及滞纳金已缴纳完毕；同时公司需增加2025年度企业所得税汇算清缴纳税申报金额2.32亿元。 公告落地迅速引发资
+科技行情爆火背后，基金“上新”与“限购”并存。 近期，A股市场科技主线持续演绎，公募基金则出现了矛盾现象：一方面，强烈的赚钱效应带火了基金发行端，年内权益爆款频出，科技主题产品“一日售罄”已成家常便饭；另一侧却上演着绩优基金频频降额限购、“紧关车门”的画面，将汹涌而来的资金拒之门外。 这种“上新”与“限购”并存的现象，再度折射出公募基金在行情短期高位之际，需要再度面对规模与业绩
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+科技行情爆火背后，基金“上新”与“限购”并存。
 
-21世纪经济报道 记者 韩利明 5月20日早盘前，曾有“眼茅”之称的爱尔眼科（300015.SZ）发布补税公告称，经税务自查，公司需补缴税款3.48亿元、滞纳金1.76亿元，合计5.24亿元，该税款及滞纳金已缴纳完毕；同时公司需增加2025年度企业所得税汇算清缴纳税申报金额2.32亿元。
+近期，A股市场科技主线持续演绎，公募基金则出现了矛盾现象：一方面，强烈的赚钱效应带火了基金发行端，年内权益爆款频出，科技主题产品“一日售罄”已成家常便饭；另一侧却上演着绩优基金频频降额限购、“紧关车门”的画面，将汹涌而来的资金拒之门外。
 
-公告落地迅速引发资本市场反应。
+这种“上新”与“限购”并存的现象，再度折射出公募基金在行情短期高位之际，需要再度面对规模与业绩“再平衡”的难题。
 
-当日爱尔眼科开盘后低开低走，盘中跌幅一度逼近5%，股价最低下探至9.42元/股。
+有公募分析人士指出，这需要公募基金、代销渠道等机构面对短期利润“诱惑”时，保持一定的克制力—公募基金要有限购的勇气，把规模控制在基金经理的能力圈里，代销渠道也得告别舒适区，在行情火爆之际做好冷静的买方投顾。
 
-截至当日收盘，公司股价报9.47元/股，单日下跌4.15%，对应总市值约883亿元。
+新发爆款与限购现象并存 一年多以来，科技板块展现出了极强的弹性，资金对于相关赛道的共识再度达到了历史峰值。
 
-图片来源：爱尔眼科公告 针对本次补税事项，爱尔眼科方面在投资者互动平台回应称，“根据企业会计准则相关规定，本次税收事项不属于前期会计差错，不涉及前期财务数据追溯调整，不涉及行政处罚，不影响公司正常经营。
+基金方面，多只重仓科技股的权益类基金净值持续上攻，“翻倍基”亦是稀松平常。
 
-” 爱尔眼科方面同时说明，该税收事项的影响将计入2026年当期损益。
+赚钱效应还带动了基金在发行端的火爆，年内权益基金爆款频出，一日售罄已是家常便饭，带有“科技”“智选”等字样的基金更是尤为火爆。
 
-从盈利影响来看，本次补缴税费规模，接近爱尔眼科2026年一季度归母净利润的一半。
+如平安新鑫智选发行规模高达48.6亿元，诺安科技智选发行规模高达31.88亿元，还有泉果科技领航在10天时间内募集了17.40亿元。
 
 ## 相关推荐
 
-- 2026-06-29 15:47 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 15:33 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 15:52 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 15:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 15:33 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 15:36 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 15:52 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 15:50 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 15:37 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 15:52 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 15:43 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 15:37 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 15:48 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 16:01 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 15:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 15:54 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 15:40 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 15:40 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 16:01 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 16:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 15:50 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 15:46 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 15:46 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 15:46 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 15:52 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/99183239.shtml)
-- 2026-06-29 15:31 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/22829510059.shtml)
-- 2026-06-29 15:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/71902306524.shtml)
-- 2026-06-29 15:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/618227965966.shtml)
-- 2026-06-29 15:51 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/6161938.shtml)
-- 2026-06-29 15:39 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/1118754.shtml)
-- 2026-06-29 15:41 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/81592.shtml)
-- 2026-06-29 15:31 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/878643420.shtml)
-- 2026-06-29 15:47 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/2839423040.shtml)
-- 2026-06-29 15:51 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/071348.shtml)
-- 2026-06-29 15:39 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/6835165114.shtml)
-- 2026-06-29 15:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/08759.shtml)
-- 2026-06-29 15:49 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/9630156.shtml)
-- 2026-06-29 15:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/09387.shtml)
-- 2026-06-29 15:47 - [小娘惹](http://www.share.minike.top/Article/details/2442672.shtml)
+- 2026-06-29 15:47 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/96627752.shtml)
+- 2026-06-29 16:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/082844016.shtml)
+- 2026-06-29 15:41 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/3785729191.shtml)
+- 2026-06-29 15:36 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/1610481.shtml)
+- 2026-06-29 16:00 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/481437314782.shtml)
+- 2026-06-29 15:56 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/11821.shtml)
+- 2026-06-29 15:48 - [5万块的威力](https://www.blog.minike.top/Article/details/606816.shtml)
+- 2026-06-29 15:44 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/30990943582.shtml)
+- 2026-06-29 15:52 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/60404.shtml)
+- 2026-06-29 15:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/713739.shtml)
+- 2026-06-29 15:49 - [当我回母校教书](http://www.share.minike.top/Article/details/8351081062.shtml)
+- 2026-06-29 15:45 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/3475934113.shtml)
+- 2026-06-29 15:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/48766.shtml)
+- 2026-06-29 15:36 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/2991868.shtml)
+- 2026-06-29 15:54 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/712142163724.shtml)

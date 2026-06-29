@@ -1,57 +1,61 @@
-# 珍珠潜水信贷公司宣布股息下调逾40%，三年连降折射投资压力
+# 摩根大通计划推动大通银行进军欧洲各大核心市场
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-珍珠潜水信贷公司近日宣布，将其月度普通股股息大幅削减40.9%，从此前的每股0.22美元下调至每股0.13美元。新的股息标准将从2026年6月起正式执行，具体派息日程为：6月30日支付，6月16日登记在册的股东可获派息。同时，公司还宣布了7月和8月同样为每股0.13美元的股息安排。值得注意的是，这已经是该公司连续第三年下调股息，表明此次调整并非短期财务决策，而是对公司结构性盈利
+摩根大通计划旗下数字银行未来五年落地至少五个欧洲国家，瞄准欧洲各大核心市场，推进零售银行业务布局。 知情人士透露，这家美国规模最大的银行目前已在英国、德国开展业务，计划到 2030 年末再新增至少三个欧洲国家网点。 知情人士补充，管理层重点考察法国、西班牙与意大利市场，同时强调尚未确定下一个开拓目标。 这家美国银行业巨头于 2021 年在英国推出大通数字银行（Chase），这是
 
 ## 正文
 
-珍珠潜水信贷公司近日宣布，将其月度普通股股息大幅削减40.9%，从此前的每股0.22美元下调至每股0.13美元。
+摩根大通计划旗下数字银行未来五年落地至少五个欧洲国家，瞄准欧洲各大核心市场，推进零售银行业务布局。
 
-新的股息标准将从2026年6月起正式执行，具体派息日程为：6月30日支付，6月16日登记在册的股东可获派息。
+知情人士透露，这家美国规模最大的银行目前已在英国、德国开展业务，计划到 2030 年末再新增至少三个欧洲国家网点。
 
-同时，公司还宣布了7月和8月同样为每股0.13美元的股息安排。
+知情人士补充，管理层重点考察法国、西班牙与意大利市场，同时强调尚未确定下一个开拓目标。
 
-值得注意的是，这已经是该公司连续第三年下调股息，表明此次调整并非短期财务决策，而是对公司结构性盈利压力的回应。
+这家美国银行业巨头于 2021 年在英国推出大通数字银行（Chase），这是首席执行官杰米・戴蒙一项大胆战略的第一步 —— 首次将零售金融服务拓展至美国本土以外。
 
-股息的下降主要源于其投资组合的持续承压及净资产价值的大幅缩水。
+上个月，大通数字银行登陆德国零售市场，正式打入欧洲大陆。
 
-公司财报显示，截至2026年3月31日，其每股净资产价值已从2025年底的14.42美元下跌至10.48美元，季度净亏损达到2250万美元。
+Monzo、Revolut等数字银行主打颠覆传统银行，而摩根大通管理层则认为，自身成熟品牌与雄厚资产负债表是吸引客户的核心优势。
 
-作为一家主要投资于抵押贷款义务股权及劣后级债务的封闭式管理投资公司，其资产端的收益率正面临利差收窄和底层贷款违约风险增加的双重挤压。
+一名了解该扩张计划的人士表示：“大通银行希望找准中间定位，既要打造更具创新力、数字化领先的银行服务，同时充分依托摩根大通的品牌背书。
 
-公司首席执行官Indranil Basu在财报中坦诚，这一决定旨在使股息与近期的净投资收入展望保持一致，并保存资本用于稳定和增长长期资产净值。
+” 依托高竞争力储蓄利率与现金返现福利，自 2021 年落地英国以来，大通银行已积累超 300 万客户，吸纳存款约 300 亿英镑。
 
 ## 相关推荐
 
-- 2026-06-29 15:32 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 15:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 15:42 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 15:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 15:41 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 15:59 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 15:50 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 15:51 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 15:57 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 15:52 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 15:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 15:56 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 15:47 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 16:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 16:03 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 16:01 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 15:37 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 15:45 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 15:48 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 16:02 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 16:01 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 16:03 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 15:44 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 16:01 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 16:04 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 15:49 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:37 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/879453810114.shtml)
-- 2026-06-29 15:37 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/932431.shtml)
-- 2026-06-29 15:36 - [小娘惹](http://www.share.minike.top/Article/details/706539828.shtml)
-- 2026-06-29 15:35 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/99947.shtml)
-- 2026-06-29 15:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/484459.shtml)
-- 2026-06-29 15:54 - [德国VS巴拉圭前瞻](http://www.share.kurohicncr.top/Article/details/891132.shtml)
-- 2026-06-29 15:34 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/53516676.shtml)
-- 2026-06-29 15:39 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/28090.shtml)
-- 2026-06-29 15:58 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/944349967.shtml)
-- 2026-06-29 15:45 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/07397001399.shtml)
-- 2026-06-29 15:32 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/3589801.shtml)
-- 2026-06-29 15:36 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/96126232.shtml)
-- 2026-06-29 15:37 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/97647312784.shtml)
-- 2026-06-29 15:57 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/735206952765.shtml)
-- 2026-06-29 15:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/1054424116.shtml)
+- 2026-06-29 15:48 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/5252362.shtml)
+- 2026-06-29 15:56 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/3910354.shtml)
+- 2026-06-29 16:01 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/94033.shtml)
+- 2026-06-29 15:42 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/88781572249.shtml)
+- 2026-06-29 15:58 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/969790836748.shtml)
+- 2026-06-29 15:56 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/9616252974.shtml)
+- 2026-06-29 16:02 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/518524117.shtml)
+- 2026-06-29 15:43 - [起风了](http://www.blog.minike.top/Article/details/770899854.shtml)
+- 2026-06-29 15:53 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/62059620.shtml)
+- 2026-06-29 16:02 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/863880431823.shtml)
+- 2026-06-29 15:38 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/44725075.shtml)
+- 2026-06-29 15:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/3592897.shtml)
+- 2026-06-29 15:42 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/2337503723.shtml)
+- 2026-06-29 15:59 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/193660228.shtml)
+- 2026-06-29 15:54 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/95759342998.shtml)

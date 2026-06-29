@@ -1,58 +1,58 @@
-# 花旗看好催化剂与增长前景，覆盖Ionis、Alnylam、BioMarin并给予买入评级
+# 操盘必读：影响股市利好或利空消息_2026年6月16日_财经新闻
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-花旗周二启动了对中小型生物科技板块的覆盖，对Ionis Pharmaceuticals、Alnylam和BioMarin给予“买入”评级，看好其增长前景和催化剂事件，推动三家公司股价走高。 花旗看好板块整体前景 在周一发布的研究报告中，花旗分析师Eric Joseph对多家商业化阶段的生物科技公司给予了积极评价。他表示：“在过去12个月里，这些公司产品的上市执行力令人印象深刻，
+登录新浪财经APP 搜索【信披】查看更多考评等级 宏观新闻 1、今日出版的第12期《求是》杂志将发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《一体推进教育科技人才发展》。文章强调，教育、科技、人才是全面建设社会主义现代化国家的基础性、战略性支撑。建设教育强国、科技强国、人才强国具有内在一致性和相互支撑性。要增强系统观念，坚持教育优先发展、科技自立自强、人才引领驱动
 
 ## 正文
 
-花旗周二启动了对中小型生物科技板块的覆盖，对Ionis Pharmaceuticals、Alnylam和BioMarin给予“买入”评级，看好其增长前景和催化剂事件，推动三家公司股价走高。
+登录新浪财经APP 搜索【信披】查看更多考评等级 宏观新闻 1、今日出版的第12期《求是》杂志将发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《一体推进教育科技人才发展》。
 
-花旗看好板块整体前景 在周一发布的研究报告中，花旗分析师Eric Joseph对多家商业化阶段的生物科技公司给予了积极评价。
+文章强调，教育、科技、人才是全面建设社会主义现代化国家的基础性、战略性支撑。
 
-他表示：“在过去12个月里，这些公司产品的上市执行力令人印象深刻，临床成功得到认可，板块内并购活动活跃，加上美国监管和药品定价环境趋于平稳，我们对整个商业化中小型生物科技板块持积极看法。
+建设教育强国、科技强国、人才强国具有内在一致性和相互支撑性。
 
-” 具体评级与目标价 Joseph为Ionis设定了115美元的目标价，指出其基于反义寡核苷酸的管线“为实现持久增长提供了坚实基础”。
+要增强系统观念，坚持教育优先发展、科技自立自强、人才引领驱动，统筹推进教育科技人才体制机制一体改革，实现科教兴国战略、人才强国战略、创新驱动发展战略有效联动，形成推动高质量发展的倍增效应。
 
-该公司Tryngloza用于治疗重度高甘油三酯血症的峰值销售机会被认为被市场低估，同时合作开发的后期三期临床试验有望在2026年下半年带来上涨动能。
+2、昨日，美伊达成和平协议。
 
-Alnylam获得380美元的目标价，分析师认为鉴于该股年初至今表现落后，加之其心脏病疗法Amvuttra上市表现强劲，当前是颇具吸引力的买入机会。
+对此，外交部发言人林剑表示，中方希望美伊如期签署第一阶段谅解备忘录，也希望相关各方坚持和平选择，通过对话谈判解决问题。
 
-数据显示，Alnylam最近一季度每股收益为1.99美元，远超市场预期的0.87美元，营收同比增长96.4%。
+3、美国总统特朗普14日对《纽约时报》说，伊朗将被允许进行有限的低水平铀浓缩活动，并称美伊新协议将确保“伊朗的铀浓缩永远只能用于非军事目的”。
 
-BioMarin获得75美元的目标价。
+4、美国高级官员当地时间15日表示，美国已与伊朗签署谅解备忘录。
 
 ## 相关推荐
 
-- 2026-06-29 15:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 15:32 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 15:42 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 15:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 15:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 15:49 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 15:56 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 15:43 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 15:39 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 15:33 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 15:52 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 15:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 16:00 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 15:41 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 15:38 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 16:02 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 15:53 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 15:46 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 15:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 15:59 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 16:01 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 15:42 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 15:41 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 16:05 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:36 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/3879328208.shtml)
-- 2026-06-29 15:55 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/8691754617.shtml)
-- 2026-06-29 15:45 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/96885890002.shtml)
-- 2026-06-29 15:34 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/99002715316.shtml)
-- 2026-06-29 15:42 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/431055343.shtml)
-- 2026-06-29 15:38 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/32016110.shtml)
-- 2026-06-29 15:56 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/2369333.shtml)
-- 2026-06-29 15:36 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/7023196.shtml)
-- 2026-06-29 15:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/637774670310.shtml)
-- 2026-06-29 15:40 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/25135289607.shtml)
-- 2026-06-29 15:32 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/3839516.shtml)
-- 2026-06-29 15:38 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/483274859658.shtml)
-- 2026-06-29 15:47 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/317155.shtml)
-- 2026-06-29 15:58 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/59961106269.shtml)
-- 2026-06-29 15:48 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/64252447804.shtml)
+- 2026-06-29 15:50 - [NBA交易](https://www.share.kurohicncr.top/Article/details/950783.shtml)
+- 2026-06-29 15:37 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/645546.shtml)
+- 2026-06-29 16:04 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/30909.shtml)
+- 2026-06-29 15:37 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/9221491.shtml)
+- 2026-06-29 15:46 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/3696005.shtml)
+- 2026-06-29 15:52 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/11106243.shtml)
+- 2026-06-29 15:56 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/73739.shtml)
+- 2026-06-29 15:45 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/793655087.shtml)
+- 2026-06-29 15:49 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/18627003028.shtml)
+- 2026-06-29 16:00 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/4043912429.shtml)
+- 2026-06-29 16:02 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/0824395.shtml)
+- 2026-06-29 16:04 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/53110406.shtml)
+- 2026-06-29 15:46 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/28734277092.shtml)
+- 2026-06-29 15:44 - [端午节加班工资应该怎么算](https://www.share.minike.top/Article/details/33118625030.shtml)
+- 2026-06-29 15:41 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/816578.shtml)

@@ -1,50 +1,61 @@
-# 3100公里外的奔赴 西藏林芝患儿获救治
+# 长江有色：16日碳酸锂价下跌 复产预期升温叠加补库窗口关闭
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月20日 18:24 来源：中国新闻网 近日，中新社记者走进林芝市人民医院，援藏医生广州医科大学附属妇女儿童医疗中心‌PICU(儿童重症监护室)副主任医师张春敏介绍，2025年8月6日，广东省第十一批“组团式”援藏专家与林芝市人民医院联手，成功为一名胎龄仅35周、术前体重1.85公斤、伴有先天性十二指肠闭锁及重症感染的患儿实施手术，创下林芝市最小胎龄和最
+长江有色金属网 期货方面： 根据广州期货交易所（广期所）碳酸锂主力合约（lc_ZL）最新行情数据显示，截至下午15：02左右，盘面抛压极为沉重，主力合约最新报价报169，980元/吨，较前一交易日结算价大幅下跌5，220元/吨，跌幅深达2.98%。回顾日内走势，该合约开盘价仅为173，800元/吨，早盘尚能维持在17.3万上方震荡，但午后出现单边下挫态势，盘中最低价一度触及16
 
 ## 正文
 
-发布时间：2026年05月20日 18:24 来源：中国新闻网 近日，中新社记者走进林芝市人民医院，援藏医生广州医科大学附属妇女儿童医疗中心‌PICU(儿童重症监护室)副主任医师张春敏介绍，2025年8月6日，广东省第十一批“组团式”援藏专家与林芝市人民医院联手，成功为一名胎龄仅35周、术前体重1.85公斤、伴有先天性十二指肠闭锁及重症感染的患儿实施手术，创下林芝市最小胎龄和最轻体重的手术纪录。
+长江有色金属网 期货方面： 根据广州期货交易所（广期所）碳酸锂主力合约（lc_ZL）最新行情数据显示，截至下午15：02左右，盘面抛压极为沉重，主力合约最新报价报169，980元/吨，较前一交易日结算价大幅下跌5，220元/吨，跌幅深达2.98%。
 
-32年来，广东1300多名医疗人才援藏，他们手把手传授先进医疗技术和管理理念，帮助当地医生成长，给当地民众带去健康。
+回顾日内走势，该合约开盘价仅为173，800元/吨，早盘尚能维持在17.3万上方震荡，但午后出现单边下挫态势，盘中最低价一度触及168，420元/吨，直接击穿了17万整数心理关口。
 
-截至2024年底，西藏自治区孕产妇死亡率、婴儿死亡率和5岁以下儿童死亡率分别下降至34.94/10万、4.32‰和5‰。
+现货方面： 根据长江有色金属网2026年6月16日发布的最新现货报价，国内碳酸锂市场在经历上周的短暂反弹后，再度遭遇沉重抛压。
 
-(记者 陈舒一 陈欣怡 制作 刘鹏） 责任编辑：【李季】
+数据显示，当日电池级碳酸锂（99.5%）均价报169，000元/吨（价格区间166，000–172，000元/吨），较前一交易日大幅下跌2，250元/吨，日跌幅约为1.31%；工业级碳酸锂（99.2%）均价报166，000元/吨（区间163，000–169，000元/吨），同样下跌2，250元/吨，日跌幅约为1.34%。
+
+从供给端来看，本轮价格回调的直接诱因在于市场对供给增加的预期正在快速兑现。
+
+前期支撑价格反弹的核心逻辑——江西宜春云母矿的环保停产与采矿权变更——正在出现边际松动。
+
+据行业调研信息，宜春地区部分此前停产的矿山已进入复产前的最后审批阶段，预计在未来数周内将逐步恢复生产。
+
+与此同时，海外锂矿进口保持稳定，南美盐湖和澳洲锂辉石的到港量并未出现明显收缩，国内冶炼厂的整体开工率维持在相对高位。
 
 ## 相关推荐
 
-- 2026-06-29 15:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 15:50 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 15:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 15:48 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 15:47 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 15:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 15:51 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 15:59 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 15:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 15:53 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 15:51 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 15:31 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 15:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 16:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 16:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 16:03 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 15:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 15:53 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 15:43 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 16:00 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 16:01 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 15:47 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 15:46 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 15:40 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 15:46 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 15:58 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 15:40 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:39 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/7846492624.shtml)
-- 2026-06-29 15:38 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/83587119006.shtml)
-- 2026-06-29 15:30 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/854807736.shtml)
-- 2026-06-29 15:45 - [扬名立万](https://www.share.minike.top/Article/details/24799.shtml)
-- 2026-06-29 15:57 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/7235125883.shtml)
-- 2026-06-29 15:56 - [滾石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/082300.shtml)
-- 2026-06-29 15:32 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/2551885.shtml)
-- 2026-06-29 15:53 - [沙丘](https://www.share.kurohicncr.top/Article/details/308805288.shtml)
-- 2026-06-29 15:43 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/320384.shtml)
-- 2026-06-29 15:53 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/204369965259.shtml)
-- 2026-06-29 15:37 - [医院大厅放钢琴是形式主义吗](https://www.share.kurohicncr.top/Article/details/907273181.shtml)
-- 2026-06-29 15:48 - [首尔商铺禁止洪明甫入内](http://www.blog.minike.top/Article/details/73568.shtml)
-- 2026-06-29 15:54 - [逃狱兄弟](https://www.blog.minike.top/Article/details/641525.shtml)
-- 2026-06-29 15:59 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/5223221588.shtml)
-- 2026-06-29 15:30 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/914600418.shtml)
+- 2026-06-29 15:41 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/5645999.shtml)
+- 2026-06-29 15:46 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/47293477.shtml)
+- 2026-06-29 15:57 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/68713042.shtml)
+- 2026-06-29 16:03 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/827934.shtml)
+- 2026-06-29 15:57 - [金牌调解](https://www.share.kurohicncr.top/Article/details/992455662.shtml)
+- 2026-06-29 15:49 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/6104742741.shtml)
+- 2026-06-29 15:54 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/5231205128.shtml)
+- 2026-06-29 15:49 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/34749315.shtml)
+- 2026-06-29 15:45 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/69048218.shtml)
+- 2026-06-29 15:52 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/61916.shtml)
+- 2026-06-29 15:48 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/120966.shtml)
+- 2026-06-29 15:54 - [东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/14684365313.shtml)
+- 2026-06-29 15:54 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/82678083.shtml)
+- 2026-06-29 15:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/822779234375.shtml)
+- 2026-06-29 15:41 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/650328508224.shtml)

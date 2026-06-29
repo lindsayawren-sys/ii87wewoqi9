@@ -1,59 +1,61 @@
-# 美债抛售暂缓，交易员关注30年期收益率或创1999年来新高
+# 国台办喊话台湾同胞来大陆看世界杯
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-周二早盘，美国国债收益率小幅走低，前一交易日的跌势有所缓解，交易员正在权衡各大央行对通胀担忧重燃的应对措施。 作为美国政府借贷关键基准的10年期美国国债收益率周二早盘下跌逾1个基点，报4.6073%。对政治风险更为敏感的30年期美国国债收益率最后持稳于5.1428%。往往与美联储短期利率决策同步变动的2年期美国国债收益率也下跌逾2个基点至4.0695%。 一个基点等于0.01%
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。有记者问：近日，台湾有某艺人发布视频称，搜索岛内电视频道没有世界杯足球赛，相关话题引发两岸网友热议。大陆网友纷纷喊话台湾同胞，“大陆均是免费观看”“来大陆看吧，104场想看哪场看哪场”。请问对此有何评论？ 国台办发言人陈斌华表示，足球世界杯是全球顶级赛事，也是球迷的体育盛宴。大陆依托庞大市场规模和“集中力量办大事”的制度
 
 ## 正文
 
-周二早盘，美国国债收益率小幅走低，前一交易日的跌势有所缓解，交易员正在权衡各大央行对通胀担忧重燃的应对措施。
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。
 
-作为美国政府借贷关键基准的10年期美国国债收益率周二早盘下跌逾1个基点，报4.6073%。
+有记者问：近日，台湾有某艺人发布视频称，搜索岛内电视频道没有世界杯足球赛，相关话题引发两岸网友热议。
 
-对政治风险更为敏感的30年期美国国债收益率最后持稳于5.1428%。
+大陆网友纷纷喊话台湾同胞，“大陆均是免费观看”“来大陆看吧，104场想看哪场看哪场”。
 
-往往与美联储短期利率决策同步变动的2年期美国国债收益率也下跌逾2个基点至4.0695%。
+请问对此有何评论？
 
-一个基点等于0.01%，收益率与价格走势相反。
+国台办发言人陈斌华表示，足球世界杯是全球顶级赛事，也是球迷的体育盛宴。
 
-在周一的收益率飙升之后，美国国债正在稍作喘息。
+大陆依托庞大市场规模和“集中力量办大事”的制度优势，由中央广播电视总台与国际足联统一谈判，签署转播合约，获得本届世界杯在大陆的独家全媒体权利及媒体分授权利，覆盖开路电视、付费电视、互联网和移动设备等全渠道，并免费向全民提供，真正实现了“全民共享”。
 
-美国10年期国债收益率一度触及15个月高点。
+我们欢迎岛内同胞使用大陆网络、APP等观看赛事直播，或者来大陆看球观赛，与大陆同胞一同畅享绿茵激情，同时体会大陆便捷的生活服务、蓬勃的发展活力。
 
-与此同时，美银周二公布的调查显示，62%的全球基金经理受访者预计30年期美债收益率将达到6%，这将是1999年末以来的最高水平，较当前水平上升约86个基点。
+(中新网“燕新台”工作室)
 
 ## 相关推荐
 
-- 2026-06-29 15:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 15:42 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 15:52 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 15:48 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 15:57 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 15:43 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 15:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 15:55 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 15:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 15:59 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 15:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 15:43 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 15:38 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 15:44 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 16:03 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 15:38 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 15:56 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 15:55 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 15:41 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 15:40 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 16:01 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 15:44 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 15:51 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 15:51 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 15:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 15:57 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 15:57 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 15:40 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/51826997562.shtml)
-- 2026-06-29 15:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/096994.shtml)
-- 2026-06-29 15:33 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/322409128.shtml)
-- 2026-06-29 15:42 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/10955417.shtml)
-- 2026-06-29 15:34 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/98698.shtml)
-- 2026-06-29 15:34 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/170292823919.shtml)
-- 2026-06-29 15:52 - [崔韩率还以为韩娱来新人了](https://www.share.kurohicncr.top/Article/details/800477502.shtml)
-- 2026-06-29 15:45 - [青春环游记第三季](http://www.blog.minike.top/Article/details/172928.shtml)
-- 2026-06-29 15:56 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/167181030.shtml)
-- 2026-06-29 15:34 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/919339129.shtml)
-- 2026-06-29 15:39 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/6701280687.shtml)
-- 2026-06-29 15:48 - [网警提醒4类高考查分陷阱考生速看](https://www.share.kurohicncr.top/Article/details/4055596.shtml)
-- 2026-06-29 15:43 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/2839787.shtml)
-- 2026-06-29 15:36 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/460532.shtml)
-- 2026-06-29 15:39 - [明星大侦探第四季](http://www.share.minike.top/Article/details/5173205.shtml)
+- 2026-06-29 15:40 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/2956853.shtml)
+- 2026-06-29 16:01 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/625899843982.shtml)
+- 2026-06-29 15:37 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/744736.shtml)
+- 2026-06-29 15:39 - [逆天祖国人](http://www.share.minike.top/Article/details/47300833834.shtml)
+- 2026-06-29 16:02 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/08507320679.shtml)
+- 2026-06-29 15:44 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/28819.shtml)
+- 2026-06-29 15:55 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/01306585.shtml)
+- 2026-06-29 15:51 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/52508656777.shtml)
+- 2026-06-29 15:56 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/197929.shtml)
+- 2026-06-29 15:38 - [首尔商铺禁止洪明甫入内](http://www.blog.minike.top/Article/details/62860936031.shtml)
+- 2026-06-29 16:03 - [国家体育总局政策法规司原副司长获刑](http://www.blog.kurohicncr.top/Article/details/3664314947.shtml)
+- 2026-06-29 15:46 - [德国VS巴拉圭前瞻](http://www.blog.minike.top/Article/details/71815916952.shtml)
+- 2026-06-29 15:46 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/43241320.shtml)
+- 2026-06-29 15:56 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/7512434.shtml)
+- 2026-06-29 15:49 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/727920621481.shtml)

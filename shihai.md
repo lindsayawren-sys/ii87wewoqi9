@@ -1,56 +1,59 @@
-# 七国集团财长和央行行长会议联合公报关注金融安全议题
+# 解锁文旅新体验！AI成游客旅行新搭子
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网巴黎5月20日电 七国集团财长和央行行长会议当地时间19日在法国巴黎闭幕并发布联合公报。公报重点关注全球债务治理以及人工智能、网络安全等金融安全议题。 法国经济与财政部长莱斯屈尔当天表示，尽管外界此前一度担忧七国集团在当前国际局势紧张背景下难以形成统一立场，但各方最终仍“在若干重要议题上达成共识”。 在全球债务与发展融资方面，公报关注发展中国家债务压力，呼吁完善二十国集团
+即刻生成旅行方案、24小时在线向导…… 【服务业扩能提质一线报道】解锁文旅新体验！AI成游客旅行新搭子 工人日报记者 刘笑笑 “今年‘五一’假期，我使用AI工具规划了前往北京的旅游行程，体验感很不错。到了景区之后可以听AI讲解，还不用自己花钱找讲解。总体感觉省时省力。”来自上海的00后游客王先生尝试用AI解锁了一种全新的旅行方式后，正利用AI规划端午假期前往浙江舟山的行程。随着
 
 ## 正文
 
-中新网巴黎5月20日电 七国集团财长和央行行长会议当地时间19日在法国巴黎闭幕并发布联合公报。
+即刻生成旅行方案、24小时在线向导…… 【服务业扩能提质一线报道】解锁文旅新体验！
 
-公报重点关注全球债务治理以及人工智能、网络安全等金融安全议题。
+AI成游客旅行新搭子 工人日报记者 刘笑笑 “今年‘五一’假期，我使用AI工具规划了前往北京的旅游行程，体验感很不错。
 
-法国经济与财政部长莱斯屈尔当天表示，尽管外界此前一度担忧七国集团在当前国际局势紧张背景下难以形成统一立场，但各方最终仍“在若干重要议题上达成共识”。
+到了景区之后可以听AI讲解，还不用自己花钱找讲解。
 
-在全球债务与发展融资方面，公报关注发展中国家债务压力，呼吁完善二十国集团“债务处理共同框架”，并强调加强国际融资合作，以应对当前国际经济环境下面临的融资与债务挑战。
+总体感觉省时省力。
 
-金融安全与新技术风险也成为此次会议讨论重点。
+”来自上海的00后游客王先生尝试用AI解锁了一种全新的旅行方式后，正利用AI规划端午假期前往浙江舟山的行程。
 
-公报表示，各方将继续深化对人工智能在金融领域影响的研究，同时关注网络攻击、量子技术发展以及虚拟资产可能带来的金融安全挑战。
+随着AI技术的迅猛发展，“AI+文旅”正加速融入大众日常生活。
 
-各方还表示将继续推动跨境支付体系朝着更加快捷、低成本、透明和普惠的方向发展。
+从旅游前的行程定制，到旅游中的沉浸式游览，智能服务贯穿旅游全程，悄然改变着人们的出游习惯与旅行体验。
 
-在乌克兰问题上，公报重申对乌方的支持。
+个性化行程一键生成 “过去自己做攻略需要花费很长时间，现在只需输入出行时间、天数、游玩偏好与预算，AI就能一键生成图文并茂的行程方案。
 
 ## 相关推荐
 
-- 2026-06-29 15:34 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 15:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 15:41 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 15:36 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 15:33 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 15:31 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 15:52 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 15:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 15:36 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 15:52 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 15:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 15:36 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 15:48 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 15:56 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 15:46 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 15:56 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 15:53 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 15:48 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 15:51 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 16:04 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 15:38 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 15:54 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 15:58 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:47 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/43993.shtml)
-- 2026-06-29 15:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/620582285.shtml)
-- 2026-06-29 15:48 - [第一炉香](https://www.blog.minike.top/Article/details/0828231113.shtml)
-- 2026-06-29 15:30 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/957906947278.shtml)
-- 2026-06-29 15:44 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/699947260.shtml)
-- 2026-06-29 15:37 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/08593.shtml)
-- 2026-06-29 15:55 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/0832843008.shtml)
-- 2026-06-29 15:30 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/1888017290.shtml)
-- 2026-06-29 15:58 - [极限挑战第一季](https://www.share.minike.top/Article/details/9050672277.shtml)
-- 2026-06-29 15:34 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/58852313246.shtml)
-- 2026-06-29 15:33 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/546341628.shtml)
-- 2026-06-29 15:54 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/275888094306.shtml)
-- 2026-06-29 15:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/97784113731.shtml)
-- 2026-06-29 15:42 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/97101440308.shtml)
-- 2026-06-29 15:42 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/740809.shtml)
+- 2026-06-29 15:57 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/94752798511.shtml)
+- 2026-06-29 16:02 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/56958.shtml)
+- 2026-06-29 15:52 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/3772463.shtml)
+- 2026-06-29 15:38 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/75688105.shtml)
+- 2026-06-29 15:59 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/7879924902.shtml)
+- 2026-06-29 15:51 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/1811770.shtml)
+- 2026-06-29 16:05 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/314073880018.shtml)
+- 2026-06-29 15:41 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/886862160526.shtml)
+- 2026-06-29 15:40 - [T1 KC](http://www.share.kurohicncr.top/Article/details/238688409020.shtml)
+- 2026-06-29 15:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/980644302.shtml)
+- 2026-06-29 15:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/508356919404.shtml)
+- 2026-06-29 15:50 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/43796.shtml)
+- 2026-06-29 15:44 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/2356159.shtml)
+- 2026-06-29 15:50 - [周杰伦演唱会真的好多人啊](http://www.share.kurohicncr.top/Article/details/51490.shtml)
+- 2026-06-29 15:47 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/557100050.shtml)

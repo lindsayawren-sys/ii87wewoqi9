@@ -1,60 +1,60 @@
-# 海富通的千亿家底
+# 前谷歌CEO支持的初创公司推出AI工业机器人
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-来源：资管风铃 作者：宫何 2020年之前，美国短久期国债ETF还是一个不太起眼的品类。 道富资管旗下的SPDR 1-3月期国债ETF（BIL）长期规模在两三百亿美元徘徊，贝莱德的iShares 0-1年期国债ETF（SHV）也不过百亿出头。 这类产品管理费只有十几个基点，收益率低到可以忽略，每天的净值波动肉眼几乎看不见，毕竟权益投资当道的年代里，这类产品约等于共同基金构建的自
+由前谷歌首席执行官埃里克·施密特支持的初创公司发布了一款由人工智能AI驱动的工业机器人，这正值投资者纷纷涌入新兴的人形机器人领域。 总部位于巴黎的Genesis AI公司周二在声明中表示，这款名为Eno的通用机器人将能够“进行推理、适应环境并承担超出预设任务范围的工作”。这家初创公司将与韩国LG CNS公司合作开发其特定用途。 施密特在一次采访中表示，机器人的决策速度，尤其是它
 
 ## 正文
 
-来源：资管风铃 作者：宫何 2020年之前，美国短久期国债ETF还是一个不太起眼的品类。
+由前谷歌首席执行官埃里克·施密特支持的初创公司发布了一款由人工智能AI驱动的工业机器人，这正值投资者纷纷涌入新兴的人形机器人领域。
 
-道富资管旗下的SPDR 1-3月期国债ETF（BIL）长期规模在两三百亿美元徘徊，贝莱德的iShares 0-1年期国债ETF（SHV）也不过百亿出头。
+总部位于巴黎的Genesis AI公司周二在声明中表示，这款名为Eno的通用机器人将能够“进行推理、适应环境并承担超出预设任务范围的工作”。
 
-这类产品管理费只有十几个基点，收益率低到可以忽略，每天的净值波动肉眼几乎看不见，毕竟权益投资当道的年代里，这类产品约等于共同基金构建的自来水管，重要但无人谈论。
+这家初创公司将与韩国LG CNS公司合作开发其特定用途。
 
-后来的变化众所周知。
+施密特在一次采访中表示，机器人的决策速度，尤其是它弹奏钢琴的技巧和灵巧程度，标志着一项重大进步。
 
-美元进入加息周期，无风险利率飙升，机构投资者突然发现短久期国债ETF是绝佳的现金管理工具——流动性好、T+0交易、可做质押、收益率随利率上行自动跟涨。
+“在我看来，机器人遵循一个叫做VLA的循环：视觉、语言、行动。
 
-BIL的规模从200多亿美元一路膨胀至460亿美元，SHV升至超过200亿美元。
+”施密特说，“Genesis的突破在于，其算法运行速度现在快得多。
 
-短久期债券ETF一举从自来水管变成蓄水池，养老金、保险公司、企业财务部排着队往里灌钱。
+” 谷歌前首席执行官埃里克·施密特 Genesis将与LG集团旗下咨询和IT服务部门LG CNS合作，在年底前向工业客户部署这款机器人。
 
-蹊跷的是，中国市场正在发生一个结构相似但路径不同的故事，尤其利率环境是相反的，十年期国债收益率持续走低，货币基金年化跌破1%，但终点殊途同归： 机构资金涌向场内短久期债券ETF做现金管理和流动性配置。
+Genesis联合创始人Théophile Gervais在接受采访时表示，Genesis目前正在筹集资金，以支持下一步发展。
 
 ## 相关推荐
 
-- 2026-06-29 15:47 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 15:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 15:56 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 15:51 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 15:58 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 15:48 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 15:47 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 15:42 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 15:57 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 15:34 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 15:44 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 15:57 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 15:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 15:35 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 16:05 - [新一代影后杨紫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 16:04 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 15:52 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 15:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 15:54 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 15:46 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 15:53 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 15:45 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 15:59 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 15:52 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 15:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 15:44 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 15:47 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 15:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/33490158.shtml)
-- 2026-06-29 15:36 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/69449694795.shtml)
-- 2026-06-29 15:46 - [小娘惹](https://www.share.kurohicncr.top/Article/details/753219217218.shtml)
-- 2026-06-29 15:39 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/35767.shtml)
-- 2026-06-29 15:38 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/011854622990.shtml)
-- 2026-06-29 15:51 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/408680129.shtml)
-- 2026-06-29 15:51 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/777797089.shtml)
-- 2026-06-29 15:35 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/94398.shtml)
-- 2026-06-29 15:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/54867037076.shtml)
-- 2026-06-29 15:33 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/1697261.shtml)
-- 2026-06-29 15:35 - [沙丘](https://www.blog.minike.top/Article/details/8455436.shtml)
-- 2026-06-29 15:33 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/77802.shtml)
-- 2026-06-29 15:56 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/55504016.shtml)
-- 2026-06-29 15:30 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/9036641.shtml)
-- 2026-06-29 15:37 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/471078.shtml)
+- 2026-06-29 15:58 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/52235808.shtml)
+- 2026-06-29 16:05 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/07927569598.shtml)
+- 2026-06-29 15:43 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/427811685518.shtml)
+- 2026-06-29 15:53 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/6209658280.shtml)
+- 2026-06-29 15:55 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/500805405.shtml)
+- 2026-06-29 16:00 - [恋与深空发放补偿未得到玩家认可](https://www.blog.minike.top/Article/details/4966488.shtml)
+- 2026-06-29 15:45 - [流金岁月](http://www.share.kurohicncr.top/Article/details/0518543.shtml)
+- 2026-06-29 15:55 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/6752497.shtml)
+- 2026-06-29 16:04 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/8582841297.shtml)
+- 2026-06-29 15:53 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/836021.shtml)
+- 2026-06-29 15:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/76054.shtml)
+- 2026-06-29 16:05 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/6347037280.shtml)
+- 2026-06-29 16:05 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/83809454.shtml)
+- 2026-06-29 15:57 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.kurohicncr.top/Article/details/702368447422.shtml)
+- 2026-06-29 16:00 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/27991844.shtml)

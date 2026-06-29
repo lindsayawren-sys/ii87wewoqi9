@@ -1,57 +1,57 @@
-# 段永平，1380亿元持仓曝光
+# 科创板第五套标准扩围AI，未盈利大模型企业上市迎新通道，哪些巨头受益？
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！根据美股机构投资者13F持仓披露情况，截至2026年一季度末，段永平管理的H&H International Investment持仓总市值约200.04亿美元，折合人民币约1380亿元。 今年一季度，段永平加仓英伟达、拼多多、伯克希尔·哈撒韦等，新进特斯拉等。与此同时，段永平减持了苹果、西方石油等，清仓了
+在6月17日举行的2026陆家嘴论坛上，证监会主席吴清发表演讲指出，科创板将加速推出两项改革举措，核心内容之一是扩大第五套上市标准的适用范围至人工智能领域，以积极支持优质的AI大模型企业实现上市。 ETF投资工具可关注：589520、589190。 热点追踪 在2026陆家嘴论坛开幕式上，证监会主席吴清发表主题演讲，明确宣布将扩大科创板第五套标准的使用范围至人工智能领域。这一举
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+在6月17日举行的2026陆家嘴论坛上，证监会主席吴清发表演讲指出，科创板将加速推出两项改革举措，核心内容之一是扩大第五套上市标准的适用范围至人工智能领域，以积极支持优质的AI大模型企业实现上市。
 
-根据美股机构投资者13F持仓披露情况，截至2026年一季度末，段永平管理的H&H International Investment持仓总市值约200.04亿美元，折合人民币约1380亿元。
+ETF投资工具可关注：589520、589190。
 
-今年一季度，段永平加仓英伟达、拼多多、伯克希尔·哈撒韦等，新进特斯拉等。
+热点追踪 在2026陆家嘴论坛开幕式上，证监会主席吴清发表主题演讲，明确宣布将扩大科创板第五套标准的使用范围至人工智能领域。
 
-与此同时，段永平减持了苹果、西方石油等，清仓了阿里巴巴等标的。
+这一举措是深化科创板改革、增强资本市场制度包容性与适应性的关键步骤，旨在更好服务成长型创新创业企业，特别是那些具备前沿技术但可能尚未盈利的AI企业。
 
-清仓阿里巴巴 从整体持仓情况看，H&H International Investment共持有19家公司，包括苹果、伯克希尔·哈撒韦、英伟达、拼多多等。
+吴清同时表示，将适时发布规范发展资本市场人工智能的指导意见，为AI行业的资本化进程提供制度保障。
 
-截至2026年一季度末，苹果依然是头号重仓股，占组合持仓比例为36.72%，持仓市值为73.46亿美元。
+此外，证监会大力支持上市公司并购重组及再融资，支持符合条件的港股上市公司境内上市，以激发市场活力。
 
-此外，伯克希尔·哈撒韦占组合比例为21.91%，持仓市值为43.84亿美元。
+在资金端，新“国九条”发布两年多以来，社保、保险等中长期资金净买入A股达1.3万亿元，“耐心资本”力量不断增强。
 
-和2025年底相比，段永平大幅减持苹果341.29万股。
+吴清强调，中国资本市场韧性提升，科技板块市值占比已超三成，A股公司分红回购规模是同期股权融资的三倍，显示出市场质量的显著改善。
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 15:55 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 15:43 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 15:42 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 15:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 15:57 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 15:50 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 15:52 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 15:51 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 15:45 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 15:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 15:54 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 15:54 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 15:56 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 15:40 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 15:59 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 16:02 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 15:53 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 15:48 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 15:38 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 16:00 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 15:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:58 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.minike.top/Article/details/412781912697.shtml)
-- 2026-06-29 15:47 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/2289966062.shtml)
-- 2026-06-29 15:57 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/907272838.shtml)
-- 2026-06-29 15:45 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/33536773988.shtml)
-- 2026-06-29 15:53 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/930945400265.shtml)
-- 2026-06-29 15:50 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/0649584.shtml)
-- 2026-06-29 15:54 - [金刚川](https://www.share.minike.top/Article/details/0634492877.shtml)
-- 2026-06-29 15:32 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/40276.shtml)
-- 2026-06-29 15:32 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/8762296776.shtml)
-- 2026-06-29 15:49 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/9717530.shtml)
-- 2026-06-29 15:59 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/673264.shtml)
-- 2026-06-29 15:41 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/7894609186.shtml)
-- 2026-06-29 15:40 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/34281112927.shtml)
-- 2026-06-29 15:36 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/5317534896.shtml)
-- 2026-06-29 15:51 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/4425827.shtml)
+- 2026-06-29 16:04 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/405864.shtml)
+- 2026-06-29 16:01 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/15544411.shtml)
+- 2026-06-29 15:50 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/1579868164.shtml)
+- 2026-06-29 15:41 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/74152.shtml)
+- 2026-06-29 15:49 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/23500669.shtml)
+- 2026-06-29 15:54 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/551678195.shtml)
+- 2026-06-29 15:55 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/62385195082.shtml)
+- 2026-06-29 15:54 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/927766464.shtml)
+- 2026-06-29 15:51 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/5983546.shtml)
+- 2026-06-29 15:48 - [千与千寻](https://www.blog.minike.top/Article/details/594976320241.shtml)
+- 2026-06-29 15:53 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/9202567061.shtml)
+- 2026-06-29 15:55 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/90002.shtml)
+- 2026-06-29 16:02 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/6190287.shtml)
+- 2026-06-29 15:49 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/83978558.shtml)
+- 2026-06-29 16:00 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/30560.shtml)

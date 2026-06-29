@@ -1,52 +1,57 @@
-# 美国联合航空预计夏季出行旅客数量将有所增长
+# 建行总分行人事调整 涉及多个直属机构和审计分部
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-饱受通胀压力困扰的消费者并未放弃夏日度假计划。 联合航空于周二表示，预计今年夏季旅客出行人次将达5300万，较去年增加约300万人次。 该公司补充称，那些能体验毕生难忘特色活动的旅游目的地，出行需求尤为旺盛，比如欧洲日全食观赏地、国际足球赛事举办地以及各大全球巡回演唱会举办城市。 联合航空透露，受8月12日日全食带动，前往马德里、巴塞罗那等地的机票预订量涨幅超50%。 公司还指
+来源：金融人事mini 近日，建设银行发布公告，孙孝坤该行执行董事的任职资格已获准，其于今年3月加入建行任党委副书记。至此，国有四大行党委副书记、执行董事的任职架构全面落地。 本期，主要介绍建行中层人事变动，涉及总行部门、直属机构、审计机构和一级分行。 总行基建办主任顾万寿到龄；曾任建行采购部副总经理、总经理，财务会计部副总经理。 总行党委办公室副主任兼信访办公室主任张延明，拟
 
 ## 正文
 
-饱受通胀压力困扰的消费者并未放弃夏日度假计划。
+来源：金融人事mini 近日，建设银行发布公告，孙孝坤该行执行董事的任职资格已获准，其于今年3月加入建行任党委副书记。
 
-联合航空于周二表示，预计今年夏季旅客出行人次将达5300万，较去年增加约300万人次。
+至此，国有四大行党委副书记、执行董事的任职架构全面落地。
 
-该公司补充称，那些能体验毕生难忘特色活动的旅游目的地，出行需求尤为旺盛，比如欧洲日全食观赏地、国际足球赛事举办地以及各大全球巡回演唱会举办城市。
+本期，主要介绍建行中层人事变动，涉及总行部门、直属机构、审计机构和一级分行。
 
-联合航空透露，受8月12日日全食带动，前往马德里、巴塞罗那等地的机票预订量涨幅超50%。
+总行基建办主任顾万寿到龄；曾任建行采购部副总经理、总经理，财务会计部副总经理。
 
-公司还指出，2026年国际足联世界杯北美赛事承办城市的整体机票预订量涨幅接近20%。
+总行党委办公室副主任兼信访办公室主任张延明，拟任基建办公室主任。
 
-责任编辑：何云
+张延明，中国人民大学投资经济系硕士，曾任建行信贷管理部主任科员，行长办公室副处长、处长；2006年11月加入建信基金任总助，2008年6月至2013年6月任建信基金副总经理，后回归建行总行任公共关系与企业文化部副总经理，2025年任党委办公室副主任。
+
+北京生产园区管理办公室主任张斌，拟任北京分行资深专员；曾任建行中关村分行行长。
+
+武汉审计分部主任胡忠，拟任北京生产园区管理办公室主任；曾任建行总行审计部副总经理。
 
 ## 相关推荐
 
-- 2026-06-29 15:57 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 15:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 15:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 15:36 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 15:33 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 15:50 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 15:37 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 15:50 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 15:33 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 15:57 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 15:55 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 15:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 15:40 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 15:44 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 15:49 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 15:58 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 16:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 15:55 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 15:41 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 15:48 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 15:46 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:50 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/8214221.shtml)
-- 2026-06-29 15:37 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/166270.shtml)
-- 2026-06-29 15:59 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/08202773.shtml)
-- 2026-06-29 15:52 - [媒体：网络测评不能只剩“生意”](https://www.share.kurohicncr.top/Article/details/201743207.shtml)
-- 2026-06-29 15:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/631023510.shtml)
-- 2026-06-29 15:44 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/973129573.shtml)
-- 2026-06-29 15:45 - [媒体：网络测评不能只剩“生意”](https://www.share.minike.top/Article/details/937928553.shtml)
-- 2026-06-29 15:30 - [光与夜之恋](http://www.blog.minike.top/Article/details/99295.shtml)
-- 2026-06-29 15:37 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/885398866.shtml)
-- 2026-06-29 15:56 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/155481.shtml)
-- 2026-06-29 15:57 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/53870135.shtml)
-- 2026-06-29 15:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/3905700136.shtml)
-- 2026-06-29 15:31 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/4754405.shtml)
-- 2026-06-29 15:33 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/20712549.shtml)
-- 2026-06-29 15:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/636610384.shtml)
+- 2026-06-29 15:48 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/11940725.shtml)
+- 2026-06-29 15:38 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/0692653.shtml)
+- 2026-06-29 15:47 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/90550528.shtml)
+- 2026-06-29 16:02 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/550947336.shtml)
+- 2026-06-29 15:54 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/4372838.shtml)
+- 2026-06-29 15:46 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/5132277.shtml)
+- 2026-06-29 16:03 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/13264.shtml)
+- 2026-06-29 16:03 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/13586642748.shtml)
+- 2026-06-29 15:57 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/65044569091.shtml)
+- 2026-06-29 15:50 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/717021226.shtml)
+- 2026-06-29 15:55 - [逆天祖国人](http://www.share.minike.top/Article/details/1642343.shtml)
+- 2026-06-29 15:44 - [斗破苍穹](https://www.share.minike.top/Article/details/28825083561.shtml)
+- 2026-06-29 15:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/07897.shtml)
+- 2026-06-29 15:39 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/94656090512.shtml)
+- 2026-06-29 15:39 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/025620061.shtml)

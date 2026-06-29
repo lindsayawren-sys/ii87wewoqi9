@@ -1,57 +1,57 @@
-# 元宇宙启动全球8000人裁员 借力AI提升运营效率
+# 后厂村码农集体猜错榜首：12个AI世界杯预测准确率仅35%，人类“瞎猜”反而更准
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-元宇宙平台公司正式通知数千名员工即将被裁员，此举属于此前公布的架构重组计划一部分，旨在严控成本，同时集中重金押注人工智能领域。 公司于周三早间开始向全球各地员工下发裁员通知，新加坡时间凌晨 4 点率先通知亚洲区员工；内部备忘录显示，美国本土员工也将在当地晨间陆续收到相关通知。 此次全球裁员规模约 8000 人，公司建议员工居家办公平稳过渡。知情人士透露，本轮裁员重点波及工程与产
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！“我以为AI怎么也能猜对七成。”6月16日，在北京后厂村联想咖啡车活动现场，一位程序员在得知AI实际预测成绩后这样感慨。而他的想法，代表了现场绝大多数人的心声。 6月12日至16日，联想、咪咕、新浪财经在北京西二旗、郎园Station和联想集团全球总部三地开展“联想咖啡车城市巡游”活动。核心玩法是“世界杯预
 
 ## 正文
 
-元宇宙平台公司正式通知数千名员工即将被裁员，此举属于此前公布的架构重组计划一部分，旨在严控成本，同时集中重金押注人工智能领域。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-公司于周三早间开始向全球各地员工下发裁员通知，新加坡时间凌晨 4 点率先通知亚洲区员工；内部备忘录显示，美国本土员工也将在当地晨间陆续收到相关通知。
+“我以为AI怎么也能猜对七成。
 
-此次全球裁员规模约 8000 人，公司建议员工居家办公平稳过渡。
+”6月16日，在北京后厂村联想咖啡车活动现场，一位程序员在得知AI实际预测成绩后这样感慨。
 
-知情人士透露，本轮裁员重点波及工程与产品团队，年内后续还或将迎来新一轮人员精简。
+而他的想法，代表了现场绝大多数人的心声。
 
-牛津大学经济与行为科学教授扬 - 伊曼纽尔・德内夫表示：“这类大力推行自动化的企业，一旦一有机会就裁减人力，将逐渐失去职场吸引力。
+6月12日至16日，联想、咪咕、新浪财经在北京西二旗、郎园Station和联想集团全球总部三地开展“联想咖啡车城市巡游”活动。
 
-此举虽能短期压缩成本，却会打击员工归属感与工作积极性，进而损害企业长期发展潜力。
+核心玩法是“世界杯预测人机大战”——12个国内主流大模型同台竞猜世界杯赛果，过往行人可随时参与“人机对战”，每轮比赛结束后准确率即时刷新。
 
-” 此前周一，元宇宙已安排约 7000 名员工调岗至全新组建的人工智能专项团队，主攻 AI 相关产品与智能代理项目。
+16场小组赛战罢，一份出人意料的成绩单出炉了。
 
-今年该企业已敲定超千亿美元的人工智能资本开支；在本次人员调动与裁员落地前，其 3 月末员工总数不足 8 万人。
+AI排行榜：百度文心领跑，DeepSeek跌出前五 截至6月16日，12个AI模型的预测成绩单如下： 百度文心以15场命中7场的成绩暂列第一，成为唯一突破四成准确率的模型。
 
 ## 相关推荐
 
-- 2026-06-29 15:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 15:44 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 15:45 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 15:56 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 15:52 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 15:47 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 15:33 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 15:59 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 15:39 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 15:39 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 15:49 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 15:49 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 15:51 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 15:45 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 15:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 16:03 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 15:37 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 15:41 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 15:47 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 16:04 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 15:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 15:57 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/433913501560.shtml)
-- 2026-06-29 15:54 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/04717749.shtml)
-- 2026-06-29 15:37 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/51251.shtml)
-- 2026-06-29 15:46 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/44200.shtml)
-- 2026-06-29 15:40 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/513410142.shtml)
-- 2026-06-29 15:54 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/1977693.shtml)
-- 2026-06-29 15:42 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.kurohicncr.top/Article/details/074835.shtml)
-- 2026-06-29 15:55 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/69652.shtml)
-- 2026-06-29 15:40 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/5408610.shtml)
-- 2026-06-29 15:46 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/667233.shtml)
-- 2026-06-29 15:37 - [第一炉香](https://www.blog.minike.top/Article/details/66131835.shtml)
-- 2026-06-29 15:57 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/14864223.shtml)
-- 2026-06-29 15:56 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/598283552.shtml)
-- 2026-06-29 15:49 - [极限挑战第一季](https://www.blog.minike.top/Article/details/283679440.shtml)
-- 2026-06-29 15:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/9087895.shtml)
+- 2026-06-29 15:55 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/4604320.shtml)
+- 2026-06-29 15:44 - [吴建豪老婆](http://www.blog.kurohicncr.top/Article/details/510083897864.shtml)
+- 2026-06-29 15:49 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/937696024.shtml)
+- 2026-06-29 15:42 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/777924.shtml)
+- 2026-06-29 15:49 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/573888.shtml)
+- 2026-06-29 16:05 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.minike.top/Article/details/36504988655.shtml)
+- 2026-06-29 15:40 - [美媒：空警-3000服役即成全球最强](http://www.blog.kurohicncr.top/Article/details/249639.shtml)
+- 2026-06-29 15:56 - [中国邮政上海分公司总经理李柏平被查](https://www.share.minike.top/Article/details/8343377648.shtml)
+- 2026-06-29 15:45 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/3443244.shtml)
+- 2026-06-29 15:38 - [速度与激情9](https://www.blog.minike.top/Article/details/0955744460.shtml)
+- 2026-06-29 15:45 - [BB大王横店拍戏](http://www.blog.kurohicncr.top/Article/details/30966548915.shtml)
+- 2026-06-29 15:48 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/43100.shtml)
+- 2026-06-29 15:37 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/516408778.shtml)
+- 2026-06-29 16:02 - [5万块的威力](https://www.blog.minike.top/Article/details/5770224.shtml)
+- 2026-06-29 15:39 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/3051041735.shtml)

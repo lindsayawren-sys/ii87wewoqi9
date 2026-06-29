@@ -1,60 +1,59 @@
-# 2026WWS世界女子斯诺克台球锦标赛泰国选手夺冠
+# 美伊协议最终敲定前夕，LNG运输船突围霍尔木兹进行时
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网东莞5月19日电 (记者 许青青)为期8天的2026WWS世界女子斯诺克台球锦标赛19日在东莞常平镇斯诺克运动馆落下帷幕，来自10个国家和地区的77名顶尖女子斯诺克选手展开激烈对决。泰国选手潘查亚·查诺伊强势包揽女子世锦赛冠军、U21项目冠军，同时斩获本届赛事单杆最高奖，成为全场最大赢家、本届赛事最大黑马。东莞本土选手邓新顺问鼎元老锦标赛冠军。 本次赛事由世界女子斯诺克、
+来源：财联社 财联社6月17日讯（编辑 刘靖怡）随着美伊协议落地时间临近，各类滞留波斯湾的船舶都开始筹划撤离霍尔木兹海峡，其中就包括一些造价昂贵的液化天然气（LNG）运输船。 由于LNG运输船通常是现役船舶中造价最高、保费最贵的船型之一，因此是最不愿意尝试冒险通行霍尔木兹海峡的船只。Kpler4月的一份评估报告预测霍尔木兹海峡重新开放后，油轮和干货散货船将率先恢复，集装箱船紧随
 
 ## 正文
 
-中新网东莞5月19日电 (记者 许青青)为期8天的2026WWS世界女子斯诺克台球锦标赛19日在东莞常平镇斯诺克运动馆落下帷幕，来自10个国家和地区的77名顶尖女子斯诺克选手展开激烈对决。
+来源：财联社 财联社6月17日讯（编辑 刘靖怡）随着美伊协议落地时间临近，各类滞留波斯湾的船舶都开始筹划撤离霍尔木兹海峡，其中就包括一些造价昂贵的液化天然气（LNG）运输船。
 
-泰国选手潘查亚·查诺伊强势包揽女子世锦赛冠军、U21项目冠军，同时斩获本届赛事单杆最高奖，成为全场最大赢家、本届赛事最大黑马。
+由于LNG运输船通常是现役船舶中造价最高、保费最贵的船型之一，因此是最不愿意尝试冒险通行霍尔木兹海峡的船只。
 
-东莞本土选手邓新顺问鼎元老锦标赛冠军。
+Kpler4月的一份评估报告预测霍尔木兹海峡重新开放后，油轮和干货散货船将率先恢复，集装箱船紧随其后，LNG运输船则在最后。
 
-本次赛事由世界女子斯诺克、中国台球协会、东莞市文化广电旅游体育局、常平镇人民政府主办，东莞台球协会承办。
+而随着美国和伊朗将于周五就恢复海上安全通航达成初步协议，这些船只正争分夺秒地准备驶离波斯湾。
 
-作为女子斯诺克领域历史最悠久、竞技水平最高的赛事，该赛事自1983年创办以来，已连续举办42届。
+据Kpler数据，自2月份冲突爆发以来，过去数月间仅有15艘LNG运输船离开海湾地区，其中大多数依靠隐蔽航线或关闭定位信号才得以顺利离开。
 
-本届赛事于5月12日正式开赛，为期8天，白雨露、吴安仪、努查鲁特·旺哈鲁泰、瑞安·埃文斯等名将悉数登场，同期举办U21锦标赛与元老锦标赛。
+不过，随着对协议达成的乐观预期，驶离船只数量目前正在增加。
 
-东莞常平镇是斯诺克运动强镇。
+部分从霍尔木兹海峡成功撤出的LNG运输船 此前，LNG运输船被困波斯湾引发了全球性的供应危机：卡塔尔拉斯拉凡港的LNG出货量从2月的616万吨骤降至本月的42万吨，降幅达93%；阿联酋达斯岛的出口量也从38万吨降至本月的6万吨。
 
-19日，WWS、中国台球协会、东莞台球协会三方签约仪式，建立长期战略合作，正式授予常平未来5年赛事承办权、10年优先承办权，常平将成为全球女子斯诺克核心支点，为后续赛事落地、人才培养、产业联动奠定基础。
+霍尔木兹海峡封锁对海湾地区LNG出口量（吨）的影响 目前仍有部分满载液化天然气的船只滞留海湾内。
 
 ## 相关推荐
 
-- 2026-06-29 15:55 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 15:31 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 15:58 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 15:34 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 15:36 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 15:38 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 15:49 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 15:56 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 15:57 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 15:43 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 15:38 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 15:51 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 15:51 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 15:30 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 15:45 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 15:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 15:37 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 15:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 15:55 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 15:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 15:44 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 16:05 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 16:04 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 15:40 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 15:58 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 16:04 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 16:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:40 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/16200.shtml)
-- 2026-06-29 15:40 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/2892467885.shtml)
-- 2026-06-29 15:47 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/899288901172.shtml)
-- 2026-06-29 15:33 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/197039017151.shtml)
-- 2026-06-29 15:50 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/38538786.shtml)
-- 2026-06-29 15:49 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/54737121367.shtml)
-- 2026-06-29 15:54 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/158596287.shtml)
-- 2026-06-29 15:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/683868947572.shtml)
-- 2026-06-29 15:51 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/20776826348.shtml)
-- 2026-06-29 15:36 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/147211.shtml)
-- 2026-06-29 15:38 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/232138352094.shtml)
-- 2026-06-29 15:34 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/15850.shtml)
-- 2026-06-29 15:36 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/894283456.shtml)
-- 2026-06-29 15:56 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/069267887926.shtml)
-- 2026-06-29 15:55 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/27133.shtml)
+- 2026-06-29 15:44 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/585457237240.shtml)
+- 2026-06-29 16:01 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/856572912.shtml)
+- 2026-06-29 15:36 - [四川宜宾地震](https://www.share.kurohicncr.top/Article/details/80014462.shtml)
+- 2026-06-29 16:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/041082005.shtml)
+- 2026-06-29 15:41 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/3025725272.shtml)
+- 2026-06-29 15:42 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/82843.shtml)
+- 2026-06-29 16:05 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/7402285772.shtml)
+- 2026-06-29 15:54 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/5896156.shtml)
+- 2026-06-29 16:02 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/878799005.shtml)
+- 2026-06-29 15:50 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/25465497.shtml)
+- 2026-06-29 15:45 - [小娘惹](http://www.blog.minike.top/Article/details/33350190458.shtml)
+- 2026-06-29 15:45 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/9661037.shtml)
+- 2026-06-29 15:48 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/2923602582.shtml)
+- 2026-06-29 15:50 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/4525140546.shtml)
+- 2026-06-29 15:46 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/516063546749.shtml)

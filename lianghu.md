@@ -1,61 +1,61 @@
-# 单季营收超23亿刚创历史新高 巨人网络二股东急抛17亿减持计划 谁来为此买单？
+# 长江有色：16日氧化铝期价收跌0.68% 节前交投转弱
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月15日晚间，就在巨人网络刚刚交出一份堪称“史上最强”单季财报的半个月后，公司第二大股东、控股股东一致行动人上海腾澎投资合伙企业（有限合伙）抛出了一份令市场错愕的减持计划。公告显示，腾澎投资拟减持不超过5680.7万股，占公司总股本的2.99%，若以5月15日收盘价30.12元/股估算，套现规模超过17亿元。 这并非
+长江有色金属网 长江有色网6月16日讯，今日氧化铝所有合约联袂走软，主力2609合约偏弱震荡；截止当日15：00收盘，氧化铝主力月2609合约报2907元，跌20元，跌幅0.68%；加权合约累计成交368699手，比前一交易日减少72671手，跌幅16.46%；持仓量410578手减少10580手，跌幅2.51%。 今日国内氧化铝现货价格部分地区上涨；据长江有色网ccmn数据，
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月15日晚间，就在巨人网络刚刚交出一份堪称“史上最强”单季财报的半个月后，公司第二大股东、控股股东一致行动人上海腾澎投资合伙企业（有限合伙）抛出了一份令市场错愕的减持计划。
+长江有色金属网 长江有色网6月16日讯，今日氧化铝所有合约联袂走软，主力2609合约偏弱震荡；截止当日15：00收盘，氧化铝主力月2609合约报2907元，跌20元，跌幅0.68%；加权合约累计成交368699手，比前一交易日减少72671手，跌幅16.46%；持仓量410578手减少10580手，跌幅2.51%。
 
-公告显示，腾澎投资拟减持不超过5680.7万股，占公司总股本的2.99%，若以5月15日收盘价30.12元/股估算，套现规模超过17亿元。
+今日国内氧化铝现货价格部分地区上涨；据长江有色网ccmn数据，6月16日氧化铝华南地区每吨报2700-2750元之间，与前一交易日报价涨10元；华东地区氧化铝每吨报2720-2760元之间，与前一交易日报价持平；西南地区氧化铝每吨2755-2795元之间，与前一交易日报价持平；西北地区氧化铝每吨报3060-3100元之间，与前一交易日报价涨20元。
 
-这并非一笔寻常的套现。
+今日上期所氧化铝期货主力2609合约震荡走弱，日间交易收跌0.68%，国内氧化铝现货价格部分地区上涨； 宏观层面，特朗普宣布美伊达成初步停战协议，霍尔木兹海峡将重开、停火60天，导致油价崩跌，通胀担忧大幅缓解、美元指数震荡下跌，全球股指走强、风险偏好升温。
 
-减持理由直指“归还银行贷款”，而相关贷款与巨人网络的参股公司上海巨堃网络科技有限公司密切相关。
+但有色不涨反跌，原因是：此前铜铝受“战争→供应中断/能源通胀”微弱避险买盘与铝受海湾缺货预期支撑，停火消息触发该部分溢价回吐；叠加端午前资金锁利、国内铜铝处淡季累库期，主力选择节前减仓而非追多，故铜铝联袂回调，氧化铝因自身过剩也高位回落。
 
-巨堃网络由巨人网络及其全资子公司合计持股49%，此前因收购Playtika母公司股权形成并购贷款，贷款即将到期。
+基本面多空交织。
 
-此次腾澎投资套现，本质上是为巨堃网络“输血”偿债。
+供给端：前期检修产能部分恢复叠加新投爬坡，全国氧化铝运行产能增至9230万吨/年，周产量169.8万吨，总库存环比大增13.9万吨至702.4万吨（港口同步累积），过剩压力未消。
 
-巨人网络在公告中表示，这将“有利于巨人网络释放投资收益、增厚净利润”——换句话说是控股股东变卖二级市场股份，换取上市公司账面上的利润释放。
+几内亚铝土矿出口配额传闻（上限1.5亿吨/年）及山西非煤矿山、赤泥库隐患排查（涉及约200万吨/年产能）提供低位情绪支撑，但短期难改宽松格局。
 
-减持时机：为何选择业绩巅峰时刻？
+需求端：国内电解铝运行产能逼近4500万吨天花板、开工率近99%，对氧化铝形成刚性消耗托底；但受铝价高位震荡、冶炼利润环比收窄影响，铝厂采购趋保守，以执行长单刚需为主，现货无集中补库。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 15:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 15:42 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 15:52 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 15:47 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 15:39 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 15:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 15:59 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 15:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 15:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 15:57 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 15:48 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 15:48 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 15:38 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 15:56 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 16:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 15:48 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 15:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 15:45 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 15:52 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 15:40 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 16:04 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 16:03 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 16:05 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 16:02 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 15:44 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 16:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 15:43 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 15:38 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 15:37 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:45 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/3233052417.shtml)
-- 2026-06-29 15:58 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/353947317026.shtml)
-- 2026-06-29 15:44 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/451379524.shtml)
-- 2026-06-29 15:34 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/040855.shtml)
-- 2026-06-29 15:39 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/2785009.shtml)
-- 2026-06-29 15:47 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/789229194836.shtml)
-- 2026-06-29 15:41 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.kurohicncr.top/Article/details/2402282.shtml)
-- 2026-06-29 15:32 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/1724879.shtml)
-- 2026-06-29 15:55 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/65150.shtml)
-- 2026-06-29 15:39 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/4639548469.shtml)
-- 2026-06-29 15:48 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/32345291638.shtml)
-- 2026-06-29 15:52 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/4524602873.shtml)
-- 2026-06-29 15:42 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/9491099182.shtml)
-- 2026-06-29 15:37 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/71412014685.shtml)
-- 2026-06-29 15:38 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/9730105500.shtml)
+- 2026-06-29 15:48 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/035278.shtml)
+- 2026-06-29 15:38 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/25958558.shtml)
+- 2026-06-29 15:58 - [扬名立万](https://www.blog.minike.top/Article/details/57775987.shtml)
+- 2026-06-29 15:54 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/1219191993.shtml)
+- 2026-06-29 15:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/614488.shtml)
+- 2026-06-29 15:56 - [女心理师](https://www.blog.minike.top/Article/details/621953665.shtml)
+- 2026-06-29 15:38 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.kurohicncr.top/Article/details/096199984.shtml)
+- 2026-06-29 16:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/5537925.shtml)
+- 2026-06-29 15:52 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/9105270.shtml)
+- 2026-06-29 15:47 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/8615198.shtml)
+- 2026-06-29 15:41 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/486540546947.shtml)
+- 2026-06-29 15:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/425233.shtml)
+- 2026-06-29 16:01 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/4692506.shtml)
+- 2026-06-29 16:05 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/815256208.shtml)
+- 2026-06-29 15:43 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/64919387.shtml)

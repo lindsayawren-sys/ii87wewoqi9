@@ -1,53 +1,59 @@
-# 强降雨已致湖南石门县5人死亡11人失联
+# 美国债市：国债涨幅在英伟达250亿美元债券定价前收窄
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网长沙5月20日电 (刘曼)自5月17日以来，湖南省常德市遭遇入汛以来范围最广、强度最大、历时最长的强降雨过程。其中，澧水支流渫水流域成为暴雨中心，石门县等地遭受特大洪水袭击。 石门县应急和安全生产委员会20日最新通报称，截至目前，石门全县共有23个乡镇区场不同程度受灾，受灾人口103247人，5人死亡、11人失联。应急救援工作正在持续进行。(完)
+美国国债在美国交易时段回吐了早些时候的部分涨幅；此前美国和伊朗达成协议以恢复霍尔木兹海峡通行，油价随之下跌，美债受到提振。英伟达宣布发债后，美债涨势消退。在这笔债券交易定价前，美国国债也走势偏沉重。 纽约时间下午3点刚过，美国收益率曲线短端和中段收益率下跌多达2个基点，而长端收益率回到接近日内持平。美国10年期收益率尾盘报4.46%左右，此前在亚洲早盘一度跌至4.418%。 企
 
 ## 正文
 
-中新网长沙5月20日电 (刘曼)自5月17日以来，湖南省常德市遭遇入汛以来范围最广、强度最大、历时最长的强降雨过程。
+美国国债在美国交易时段回吐了早些时候的部分涨幅；此前美国和伊朗达成协议以恢复霍尔木兹海峡通行，油价随之下跌，美债受到提振。
 
-其中，澧水支流渫水流域成为暴雨中心，石门县等地遭受特大洪水袭击。
+英伟达宣布发债后，美债涨势消退。
 
-石门县应急和安全生产委员会20日最新通报称，截至目前，石门全县共有23个乡镇区场不同程度受灾，受灾人口103247人，5人死亡、11人失联。
+在这笔债券交易定价前，美国国债也走势偏沉重。
 
-应急救援工作正在持续进行。
+纽约时间下午3点刚过，美国收益率曲线短端和中段收益率下跌多达2个基点，而长端收益率回到接近日内持平。
 
-(完)
+美国10年期收益率尾盘报4.46%左右，此前在亚洲早盘一度跌至4.418%。
+
+企业债发行相关对冲资金流似乎在美国交易时段对美国国债构成轻微压力。
+
+八家借款人共发行360亿美元美国投资级债券，其中英伟达250亿美元七部分债券发行规模居首。
+
+英伟达发债交易宣布后，美国上午交易时段美债涨幅开始回吐。
 
 ## 相关推荐
 
-- 2026-06-29 15:52 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 15:33 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 15:51 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 15:42 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 15:39 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 15:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 15:30 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 15:49 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 15:42 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 15:40 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 15:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 15:42 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 15:36 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 15:40 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 15:55 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 15:48 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 15:43 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 15:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 15:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 16:01 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 15:49 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 15:49 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 15:57 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 16:02 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 15:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 15:59 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/85816.shtml)
-- 2026-06-29 15:52 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/0651238.shtml)
-- 2026-06-29 15:53 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/99639696822.shtml)
-- 2026-06-29 15:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/594778.shtml)
-- 2026-06-29 15:40 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/4165512.shtml)
-- 2026-06-29 15:32 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/193232291463.shtml)
-- 2026-06-29 15:36 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/8649855236.shtml)
-- 2026-06-29 15:50 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/35022605171.shtml)
-- 2026-06-29 15:43 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/474089.shtml)
-- 2026-06-29 15:40 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/79648326630.shtml)
-- 2026-06-29 15:35 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/6601337667.shtml)
-- 2026-06-29 15:38 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/60731922.shtml)
-- 2026-06-29 15:54 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/00206.shtml)
-- 2026-06-29 15:55 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/53882126567.shtml)
-- 2026-06-29 15:51 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/964320762.shtml)
+- 2026-06-29 15:41 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/34871615.shtml)
+- 2026-06-29 15:36 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/968976905349.shtml)
+- 2026-06-29 15:46 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/231544.shtml)
+- 2026-06-29 15:56 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/53727746.shtml)
+- 2026-06-29 15:52 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/53294.shtml)
+- 2026-06-29 15:56 - [恋与深空发放补偿未得到玩家认可](https://www.blog.minike.top/Article/details/894811.shtml)
+- 2026-06-29 16:03 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/12571.shtml)
+- 2026-06-29 16:02 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/6388297.shtml)
+- 2026-06-29 16:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/495014.shtml)
+- 2026-06-29 15:37 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/6208215.shtml)
+- 2026-06-29 16:05 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/03957.shtml)
+- 2026-06-29 15:54 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/658364767.shtml)
+- 2026-06-29 16:06 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/268598.shtml)
+- 2026-06-29 15:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/08158793462.shtml)
+- 2026-06-29 15:51 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/9582727121.shtml)

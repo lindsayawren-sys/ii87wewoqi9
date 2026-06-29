@@ -1,61 +1,57 @@
-# 创新药继续筑底，华宝基金药ETF、港股通创新药ETF再探历史新低！“抄底”资金狂涌，520880近10日吸金7.7亿
+# 微信支付“AI专属卡”最快本周上线，支付巨头AI对垒战加速
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-5月20日，AH创新药再度走低，重仓A股创新药的药ETF华宝（562050）、100%创新药研发标的——港股通创新药ETF华宝（520880）场内价格再刷历史新低。 A股制药板块普跌，药ETF华宝（562050）核心权重股恒瑞医药股价创近1年新低，华东医药、长春高新跟跌逾1%。 港股通创新药权重龙头跌多涨少，百济神州涨超1%，信达生物、石药集团、中国生物制药等齐跌逾1%。港股通
+财联社6月16日讯（记者 郭子硕）支付宝之外，微信支付也在加速推进AI战略。 财联社记者从知情人士处获悉，微信支付正联合腾讯智能体产品WorkBuddy测试AI支付功能，计划在微信钱包中上线“AI专属卡”。该卡消费上限由用户充值金额决定，支付授权范围可随时管控，资金专款专用，智能体发起支付须经用户验密确认。该功能最快于本周上线。 不过，记者今日就上述信息向微信支付官方求证，截至
 
 ## 正文
 
-5月20日，AH创新药再度走低，重仓A股创新药的药ETF华宝（562050）、100%创新药研发标的——港股通创新药ETF华宝（520880）场内价格再刷历史新低。
+财联社6月16日讯（记者 郭子硕）支付宝之外，微信支付也在加速推进AI战略。
 
-A股制药板块普跌，药ETF华宝（562050）核心权重股恒瑞医药股价创近1年新低，华东医药、长春高新跟跌逾1%。
+财联社记者从知情人士处获悉，微信支付正联合腾讯智能体产品WorkBuddy测试AI支付功能，计划在微信钱包中上线“AI专属卡”。
 
-港股通创新药权重龙头跌多涨少，百济神州涨超1%，信达生物、石药集团、中国生物制药等齐跌逾1%。
+该卡消费上限由用户充值金额决定，支付授权范围可随时管控，资金专款专用，智能体发起支付须经用户验密确认。
 
-港股通创新药ETF华宝（520880）跌逾1.5%，持续溢价交易。
+该功能最快于本周上线。
 
-场内价格迭创新低之际，520880迎来资金密集增仓。
+不过，记者今日就上述信息向微信支付官方求证，截至发稿未获回应。
 
-截至上日，520880近10日内有9日吸金，金额合计超7.7亿元，最新份额升至58.9亿份新高。
+随着微信支付加速入场，本就拥挤的“支付+AI”赛道再添热度。
 
-从本轮调整来看，港股通创新药板块或已跌出性价比。
+6月16日，AI版支付宝正式推出，命名“阿宝”，成为全球首个完成全端AI化的超级应用；银联商务基于中国银联APOP协议推出AI支付产品，已落地园区食品预定、云缴费、AI点餐三个高频场景；京东发布国内首个智能体自主支付协议……巨头密集落子，路径各异。
 
-自去年9月中旬进入阶段调整期，截至5月19日，港股通创新药ETF华宝（520880）标的指数区间累计跌幅超过30%，调整充分，估值风险释放到位。
+支付巨头扑向AI赛道，路径各有差异 财联社记者采访了解到，各大平台近期密集落地AI支付相关产品，技术路径各有差异。
 
 ## 相关推荐
 
-- 2026-06-29 15:51 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 15:54 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 15:53 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 15:58 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 15:56 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 15:37 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 15:34 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 15:33 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 15:53 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 15:30 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 15:34 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 15:50 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 15:30 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 15:41 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 15:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 15:51 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 16:05 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 16:05 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 15:45 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 15:50 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 15:44 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 15:47 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 15:42 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 15:47 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 16:05 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 15:41 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/26113038.shtml)
-- 2026-06-29 15:39 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/9749781906.shtml)
-- 2026-06-29 15:52 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/723504975.shtml)
-- 2026-06-29 15:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/14544.shtml)
-- 2026-06-29 15:34 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/775714059.shtml)
-- 2026-06-29 15:38 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/3279830.shtml)
-- 2026-06-29 15:59 - [美的空调 卡bug](http://www.share.minike.top/Article/details/89213.shtml)
-- 2026-06-29 15:40 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/5672415299.shtml)
-- 2026-06-29 15:44 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/2436470.shtml)
-- 2026-06-29 15:42 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/15486416286.shtml)
-- 2026-06-29 15:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/27415.shtml)
-- 2026-06-29 15:35 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/4055055363.shtml)
-- 2026-06-29 15:30 - [沙丘](https://www.blog.minike.top/Article/details/686401.shtml)
-- 2026-06-29 15:43 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/738641.shtml)
-- 2026-06-29 15:33 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/12237.shtml)
+- 2026-06-29 15:39 - [韩国国脚无缘上亿韩元奖金](https://www.blog.kurohicncr.top/Article/details/9215380.shtml)
+- 2026-06-29 15:55 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/5332189.shtml)
+- 2026-06-29 15:40 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/9762908.shtml)
+- 2026-06-29 15:52 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/6804865.shtml)
+- 2026-06-29 15:38 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/34287023.shtml)
+- 2026-06-29 15:59 - [Canna纳尔8-0对位单杀Doran](https://www.blog.kurohicncr.top/Article/details/19406242.shtml)
+- 2026-06-29 16:05 - [Agent带来token消耗爆炸](https://www.share.kurohicncr.top/Article/details/30387.shtml)
+- 2026-06-29 15:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/199546.shtml)
+- 2026-06-29 15:53 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/61064465.shtml)
+- 2026-06-29 15:42 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/985504.shtml)
+- 2026-06-29 15:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/342514.shtml)
+- 2026-06-29 15:41 - [我和我的家乡](http://www.blog.minike.top/Article/details/64261192097.shtml)
+- 2026-06-29 15:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/6026730.shtml)
+- 2026-06-29 15:39 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/5289641061.shtml)
+- 2026-06-29 16:01 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/65846928.shtml)

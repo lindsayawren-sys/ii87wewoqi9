@@ -1,58 +1,58 @@
-# 青海西宁：“情定520”集体婚礼举行
+# 上海无党派人士开展专项民主监督 加快构建现代化产业体系
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-9.9元的“抽象娃娃”卖疯了：有厂家半个月卖出几十万个法治护航民营经济行稳致远从三个“更”看中国有力护航民企“轻装上阵”六小龄童：愚公精神与西游精神一脉相承算法时代，如何让阅读更加深入？黄金白银，为何集体大跌？主任医师谈“网红洗眼液”：非医疗产品，是护理产品普京的“六褶包”：一场中俄文化的指尖对话一张圆桌映照中国制造全球新坐标平陆运河重塑广西开放新格局赖清德，如何走到被弹劾地步
+中新网上海6月16日电(范宇斌)近日，无党派人士依托上海中青年知识分子联谊会(简称“上海市知联会”)，赴上海市松江区开展“巩固壮大实体经济根基，加快构建现代化产业体系”专项民主监督。 根据工作方案，专项民主监督工作组在上海市委统战部召开专项民主监督工作启动会。上海市委统战部副部长沈立新作动员讲话，上海市知联会会长、中国科学院院士俞飚主持启动会。 启动会后，俞飚、沈立新带领23名
 
 ## 正文
 
-9.9元的“抽象娃娃”卖疯了：有厂家半个月卖出几十万个法治护航民营经济行稳致远从三个“更”看中国有力护航民企“轻装上阵”六小龄童：愚公精神与西游精神一脉相承算法时代，如何让阅读更加深入？
+中新网上海6月16日电(范宇斌)近日，无党派人士依托上海中青年知识分子联谊会(简称“上海市知联会”)，赴上海市松江区开展“巩固壮大实体经济根基，加快构建现代化产业体系”专项民主监督。
 
-黄金白银，为何集体大跌？
+根据工作方案，专项民主监督工作组在上海市委统战部召开专项民主监督工作启动会。
 
-主任医师谈“网红洗眼液”：非医疗产品，是护理产品普京的“六褶包”：一场中俄文化的指尖对话一张圆桌映照中国制造全球新坐标平陆运河重塑广西开放新格局赖清德，如何走到被弹劾地步？
+上海市委统战部副部长沈立新作动员讲话，上海市知联会会长、中国科学院院士俞飚主持启动会。
 
-古今“驴友”大PK，谁才是狠人？
+启动会后，俞飚、沈立新带领23名无党派人士组成专项民主监督工作组赴松江区调研座谈。
 
-低空安全司亮相 万亿级产业“管理双翼”就位港交所上市热潮彰显香港国际金融中心竞争力广西柳州发生5.2级地震 专家分析解读原因与特征大陆对“台独”釜底抽薪，“倚美谋独”的梦该醒了周乾：给故宫“体检”，我闻到了300多年前的灰2025年全国备案博物馆达7188家 免费开放率超91%“520”北京婚姻服务场景焕新江苏太仓：“0元租”婚纱小站传递幸福和新风探秘“气象国家队”：从110米/秒风洞到一滴雨的精准度量黑龙江鸡西：走进富有烟火气的北钢大集洋媳妇开拖拉机刨地种玉米圈粉500万蒙曼：今天诗词走红速度古人无法想象5G基站里藏着哪些硬核科技？
+松江区委副书记、区长王靖，松江区委常委、统战部部长朱大章，松江副区长陈容以及松江区相关职能部门负责人出席座谈会。
 
-云南建水：感受彝族烟盒舞的特色风情北京天坛的奠基土来自山西后土祠？
+“松江区要积极抢抓转型发展机遇，聚力重塑主导产业核心竞争力，聚焦‘四个区’功能定位，坚持工业立区战略方针，加快建设先进制造业发展集聚区、新质生产力发展先行区，推动区域产业经济企稳回升。
 
-水下仿生机器鱼展演栩栩如生美国博主“车轮哥”带老外组团“朝圣”中国电车“法拉利大叔”自评走红视频醉驾男子路遇检查假装“路人”，交警一眼识破！
+”王靖表示，松江区将以此次专项民主监督为契机，切实把监督成果转化为推动产业高质量发展的务实举措。
 
-河南南阳上演“沉浸式拆飞机”名场面夜鹭化身耐心“垂钓者” 上演“守株待鱼”今天，为什么不能打孩子？
+俞飚表示，作为上海西南重要的产业集聚区，松江区紧扣“四个区”功能定位，加快构建以实体经济为支撑的“2+4”现代化产业体系，产业规模持续壮大、特色赛道集群成势，成绩令人鼓舞。
 
 ## 相关推荐
 
-- 2026-06-29 15:37 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 15:30 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 15:50 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 15:42 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 15:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 15:40 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 15:43 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 15:54 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 15:52 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 15:36 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 15:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 15:46 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 15:41 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 15:54 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 15:37 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 16:05 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 15:59 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 15:53 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 15:40 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 15:48 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 15:39 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 15:47 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 15:40 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 15:40 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/63527101.shtml)
-- 2026-06-29 15:49 - [驻日美军航母沦为“毒窝”](https://www.share.kurohicncr.top/Article/details/04512.shtml)
-- 2026-06-29 15:59 - [3D打印不是工业革命，它是……](http://www.share.minike.top/Article/details/22230.shtml)
-- 2026-06-29 15:49 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/657014356826.shtml)
-- 2026-06-29 15:32 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/767048.shtml)
-- 2026-06-29 15:33 - [我国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/506711582.shtml)
-- 2026-06-29 15:35 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/7992037183.shtml)
-- 2026-06-29 15:52 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/495026646.shtml)
-- 2026-06-29 15:39 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/259700.shtml)
-- 2026-06-29 15:35 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/3291476299.shtml)
-- 2026-06-29 15:53 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/5641716.shtml)
-- 2026-06-29 15:47 - [世界杯上那些封神的门将](http://www.blog.minike.top/Article/details/036331.shtml)
-- 2026-06-29 15:34 - [金牌调解](https://www.share.kurohicncr.top/Article/details/36821806890.shtml)
-- 2026-06-29 15:54 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/7688027197.shtml)
-- 2026-06-29 15:54 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/84275531820.shtml)
+- 2026-06-29 15:50 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/05127891557.shtml)
+- 2026-06-29 15:40 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/135682.shtml)
+- 2026-06-29 16:05 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/13845739.shtml)
+- 2026-06-29 15:43 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/158959364.shtml)
+- 2026-06-29 15:39 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/1932788.shtml)
+- 2026-06-29 16:00 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/404916.shtml)
+- 2026-06-29 15:47 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/903148344318.shtml)
+- 2026-06-29 15:59 - [新一代影后杨紫](http://www.share.minike.top/Article/details/96945183307.shtml)
+- 2026-06-29 15:43 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/90723.shtml)
+- 2026-06-29 15:50 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/8292888.shtml)
+- 2026-06-29 15:54 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/10920523081.shtml)
+- 2026-06-29 15:57 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/7804583368.shtml)
+- 2026-06-29 15:41 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/083671028296.shtml)
+- 2026-06-29 15:41 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/14797787.shtml)
+- 2026-06-29 15:41 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/82933.shtml)

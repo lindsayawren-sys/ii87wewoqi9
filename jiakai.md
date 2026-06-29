@@ -1,56 +1,54 @@
-# 市场监管总局开展居民水电气计量问题综合整治“回头看”
+# 何立峰：坚决出清资不抵债、不具存续价值的金融机构
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-中新网5月20日电 据市场监管总局网站消息，为持续规范供水供电供气市场秩序，切实维护人民群众切身利益，近日，市场监管总局部署开展居民水电气计量问题综合整治“回头看”，对前期专项整治成效进行全面复核、跟踪问效，以严监管、硬举措巩固整治成果，坚决防止计量不准问题反弹。2025年，市场监管总局聚焦群众反映强烈的计量器具失准、强制检定不到位等突出问题，在全国范围内开展居民水电气计量综合
+发布时间：2026年06月17日 15:52 来源：中国新闻网 6月17日，中共中央政治局委员、国务院副总理何立峰出席2026陆家嘴论坛开幕式并讲话。他指出，坚决出清资不抵债、不具存续价值的金融机构，三年多来地方中小金融机构累计减少超900家。对上市公司财务造假行为毫不手软，果断亮剑。三年多来，上市公司因财务造假被强制退市33家。未来，还将继续以刮骨疗毒的决心，持续强化监管规制
 
 ## 正文
 
-中新网5月20日电 据市场监管总局网站消息，为持续规范供水供电供气市场秩序，切实维护人民群众切身利益，近日，市场监管总局部署开展居民水电气计量问题综合整治“回头看”，对前期专项整治成效进行全面复核、跟踪问效，以严监管、硬举措巩固整治成果，坚决防止计量不准问题反弹。
+发布时间：2026年06月17日 15:52 来源：中国新闻网 6月17日，中共中央政治局委员、国务院副总理何立峰出席2026陆家嘴论坛开幕式并讲话。
 
-2025年，市场监管总局聚焦群众反映强烈的计量器具失准、强制检定不到位等突出问题，在全国范围内开展居民水电气计量综合整治。
+他指出，坚决出清资不抵债、不具存续价值的金融机构，三年多来地方中小金融机构累计减少超900家。
 
-通过全覆盖排查、严标准执法，全国共查办相关违法案件约1.4万件，罚没金额约2.35亿元，惠及群众超4393万人。
+对上市公司财务造假行为毫不手软，果断亮剑。
 
-此次“回头看”坚持问题导向、目标导向、结果导向，重点围绕整改落实是否到位、计量监管是否严格、长效机制是否健全开展核查核验。
+三年多来，上市公司因财务造假被强制退市33家。
 
-通过“四不两直”“飞行检查”“交叉检查”等方式直插基层、深入现场，逐项核对问题清单、责任清单、整改清单。
+未来，还将继续以刮骨疗毒的决心，持续强化监管规制。
 
-对整改不到位、虚假整改、敷衍整改的，依法严肃处理，坚决杜绝形式主义、纸面整改。
-
-此次“回头看”具体将从五个方面把整治工作抓实抓细。
-
-一是压实计量监管责任，健全上下联动、协同推进工作机制，确保“回头看”全覆盖、无死角。
+(记者 康玉湛 高志苗 制作 田媛媛) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 15:37 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 15:37 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 15:38 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 15:43 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 15:47 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 15:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 15:30 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 15:54 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 15:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 15:58 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 15:52 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 15:54 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 15:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 15:44 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 15:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 15:50 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 16:05 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 16:02 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 15:37 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 15:53 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 15:49 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 16:04 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:57 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/95368.shtml)
-- 2026-06-29 15:59 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/2975843.shtml)
-- 2026-06-29 15:44 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/66241.shtml)
-- 2026-06-29 15:47 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/44751372.shtml)
-- 2026-06-29 15:44 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/9539248.shtml)
-- 2026-06-29 15:39 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/58509891695.shtml)
-- 2026-06-29 15:56 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/828539723.shtml)
-- 2026-06-29 15:49 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/37079.shtml)
-- 2026-06-29 15:37 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/00177734.shtml)
-- 2026-06-29 15:35 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/4814726.shtml)
-- 2026-06-29 15:56 - [抓特务票房破亿](https://www.blog.kurohicncr.top/Article/details/39342617.shtml)
-- 2026-06-29 15:52 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/283725591.shtml)
-- 2026-06-29 15:54 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/57881155188.shtml)
-- 2026-06-29 15:34 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/194625.shtml)
-- 2026-06-29 15:52 - [美人鱼](http://www.blog.minike.top/Article/details/91753365.shtml)
+- 2026-06-29 15:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/6038070047.shtml)
+- 2026-06-29 15:51 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/81276585776.shtml)
+- 2026-06-29 15:56 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/0307761735.shtml)
+- 2026-06-29 15:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/288218821585.shtml)
+- 2026-06-29 15:49 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/331582119271.shtml)
+- 2026-06-29 15:58 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/272873567456.shtml)
+- 2026-06-29 16:02 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/772610.shtml)
+- 2026-06-29 15:42 - [上班主打一个薪尽自然凉](http://www.blog.minike.top/Article/details/6519970.shtml)
+- 2026-06-29 15:54 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/26634122417.shtml)
+- 2026-06-29 15:50 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/73077.shtml)
+- 2026-06-29 15:59 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/70149836550.shtml)
+- 2026-06-29 15:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/94296024.shtml)
+- 2026-06-29 15:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/6815726.shtml)
+- 2026-06-29 15:47 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/450461556431.shtml)
+- 2026-06-29 15:49 - [媒体：高考后消费应量力而行适度有度](https://www.blog.kurohicncr.top/Article/details/90419928987.shtml)

@@ -1,59 +1,61 @@
-# 高盛：阿里健康维持“中性”评级 目标价降至4.2港元
+# 保健品618大促：热销与乱象并存，如何走出野蛮生长困境？
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-高盛发布研报称，阿里健康（00241）3月底止2026财年下半年业绩好坏参半。该行维持对其“中性”评级，将其12个月目标价由4.8港元下调至4.2港元，基于28倍预测2027至2028财年平均市盈率。认为收入增长主要由药物（特别是处方药及创新产品）带动，但激烈的竞争将导致其增长速度较京东健康（06618）为慢，预期阿里健康明年3月底止2027财年收入同比增长13%，而京东健康2
+21世纪经济报道记者 韩利明 “考研备考失眠，有什么助眠补剂？”“上班族精力不足，保健品该怎么选？”“27岁打工人常年回购保健品清单”……打开小红书、抖音等社交平台，以保健品为关键词的种草、咨询帖层出不穷，健康食补、营养补充俨然成为全民健康消费新风尚。 消费需求的释放也带动行业规模稳步扩容。中国医药保健品进出口商会数据显示，传统货架电商仍是保健品销售核心阵地，但内容电商的增长势
 
 ## 正文
 
-高盛发布研报称，阿里健康（00241）3月底止2026财年下半年业绩好坏参半。
+21世纪经济报道记者 韩利明 “考研备考失眠，有什么助眠补剂？
 
-该行维持对其“中性”评级，将其12个月目标价由4.8港元下调至4.2港元，基于28倍预测2027至2028财年平均市盈率。
+”“上班族精力不足，保健品该怎么选？
 
-认为收入增长主要由药物（特别是处方药及创新产品）带动，但激烈的竞争将导致其增长速度较京东健康（06618）为慢，预期阿里健康明年3月底止2027财年收入同比增长13%，而京东健康2026年收入增长预计达18%。
+”“27岁打工人常年回购保健品清单”……打开小红书、抖音等社交平台，以保健品为关键词的种草、咨询帖层出不穷，健康食补、营养补充俨然成为全民健康消费新风尚。
 
-该行指出，阿里健康利润率面临压力，原因是收入组合导致毛利率波动，加上持续对医疗人工智能及药物生态系统（如仓储、冷链配送、上游营销等）进行增量投资。
+消费需求的释放也带动行业规模稳步扩容。
 
-此外，医疗人工智能应用（氢离子）及为企业提供基于药品数字化追踪数据的创新解决方案等新兴机会仍处于早期阶段，财务贡献尚待验证。
+中国医药保健品进出口商会数据显示，传统货架电商仍是保健品销售核心阵地，但内容电商的增长势头尤为显著。
 
-鉴于第三方平台业务增长逊预期，以及收入组合导致的毛利率波动与对人工智能及创新药物的增量投资，高盛下调阿里健康2027至2028财年收入预测2%，并下调同期经调整纯利预测18%，同时引入2029财年预测。
+2025年，中国营养保健食品电商渠道销售总额达到1537亿元，继续保持稳健增长态势。
 
-责任编辑：卢昱君
+市场一路向好的同时，行业发展痛点与乱象也随之暴露：不少消费者质疑保健品是“智商税”，难以辨别进口产品真伪，大量中老年群体深陷保健品推销骗局；虚假宣传、功效夸大、贴牌代工、“假洋牌”横行等乱象持续困扰市场。
+
+天津宝恒福豆生物科技集团董事长李宝恒在第十六届中国国际健康产品展览会、2026亚洲天然及营养保健品展上向21世纪经济报道记者直言：“大健康是国家重点战略赛道，全民健康刚需支撑行业长期向好，但目前行业仍处于野蛮生长阶段，各类不合规经营问题多发。
 
 ## 相关推荐
 
-- 2026-06-29 15:51 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 15:56 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 15:47 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 15:50 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 15:59 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 15:33 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 15:54 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 15:46 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 15:38 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 15:53 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 15:35 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 15:38 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 15:38 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 15:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 15:51 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 15:41 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 16:05 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 15:52 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 16:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 16:04 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 15:51 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 16:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 15:47 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 15:55 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 16:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 15:54 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 15:38 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 15:58 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 15:47 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 16:03 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/54380.shtml)
-- 2026-06-29 15:31 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/379298.shtml)
-- 2026-06-29 15:35 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/7777107.shtml)
-- 2026-06-29 15:30 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/723226481415.shtml)
-- 2026-06-29 15:37 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/464067.shtml)
-- 2026-06-29 15:37 - [媒体：中国田径压力与期待并存](http://www.share.kurohicncr.top/Article/details/14954214.shtml)
-- 2026-06-29 15:51 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/096678841624.shtml)
-- 2026-06-29 15:37 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/78227.shtml)
-- 2026-06-29 15:30 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/855008.shtml)
-- 2026-06-29 15:32 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/985290345298.shtml)
-- 2026-06-29 15:51 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/0966510.shtml)
-- 2026-06-29 15:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/601778224691.shtml)
-- 2026-06-29 15:36 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/67759071138.shtml)
-- 2026-06-29 15:52 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/33900.shtml)
-- 2026-06-29 15:44 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/4453831.shtml)
+- 2026-06-29 15:51 - [如何“亲菌子”又“远小人儿”](https://www.share.kurohicncr.top/Article/details/9711110145.shtml)
+- 2026-06-29 15:59 - [苹果回应恋与深空低分](https://www.blog.minike.top/Article/details/39288941388.shtml)
+- 2026-06-29 15:49 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/843636470264.shtml)
+- 2026-06-29 15:40 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.kurohicncr.top/Article/details/110902497111.shtml)
+- 2026-06-29 15:47 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/509107424412.shtml)
+- 2026-06-29 15:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/398501.shtml)
+- 2026-06-29 15:45 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/5652788463.shtml)
+- 2026-06-29 16:04 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/73945.shtml)
+- 2026-06-29 15:59 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/7144018.shtml)
+- 2026-06-29 15:37 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/62939841401.shtml)
+- 2026-06-29 16:00 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/227034915.shtml)
+- 2026-06-29 16:00 - [5万块的威力](https://www.share.minike.top/Article/details/86653188.shtml)
+- 2026-06-29 15:57 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/857877126463.shtml)
+- 2026-06-29 15:40 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/0064051.shtml)
+- 2026-06-29 15:37 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/78720921370.shtml)

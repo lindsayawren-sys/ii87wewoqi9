@@ -1,55 +1,50 @@
-# 贝森特敦促七国集团协助美国打击伊朗资金渠道
+# 特朗普：将与泽连斯基会面 俄罗斯应与乌克兰达成协议
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-核心要点 美国财政部长斯科特・贝森特于周二在七国集团会议上呼吁各国领导人协同美国，斩断支撑伊朗相关恐怖活动的资金链条，合力打击相关势力。 贝森特在巴黎举办的 “杜绝恐怖融资” 会议上发表讲话，出台一套全新准则，推动实施强硬且精准定向的制裁措施。 2026 年 5 月 18 日，美国财政部长斯科特・贝森特抵达巴黎，出席七国集团财长与央行行长会议，为同年 6 月在埃维昂举行的七国集
+中新网6月16日电 据美国有线电视新闻网(CNN)报道，美国总统特朗普16日在法国埃维昂莱班出席七国集团峰会期间表示，他将于当天晚些时候与乌克兰总统泽连斯基会面，并表示俄罗斯应该与乌克兰达成协议。 特朗普称，俄乌两国在冲突中伤亡惨重，他将“尽其所能”解决这一冲突。 七国集团峰会于15日至17日在法国埃维昂莱班举行。
 
 ## 正文
 
-核心要点 美国财政部长斯科特・贝森特于周二在七国集团会议上呼吁各国领导人协同美国，斩断支撑伊朗相关恐怖活动的资金链条，合力打击相关势力。
+中新网6月16日电 据美国有线电视新闻网(CNN)报道，美国总统特朗普16日在法国埃维昂莱班出席七国集团峰会期间表示，他将于当天晚些时候与乌克兰总统泽连斯基会面，并表示俄罗斯应该与乌克兰达成协议。
 
-贝森特在巴黎举办的 “杜绝恐怖融资” 会议上发表讲话，出台一套全新准则，推动实施强硬且精准定向的制裁措施。
+特朗普称，俄乌两国在冲突中伤亡惨重，他将“尽其所能”解决这一冲突。
 
-2026 年 5 月 18 日，美国财政部长斯科特・贝森特抵达巴黎，出席七国集团财长与央行行长会议，为同年 6 月在埃维昂举行的七国集团国家元首及政府首脑峰会做筹备。
-
-贝森特表示：“美国正全力打击敌对势力用于实施恐怖活动的金融网络，我方相信各位出席此次会议，意味着愿意全力与美国并肩行动。
-
-” 他提出具体行动要求：“这就需要欧洲盟友与美国统一行动，针对伊朗采取一系列举措，认定其资金融通相关人员、清查空壳公司与掩护企业、关停相关银行分支机构、瓦解其代理势力。
-
-” “简言之，倘若各国同样对伊朗破坏地区稳定的行径、企图挟持全球经济的恐怖分子、危害社会的贩毒集团以及威胁平民生命安全的各类行为感到愤慨，那么当下正是携手美国采取强力行动的最佳时机。
-
-”责任编辑：郭明煜
+七国集团峰会于15日至17日在法国埃维昂莱班举行。
 
 ## 相关推荐
 
-- 2026-06-29 15:32 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 15:36 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 15:47 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 15:44 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 15:35 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 15:40 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 15:37 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 15:38 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 15:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 15:54 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 15:44 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 15:50 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 15:38 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 15:40 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 15:56 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 15:39 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 15:39 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 15:47 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 15:59 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 15:49 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 15:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 15:37 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 15:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 15:54 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 15:58 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/68765683149.shtml)
-- 2026-06-29 15:48 - [黄金也扛不住了](http://www.share.minike.top/Article/details/481744.shtml)
-- 2026-06-29 15:43 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/967516555.shtml)
-- 2026-06-29 15:32 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/357624874571.shtml)
-- 2026-06-29 15:38 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/4707728660.shtml)
-- 2026-06-29 15:55 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/13093.shtml)
-- 2026-06-29 15:36 - [扬名立万](http://www.share.kurohicncr.top/Article/details/64317.shtml)
-- 2026-06-29 15:42 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/545353516.shtml)
-- 2026-06-29 15:38 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/438282850810.shtml)
-- 2026-06-29 15:34 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/09081537026.shtml)
-- 2026-06-29 15:59 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/248534199.shtml)
-- 2026-06-29 15:35 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/13973410.shtml)
-- 2026-06-29 15:34 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/08346077.shtml)
-- 2026-06-29 15:42 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/822933.shtml)
-- 2026-06-29 15:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/178819742.shtml)
+- 2026-06-29 15:38 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/62194.shtml)
+- 2026-06-29 15:44 - [84岁英国教授成中国网红](http://www.share.minike.top/Article/details/36178217722.shtml)
+- 2026-06-29 15:49 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/09629.shtml)
+- 2026-06-29 15:46 - [链博会上的机器人太全能了](https://www.blog.kurohicncr.top/Article/details/221927566483.shtml)
+- 2026-06-29 15:39 - [千与千寻](http://www.share.kurohicncr.top/Article/details/803136.shtml)
+- 2026-06-29 15:42 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.kurohicncr.top/Article/details/759795460.shtml)
+- 2026-06-29 15:56 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/60360571328.shtml)
+- 2026-06-29 15:56 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/8240103.shtml)
+- 2026-06-29 15:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/494049.shtml)
+- 2026-06-29 15:39 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/93934069092.shtml)
+- 2026-06-29 15:41 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/76158.shtml)
+- 2026-06-29 16:05 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/64457069274.shtml)
+- 2026-06-29 15:45 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/50973675.shtml)
+- 2026-06-29 15:37 - [扬名立万](http://www.blog.minike.top/Article/details/813928339.shtml)
+- 2026-06-29 15:51 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/1955987892.shtml)

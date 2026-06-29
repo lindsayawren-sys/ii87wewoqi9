@@ -1,53 +1,53 @@
-# 低空安全司亮相，为低空经济“起飞”保驾护航
+# 建滔积层板早盘涨超9% 花旗上调其目标价至100港元
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 21:25 来源：三里河 近日，中国民航局官网更新，一个全新的机构——“低空安全司”正式亮相。继2024年底国家发改委设立低空经济发展司之后，又一低空经济相关机构设立，意味着什么？它与低空经济发展司又有哪些区别？这条视频为你讲清。(戴悦 陈庆洋 张尼 赵昕宇） 责任编辑：【程春雨】
+建滔积层板（01888）早盘涨超9%，截至发稿，股价上涨9.04%，现报87.45港元，成交额36.62亿港元。 花旗发布研报称，上调建滔积层板（01888）2026-2028年盈利预测7-16%，目标价由80港元升至100港元，以反映AI玻纤布盈利能力强于预期。花旗在过去四个月内由20.5港元起多次上调目标价，公司股价年初至今亦升了五倍，该行相信是受电子玻纤布及覆铜板的平均售
 
 ## 正文
 
-发布时间：2026年05月19日 21:25 来源：三里河 近日，中国民航局官网更新，一个全新的机构——“低空安全司”正式亮相。
+建滔积层板（01888）早盘涨超9%，截至发稿，股价上涨9.04%，现报87.45港元，成交额36.62亿港元。
 
-继2024年底国家发改委设立低空经济发展司之后，又一低空经济相关机构设立，意味着什么？
+花旗发布研报称，上调建滔积层板（01888）2026-2028年盈利预测7-16%，目标价由80港元升至100港元，以反映AI玻纤布盈利能力强于预期。
 
-它与低空经济发展司又有哪些区别？
+花旗在过去四个月内由20.5港元起多次上调目标价，公司股价年初至今亦升了五倍，该行相信是受电子玻纤布及覆铜板的平均售价急升带动，令其盈利及增长预期有所改善。
 
-这条视频为你讲清。
+该行指，在与中国AI玻纤布行业龙头宏和电子材料会面后，发现由于织布机供应有限，电子玻纤布平均售价在2026年下半年将维持上升，以及AI玻纤布盈利能力高于预期，都是对建滔积层板的启示。
 
-(戴悦 陈庆洋 张尼 赵昕宇） 责任编辑：【程春雨】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 15:31 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 15:39 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 15:45 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 15:46 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 15:45 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 15:55 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 15:46 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 15:34 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 15:52 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 15:56 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 15:37 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 15:33 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 15:57 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 15:47 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 16:01 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 15:47 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 16:05 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 15:56 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 15:49 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 16:00 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 15:47 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 15:51 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 15:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 15:55 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 16:06 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:32 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/309074427.shtml)
-- 2026-06-29 15:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/07111036773.shtml)
-- 2026-06-29 15:46 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/748898.shtml)
-- 2026-06-29 15:48 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/69905449516.shtml)
-- 2026-06-29 15:41 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/9010693.shtml)
-- 2026-06-29 15:52 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/190171381.shtml)
-- 2026-06-29 15:46 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/7395502.shtml)
-- 2026-06-29 15:39 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/310291732.shtml)
-- 2026-06-29 15:51 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/59734.shtml)
-- 2026-06-29 15:36 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/1267045.shtml)
-- 2026-06-29 15:48 - [当地回应林区违规放羊遭豹啃食](http://www.blog.minike.top/Article/details/812858.shtml)
-- 2026-06-29 15:59 - [工作靠AI算不算职场作弊](http://www.share.kurohicncr.top/Article/details/0625559.shtml)
-- 2026-06-29 15:56 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/66015809.shtml)
-- 2026-06-29 15:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/6768601.shtml)
-- 2026-06-29 15:39 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/8091518.shtml)
+- 2026-06-29 15:38 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/741846595650.shtml)
+- 2026-06-29 16:00 - [欧洲人驾车200公里抢购中国空调](http://www.blog.kurohicncr.top/Article/details/23641720.shtml)
+- 2026-06-29 15:39 - [首尔商铺禁止洪明甫入内](http://www.share.kurohicncr.top/Article/details/9998258.shtml)
+- 2026-06-29 15:48 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/25041126595.shtml)
+- 2026-06-29 16:05 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/36713.shtml)
+- 2026-06-29 15:44 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/233349551769.shtml)
+- 2026-06-29 15:54 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/345148519.shtml)
+- 2026-06-29 15:56 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/060790093.shtml)
+- 2026-06-29 16:01 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/174138372461.shtml)
+- 2026-06-29 15:39 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/92960259591.shtml)
+- 2026-06-29 16:01 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/7413077.shtml)
+- 2026-06-29 15:40 - [极限挑战第一季](http://www.blog.minike.top/Article/details/01159695535.shtml)
+- 2026-06-29 15:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/688666245.shtml)
+- 2026-06-29 15:52 - [第一炉香](https://www.share.kurohicncr.top/Article/details/15291823.shtml)
+- 2026-06-29 15:54 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/7676853.shtml)

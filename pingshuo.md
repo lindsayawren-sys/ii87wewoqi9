@@ -1,59 +1,48 @@
-# 特朗普过去24小时都忙了什么？（2026-05-19）
+# 领益智造寻求通过香港上市融资至多82.6亿港元
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 1． 不考虑向德黑兰作出任何让步——特朗普表示，在收到伊朗方面最新的并未“令人满意”的和平谈判回应后，他“不考虑”向德黑兰作出任何让步。他还警告称，伊朗已然知晓“即将发生什么”。当被问及他上周五关于可能接受伊朗“20年内暂停铀浓缩”的说法时，他插话表示：“我现在什么都不接受。” 2． 应中东
+据提交给香港交易所的文件，广东领益智造股份有限公司香港上市拟发行8.118亿股股票，每股价格最高可在10.18港元。 计算显示，领益智造预计将募资至多82.6亿港元（11亿美元），该该公司将于6月26日挂牌交易，国泰海通为独家保荐人。责任编辑：李桐
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+据提交给香港交易所的文件，广东领益智造股份有限公司香港上市拟发行8.118亿股股票，每股价格最高可在10.18港元。
 
-来源：金十数据 1． 不考虑向德黑兰作出任何让步——特朗普表示，在收到伊朗方面最新的并未“令人满意”的和平谈判回应后，他“不考虑”向德黑兰作出任何让步。
+计算显示，领益智造预计将募资至多82.6亿港元（11亿美元），该该公司将于6月26日挂牌交易，国泰海通为独家保荐人。
 
-他还警告称，伊朗已然知晓“即将发生什么”。
-
-当被问及他上周五关于可能接受伊朗“20年内暂停铀浓缩”的说法时，他插话表示：“我现在什么都不接受。
-
-” 2． 应中东盟友请求 取消原定19日对伊军事打击——特朗普表示，取消原定于明天（19日）对伊朗的军事打击计划，中东国家认为美伊能达成具有高度可接受且其中包含伊朗不得拥有核武的协议。
-
-这些国家要求给予一个两到三天的短暂窗口期。
-
-若未能达成协议，随时准备对伊朗进行大规模打击。
-
-3． 宣布扩大折扣药品定价计划——特朗普宣布扩大折扣药品定价计划，可获得的折扣药物数量将增加七倍，TrumpRx网站将增加超过600种仿制药。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 15:51 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 15:43 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 15:37 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 15:59 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 15:50 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 15:32 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 15:32 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 15:34 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 15:37 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 15:53 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 15:34 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 15:50 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 15:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 15:48 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 15:47 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 16:03 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 15:56 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 15:59 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 15:54 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 16:03 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 15:55 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 15:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 15:54 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 15:52 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 15:46 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/57024963439.shtml)
-- 2026-06-29 15:56 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/17786898613.shtml)
-- 2026-06-29 15:49 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/6708728049.shtml)
-- 2026-06-29 15:31 - [急先锋](http://www.share.minike.top/Article/details/29637041.shtml)
-- 2026-06-29 15:59 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/45038.shtml)
-- 2026-06-29 15:49 - [网警提醒4类高考查分陷阱考生速看](http://www.share.kurohicncr.top/Article/details/6833480901.shtml)
-- 2026-06-29 15:52 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/1248287804.shtml)
-- 2026-06-29 15:50 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/319894536.shtml)
-- 2026-06-29 15:44 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/5476409656.shtml)
-- 2026-06-29 15:43 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/0893080295.shtml)
-- 2026-06-29 15:32 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/9025161147.shtml)
-- 2026-06-29 15:46 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/7470086024.shtml)
-- 2026-06-29 15:42 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/72689431757.shtml)
-- 2026-06-29 15:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/43362762012.shtml)
-- 2026-06-29 15:50 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/943979844.shtml)
+- 2026-06-29 15:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/887588006.shtml)
+- 2026-06-29 15:57 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/51640414.shtml)
+- 2026-06-29 15:50 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/35755240801.shtml)
+- 2026-06-29 16:04 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/914390472.shtml)
+- 2026-06-29 15:40 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/23882395296.shtml)
+- 2026-06-29 15:48 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/596860715432.shtml)
+- 2026-06-29 15:58 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/662679.shtml)
+- 2026-06-29 15:54 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/374550918863.shtml)
+- 2026-06-29 15:58 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/26948915.shtml)
+- 2026-06-29 15:52 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/87686.shtml)
+- 2026-06-29 15:48 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/762733.shtml)
+- 2026-06-29 15:52 - [周深双眼皮贴又掉了](https://www.blog.kurohicncr.top/Article/details/57774728.shtml)
+- 2026-06-29 15:41 - [发反科学内容为何会有200万粉丝](https://www.blog.kurohicncr.top/Article/details/1715595.shtml)
+- 2026-06-29 16:01 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/8942442944.shtml)
+- 2026-06-29 15:47 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/546524892.shtml)

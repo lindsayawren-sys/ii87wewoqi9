@@ -1,51 +1,56 @@
-# 全球股市随收益率与油价降温
+# 拒绝“发布会通胀”，理想汽车李想：没重要消息的发布会一律不办
 
-> 更新时间：2026-06-29 16:00:02 UTC+8
+> 更新时间：2026-06-29 16:06:02 UTC+8
 
 ## 摘要
 
-受油价上涨和债券收益率攀升影响，全球股市追随华尔街的跌势。投资者正将英伟达即将公布的财报视为衡量AI驱动科技股领导地位的风向标。市场情绪在通胀担忧与科技股前景之间摇摆不定。责任编辑：张俊 SF065
+6月16日，理想汽车创始人、董事长兼CEO李想发文回应“理想为什么不多开发布会”。 李想表示，现在行业有一种“发布会通胀”的现象。 他认为，发布会越开越多，但每一场的信息密度越来越低。一款车从预热、亮相、预售、上市、改款，能开好几场发布会，但其实用户的耐心是有限的。 “我对发布会的标准很简单：如果你不开这场发布会，用户会少知道一件重要的事，那它就该开；如果开完又没有给用户更多有
 
 ## 正文
 
-受油价上涨和债券收益率攀升影响，全球股市追随华尔街的跌势。
+6月16日，理想汽车创始人、董事长兼CEO李想发文回应“理想为什么不多开发布会”。
 
-投资者正将英伟达即将公布的财报视为衡量AI驱动科技股领导地位的风向标。
+李想表示，现在行业有一种“发布会通胀”的现象。
 
-市场情绪在通胀担忧与科技股前景之间摇摆不定。
+他认为，发布会越开越多，但每一场的信息密度越来越低。
 
-责任编辑：张俊 SF065
+一款车从预热、亮相、预售、上市、改款，能开好几场发布会，但其实用户的耐心是有限的。
+
+“我对发布会的标准很简单：如果你不开这场发布会，用户会少知道一件重要的事，那它就该开；如果开完又没有给用户更多有价值的信息，那它就不该存在。
+
+” 李想提到，最近理想汽车三场发布会的主题都是完全独立的。
+
+“有人嫌我们发布会开太少、太短。
+
+说实话我宁愿用户觉得没看够，也不想让用户觉得‘怎么又来了？
 
 ## 相关推荐
 
-- 2026-06-29 15:32 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 15:51 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 15:43 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 15:37 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 15:30 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 15:43 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 15:57 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 15:36 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 15:56 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 15:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 16:00 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 15:47 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 15:40 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 15:59 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 16:03 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 15:38 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 16:02 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 15:56 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 15:37 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 15:57 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 15:47 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 15:53 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 15:36 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:58 - [周杰伦演唱会真的好多人啊](https://www.blog.minike.top/Article/details/05410396450.shtml)
-- 2026-06-29 15:47 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/44927182305.shtml)
-- 2026-06-29 15:33 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/5410511.shtml)
-- 2026-06-29 15:55 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/873791191526.shtml)
-- 2026-06-29 15:59 - [欧盟为什么越来越倾向贸易保护](http://www.blog.minike.top/Article/details/2882630427.shtml)
-- 2026-06-29 15:46 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/86888.shtml)
-- 2026-06-29 15:55 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/24037917390.shtml)
-- 2026-06-29 15:54 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/394920029.shtml)
-- 2026-06-29 15:52 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/762546.shtml)
-- 2026-06-29 15:36 - [德国VS巴拉圭前瞻](http://www.share.minike.top/Article/details/43665171555.shtml)
-- 2026-06-29 15:33 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/5681955054.shtml)
-- 2026-06-29 15:39 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/8000435216.shtml)
-- 2026-06-29 15:42 - [恋与深空发放补偿未得到玩家认可](https://www.blog.minike.top/Article/details/9563925695.shtml)
-- 2026-06-29 15:31 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/85835.shtml)
-- 2026-06-29 15:53 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/80797740355.shtml)
+- 2026-06-29 15:57 - [流金岁月](http://www.share.kurohicncr.top/Article/details/66172890859.shtml)
+- 2026-06-29 15:38 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/83927529.shtml)
+- 2026-06-29 15:40 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/6263899839.shtml)
+- 2026-06-29 15:52 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/0648843.shtml)
+- 2026-06-29 16:00 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/3156519777.shtml)
+- 2026-06-29 15:39 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/438479745953.shtml)
+- 2026-06-29 15:52 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/31214246.shtml)
+- 2026-06-29 15:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/400976619091.shtml)
+- 2026-06-29 15:47 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/6355967.shtml)
+- 2026-06-29 15:54 - [斛珠夫人](https://www.share.minike.top/Article/details/457159819447.shtml)
+- 2026-06-29 15:46 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/5092656.shtml)
+- 2026-06-29 15:47 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/0968188.shtml)
+- 2026-06-29 15:49 - [吴建豪老婆](http://www.blog.minike.top/Article/details/502437170007.shtml)
+- 2026-06-29 15:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/523140754287.shtml)
+- 2026-06-29 15:42 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/978232.shtml)
