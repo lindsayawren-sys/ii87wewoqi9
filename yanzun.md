@@ -1,56 +1,60 @@
-# A股六大存储龙头，齐创历史新高！
+# 昆明海关涉案财物普通仓库租赁服务项目（二次）招标公告
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-当地时间6月24日美股盘后，美光科技公布截至5月31日的2026财年第三财季财报，业绩远超市场预期，美光科技盘后一度大涨逾16%。 今天早盘，A股存储芯片板块大涨，兆易创新、江波龙、德明利、佰维存储、香农芯创、普冉股份等六只市值超千亿的存储龙头股集合竞价均迎来上涨，股价均创历史新高。 美光科技第三财季财报显示，报告期内，美光科技营业收入同比增长约346%至414.6亿美元，较分
+项目概况 昆明海关涉案财物普通仓库租赁服务项目 招标项目的潜在投标人应在“华辰招标”微信公众号或昆明市北京路900号颐高数码中心A座15楼获取招标文件，并于2026年05月20日 09点30分(北京时间)前递交投标文件。 一、项目基本情况 项目编号：HCZB03202603009项目名称：昆明海关涉案财物普通仓库租赁服务项目 预算金额：120.000000 万元(人民币) 最高
 
 ## 正文
 
-当地时间6月24日美股盘后，美光科技公布截至5月31日的2026财年第三财季财报，业绩远超市场预期，美光科技盘后一度大涨逾16%。
+项目概况 昆明海关涉案财物普通仓库租赁服务项目 招标项目的潜在投标人应在“华辰招标”微信公众号或昆明市北京路900号颐高数码中心A座15楼获取招标文件，并于2026年05月20日 09点30分(北京时间)前递交投标文件。
 
-今天早盘，A股存储芯片板块大涨，兆易创新、江波龙、德明利、佰维存储、香农芯创、普冉股份等六只市值超千亿的存储龙头股集合竞价均迎来上涨，股价均创历史新高。
+一、项目基本情况 项目编号：HCZB03202603009项目名称：昆明海关涉案财物普通仓库租赁服务项目 预算金额：120.000000 万元(人民币) 最高限价(如有)：120.000000 万元(人民币) 采购需求： 服务内容：提供使用面积800平方米及以上的仓库场地租赁、消防安保、水电配套、视频监控等服务。
 
-美光科技第三财季财报显示，报告期内，美光科技营业收入同比增长约346%至414.6亿美元，较分析师预期高约16%，非GAAP口径下调整后每股收益（EPS）同比增长超12倍至25.11美元，较分析师预期高20%以上。
+具体详见招标文件“第三章 采购需求”。
 
-第三财季调整后毛利率达84.9%，为一年前的两倍多，同样高于预期，和营收、EPS均创单季最高纪录，且较前一财季加速增长。
+服务要求：出租仓库应产权清晰(供应商作为出租人应依法享有出租标的的合法所有权或合法占有权或合法出租权)，并能满足采购文件及采购人实际使用要求。
 
-国信证券表示，AI需求推升存储需求，海外原厂聚焦高附加值服务器产品，需求外溢及国产化需求打开国内企业级窗口及手机品牌渗透率提升机遇，随着产业链分工重构，国产存储厂商在上行周期中有望实现“利润增长—客户加速导入—产品结构升级”的正向循环。
+合同履行期限：合同签订之日起三年；合同一年一签，经采购人考核合格后续签下一年度合同。
 
-此外，海外厂商退出，国产利基存储厂商有望填补2D NAND和利基DRAM等市场的需求红利。
+本项目( 不接受 )联合体投标。
 
-当前行业景气度持续，建议关注存储模组厂商以及利基存储厂商。
+二、申请人的资格要求： 1.满足《中华人民共和国政府采购法》第二十二条规定； 2.落实政府采购政策需满足的资格要求： 本项目属于专门面向中小企业采购的项目，供应商应为中小微企业，须按要求提供《中小企业声明函》(监狱企业、残疾人福利性单位视同小型或微型企业)。
 
-（文中行情图片来自同花顺 封面图为AI生成）责任编辑：石秀珍 SF183
+采购项目所属行业：租赁和商务服务业。
 
 ## 相关推荐
 
-- 2026-06-30 06:27 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 06:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 06:32 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 06:27 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-30 06:30 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 06:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 06:36 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 06:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 06:44 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 06:44 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 06:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 06:51 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 06:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 06:30 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 06:54 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 06:45 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 06:34 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 06:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 06:54 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 06:49 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 06:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 06:57 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 06:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 06:55 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:49 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/8425908.shtml)
-- 2026-06-30 06:31 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/62491.shtml)
-- 2026-06-30 06:45 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/824384578447.shtml)
-- 2026-06-30 06:43 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/57694.shtml)
-- 2026-06-30 06:29 - [孙兴慜道歉](http://www.share.minike.top/Article/details/65632532.shtml)
-- 2026-06-30 06:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/7060994155.shtml)
-- 2026-06-30 06:37 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/456875267.shtml)
-- 2026-06-30 06:26 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/31786.shtml)
-- 2026-06-30 06:35 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/692478.shtml)
-- 2026-06-30 06:49 - [日本反击率先破门](https://www.blog.minike.top/Article/details/36323.shtml)
-- 2026-06-30 06:25 - [天道](http://www.blog.kurohicncr.top/Article/details/542730.shtml)
-- 2026-06-30 06:46 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/6871038.shtml)
-- 2026-06-30 06:28 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/704664697331.shtml)
-- 2026-06-30 06:48 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/975437.shtml)
-- 2026-06-30 06:26 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/1217666.shtml)
+- 2026-06-30 06:36 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/730087052.shtml)
+- 2026-06-30 06:34 - [恋与深空 日服](http://www.share.minike.top/Article/details/45334149918.shtml)
+- 2026-06-30 06:52 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/658931.shtml)
+- 2026-06-30 06:35 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/97001656560.shtml)
+- 2026-06-30 06:52 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/73347388.shtml)
+- 2026-06-30 06:59 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/68076.shtml)
+- 2026-06-30 06:36 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/74308.shtml)
+- 2026-06-30 06:41 - [流金岁月](https://www.share.kurohicncr.top/Article/details/069757302.shtml)
+- 2026-06-30 06:34 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/3473515841.shtml)
+- 2026-06-30 06:34 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/15927074385.shtml)
+- 2026-06-30 06:53 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/406501012672.shtml)
+- 2026-06-30 06:30 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/3605860956.shtml)
+- 2026-06-30 06:51 - [美人鱼](http://www.share.kurohicncr.top/Article/details/34767.shtml)
+- 2026-06-30 06:40 - [日本16强魔咒](https://www.share.minike.top/Article/details/68274714852.shtml)
+- 2026-06-30 06:58 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/30540714.shtml)

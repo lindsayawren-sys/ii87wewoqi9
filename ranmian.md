@@ -1,61 +1,58 @@
-# 第十五届巴黎中国曲艺节在巴黎举办
+# 华致酒行发布2025业绩报告：现金流大增 新增门店400余家
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网巴黎6月24日电 当地时间6月19日至22日，第十五届巴黎中国曲艺节在巴黎举办。 6月19日恰逢端午节，“舌尖上的曲艺——巴黎中国曲艺节端午雅集”为曲艺节拉开序幕。长子鼓书、四川清音、杭州小热昏、东北二人转轮番登场，以生动精彩的表演讲述中国各地风土人情与饮食文化。 演出间隙，从国内专程赶来的大厨现场展示山西刀削面和龙须面的制作过程，并邀请观众走上前来亲手体验。大家一边欣赏
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月28日晚，华致酒行（300755.SZ）发布2025年度业绩报告及2026年一季度报告。报告显示，2025年华致酒行实现营收58.95亿元，预计归属于上市公司股东的净利润亏损3.69亿元。此数据与前期华致酒行公开披露的业绩预告区间范围吻合。业绩亏损主要系报告期内计提大额存货跌价准备，以及行业需求萎缩导致
 
 ## 正文
 
-中新网巴黎6月24日电 当地时间6月19日至22日，第十五届巴黎中国曲艺节在巴黎举办。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-6月19日恰逢端午节，“舌尖上的曲艺——巴黎中国曲艺节端午雅集”为曲艺节拉开序幕。
+4月28日晚，华致酒行（300755.SZ）发布2025年度业绩报告及2026年一季度报告。
 
-长子鼓书、四川清音、杭州小热昏、东北二人转轮番登场，以生动精彩的表演讲述中国各地风土人情与饮食文化。
+报告显示，2025年华致酒行实现营收58.95亿元，预计归属于上市公司股东的净利润亏损3.69亿元。
 
-演出间隙，从国内专程赶来的大厨现场展示山西刀削面和龙须面的制作过程，并邀请观众走上前来亲手体验。
+此数据与前期华致酒行公开披露的业绩预告区间范围吻合。
 
-大家一边欣赏表演，一边了解各地美食背后的故事与民俗风情。
+业绩亏损主要系报告期内计提大额存货跌价准备，以及行业需求萎缩导致收入下滑、毛利率收窄。
 
-艺术家们还与观众共同包粽子、话端午，分享端午节的由来和节庆传统。
+2025年，中国酒类市场进入深度调整期，渠道库存周转压力加大。
 
-6月20日晚举行的“牡丹艺韵——中国曲艺牡丹奖专场演出”将本届曲艺节推向高潮。
+白酒行业受多重因素影响，市场需求变化显著，商务宴请、礼品馈赠场景减少，传统团购型客户需求萎缩。
 
-演出开始前，巴黎中国文化中心副主任朱晓云和中国曲协分党组书记、驻会副主席杨发航分别致辞。
+反观市场热度较高的情形，则表现为线上平台选购呈现指数级爆发，长尾消费者成为白酒购买主力军。
 
 ## 相关推荐
 
-- 2026-06-30 06:33 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 06:39 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 06:41 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 06:28 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 06:35 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 06:52 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 06:41 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 06:31 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 06:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 06:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 06:36 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 06:38 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 06:41 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 06:39 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-30 06:34 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 06:44 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 06:34 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 06:49 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 06:32 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 06:53 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 06:42 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 06:47 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 06:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 06:48 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 06:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 06:32 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 06:44 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:52 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/47710526.shtml)
-- 2026-06-30 06:39 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/15050071.shtml)
-- 2026-06-30 06:35 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/19331.shtml)
-- 2026-06-30 06:52 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/263878950504.shtml)
-- 2026-06-30 06:32 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/4902444251.shtml)
-- 2026-06-30 06:51 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/512274212250.shtml)
-- 2026-06-30 06:36 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/12493.shtml)
-- 2026-06-30 06:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/322539.shtml)
-- 2026-06-30 06:37 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/4342551.shtml)
-- 2026-06-30 06:41 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/37074432.shtml)
-- 2026-06-30 06:28 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/16515140092.shtml)
-- 2026-06-30 06:46 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/870846.shtml)
-- 2026-06-30 06:52 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/92881.shtml)
-- 2026-06-30 06:30 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/5427122963.shtml)
-- 2026-06-30 06:51 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/39586984.shtml)
+- 2026-06-30 06:34 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/73617.shtml)
+- 2026-06-30 06:57 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/622642.shtml)
+- 2026-06-30 07:00 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/95627906263.shtml)
+- 2026-06-30 06:45 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/7855572.shtml)
+- 2026-06-30 06:36 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/262654866611.shtml)
+- 2026-06-30 06:35 - [千香](http://www.share.kurohicncr.top/Article/details/70574027553.shtml)
+- 2026-06-30 06:33 - [点菜也要教吗](http://www.blog.minike.top/Article/details/03383.shtml)
+- 2026-06-30 06:53 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/9875934.shtml)
+- 2026-06-30 06:49 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/4982907193.shtml)
+- 2026-06-30 06:42 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/8722353106.shtml)
+- 2026-06-30 06:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/5988091.shtml)
+- 2026-06-30 06:43 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/6453222.shtml)
+- 2026-06-30 06:33 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/3207663012.shtml)
+- 2026-06-30 06:45 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/527290270.shtml)
+- 2026-06-30 06:42 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/847492.shtml)

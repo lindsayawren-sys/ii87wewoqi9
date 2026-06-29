@@ -1,43 +1,56 @@
-# 天山铝业：2026年7月16日召开2026年第二次临时股东会
+# 大摩：中国石油股份给予“增持”评级 目标价13.25港元
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月24日，天山铝业发布公告称，公司将于2026年07月16日召开2026年第二次临时股东会。
+摩根士丹利发布研报称，中国石油股份（00857）首季业绩逊预期，每股盈利为0.26元人民币，较该行预测低4%，主要受累于实现油价较预期低14%。但该行认为是由于定价时间滞后问题，导致首季实现油价相对布伦特期油折让幅度较大，预期有关情况将于第二季正常化。给予该股“增持”评级；目标价13.25港元。 报告指出，天然气、炼油、化工及分销板块业绩均显著高于预期。该行相信，尽管名义盈利低
 
 ## 正文
 
-证券日报网讯 6月24日，天山铝业发布公告称，公司将于2026年07月16日召开2026年第二次临时股东会。
+摩根士丹利发布研报称，中国石油股份（00857）首季业绩逊预期，每股盈利为0.26元人民币，较该行预测低4%，主要受累于实现油价较预期低14%。
+
+但该行认为是由于定价时间滞后问题，导致首季实现油价相对布伦特期油折让幅度较大，预期有关情况将于第二季正常化。
+
+给予该股“增持”评级；目标价13.25港元。
+
+报告指出，天然气、炼油、化工及分销板块业绩均显著高于预期。
+
+该行相信，尽管名义盈利低于预期，实际营运结果应显著优于预期。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:44 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 06:32 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 06:27 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 06:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 06:39 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 06:34 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 06:37 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 06:29 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 06:51 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 06:32 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 06:31 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 06:40 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 06:58 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 06:48 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 06:36 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 06:32 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 06:40 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 06:35 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 06:47 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 06:47 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 06:44 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 06:48 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 06:48 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 06:36 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 06:32 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:25 - [金刚川](http://www.share.kurohicncr.top/Article/details/8048251.shtml)
-- 2026-06-30 06:50 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/828290.shtml)
-- 2026-06-30 06:29 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/87525310559.shtml)
-- 2026-06-30 06:44 - [85花告别古偶](http://www.share.minike.top/Article/details/55612136501.shtml)
-- 2026-06-30 06:53 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/69198.shtml)
-- 2026-06-30 06:48 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/396813708440.shtml)
-- 2026-06-30 06:45 - [千香](http://www.blog.kurohicncr.top/Article/details/09797088.shtml)
-- 2026-06-30 06:45 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/75181.shtml)
-- 2026-06-30 06:30 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/70460.shtml)
-- 2026-06-30 06:49 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/9350456.shtml)
-- 2026-06-30 06:39 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/26444.shtml)
-- 2026-06-30 06:39 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/58905.shtml)
-- 2026-06-30 06:27 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/18049.shtml)
-- 2026-06-30 06:39 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/0181586.shtml)
-- 2026-06-30 06:36 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/38864.shtml)
+- 2026-06-30 06:37 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/506704.shtml)
+- 2026-06-30 06:35 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/666575.shtml)
+- 2026-06-30 06:57 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/5875941.shtml)
+- 2026-06-30 06:56 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/6092076618.shtml)
+- 2026-06-30 06:47 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/39976.shtml)
+- 2026-06-30 06:59 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/84610715.shtml)
+- 2026-06-30 06:57 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/5495410576.shtml)
+- 2026-06-30 06:57 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/65745.shtml)
+- 2026-06-30 06:50 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/5581406284.shtml)
+- 2026-06-30 06:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/7938622485.shtml)
+- 2026-06-30 06:50 - [绘画区你赢了](http://www.blog.minike.top/Article/details/43637141190.shtml)
+- 2026-06-30 06:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/34003281531.shtml)
+- 2026-06-30 06:30 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/446062074305.shtml)
+- 2026-06-30 06:31 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/722302658007.shtml)
+- 2026-06-30 06:41 - [感动全网的699分女生想报考清华](https://www.blog.kurohicncr.top/Article/details/52524952.shtml)

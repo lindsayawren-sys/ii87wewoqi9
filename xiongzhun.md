@@ -1,59 +1,60 @@
-# 台陆委会称“台湾人几乎不吃凤梨释迦”言论令岛内哗然 国台办回应
+# 外交部领事保护中心提醒“五一”假期出境中国公民加强安全防范
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 17:03 来源：中国新闻网 6月24日，国务院台办举行例行新闻发布会。有记者问：就在大陆积极为台湾部分县市的凤梨释迦等农渔产品拓展销路之际，台陆委会发言人梁文杰近日称，“凤梨释迦台湾人几乎不吃，可以说是完全‘仰大陆鼻息’的农产品”，引起岛内舆论哗然，认为这是一味政治操弄，根本不管台湾农民生计。请问发言人对此有何评论？ 发言人张晗表示，民进党当
+中新网4月29日电 据领事直通车微信公众号消息，“五一”假期将至，外交部领事保护中心提醒出境中国公民树牢安全意识，防范各类风险，平安顺利出行。 一、了解海外安全形势 提前通过中国领事服务网、“领事直通车”新媒体平台、中国驻外使领馆网站等渠道，了解目的地风险提示信息、涉外国人管理法规、入出境要求等，特别注意关于禁止、限制携带物品、药品、现金等事项要求，事先确认护照、签证等有效期，
 
 ## 正文
 
-发布时间：2026年06月24日 17:03 来源：中国新闻网 6月24日，国务院台办举行例行新闻发布会。
+中新网4月29日电 据领事直通车微信公众号消息，“五一”假期将至，外交部领事保护中心提醒出境中国公民树牢安全意识，防范各类风险，平安顺利出行。
 
-有记者问：就在大陆积极为台湾部分县市的凤梨释迦等农渔产品拓展销路之际，台陆委会发言人梁文杰近日称，“凤梨释迦台湾人几乎不吃，可以说是完全‘仰大陆鼻息’的农产品”，引起岛内舆论哗然，认为这是一味政治操弄，根本不管台湾农民生计。
+一、了解海外安全形势 提前通过中国领事服务网、“领事直通车”新媒体平台、中国驻外使领馆网站等渠道，了解目的地风险提示信息、涉外国人管理法规、入出境要求等，特别注意关于禁止、限制携带物品、药品、现金等事项要求，事先确认护照、签证等有效期，留存重要旅行证件复印件。
 
-请问发言人对此有何评论？
+避免前往安全风险高、社会治安不靖以及近期发生过恐袭、骚乱或大规模游行、示威的国家和地区。
 
-发言人张晗表示，民进党当局一贯罔顾民生、损害民利，他们不仅不关心、不在意、不解决岛内基层农渔民的生计问题，还挖苦、轻视、贬损农渔业者的劳动成果，攻击、污蔑、抹黑大陆的好意善意。
+当前，中东地区军事冲突延宕，伊朗安全形势仍然复杂严峻。
 
-公道自在人心，其胡作非为已在岛内激起民怨。
+再次提醒中国公民暂勿前往伊朗，仍在当地中国公民坚持底线思维，加强安全防范，避免靠近军事等敏感设施，尽快转移至安全地区。
 
-民进党当局如不停止政治操弄，停止阻限两岸交流合作，必遭民意更大反噬。
+二、强化安全风险意识增强自身“海外安全第一责任人”意识，提升安全风险防范应对能力，及时配置海外出行所需保险。
 
-(记者 刘子衿 制作 侯诗蕊） 责任编辑：【罗攀】
+遵守当地法律法规，尊重当地宗教信仰和风俗习惯，文明参观游览，避免前往未开发、缺乏安全保障、有禁令标识区域。
+
+提前了解并严格遵照当地拍照、录像或使用无人机规定要求，不在敏感区域拍摄“打卡”。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 06:24 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 06:29 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 06:40 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 06:25 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 06:52 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 06:46 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 06:48 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 06:39 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 06:31 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 06:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 06:31 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 06:54 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 06:43 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 06:44 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 06:53 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 06:31 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 06:31 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 06:58 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 06:31 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 06:55 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 06:59 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 06:56 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 06:59 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 06:39 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 06:41 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 06:53 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 06:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 06:39 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/11089.shtml)
-- 2026-06-30 06:25 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/693137785.shtml)
-- 2026-06-30 06:43 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/9931464.shtml)
-- 2026-06-30 06:24 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/796068841.shtml)
-- 2026-06-30 06:26 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/597903606.shtml)
-- 2026-06-30 06:42 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/23754711346.shtml)
-- 2026-06-30 06:49 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/851427276.shtml)
-- 2026-06-30 06:38 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/9273067.shtml)
-- 2026-06-30 06:46 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/193735.shtml)
-- 2026-06-30 06:43 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/4481992.shtml)
-- 2026-06-30 06:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/3563498.shtml)
-- 2026-06-30 06:39 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/121182.shtml)
-- 2026-06-30 06:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/62341584.shtml)
-- 2026-06-30 06:52 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/4611666141.shtml)
-- 2026-06-30 06:53 - [日本进球](http://www.share.kurohicncr.top/Article/details/75729730.shtml)
+- 2026-06-30 06:34 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/01810.shtml)
+- 2026-06-30 06:31 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/1834118343.shtml)
+- 2026-06-30 06:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/303749133.shtml)
+- 2026-06-30 06:40 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/56831155414.shtml)
+- 2026-06-30 06:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/43920068776.shtml)
+- 2026-06-30 06:35 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/877273554235.shtml)
+- 2026-06-30 06:31 - [刘宇宁高情商化解谁站C位](https://www.share.minike.top/Article/details/902475.shtml)
+- 2026-06-30 06:49 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/6293997.shtml)
+- 2026-06-30 06:57 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/255956217011.shtml)
+- 2026-06-30 06:45 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/127198.shtml)
+- 2026-06-30 06:56 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/17639280229.shtml)
+- 2026-06-30 06:35 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/160366847.shtml)
+- 2026-06-30 06:58 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/283151360.shtml)
+- 2026-06-30 06:37 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/888053922953.shtml)
+- 2026-06-30 06:45 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/438093157394.shtml)

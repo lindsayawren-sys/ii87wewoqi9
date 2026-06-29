@@ -1,54 +1,61 @@
-# 金价下跌 价格可能还有进一步下跌空间
+# 受权发布丨中华人民共和国社会救助法
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-亚洲时段早盘金价下跌。现货黄金下跌0.2%，报每盎司4，018.77美元。虽然市场预计金价在跌至每盎司4，000美元后会反弹，但凯投宏观的Hamad Hussain认为，这种贵金属在未来18个月内仍有进一步下跌的空间。他指出，美联储加息的前景将推高实际收益率并令金价承压。该经济学家表示，股市潜在的暴跌也可能对金价造成更大的下行压力，因为在股市突然遭到抛售期间，投资者通常不得不出
+新华社北京4月30日电 中华人民共和国社会救助法 (2026年4月30日第十四届全国人民代表大会常务委员会第二十二次会议通过) 目录 第一章 总则 第二章 救助对象和措施 第三章 救助程序 第四章 社会力量参与 第五章 救助监督和保障 第六章 法律责任 第七章 附则 第一章 总则 第一条 为了保障公民基本生活，让人民共享改革发展成果，健全社会救助体系，促进社会公平，维护社会和谐
 
 ## 正文
 
-亚洲时段早盘金价下跌。
+新华社北京4月30日电 中华人民共和国社会救助法 (2026年4月30日第十四届全国人民代表大会常务委员会第二十二次会议通过) 目录 第一章 总则 第二章 救助对象和措施 第三章 救助程序 第四章 社会力量参与 第五章 救助监督和保障 第六章 法律责任 第七章 附则 第一章 总则 第一条 为了保障公民基本生活，让人民共享改革发展成果，健全社会救助体系，促进社会公平，维护社会和谐稳定，根据宪法，制定本法。
 
-现货黄金下跌0.2%，报每盎司4，018.77美元。
+第二条 国家建立和完善社会救助制度，依法保障公民从国家和社会获得物质帮助和救助服务的权利。
 
-虽然市场预计金价在跌至每盎司4，000美元后会反弹，但凯投宏观的Hamad Hussain认为，这种贵金属在未来18个月内仍有进一步下跌的空间。
+第三条 社会救助坚持中国共产党的领导，坚持以人民为中心，践行全心全意为人民服务的宗旨。
 
-他指出，美联储加息的前景将推高实际收益率并令金价承压。
+社会救助坚持城乡统筹，坚持尽力而为、量力而行，坚持保基本、兜底线、救急难、可持续，坚持与其他社会保障制度相衔接，坚持与经济社会发展相适应。
 
-该经济学家表示，股市潜在的暴跌也可能对金价造成更大的下行压力，因为在股市突然遭到抛售期间，投资者通常不得不出售优质资产以满足追加保证金的要求。
+社会救助工作遵循公开、公平、公正、便民、及时的原则。
 
-凯投宏观预计，到2026年底和2027年底，金价将分别跌至每盎司3，500美元和每盎司3，250美元。
+第四条 社会救助实行党委领导、政府负责、民政牵头、部门协同、社会参与的工作机制。
 
-责任编辑：王永生
+县级以上人民政府建立社会救助协调机制，统筹、协调、督促、指导有关部门在各自职责范围内做好社会救助工作。
+
+协调机制具体工作由县级以上人民政府民政部门承担。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 06:44 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 06:41 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 06:40 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 06:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 06:46 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 06:42 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 06:32 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 06:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 06:49 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 06:34 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 06:32 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 06:54 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 06:57 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 06:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 06:49 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 06:57 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 06:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 06:30 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 06:38 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 06:56 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 06:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 06:58 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 06:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 06:48 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:48 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/61469539.shtml)
-- 2026-06-30 06:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/76355.shtml)
-- 2026-06-30 06:30 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/16763100.shtml)
-- 2026-06-30 06:40 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/88156271244.shtml)
-- 2026-06-30 06:30 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/878521573.shtml)
-- 2026-06-30 06:45 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/974219199076.shtml)
-- 2026-06-30 06:25 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/549492283.shtml)
-- 2026-06-30 06:44 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/44124126330.shtml)
-- 2026-06-30 06:30 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/738058500.shtml)
-- 2026-06-30 06:42 - [斗破苍穹](https://www.share.minike.top/Article/details/0397431.shtml)
-- 2026-06-30 06:41 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/8381197.shtml)
-- 2026-06-30 06:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/42608.shtml)
-- 2026-06-30 06:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/1940614.shtml)
-- 2026-06-30 06:43 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/55670206.shtml)
-- 2026-06-30 06:30 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/679004098764.shtml)
+- 2026-06-30 06:46 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/56202079.shtml)
+- 2026-06-30 06:33 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/250601823536.shtml)
+- 2026-06-30 06:51 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/328271.shtml)
+- 2026-06-30 06:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/095362572182.shtml)
+- 2026-06-30 06:48 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/41778934225.shtml)
+- 2026-06-30 06:34 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/925104976871.shtml)
+- 2026-06-30 06:51 - [恋与深空回应争议](https://www.share.minike.top/Article/details/76499601.shtml)
+- 2026-06-30 06:59 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/5449231632.shtml)
+- 2026-06-30 06:51 - [金牌调解](http://www.share.kurohicncr.top/Article/details/575095903859.shtml)
+- 2026-06-30 06:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/7145643.shtml)
+- 2026-06-30 06:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/488274244.shtml)
+- 2026-06-30 06:33 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/18039310193.shtml)
+- 2026-06-30 06:51 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/529870946.shtml)
+- 2026-06-30 06:37 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/4683684443.shtml)
+- 2026-06-30 06:40 - [请回答王牌2019](http://www.share.minike.top/Article/details/77847458371.shtml)

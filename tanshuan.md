@@ -1,42 +1,58 @@
-# 日本：向中东派遣自卫队“扫雷”？高市：尚未决定
+# “出门能踩到痰！” 香奈儿新鞋无底设计翻车，网友：奢侈品戏耍有钱人？丨BUG
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月25日 09:08 来源：央视新闻 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！《“出门能踩到痰！” 香奈儿新鞋无底设计翻车，网友：奢侈品戏耍有钱人？丨BUG》 文 丨 《BUG》栏目 周文猛 因为一双“无底绑带鞋”，香奈儿再次陷入争议漩涡。 近日，香奈儿发布2027早春度假系列，其中一款“heel caps”鞋因前脚掌完全裸露仅包裹脚后跟的设计，引发广泛争议。其中89%消费者对该鞋设
 
 ## 正文
 
-发布时间：2026年06月25日 09:08 来源：央视新闻 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+《“出门能踩到痰！
+
+” 香奈儿新鞋无底设计翻车，网友：奢侈品戏耍有钱人？
+
+丨BUG》 文 丨 《BUG》栏目 周文猛 因为一双“无底绑带鞋”，香奈儿再次陷入争议漩涡。
+
+近日，香奈儿发布2027早春度假系列，其中一款“heel caps”鞋因前脚掌完全裸露仅包裹脚后跟的设计，引发广泛争议。
+
+其中89%消费者对该鞋设计持“讨厌”态度，认为其背离鞋子“实用”价值，“花里胡哨”过于“抽象”。
+
+更有的则调侃道：“真的很喜欢看奢侈品戏耍有钱人”。
+
+据香奈儿官方客服向《BUG》栏目透露，“该鞋大约会在今年11月登陆精品店，但关于产品定位、售价等信息，目前尚无更多披露。
 
 ## 相关推荐
 
-- 2026-06-30 06:53 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 06:52 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 06:30 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 06:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 06:32 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 06:34 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 06:31 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 06:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 06:28 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 06:51 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 06:30 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 06:58 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 06:40 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 06:51 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 06:56 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 06:35 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 06:44 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 06:36 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 06:38 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 06:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 06:56 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 06:59 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:45 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/844404784.shtml)
-- 2026-06-30 06:51 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/259643921.shtml)
-- 2026-06-30 06:41 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/0640724862.shtml)
-- 2026-06-30 06:37 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/06050545.shtml)
-- 2026-06-30 06:25 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/2208079.shtml)
-- 2026-06-30 06:29 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/03433952773.shtml)
-- 2026-06-30 06:47 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/6254240930.shtml)
-- 2026-06-30 06:41 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/565614.shtml)
-- 2026-06-30 06:34 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/22153.shtml)
-- 2026-06-30 06:34 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/32044.shtml)
-- 2026-06-30 06:42 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/477436636483.shtml)
-- 2026-06-30 06:46 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/28040.shtml)
-- 2026-06-30 06:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/8200493.shtml)
-- 2026-06-30 06:51 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/111869262.shtml)
-- 2026-06-30 06:50 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/629746016784.shtml)
+- 2026-06-30 06:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/600949193.shtml)
+- 2026-06-30 06:41 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/2837387924.shtml)
+- 2026-06-30 06:30 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/8315490.shtml)
+- 2026-06-30 06:54 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/31368.shtml)
+- 2026-06-30 06:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/173236744750.shtml)
+- 2026-06-30 06:51 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/3465244720.shtml)
+- 2026-06-30 06:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/813398.shtml)
+- 2026-06-30 06:34 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/903154241.shtml)
+- 2026-06-30 06:31 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/245787.shtml)
+- 2026-06-30 06:46 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/522331947483.shtml)
+- 2026-06-30 06:48 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/567856448.shtml)
+- 2026-06-30 06:50 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/9407946529.shtml)
+- 2026-06-30 06:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/5654708.shtml)
+- 2026-06-30 06:43 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/733420.shtml)
+- 2026-06-30 06:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/627288855.shtml)

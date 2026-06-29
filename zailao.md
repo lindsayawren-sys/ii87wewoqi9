@@ -1,45 +1,59 @@
-# 广东珠海：群众失足坠海，海警联动公安消防迅速施救
+# 【理响中国】思想如春，润物有声
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 15:44 来源：中国新闻网 近日，广东珠海，外伶仃岛客运码头突发群众坠海险情，海警联动公安、消防极速驰援，三分钟成功施救，上演“生死时速”。(来源：广东海警局 作者：邓榕烜、卢俊、吴长德） 责任编辑：【魏聪聪】
+思想的光芒该如何穿越信息的雾霭，如何浸润渴望甘霖的心灵，又如何化作照亮前行道路的温暖炬火？这已成为时代赋予理论传播的全新课题。4月27日上午，2026“理响中国”党的创新理论网络传播精品分享会在江苏南京举行，该品牌多年来的持续深耕，正是对这一课题的创造性探索。把“国家大事”翻译成“自家日子”，让党的创新理论与民心同频共振——本次分享会发布的八项“理响中国”系列重点品牌项目与六项
 
 ## 正文
 
-发布时间：2026年06月24日 15:44 来源：中国新闻网 近日，广东珠海，外伶仃岛客运码头突发群众坠海险情，海警联动公安、消防极速驰援，三分钟成功施救，上演“生死时速”。
+思想的光芒该如何穿越信息的雾霭，如何浸润渴望甘霖的心灵，又如何化作照亮前行道路的温暖炬火？
 
-(来源：广东海警局 作者：邓榕烜、卢俊、吴长德） 责任编辑：【魏聪聪】
+这已成为时代赋予理论传播的全新课题。
+
+4月27日上午，2026“理响中国”党的创新理论网络传播精品分享会在江苏南京举行，该品牌多年来的持续深耕，正是对这一课题的创造性探索。
+
+把“国家大事”翻译成“自家日子”，让党的创新理论与民心同频共振——本次分享会发布的八项“理响中国”系列重点品牌项目与六项江苏重点理论网宣项目，共同绘制了新一年网上理论传播的“活力地图”。
+
+“党校微讲堂”是清澈的泉眼，将理论的江河化作可掬饮的清冽；“文献中的党史密码”是时光的钥匙，开启尘封岁月里依然跳动的脉搏；“梧桐论语”自江南的烟雨中走来，带着泥土的芬芳与文脉的温润；“大道之行”则如远行的航船，驶向民族复兴的广阔蓝海……它们共同宣告，理论传播正在告别刻板的说教，拥抱一个更轻盈、更灵动、更具交互感的“悦读”时代。
+
+让理论“活”起来的，还有那些有血有肉的传播者。
+
+分享会的现场，便是一个多元声音和谐共鸣的场域。
+
+光明网联合社科院学者，与奔忙的快递员展开对话，共同诠释“脚下有泥土，理论才有温度”的朴素真理；中央广播电视总台的创作者分享如何用镜头语言雕刻时代精神；新华网的探索聚焦如何让理论报道浸润人性的温度；中国日报社的外籍记者与浙江安吉的村支书并肩而坐，探讨如何让“中国方案”跨越文化的藩篱……这些鲜活的场景本身，就是最有力的理论实践，它证明有效的传播绝非居高临下的灌输，而是平等真诚的交流与共情。
 
 ## 相关推荐
 
-- 2026-06-30 06:46 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 06:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 06:39 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 06:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 06:41 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 06:52 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 06:49 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 06:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 06:53 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 06:43 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 06:50 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 06:57 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 06:44 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 06:54 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 06:46 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 06:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 06:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 06:59 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 06:49 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 06:54 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 06:34 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 06:38 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 06:38 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 06:43 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:37 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/4087923040.shtml)
-- 2026-06-30 06:30 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/74937744.shtml)
-- 2026-06-30 06:51 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/0644020177.shtml)
-- 2026-06-30 06:31 - [金刚川](http://www.blog.kurohicncr.top/Article/details/341000.shtml)
-- 2026-06-30 06:26 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/007848.shtml)
-- 2026-06-30 06:46 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/164945.shtml)
-- 2026-06-30 06:38 - [月亮](http://www.share.minike.top/Article/details/2681579698.shtml)
-- 2026-06-30 06:40 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/6754448746.shtml)
-- 2026-06-30 06:33 - [千与千寻](http://www.share.kurohicncr.top/Article/details/28774.shtml)
-- 2026-06-30 06:27 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/694054551.shtml)
-- 2026-06-30 06:33 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/1969347.shtml)
-- 2026-06-30 06:26 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/556846647.shtml)
-- 2026-06-30 06:41 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/88772190.shtml)
-- 2026-06-30 06:33 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/15119.shtml)
-- 2026-06-30 06:51 - [锐评T1零封KC](https://www.share.minike.top/Article/details/1636827.shtml)
+- 2026-06-30 06:32 - [日本进球](http://www.blog.kurohicncr.top/Article/details/607629.shtml)
+- 2026-06-30 06:59 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/30809032.shtml)
+- 2026-06-30 06:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/15612929831.shtml)
+- 2026-06-30 06:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/90556429.shtml)
+- 2026-06-30 06:40 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/538923.shtml)
+- 2026-06-30 06:51 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/40661290.shtml)
+- 2026-06-30 06:55 - [请回答王牌2019](http://www.blog.minike.top/Article/details/51842921.shtml)
+- 2026-06-30 06:48 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/713848297.shtml)
+- 2026-06-30 06:52 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/01067628.shtml)
+- 2026-06-30 06:44 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/57317545.shtml)
+- 2026-06-30 06:38 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/327310.shtml)
+- 2026-06-30 06:42 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/49782153.shtml)
+- 2026-06-30 06:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/0238464.shtml)
+- 2026-06-30 06:30 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/33119949713.shtml)
+- 2026-06-30 06:44 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/39017352.shtml)

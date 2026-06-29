@@ -1,59 +1,60 @@
-# 真相丨有人对民族团结进步促进法“破防”？ 事实面前站不住脚
+# 巴西Wilson Sons测试海上无人机配送，提升效率并降低排放
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 20:14 来源：中国新闻网 7月1日，民族团结进步促进法将正式施行。一段时间以来，欧洲议会等一些境外机构和政客似乎“破防”，散播各类歪曲抹黑论调。今天我们就对照法条中的事实，把谎言一一戳破。 首先，不止一家外媒造谣该法“消除少数民族语言文化”。而法条第十五条明确规定：“国家尊重和保障少数民族语言文字的学习和使用。”6月24日，国新办举行发布会
+巴西海上物流与港口运营商Wilson Sons已开始在瓜纳巴拉湾测试无人机配送服务，用于海上物流作业，旨在提高效率并减少排放。 该公司正在为其平台供应船执行首次无人机递送和收集文件的作业。自4月6日起，试运行从其位于里约的海上支持基地展开。用于测试的无人机由Speedbird Aero公司运营，目前处于概念验证阶段，以评估其技术可行性。 Wilson Sons表示，已获得巴西国
 
 ## 正文
 
-发布时间：2026年06月24日 20:14 来源：中国新闻网 7月1日，民族团结进步促进法将正式施行。
+巴西海上物流与港口运营商Wilson Sons已开始在瓜纳巴拉湾测试无人机配送服务，用于海上物流作业，旨在提高效率并减少排放。
 
-一段时间以来，欧洲议会等一些境外机构和政客似乎“破防”，散播各类歪曲抹黑论调。
+该公司正在为其平台供应船执行首次无人机递送和收集文件的作业。
 
-今天我们就对照法条中的事实，把谎言一一戳破。
+自4月6日起，试运行从其位于里约的海上支持基地展开。
 
-首先，不止一家外媒造谣该法“消除少数民族语言文化”。
+用于测试的无人机由Speedbird Aero公司运营，目前处于概念验证阶段，以评估其技术可行性。
 
-而法条第十五条明确规定：“国家尊重和保障少数民族语言文字的学习和使用。
+Wilson Sons表示，已获得巴西国家民航局和空域管制部等主管部门的所有必要批准。
 
-”6月24日，国新办举行发布会介绍相关情况时，现场展示了该法草案在人大审议阶段提供的7个少数民族语言版本。
+这些无人机可运送重量不超过5公斤的轻量物品，在约8公里的距离上，预计递送时间仅为9分钟。
 
-中国立法推广国家通用语言文字，是为了帮助各族群众学习现代知识、拓宽就业渠道，切实保障发展权利，但在具体生活和工作场景中，各族群众熟悉的民族语言习惯都会得到平等尊重。
+Wilson Sons船务代理公司运营经理表示：“Wilson Sons使用递送无人机是港口和物流行业的一个里程碑，它使运营更加安全和高效，从而通过创新和新技术支持海上能源行业的脱碳和巴西的可持续发展。
 
-有人声称该法内容“与民族区域自治法相悖”。
+” Wilson Sons海上支持基地运营总经理补充道：“这项技术提高了海上作业的效率，并直接有助于实现可持续发展目标，强化了我们支持合作伙伴减少温室气体排放的角色。
 
 ## 相关推荐
 
-- 2026-06-30 06:34 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 06:41 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 06:32 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-30 06:33 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 06:28 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 06:33 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 06:40 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 06:33 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 06:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 06:34 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 06:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 06:47 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 06:30 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 06:48 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 06:37 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 06:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 06:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 06:50 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 06:51 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 06:58 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 06:30 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 06:59 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 06:31 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 06:35 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 06:44 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 06:32 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 06:58 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:32 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/056400823054.shtml)
-- 2026-06-30 06:31 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/6844422.shtml)
-- 2026-06-30 06:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/14138796.shtml)
-- 2026-06-30 06:47 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/7601829817.shtml)
-- 2026-06-30 06:30 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/3513099285.shtml)
-- 2026-06-30 06:35 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/1891551.shtml)
-- 2026-06-30 06:47 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/42420629.shtml)
-- 2026-06-30 06:31 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/700436.shtml)
-- 2026-06-30 06:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/76698.shtml)
-- 2026-06-30 06:41 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/60320660337.shtml)
-- 2026-06-30 06:29 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/277070850119.shtml)
-- 2026-06-30 06:53 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/074866447382.shtml)
-- 2026-06-30 06:41 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/428812.shtml)
-- 2026-06-30 06:34 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/218848.shtml)
-- 2026-06-30 06:51 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/237619090.shtml)
+- 2026-06-30 06:53 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/9763120255.shtml)
+- 2026-06-30 06:42 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/8066387.shtml)
+- 2026-06-30 06:45 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/825891.shtml)
+- 2026-06-30 06:45 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/991201.shtml)
+- 2026-06-30 06:34 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/92050681.shtml)
+- 2026-06-30 06:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/243194962007.shtml)
+- 2026-06-30 06:47 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/66634.shtml)
+- 2026-06-30 06:57 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/305515982.shtml)
+- 2026-06-30 06:40 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/7373779.shtml)
+- 2026-06-30 06:46 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/721573105.shtml)
+- 2026-06-30 06:42 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/8540050.shtml)
+- 2026-06-30 06:35 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/2076741486.shtml)
+- 2026-06-30 06:55 - [恋与深空 日服](https://www.blog.minike.top/Article/details/921195.shtml)
+- 2026-06-30 06:57 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/467319.shtml)
+- 2026-06-30 06:48 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/890829.shtml)

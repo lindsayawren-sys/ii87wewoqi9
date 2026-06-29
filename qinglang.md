@@ -1,61 +1,59 @@
-# 广东出台个体工商户“梯度式”金融服务十三条
+# 联合利华剥离食品业务期间销售额逆势增长
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新社广州6月25日电 (记者 郭军)广东金融监管局25日宣布，该局牵头联合广东省发展改革委、广东省市场监管局、深圳金融监管局制发《广东省个体工商户“梯度式”金融服务体系建设实施方案》(以下简称广东方案)，为全省个体工商户发展壮大提供全方位、多层次的“梯度式”金融培育支持。个体工商户是广东数量最多的经营主体，在促进增长、稳定就业、拉动内需、活跃市场等方面发挥着不可替代的重要作用
+专题：聚焦美股2026年第一季度财报 一季度基础销售额同比增长 3.8% 内容概要 联合利华一季度基础销售额同比增长 3.8%，超出分析师预期，正值公司推进史上最大规模业务资产重组。 联合利华一季度基础销售额实现增长，目前公司正开展史上最大规模业务整合重组，精简整体业务布局。 这家多芬香皂生产商一季度基础销售额同比增长 3.8%，高于公司统计的分析师预期 3.6%；其中新兴市场
 
 ## 正文
 
-中新社广州6月25日电 (记者 郭军)广东金融监管局25日宣布，该局牵头联合广东省发展改革委、广东省市场监管局、深圳金融监管局制发《广东省个体工商户“梯度式”金融服务体系建设实施方案》(以下简称广东方案)，为全省个体工商户发展壮大提供全方位、多层次的“梯度式”金融培育支持。
+专题：聚焦美股2026年第一季度财报 一季度基础销售额同比增长 3.8% 内容概要 联合利华一季度基础销售额同比增长 3.8%，超出分析师预期，正值公司推进史上最大规模业务资产重组。
 
-个体工商户是广东数量最多的经营主体，在促进增长、稳定就业、拉动内需、活跃市场等方面发挥着不可替代的重要作用。
+联合利华一季度基础销售额实现增长，目前公司正开展史上最大规模业务整合重组，精简整体业务布局。
 
-广东方案围绕数智化建设、供需对接、产品矩阵、制度优化等四个方面明确13项具体政策措施，力争“十五五”期间，广东省个体工商户贷款户数年均增长率不低于10%，贷款规模突破1.2万亿元人民币。
+这家多芬香皂生产商一季度基础销售额同比增长 3.8%，高于公司统计的分析师预期 3.6%；其中新兴市场业务表现领跑，基础销售额增幅达 5.7%。
 
-广东方案明确提出建设“1+1+N”金融服务体系，即1个专题数据库、1个智能服务专区、N类金融产品，以数字技术破解信息不对称难题，推动金融服务从“大水漫灌”向“精准滴灌”转变。
+约一个月前，这家消费品巨头与调味品生产商味好美（McCormick）达成协议，将双方食品业务合并组建新公司，含债务在内估值约650 亿美元。
 
-在数据底座建设方面，根据存续时间、经营状况、纳税情况、雇员人数等信息，将个体工商户梯次划分为“生存型”“成长型”“发展型”三种类型，并将分型数据和“名特优新”分类数据纳入融资信用主题库，更好实现金融活水“精准滴灌”。
+本次现金加股票交易完成后，联合利华股东将持有新公司 65% 股份。
 
-在智能服务方面，支持融资信用服务平台建设“粤信惠商(个体工商户专区)”等线上服务专区，将人工智能、机器学习等技术融入金融服务全流程。
+但部分欧洲投资者对此交易反应平淡，市场对布局美国上市高杠杆食品资产存在抵触情绪。
 
-广东方案紧扣“生存型”“成长型”“发展型”个体工商户演变路径，聚焦“名特优新”个体工商户特色需求，推动金融机构摆脱对抵押担保的依赖，以场景数据驱动细分金融产品开发。
+联合利华与味好美分拆剥离食品业务，是公司战略重大转型的一环，目的是聚焦美妆、个人护理及家居护理产品。
 
-同时，广东方案提出一系列机制创新举措，力求对个体工商户的金融需求实现敏捷响应。
+自去年新任首席执行官费尔南多・费尔南德斯上任后，这家老牌企业开启全面改革：更换大批高管、削减白领岗位，推进整体业务重组。
 
 ## 相关推荐
 
-- 2026-06-30 06:24 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 06:50 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 06:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 06:25 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 06:40 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 06:37 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 06:33 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 06:28 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 06:33 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 06:53 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 06:53 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 06:36 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 06:52 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 06:52 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 06:49 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 06:57 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 06:51 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 06:42 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 06:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 06:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 06:34 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 06:51 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 06:37 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 06:49 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 06:30 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 06:42 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 06:51 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 06:38 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/839036.shtml)
-- 2026-06-30 06:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/47305406623.shtml)
-- 2026-06-30 06:44 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/163826242.shtml)
-- 2026-06-30 06:42 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/46858456309.shtml)
-- 2026-06-30 06:26 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/73247475.shtml)
-- 2026-06-30 06:33 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/34442538.shtml)
-- 2026-06-30 06:44 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/952808312910.shtml)
-- 2026-06-30 06:37 - [女心理师](http://www.blog.minike.top/Article/details/18688530.shtml)
-- 2026-06-30 06:24 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/969651346148.shtml)
-- 2026-06-30 06:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/238140869853.shtml)
-- 2026-06-30 06:35 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/8856268.shtml)
-- 2026-06-30 06:52 - [青春环游记第三季](http://www.share.minike.top/Article/details/098327482.shtml)
-- 2026-06-30 06:33 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/6042491.shtml)
-- 2026-06-30 06:38 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/37223915.shtml)
-- 2026-06-30 06:47 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/417634.shtml)
+- 2026-06-30 06:43 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/732836337.shtml)
+- 2026-06-30 06:56 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/505689786289.shtml)
+- 2026-06-30 06:50 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/6480492261.shtml)
+- 2026-06-30 06:50 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/7987276.shtml)
+- 2026-06-30 06:39 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/763475928645.shtml)
+- 2026-06-30 06:50 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/5310268783.shtml)
+- 2026-06-30 06:56 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/804523761964.shtml)
+- 2026-06-30 06:30 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/06923366.shtml)
+- 2026-06-30 06:54 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/377069868786.shtml)
+- 2026-06-30 06:47 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/660862.shtml)
+- 2026-06-30 06:42 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/5133257.shtml)
+- 2026-06-30 06:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/941989.shtml)
+- 2026-06-30 06:42 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/24852.shtml)
+- 2026-06-30 06:40 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/56149.shtml)
+- 2026-06-30 06:40 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/0095539986.shtml)

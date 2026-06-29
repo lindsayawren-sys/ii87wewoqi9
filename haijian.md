@@ -1,59 +1,57 @@
-# 外卖平台“卷”补贴行不通了
+# 【学习小组】“甘于做铺垫性的工作，甘于抓未成之事”｜总书记深“话”政绩观③
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-新规明确，外卖平台不得以长期、大额补贴扰乱市场竞争秩序。监管出手打断可能的恶性循环，算的是全社会为巨额外卖补贴支付的代价。平台必须回答一个问题：除了长期大额补贴，还能靠什么赢得市场。近日，《外卖平台补贴行为规范十条(征求意见稿)》正式公开，明确不得以长期、大额补贴扰乱市场竞争秩序。 前一天，国家统计局刚刚公布5月社会消费品零售总额，同比下降0.6%，为近4年来首次单月同比下滑。
+《之江新语》中有一篇题为《要甘于做铺垫之事》的文章。习近平在开篇写道：“领导干部要以正确的政绩观为指导，抓好各项工作。‘功成不必在我’，要甘于做铺垫性的工作，甘于抓未成之事。” 甘做铺垫工作、甘抓未成之事，意味着既要干好当下的工作，又要锚定未来、默默奉献，做好长期有利于发展之事。 在厦门工作期间，习近平曾领导制定《1985年—2000年厦门经济社会发展战略》。这是全国经济特区中
 
 ## 正文
 
-新规明确，外卖平台不得以长期、大额补贴扰乱市场竞争秩序。
+《之江新语》中有一篇题为《要甘于做铺垫之事》的文章。
 
-监管出手打断可能的恶性循环，算的是全社会为巨额外卖补贴支付的代价。
+习近平在开篇写道：“领导干部要以正确的政绩观为指导，抓好各项工作。
 
-平台必须回答一个问题：除了长期大额补贴，还能靠什么赢得市场。
+‘功成不必在我’，要甘于做铺垫性的工作，甘于抓未成之事。
 
-近日，《外卖平台补贴行为规范十条(征求意见稿)》正式公开，明确不得以长期、大额补贴扰乱市场竞争秩序。
+” 甘做铺垫工作、甘抓未成之事，意味着既要干好当下的工作，又要锚定未来、默默奉献，做好长期有利于发展之事。
 
-前一天，国家统计局刚刚公布5月社会消费品零售总额，同比下降0.6%，为近4年来首次单月同比下滑。
+在厦门工作期间，习近平曾领导制定《1985年—2000年厦门经济社会发展战略》。
 
-消费数据的“红灯”和平台补贴的“紧箍咒”前后脚，有巧合，但也不全是巧合。
+这是全国经济特区中最早编制的一部经济社会发展规划，也是中国地方政府最早编制、纵跨15年的经济社会发展战略规划。
 
-2006年诺贝尔经济学奖得主费尔普斯曾揭示过一个“通胀预期的自我实现”机制，其逻辑也适用于理解通缩的自我实现。
+在不少人眼里，研究发展战略费时耗力、见效慢，是份吃力不讨好的事。
 
-通俗地说，如果人们认为明天价格会更低，他们今天就不会消费，商家就卖不出去东西，只能被迫降价，结果价格就更低了，而消费者一看真的降价了，就更不敢买了。
+习近平却说，作为领导者，既要立足于当前，更要着眼于长远，甘做铺垫工作，甘抓未成之事。
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 06:44 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 06:40 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 06:48 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 06:30 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 06:44 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 06:49 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 06:46 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 06:31 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 06:45 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 06:39 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 06:29 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 06:48 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 06:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 06:57 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 06:39 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 06:51 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 06:47 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 06:35 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 06:42 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 06:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 06:41 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 06:48 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 06:36 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:37 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/6502082.shtml)
-- 2026-06-30 06:30 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/448275.shtml)
-- 2026-06-30 06:46 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/31055.shtml)
-- 2026-06-30 06:38 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/613012548876.shtml)
-- 2026-06-30 06:25 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/9226703710.shtml)
-- 2026-06-30 06:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/1191561642.shtml)
-- 2026-06-30 06:30 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/8127184880.shtml)
-- 2026-06-30 06:31 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/41073753.shtml)
-- 2026-06-30 06:35 - [第一炉香](https://www.blog.minike.top/Article/details/81329.shtml)
-- 2026-06-30 06:48 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/9787347.shtml)
-- 2026-06-30 06:33 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/76711.shtml)
-- 2026-06-30 06:48 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/05399.shtml)
-- 2026-06-30 06:37 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/99298995516.shtml)
-- 2026-06-30 06:35 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/868066562.shtml)
-- 2026-06-30 06:34 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/5492678576.shtml)
+- 2026-06-30 06:37 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/08413450.shtml)
+- 2026-06-30 06:32 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/59417.shtml)
+- 2026-06-30 06:58 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/08725414.shtml)
+- 2026-06-30 06:55 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/16763996.shtml)
+- 2026-06-30 06:59 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/9159906.shtml)
+- 2026-06-30 06:38 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/4494972924.shtml)
+- 2026-06-30 06:49 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/17415182339.shtml)
+- 2026-06-30 06:32 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/54419996.shtml)
+- 2026-06-30 06:47 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/838818.shtml)
+- 2026-06-30 06:35 - [沉睡花园](http://www.blog.minike.top/Article/details/28480123.shtml)
+- 2026-06-30 06:40 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/342499369.shtml)
+- 2026-06-30 06:37 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/205080723.shtml)
+- 2026-06-30 06:31 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/30145962.shtml)
+- 2026-06-30 06:59 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/164536862455.shtml)
+- 2026-06-30 06:43 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/6278806840.shtml)

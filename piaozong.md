@@ -1,57 +1,57 @@
-# 银行、消金公司助贷余额增速不得高于自营贷款增速
+# 进出口银行董事赴江西省调研
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-近日，中国证券报·中证金牛座记者从多位业内人士处独家获悉，5月以来，多地金融监管部门对部分中小银行、消金公司下达窗口指导，要求助贷渠道贷款规模增速不得高于自营渠道贷款增速，存量助贷业务贷款余额应环比压降，融担类业务占比不得超过25%。 有分析人士向记者表示，本轮监管部门的窗口指导，不仅要求相关机构控制助贷业务增量，也对存量业务有序收缩提出较为明确的要求。被指导的机构可能在助贷业
+来源：进出口银行 近日，进出口银行股权董事一行赴江西省调研。 在赣期间，董事一行听取了江西省分行工作汇报，了解分行业务布局、资金投放、经营管理等情况，围绕更好发挥政策性金融特色优势、精准赋能实体经济高质量发展等内容开展座谈交流。 董事一行实地走访了多家重点企业，通过参观生产线及座谈交流，了解各企业生产经营情况、战略规划布局及融资需求。董事们表示，江西是长江经济带和中部地区崛起的
 
 ## 正文
 
-近日，中国证券报·中证金牛座记者从多位业内人士处独家获悉，5月以来，多地金融监管部门对部分中小银行、消金公司下达窗口指导，要求助贷渠道贷款规模增速不得高于自营渠道贷款增速，存量助贷业务贷款余额应环比压降，融担类业务占比不得超过25%。
+来源：进出口银行 近日，进出口银行股权董事一行赴江西省调研。
 
-有分析人士向记者表示，本轮监管部门的窗口指导，不仅要求相关机构控制助贷业务增量，也对存量业务有序收缩提出较为明确的要求。
+在赣期间，董事一行听取了江西省分行工作汇报，了解分行业务布局、资金投放、经营管理等情况，围绕更好发挥政策性金融特色优势、精准赋能实体经济高质量发展等内容开展座谈交流。
 
-被指导的机构可能在助贷业务压降方面进度较慢，或不符监管部门预期。
+董事一行实地走访了多家重点企业，通过参观生产线及座谈交流，了解各企业生产经营情况、战略规划布局及融资需求。
 
-“此举核心目标在于推动持牌机构回归自身定位，压实自主风控责任，逐步降低对外部渠道的依赖，同时防范中小金融机构因过度规模扩张而积累的潜在风险。
+董事们表示，江西是长江经济带和中部地区崛起的重要省份，在“十五五”时期服务国家产业链供应链安全、打造内陆改革开放高地中具有重要战略地位。
 
-”上述分析人士说。
+进出口银行将坚守政策性金融定位，聚焦主责主业，持续加大对先进制造业及特色优势产业链的金融支持力度，切实以政策性金融服务助力江西打造内陆改革开放高地，书写高质量发展新篇章。
 
-华西地区一家农商行相关负责人告诉记者：“我行目前已执行贷款资金月度管控要求，全面暂停了助贷渠道新增贷款的投放，部分存量贷款到期后不再续贷。
+董事会办公室负责人、江西省分行负责人陪同调研。
 
-” 一家消金公司相关工作人员向记者表示：“我们以‌2025年末‌的助贷及担保增信贷款余额为上限，严控助贷业务增量，同时也缩减了助贷公司合作数量。
-
-”责任编辑：秦艺
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 06:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 06:34 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 06:32 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 06:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 06:24 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 06:37 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 06:52 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 06:26 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 06:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 06:25 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 06:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 06:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 06:33 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 06:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 06:32 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 06:42 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 06:58 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 06:59 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 06:36 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 06:46 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 06:50 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 06:40 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 06:35 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 06:37 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:52 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/6411186581.shtml)
-- 2026-06-30 06:39 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/411789.shtml)
-- 2026-06-30 06:31 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/45497186515.shtml)
-- 2026-06-30 06:43 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/3624887.shtml)
-- 2026-06-30 06:51 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/14735707.shtml)
-- 2026-06-30 06:48 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/181262315880.shtml)
-- 2026-06-30 06:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/135411068603.shtml)
-- 2026-06-30 06:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/439477822.shtml)
-- 2026-06-30 06:50 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/06877488982.shtml)
-- 2026-06-30 06:34 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/7032183136.shtml)
-- 2026-06-30 06:52 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/7289309.shtml)
-- 2026-06-30 06:42 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/595195176981.shtml)
-- 2026-06-30 06:30 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/4594824.shtml)
-- 2026-06-30 06:41 - [爱很美味](https://www.share.kurohicncr.top/Article/details/7857678200.shtml)
-- 2026-06-30 06:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/6573109032.shtml)
+- 2026-06-30 06:41 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/12991433668.shtml)
+- 2026-06-30 06:37 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/9590899099.shtml)
+- 2026-06-30 06:36 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/269901261.shtml)
+- 2026-06-30 06:34 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/7999603308.shtml)
+- 2026-06-30 06:37 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/5357523914.shtml)
+- 2026-06-30 06:48 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/07611.shtml)
+- 2026-06-30 06:39 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/65297139.shtml)
+- 2026-06-30 06:34 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/835489061016.shtml)
+- 2026-06-30 06:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/628445.shtml)
+- 2026-06-30 06:55 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/6565367.shtml)
+- 2026-06-30 06:30 - [巴西扳平比分](http://www.share.minike.top/Article/details/7182708984.shtml)
+- 2026-06-30 06:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/1543646979.shtml)
+- 2026-06-30 06:42 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/775570622766.shtml)
+- 2026-06-30 06:38 - [日本进球](http://www.share.minike.top/Article/details/545949942.shtml)
+- 2026-06-30 06:46 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/80112.shtml)

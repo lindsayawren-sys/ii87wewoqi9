@@ -1,60 +1,55 @@
-# 中国首台重载智能盾构换刀机器人在厦门发布
+# 广西北海多举措护航南海伏季休渔 约3000艘船回港
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新社厦门6月25日电 (吴冠标 李思源)中国首台重载智能盾构换刀机器人25日在厦门正式发布。当天，该设备在厦金大桥(厦门段)项目环岛路隧道施工现场的“厦金号”盾构机上完成上机调试。 盾构机在挖掘隧道时，刀盘上的滚刀如同“牙齿”，持续切削岩石泥土，磨损极快，需要频繁更换。传统换刀需3名作业人员带压进舱更换，耗时4小时以上，且面临多种风险。 厦门路桥工程公司厦金大桥(厦门段)项目
+中新网北海4月30日电(翟李强 王丽娟 潘庆安)4月30日，为期三个半月的南海伏季休渔期将至，侨乡广西北海市侨港镇的电建渔港里，一艘艘渔船首尾相接，整齐划一；码头上，人们在忙着整理渔具、搬运物资、清洗码头。据了解，今年北海市应休渔渔船约3000艘，目前已基本完成回港停泊。 5月1日12时，中国渤海、黄海、东海及北纬12度以北的南海(含北部湾)海域将全面进入海洋伏季休渔期。 为应
 
 ## 正文
 
-中新社厦门6月25日电 (吴冠标 李思源)中国首台重载智能盾构换刀机器人25日在厦门正式发布。
+中新网北海4月30日电(翟李强 王丽娟 潘庆安)4月30日，为期三个半月的南海伏季休渔期将至，侨乡广西北海市侨港镇的电建渔港里，一艘艘渔船首尾相接，整齐划一；码头上，人们在忙着整理渔具、搬运物资、清洗码头。
 
-当天，该设备在厦金大桥(厦门段)项目环岛路隧道施工现场的“厦金号”盾构机上完成上机调试。
+据了解，今年北海市应休渔渔船约3000艘，目前已基本完成回港停泊。
 
-盾构机在挖掘隧道时，刀盘上的滚刀如同“牙齿”，持续切削岩石泥土，磨损极快，需要频繁更换。
+5月1日12时，中国渤海、黄海、东海及北纬12度以北的南海(含北部湾)海域将全面进入海洋伏季休渔期。
 
-传统换刀需3名作业人员带压进舱更换，耗时4小时以上，且面临多种风险。
+为应对渔船回港高峰，北海海事部门提早部署，派出海巡船艇在渔港及口门水域高频巡航，并依托智慧海事电子巡航系统，对客船、运输船舶进出港动态实施24小时实时监控，全力保障渔船安全回港及海上通航秩序；同时联合北海市海洋局开展禁渔期普法宣传，讲解休渔政策、船舶规范停泊、商渔船防碰撞等知识，并重点强调AIS船位终端设备的规范使用要求。
 
-厦门路桥工程公司厦金大桥(厦门段)项目标段经理郑联枭称，厦金大桥(厦门段)项目环岛路隧道紧邻海岸线，地下水位高、覆土浅、周边环境复杂，该设备应用于环岛路盾构隧道，将提升盾构换刀效率，节约盾构施工成本。
+据了解，针对休渔期前渔船回港安全工作，北海市交通运输局、应急管理局、海洋局、北海海事局提前一个月启动联动机制，开展联合会商研判、联合实体值班、联合巡航执法、联合宣传教育，形成监管合力，为渔船安全有序回港提供全方位保障。
 
-据介绍，“厦金号”盾构机使用智能盾构换刀机器人搭配项目数字孪生智慧管控系统后，更换单把滚刀时间为25至40分钟，效率提升50%以上，全过程舱内无需人员进入，有效提升盾构施工安全性。
+北海海事局表示，将在三个半月休渔期内持续优化服务保障，以实际行动护航海洋生态，确保南海伏季休渔平稳有序。
 
-中国工程院院士钱七虎表示，智能换刀机器人的研发为中国交通工程装备自主化、无人化、智能化发展探索了新路径，也为产业化应用奠定了基础。
-
-该机器人整机软硬件实现100%国产化，拥有完全自主知识产权。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 06:46 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 06:34 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 06:34 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 06:45 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 06:34 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 06:31 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 06:38 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 06:44 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 06:32 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 06:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 06:31 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 06:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 06:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 06:50 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 06:45 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 06:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 06:57 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 06:58 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 06:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 06:31 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 06:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 06:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 06:44 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 06:34 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:47 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/55316.shtml)
-- 2026-06-30 06:47 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/894803.shtml)
-- 2026-06-30 06:39 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/231343535.shtml)
-- 2026-06-30 06:52 - [美人鱼](http://www.share.minike.top/Article/details/4572664785.shtml)
-- 2026-06-30 06:33 - [爱很美味](https://www.share.minike.top/Article/details/58930808.shtml)
-- 2026-06-30 06:33 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/151875895435.shtml)
-- 2026-06-30 06:32 - [起风了](http://www.share.kurohicncr.top/Article/details/27521712388.shtml)
-- 2026-06-30 06:28 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/5451029813.shtml)
-- 2026-06-30 06:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/303046198.shtml)
-- 2026-06-30 06:36 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/14955480711.shtml)
-- 2026-06-30 06:37 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/110856680.shtml)
-- 2026-06-30 06:39 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/18559640.shtml)
-- 2026-06-30 06:24 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/704482345.shtml)
-- 2026-06-30 06:41 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/642110.shtml)
-- 2026-06-30 06:33 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/20864919.shtml)
+- 2026-06-30 06:50 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/964336.shtml)
+- 2026-06-30 06:32 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/425860.shtml)
+- 2026-06-30 06:38 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/27606031377.shtml)
+- 2026-06-30 06:38 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/04936861.shtml)
+- 2026-06-30 06:42 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/87322764332.shtml)
+- 2026-06-30 06:57 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/27813.shtml)
+- 2026-06-30 06:53 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/91254229.shtml)
+- 2026-06-30 06:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/065338.shtml)
+- 2026-06-30 06:48 - [日本领先巴西](http://www.share.minike.top/Article/details/89428.shtml)
+- 2026-06-30 06:44 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/987387264.shtml)
+- 2026-06-30 06:40 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/01904537.shtml)
+- 2026-06-30 06:30 - [点菜也要教吗](http://www.share.minike.top/Article/details/3770803857.shtml)
+- 2026-06-30 06:35 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/38959525.shtml)
+- 2026-06-30 06:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/914786860.shtml)
+- 2026-06-30 06:43 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/56301034.shtml)

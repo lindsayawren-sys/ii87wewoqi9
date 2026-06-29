@@ -1,61 +1,57 @@
-# 俄罗斯将关闭罗马尼亚驻圣彼得堡总领馆 罗方回应
+# 1800万不翼而飞银行不能一等了之
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网6月26日电 综合报道，当地时间6月25日，俄罗斯外交部宣布罗马尼亚驻俄罗斯圣彼得堡总领事为“不受欢迎的人”，即将关闭该总领事馆。罗马尼亚外交部回应称，俄方此举在“意料之中”。 据俄罗斯卫星通讯社报道，俄外交部发布通报说，该机构25日召见罗马尼亚驻俄罗斯大使克里斯蒂安·伊斯特拉特，并向其递交外交照会。照会宣布罗马尼亚驻圣彼得堡总领事为“不受欢迎的人”，该总领事馆即将关闭。
+存在银行的1800万元不翼而飞，银行让你“等一等”，你等得起吗？ 答案很明显：作为储户个体，你一天都等不起！ 吉林两名储户将1800万元存入扶余惠民村镇银行。银行员工赵某丽仅凭储户身份证复印件，伪造签名、违规挂失补卡，将款项转入个人账户投入股市。事发后，银行以“等待司法结论”为由拒付，导致储户企业资金链断裂、300多名员工面临欠薪。目前，赵某丽已被批捕，但储户的钱仍无着落。 按
 
 ## 正文
 
-中新网6月26日电 综合报道，当地时间6月25日，俄罗斯外交部宣布罗马尼亚驻俄罗斯圣彼得堡总领事为“不受欢迎的人”，即将关闭该总领事馆。
+存在银行的1800万元不翼而飞，银行让你“等一等”，你等得起吗？
 
-罗马尼亚外交部回应称，俄方此举在“意料之中”。
+答案很明显：作为储户个体，你一天都等不起！
 
-据俄罗斯卫星通讯社报道，俄外交部发布通报说，该机构25日召见罗马尼亚驻俄罗斯大使克里斯蒂安·伊斯特拉特，并向其递交外交照会。
+吉林两名储户将1800万元存入扶余惠民村镇银行。
 
-照会宣布罗马尼亚驻圣彼得堡总领事为“不受欢迎的人”，该总领事馆即将关闭。
+银行员工赵某丽仅凭储户身份证复印件，伪造签名、违规挂失补卡，将款项转入个人账户投入股市。
 
-通报说，俄方此举是对罗马尼亚此前“无端撤销”俄驻罗马尼亚康斯坦察总领事馆工作许可的回应。
+事发后，银行以“等待司法结论”为由拒付，导致储户企业资金链断裂、300多名员工面临欠薪。
 
-罗马尼亚通讯社(Agerpres)报道称，罗马尼亚外交部发表声明说，由于罗方此前对俄无人机在罗境内坠毁一事采取的措施，俄方这一反应是“可预见的”。
+目前，赵某丽已被批捕，但储户的钱仍无着落。
 
-据此前报道，5月29日，一架俄罗斯无人机在罗马尼亚一栋公寓楼坠毁并引发火灾，致两人受伤。
+按律师说法：员工利用银行身份、在营业场所内操作，属于职务行为，银行存在严重管理漏洞，必须承担赔付责任。
 
-罗马尼亚总统达恩5月29日宣布俄驻康斯坦察总领事为“不受欢迎的人”，并关闭该总领事馆。
+但在此事件中，不仅银行员工轻松绕过了内部风控，事发后，银行还将“内部管理成本”转嫁给储户：以“等刑事判决”为由，无限期拖延兑付。
 
 ## 相关推荐
 
-- 2026-06-30 06:43 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 06:41 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 06:52 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 06:49 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 06:40 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 06:24 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 06:32 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 06:24 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 06:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 06:49 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 06:40 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 06:48 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 06:53 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 06:42 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 06:30 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 06:45 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 06:42 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 06:58 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 06:45 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 06:54 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 06:32 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 06:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 06:52 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 06:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 06:41 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 06:56 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/656423459328.shtml)
-- 2026-06-30 06:53 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/844392351.shtml)
-- 2026-06-30 06:43 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/79391401748.shtml)
-- 2026-06-30 06:48 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/7930341.shtml)
-- 2026-06-30 06:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/840578952.shtml)
-- 2026-06-30 06:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/0163269861.shtml)
-- 2026-06-30 06:27 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/41250988798.shtml)
-- 2026-06-30 06:49 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/642805.shtml)
-- 2026-06-30 06:40 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/0260309494.shtml)
-- 2026-06-30 06:48 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/6499485.shtml)
-- 2026-06-30 06:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/61486.shtml)
-- 2026-06-30 06:39 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/52475.shtml)
-- 2026-06-30 06:34 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/245324280134.shtml)
-- 2026-06-30 06:44 - [刘念回应](https://www.share.kurohicncr.top/Article/details/202933747338.shtml)
-- 2026-06-30 06:50 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/40214.shtml)
+- 2026-06-30 06:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/446272499484.shtml)
+- 2026-06-30 06:44 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/0526037600.shtml)
+- 2026-06-30 06:34 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/0588343.shtml)
+- 2026-06-30 06:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/484782573913.shtml)
+- 2026-06-30 06:50 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/20280.shtml)
+- 2026-06-30 06:52 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/254653260524.shtml)
+- 2026-06-30 06:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/524280807.shtml)
+- 2026-06-30 06:46 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/996716511.shtml)
+- 2026-06-30 06:30 - [扬名立万](https://www.share.minike.top/Article/details/95522350006.shtml)
+- 2026-06-30 06:50 - [一生一世](http://www.share.minike.top/Article/details/082930.shtml)
+- 2026-06-30 06:55 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/9492907.shtml)
+- 2026-06-30 06:51 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/28217808.shtml)
+- 2026-06-30 06:41 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/191204253.shtml)
+- 2026-06-30 06:41 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/576611930.shtml)
+- 2026-06-30 06:58 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/645319062163.shtml)

@@ -1,57 +1,59 @@
-# “促进英中关系结出更多果实”——访英国驻华大使魏磊
+# Alphabet营收超出预期，云业务创下季度历史新高
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-英国驻华大使魏磊近日参访陕西延安并走进梁家河，成为首位以官方身份展开红色之旅的西方大国驻华大使。他在参访期间接受本报记者采访表示，通过此次访问，他深入了解了延安时期中国共产党艰苦卓绝的奋斗历史，了解到中国领导人的基层成长经历和治国理政思想的实践来源，增进了对中国过去、现在和未来发展的认识。魏磊同中国渊源深厚。他曾两度任职于英国驻华使馆，并在对外经济贸易大学学习中文。去年8月，魏
+周三，Alphabet 公布的季度营收超出华尔街预期，企业对人工智能的投入使其云业务创下有史以来最佳季度增长纪录 。 该公司股价在盘后交易中上涨逾6%。 数据显示，这家谷歌母公司的第一季度总营收增长22%至1，099亿美元，高于1，072亿美元的预期。 截至3月的第一季度，谷歌云业务营收增长63%至200亿美元，远超分析师平均预期的50.1%增幅。数据显示，这一增速是该公司自2
 
 ## 正文
 
-英国驻华大使魏磊近日参访陕西延安并走进梁家河，成为首位以官方身份展开红色之旅的西方大国驻华大使。
+周三，Alphabet 公布的季度营收超出华尔街预期，企业对人工智能的投入使其云业务创下有史以来最佳季度增长纪录 。
 
-他在参访期间接受本报记者采访表示，通过此次访问，他深入了解了延安时期中国共产党艰苦卓绝的奋斗历史，了解到中国领导人的基层成长经历和治国理政思想的实践来源，增进了对中国过去、现在和未来发展的认识。
+该公司股价在盘后交易中上涨逾6%。
 
-魏磊同中国渊源深厚。
+数据显示，这家谷歌母公司的第一季度总营收增长22%至1，099亿美元，高于1，072亿美元的预期。
 
-他曾两度任职于英国驻华使馆，并在对外经济贸易大学学习中文。
+截至3月的第一季度，谷歌云业务营收增长63%至200亿美元，远超分析师平均预期的50.1%增幅。
 
-去年8月，魏磊出任英国驻华大使。
+数据显示，这一增速是该公司自2020年开始单独披露该业务板块营收以来的最高水平。
 
-在他看来，了解驻在国历史，读懂一个国家的历史观与发展观，是外交官履职尽责的必修课。
+“我们的企业AI解决方案首次成为云业务的主要增长引擎，”首席执行官桑达尔·皮查伊 在与分析师的电话会议上表示，并指出这些产品的销售额较一年前增长了八倍。
 
-“此次参访机会难得，有助于我们了解今天的中国如何看待延安时期的历史，也有助于英国政府更好判断中国的政策方向。
+在多年落后于大型竞争对手之后，Alphabet强劲的云业务业绩凸显了AI正逐渐成为谷歌的关键增长引擎，这让投资者确信其巨额投入开始获得回报。
 
-”魏磊说。
+受生成式AI工具需求推动，该业务的迅猛增长目前似乎印证了Alphabet将庞大的研发能力转化为商业收益的战略是正确的。
 
 ## 相关推荐
 
-- 2026-06-30 06:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 06:31 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 06:33 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 06:51 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 06:33 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 06:32 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 06:26 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 06:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 06:50 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 06:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 06:33 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 06:50 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 06:53 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 06:37 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 06:49 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 06:36 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 06:31 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 06:43 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 06:52 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 06:38 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 06:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 06:55 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 06:59 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 06:37 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/60505.shtml)
-- 2026-06-30 06:24 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/210015174.shtml)
-- 2026-06-30 06:31 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/08177311646.shtml)
-- 2026-06-30 06:53 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/383485896.shtml)
-- 2026-06-30 06:32 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/4148266953.shtml)
-- 2026-06-30 06:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/682623.shtml)
-- 2026-06-30 06:51 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/511891.shtml)
-- 2026-06-30 06:29 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/301979888511.shtml)
-- 2026-06-30 06:53 - [巴西vs日本](https://www.share.minike.top/Article/details/607076871.shtml)
-- 2026-06-30 06:24 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/50391385.shtml)
-- 2026-06-30 06:42 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/982266125940.shtml)
-- 2026-06-30 06:48 - [第一炉香](http://www.share.kurohicncr.top/Article/details/846734.shtml)
-- 2026-06-30 06:27 - [千与千寻](https://www.share.minike.top/Article/details/020226.shtml)
-- 2026-06-30 06:31 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/858762375549.shtml)
-- 2026-06-30 06:40 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/6424737.shtml)
+- 2026-06-30 06:33 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/1800227.shtml)
+- 2026-06-30 06:43 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/7466113.shtml)
+- 2026-06-30 06:51 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/534056238.shtml)
+- 2026-06-30 06:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/9066962450.shtml)
+- 2026-06-30 06:32 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/08904.shtml)
+- 2026-06-30 06:52 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/816717.shtml)
+- 2026-06-30 06:42 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/1471471.shtml)
+- 2026-06-30 07:00 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/8596565.shtml)
+- 2026-06-30 06:36 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/8231872.shtml)
+- 2026-06-30 06:34 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/72150.shtml)
+- 2026-06-30 06:34 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/5917787208.shtml)
+- 2026-06-30 06:32 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/9390378.shtml)
+- 2026-06-30 06:32 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/6535057.shtml)
+- 2026-06-30 06:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/84708187.shtml)
+- 2026-06-30 06:55 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/30489152686.shtml)

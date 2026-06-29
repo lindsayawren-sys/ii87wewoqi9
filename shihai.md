@@ -1,48 +1,58 @@
-# 商务部回应中美经贸磋商最新进展
+# 反对联盟形成，联合太平洋与诺福克南方铁路合并遭到抵制
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-新华社北京6月25日电(记者潘洁、谢希瑶)商务部新闻发言人何亚东在25日举行的例行新闻发布会上说，按照中美经贸磋商达成的共识，双方同意成立贸易理事会，并将在理事会项下讨论对等降税等合作。双方经贸团队将就此开展进一步磋商。 何亚东说，中美双方在飞机和农产品领域的贸易合作是互利共赢的。双方团队将继续保持沟通，鼓励并指导各自企业加强对接，拓展相关领域贸易合作。
+一个由农业、化工、能源等行业组织及多名州总检察长组成的广泛联盟，公开反对联合太平洋铁路公司与诺福克南方铁路公司提出的850亿美元合并案，称这将严重损害市场竞争并推高运费。 美国农场局联合会指出，此次合并将进一步减少农民的运输选择，“农民的资产负债表已被快速上涨的投入成本挤压至临界点”，铁路运输选项的减少将使其更易受运费上涨影响。美国化学理事会亦致信监管机构，警告合并将削弱美国制
 
 ## 正文
 
-新华社北京6月25日电(记者潘洁、谢希瑶)商务部新闻发言人何亚东在25日举行的例行新闻发布会上说，按照中美经贸磋商达成的共识，双方同意成立贸易理事会，并将在理事会项下讨论对等降税等合作。
+一个由农业、化工、能源等行业组织及多名州总检察长组成的广泛联盟，公开反对联合太平洋铁路公司与诺福克南方铁路公司提出的850亿美元合并案，称这将严重损害市场竞争并推高运费。
 
-双方经贸团队将就此开展进一步磋商。
+美国农场局联合会指出，此次合并将进一步减少农民的运输选择，“农民的资产负债表已被快速上涨的投入成本挤压至临界点”，铁路运输选项的减少将使其更易受运费上涨影响。
 
-何亚东说，中美双方在飞机和农产品领域的贸易合作是互利共赢的。
+美国化学理事会亦致信监管机构，警告合并将削弱美国制造业的全球竞争力。
 
-双方团队将继续保持沟通，鼓励并指导各自企业加强对接，拓展相关领域贸易合作。
+此前，蒙大拿州、田纳西州等七位共和党州总检察长已联名要求司法部严格审查此交易。
+
+若该合并获批，将把美国西部与东部的铁路网连接起来，创建全国首家横贯大陆的铁路公司。
+
+两家公司承诺新版申请将展示其增强竞争的能力，并计划于4月30日重新提交给联邦地面运输委员会。
+
+该委员会预计将于2027年做出最终裁决。
+
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 06:25 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 06:36 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 06:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 06:26 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 06:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 06:53 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 06:49 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 06:27 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 06:38 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 06:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 06:35 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 06:42 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 06:47 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 06:44 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 06:41 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 06:33 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 06:41 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 06:57 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 06:44 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 06:45 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 06:37 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 06:47 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:29 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/50594148973.shtml)
-- 2026-06-30 06:26 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/216957208293.shtml)
-- 2026-06-30 06:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/085518727.shtml)
-- 2026-06-30 06:40 - [毒液2](http://www.share.minike.top/Article/details/554338430.shtml)
-- 2026-06-30 06:33 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/112774348.shtml)
-- 2026-06-30 06:36 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/064188.shtml)
-- 2026-06-30 06:31 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/1789229.shtml)
-- 2026-06-30 06:42 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/27941774.shtml)
-- 2026-06-30 06:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/338683929.shtml)
-- 2026-06-30 06:48 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/03569591.shtml)
-- 2026-06-30 06:28 - [内马尔替补](https://www.blog.minike.top/Article/details/5768451.shtml)
-- 2026-06-30 06:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/438606.shtml)
-- 2026-06-30 06:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/548001837.shtml)
-- 2026-06-30 06:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/590090.shtml)
-- 2026-06-30 06:48 - [《共患难》](https://www.share.minike.top/Article/details/539062.shtml)
+- 2026-06-30 06:48 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/70402451944.shtml)
+- 2026-06-30 06:59 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/5367398356.shtml)
+- 2026-06-30 06:55 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/26049.shtml)
+- 2026-06-30 06:41 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/77844.shtml)
+- 2026-06-30 06:43 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/688770905757.shtml)
+- 2026-06-30 06:42 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/90843.shtml)
+- 2026-06-30 06:33 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/68073.shtml)
+- 2026-06-30 06:54 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/9491438.shtml)
+- 2026-06-30 06:53 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/05797.shtml)
+- 2026-06-30 06:47 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/663509082688.shtml)
+- 2026-06-30 06:35 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/843889163925.shtml)
+- 2026-06-30 06:52 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/5006986560.shtml)
+- 2026-06-30 06:44 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/705336323758.shtml)
+- 2026-06-30 06:38 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/0858832817.shtml)
+- 2026-06-30 06:47 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/3242866472.shtml)

@@ -1,60 +1,58 @@
-# （活力中国调研行）雄安全链条布局人工智能产业 集聚效应显现
+# 激进投资机构Saba与SpaceX激烈纷争后，掌控英国科技基金
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新社河北雄安6月24日电 (记者 张子扬 牛琳)从数据、算力的底层支撑，到人工智能大模型的不断突破，再到机器人的创新应用，河北雄安新区正在全链条布局人工智能产业，产业生态加速成型，产业集聚效应日益显现。 雄安人工智能产业园于2025年6月10日开园运行，是雄安新区重点打造的人工智能产业集聚区，已引入70余家人工智能企业，其中大部分来自北京。 作为园区首批入驻企业之一，稳准智能
+核心要点 博阿兹・温斯坦执掌的激进对冲基金 Saba 资本，在与爱丁堡环球投资信托董事会长期博弈中取得重大胜利。 爱丁堡环球投资信托股东于周四投票支持 Saba 资本提案：罢免信托主席乔纳森・辛普森 - 登特及另外五名董事，同时委任三名 Saba 提名的新任董事。 此次投票结果意味着温斯坦的机构正式掌控由巴莱吉福德运营的爱丁堡环球投资信托（EWIT）。该基金专注布局前沿上市及非
 
 ## 正文
 
-中新社河北雄安6月24日电 (记者 张子扬 牛琳)从数据、算力的底层支撑，到人工智能大模型的不断突破，再到机器人的创新应用，河北雄安新区正在全链条布局人工智能产业，产业生态加速成型，产业集聚效应日益显现。
+核心要点 博阿兹・温斯坦执掌的激进对冲基金 Saba 资本，在与爱丁堡环球投资信托董事会长期博弈中取得重大胜利。
 
-雄安人工智能产业园于2025年6月10日开园运行，是雄安新区重点打造的人工智能产业集聚区，已引入70余家人工智能企业，其中大部分来自北京。
+爱丁堡环球投资信托股东于周四投票支持 Saba 资本提案：罢免信托主席乔纳森・辛普森 - 登特及另外五名董事，同时委任三名 Saba 提名的新任董事。
 
-作为园区首批入驻企业之一，稳准智能(雄安)科技有限公司(简称“稳准智能”)与清华大学联合研发的“极数”数据大模型，是中国首个专注于处理结构化数据的通用大模型。
+此次投票结果意味着温斯坦的机构正式掌控由巴莱吉福德运营的爱丁堡环球投资信托（EWIT）。
 
-相比擅长处理文本生成等任务的“文科大脑”大语言模型，稳准智能副总裁余飞将“极数”数据大模型比作擅长数理推演的“理科大脑”，它可以通过客户输入的工业、金融、生物等结构化数据，自主挖掘数据内在的因果关系，完成预测、分类、异常识别等全链路任务。
+该基金专注布局前沿上市及非上市科技企业，也是普通二级市场投资者罕见能间接投资 SpaceX的标的。
 
-目前，“极数”数据大模型已在钢铁、电力、化工等多个行业应用落地，通过推动场景数智化升级，助力行业降本增效、高质量发展。
+SpaceX 私募估值一路飙升，距离 IPO 越来越近，目前是 EWIT 第一大重仓，约占投资组合的 20%。
 
-余飞表示雄安解决了两大难题：一是快速落地的天使轮投资，解决了初创模型企业前期高额的研发投入难题；二是雄安面向科创企业开放智慧城市、工业、金融等示范场景，解决了企业为验证技术从零寻找场景的难题。
+这也成为这场漫长董事会权力之争的导火索之一，温斯坦此前公开批评董事会去年减持部分 SpaceX 持仓的决策。
 
-入驻该园区的雄安华清智言科技有限公司旨在将AI大模型能力与多元产业场景深度对接、打通“人工智能+”最后一公里。
+信托主席辛普森 - 登特曾在去年 12 月接受 CNBC 采访时表示，自 2018 年布局当时仍属 “投机性” 科技标的 SpaceX 以来，EWIT 在该笔投资上斩获高达 947% 的回报。
 
-该公司董事长李强表示，他们发现与在楼上办公的洞见科技(雄安)有限公司在产品和技术上优势互补，决定共同开拓市场。
+温斯坦还猛烈抨击 EWIT 长期大幅资产净值折价（目前折价已收窄），在 11 月致信中将其形容为 “史无前例的价值损毁”。
 
 ## 相关推荐
 
-- 2026-06-30 06:45 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 06:35 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 06:26 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 06:34 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 06:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 06:32 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 06:28 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 06:53 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 06:33 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 06:45 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 06:41 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 06:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 06:34 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 06:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 06:40 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 06:41 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 06:55 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 06:41 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 06:44 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 06:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 06:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 06:49 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 06:31 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 06:50 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 06:58 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 06:54 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:28 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/4752582.shtml)
-- 2026-06-30 06:43 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/8115467.shtml)
-- 2026-06-30 06:30 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/581233953.shtml)
-- 2026-06-30 06:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/5296146.shtml)
-- 2026-06-30 06:39 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/72845225096.shtml)
-- 2026-06-30 06:32 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/5721242.shtml)
-- 2026-06-30 06:26 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/44362.shtml)
-- 2026-06-30 06:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/84468703895.shtml)
-- 2026-06-30 06:30 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/707452965.shtml)
-- 2026-06-30 06:32 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/38153763.shtml)
-- 2026-06-30 06:31 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/41572.shtml)
-- 2026-06-30 06:32 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/129704432.shtml)
-- 2026-06-30 06:27 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/286868626373.shtml)
-- 2026-06-30 06:37 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/12043954.shtml)
-- 2026-06-30 06:25 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/4364209.shtml)
+- 2026-06-30 06:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/50526.shtml)
+- 2026-06-30 06:30 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/24859929.shtml)
+- 2026-06-30 06:53 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/17228.shtml)
+- 2026-06-30 06:37 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/3836653.shtml)
+- 2026-06-30 06:58 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/20788.shtml)
+- 2026-06-30 06:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/47229234943.shtml)
+- 2026-06-30 06:37 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/7789021381.shtml)
+- 2026-06-30 06:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/375152335408.shtml)
+- 2026-06-30 06:59 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/141895614.shtml)
+- 2026-06-30 06:36 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/965307.shtml)
+- 2026-06-30 06:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/96942.shtml)
+- 2026-06-30 06:47 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/284776858649.shtml)
+- 2026-06-30 06:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/476532.shtml)
+- 2026-06-30 06:48 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/729771277331.shtml)
+- 2026-06-30 06:54 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/80593403819.shtml)

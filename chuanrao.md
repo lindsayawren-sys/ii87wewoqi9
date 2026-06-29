@@ -1,56 +1,59 @@
-# “贬值交易”逐步瓦解 而凯文·沃什正是关键推手之一
+# 家长“代劳”、保洁“外包”：变味儿的校园劳动
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-事后看来，这场“贬值交易”（debasement trade）走向终结的转折点可以追溯到1月30日。 当天，美国总统唐纳德·特朗普提名凯文·沃什出任美联储主席。这一决定促使投资者重新评估当时盛行的一种宏观交易逻辑 —— 通过减持美元、转而配置其他资产来对冲美元贬值风险。当天，黄金从历史高点一度下跌13%，创下四十多年来最大跌幅；随后比特币也大幅回落。经历长期走弱后，美元则逐渐触
+家长到校扫地、拖地、擦窗户，聘请保洁人员打扫教室……“新华视点”记者走访多地发现，在部分学校，作为学校劳动教育基本内容的打扫教室，却被家长“代劳”或“外包”给保洁公司，劳动教育偏离了“育”的本意。清洁劳动被“代劳” 《义务教育劳动课程标准(2022年版)》明确将“清洁与卫生”纳入日常生活劳动任务群，旨在让学生通过打扫教室等基础劳动，培养劳动习惯和责任意识。 然而，记者走访发现，
 
 ## 正文
 
-事后看来，这场“贬值交易”（debasement trade）走向终结的转折点可以追溯到1月30日。
+家长到校扫地、拖地、擦窗户，聘请保洁人员打扫教室……“新华视点”记者走访多地发现，在部分学校，作为学校劳动教育基本内容的打扫教室，却被家长“代劳”或“外包”给保洁公司，劳动教育偏离了“育”的本意。
 
-当天，美国总统唐纳德·特朗普提名凯文·沃什出任美联储主席。
+清洁劳动被“代劳” 《义务教育劳动课程标准(2022年版)》明确将“清洁与卫生”纳入日常生活劳动任务群，旨在让学生通过打扫教室等基础劳动，培养劳动习惯和责任意识。
 
-这一决定促使投资者重新评估当时盛行的一种宏观交易逻辑 —— 通过减持美元、转而配置其他资产来对冲美元贬值风险。
+然而，记者走访发现，这项最贴近学生生活的劳动，在部分学校却被悄然转嫁。
 
-当天，黄金从历史高点一度下跌13%，创下四十多年来最大跌幅；随后比特币也大幅回落。
+西部一小学学生家长表示，每学期开学或部分大扫除日之前，学校会发通知，提出家长需帮忙打扫教室卫生、帮助搬书发书等，并称“若没有家长接龙，只有按照学生学号轮流来”。
 
-经历长期走弱后，美元则逐渐触底企稳。
+为给班主任留下好印象，她特意向单位请了半天假，入校打扫了四五个小时。
 
-虽然沃什因主张降低利率而获得特朗普青睐，但许多投资者更看重的是他过去“鹰派抗通胀人士”的声誉。
+一位家长告诉记者，轮到任务的家长需要到校完成扫地、拖地、擦窗户、洗窗帘、洗空调滤网等全套清洁工作，“每次至少半天”。
 
-这种背景让市场对其未来政策立场产生疑问，也促使部分投资者在其获得提名后调整仓位。
+“家长也要上班，要么请假扣薪，要么只能让家中老人代劳。
 
-上周，这一趋势进一步强化。
+”不少家长对此表示无奈。
 
 ## 相关推荐
 
-- 2026-06-30 06:25 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 06:25 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 06:41 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 06:39 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 06:33 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 06:51 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 06:36 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 06:45 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 06:26 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 06:45 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 06:40 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 06:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 06:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 06:55 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 06:32 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 06:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 06:40 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 06:46 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 06:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 06:47 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 06:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 06:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 06:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/99788.shtml)
-- 2026-06-30 06:33 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/04414.shtml)
-- 2026-06-30 06:34 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/67721578.shtml)
-- 2026-06-30 06:47 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/423391677.shtml)
-- 2026-06-30 06:28 - [刘宇宁高情商化解谁站C位](https://www.blog.kurohicncr.top/Article/details/57222.shtml)
-- 2026-06-30 06:47 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/2730917726.shtml)
-- 2026-06-30 06:52 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/872177626.shtml)
-- 2026-06-30 06:35 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/8307909242.shtml)
-- 2026-06-30 06:37 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/095308762853.shtml)
-- 2026-06-30 06:24 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/167119094059.shtml)
-- 2026-06-30 06:50 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/02513214.shtml)
-- 2026-06-30 06:48 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/107923695492.shtml)
-- 2026-06-30 06:36 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/14944852.shtml)
-- 2026-06-30 06:37 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/4968784667.shtml)
-- 2026-06-30 06:25 - [房价什么时候能涨](http://www.share.minike.top/Article/details/234329310.shtml)
+- 2026-06-30 06:49 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/8245670.shtml)
+- 2026-06-30 06:42 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/2777566405.shtml)
+- 2026-06-30 06:45 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/85639280.shtml)
+- 2026-06-30 06:44 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/235839.shtml)
+- 2026-06-30 06:50 - [刘念回应](http://www.blog.minike.top/Article/details/561964748.shtml)
+- 2026-06-30 06:48 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/0277659212.shtml)
+- 2026-06-30 06:38 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/632496603139.shtml)
+- 2026-06-30 06:52 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/17804.shtml)
+- 2026-06-30 06:58 - [刘念回应](http://www.share.kurohicncr.top/Article/details/3642116.shtml)
+- 2026-06-30 06:32 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/38345.shtml)
+- 2026-06-30 06:47 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/67219048.shtml)
+- 2026-06-30 06:51 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/000559379.shtml)
+- 2026-06-30 06:57 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/875184599988.shtml)
+- 2026-06-30 06:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/2425060719.shtml)
+- 2026-06-30 06:41 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/485151.shtml)

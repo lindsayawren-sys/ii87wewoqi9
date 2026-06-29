@@ -1,58 +1,61 @@
-# 除了12315，还有哪些正规的投诉途径？这份清单请收好
+# 瑞银一季度净利润飙升80% 股价涨5%
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-很多人遇到消费纠纷 【下载黑猫投诉客户端】时，第一反应就是“打12315”。12315确实是消费者维权最权威的渠道，但它并不是唯一的途径。尤其是在电商购物、快递物流、在线旅游、共享出行等与互联网深度结合的消费场景中，还有很多行业专属的投诉渠道，响应速度可能更快，处理方式也更具针对性。这篇文章就来梳理一下，除了12315，还有哪些正规的投诉途径可以用。 先说快递物流。快递丢件、损
+专题：聚焦美股2026年第一季度财报 核心要点 伦敦证券交易所集团汇编的市场共识数据显示： 瑞银一季度归属于股东的净利润达 30 亿美元，同比大涨 80%，高于分析师预期的 28 亿美元。 这家瑞士银行及资管巨头的一级核心资本充足率（CET1）（衡量银行偿债抗风险能力的关键指标）本季升至14.7%，上一季度为 14.4%。 瑞银于周三公布一季度财报，称仍将按计划在二季度下一份财
 
 ## 正文
 
-很多人遇到消费纠纷 【下载黑猫投诉客户端】时，第一反应就是“打12315”。
+专题：聚焦美股2026年第一季度财报 核心要点 伦敦证券交易所集团汇编的市场共识数据显示： 瑞银一季度归属于股东的净利润达 30 亿美元，同比大涨 80%，高于分析师预期的 28 亿美元。
 
-12315确实是消费者维权最权威的渠道，但它并不是唯一的途径。
+这家瑞士银行及资管巨头的一级核心资本充足率（CET1）（衡量银行偿债抗风险能力的关键指标）本季升至14.7%，上一季度为 14.4%。
 
-尤其是在电商购物、快递物流、在线旅游、共享出行等与互联网深度结合的消费场景中，还有很多行业专属的投诉渠道，响应速度可能更快，处理方式也更具针对性。
+瑞银于周三公布一季度财报，称仍将按计划在二季度下一份财报发布前完成30 亿美元股票回购；本季度已回购 9 亿美元股份，同时官宣年底前将推出新一轮股票回购计划。
 
-这篇文章就来梳理一下，除了12315，还有哪些正规的投诉途径可以用。
+财报出炉后，瑞银盘中股价大涨超 5%。
 
-先说快递物流。
+总部位于苏黎世的瑞银表示，市场寄望中东冲突能达成持久解决方案，整体表现仍具韧性。
 
-快递丢件、损坏、延误是消费者投诉的高频问题。
+但该行也承认，局势瞬息万变之下风险仍处于高位，并预警：旗下全球财富管理、个人与企业银行业务的二季度净利息收入或将整体持平。
 
-遇到这类问题，最有效的渠道不是12315，而是国家邮政局申诉网站（sswz.spb.gov.cn）或拨打12305。
+瑞银 CEO 塞尔吉奥・埃尔莫蒂表示，公司交出了 “极为强劲的一个季度”，即便受美伊战争地缘紧张拖累，依旧展现出韧性；市场普遍隐含定价已反映冲突终将得到解决。
 
-邮政管理部门对快递企业有直接监管权，根据《快递暂行条例》，快递企业应当对用户的损失进行赔偿。
+埃尔莫蒂周三做客 CNBC《欧洲财经早间栏目》时指出，投行股权资本市场业务表现亮眼，另类资产板块也实现增长，集团整体业务势头向好。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 06:38 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 06:47 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 06:32 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 06:36 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 06:52 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 06:44 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 06:53 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 06:32 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 06:37 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 06:26 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 06:43 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 06:54 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 06:58 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 06:31 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 06:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 06:38 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 06:52 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 06:50 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 06:35 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 06:45 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-30 06:49 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 06:34 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 06:42 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 06:38 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 06:47 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 06:54 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:43 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/91775449160.shtml)
-- 2026-06-30 06:30 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/62228415.shtml)
-- 2026-06-30 06:47 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/38588400.shtml)
-- 2026-06-30 06:44 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/499303.shtml)
-- 2026-06-30 06:52 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/67481994821.shtml)
-- 2026-06-30 06:47 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/0382961.shtml)
-- 2026-06-30 06:31 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/31586.shtml)
-- 2026-06-30 06:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/8255934530.shtml)
-- 2026-06-30 06:45 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/31450.shtml)
-- 2026-06-30 06:26 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/0685119.shtml)
-- 2026-06-30 06:53 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/076040374503.shtml)
-- 2026-06-30 06:28 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/43558758817.shtml)
-- 2026-06-30 06:29 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/29017.shtml)
-- 2026-06-30 06:38 - [蔚来车主罚站](https://www.share.minike.top/Article/details/1582233393.shtml)
-- 2026-06-30 06:37 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/30577704719.shtml)
+- 2026-06-30 06:52 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/093711.shtml)
+- 2026-06-30 06:46 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/617647146405.shtml)
+- 2026-06-30 06:47 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/007621184.shtml)
+- 2026-06-30 06:59 - [日本进球](https://www.share.minike.top/Article/details/112251.shtml)
+- 2026-06-30 06:47 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/889381.shtml)
+- 2026-06-30 06:50 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/392694237214.shtml)
+- 2026-06-30 06:31 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/98475288610.shtml)
+- 2026-06-30 06:52 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/87328111527.shtml)
+- 2026-06-30 06:50 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/738529.shtml)
+- 2026-06-30 06:44 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/571558.shtml)
+- 2026-06-30 06:52 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/182691380220.shtml)
+- 2026-06-30 06:51 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/96234742877.shtml)
+- 2026-06-30 06:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/68032868.shtml)
+- 2026-06-30 06:43 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/608112.shtml)
+- 2026-06-30 06:32 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/969650317.shtml)

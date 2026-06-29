@@ -1,57 +1,57 @@
-# 招行能否继续提高分红比例？彭家文：希望能更多的给投资者回报，但经营管理中必须平衡好一系列的要素指标
+# 梧林南洋文化月暨娘惹文化季在侨乡晋江启幕
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-6月25日金融一线消息，招商银行今日召开2025年度股东会。针对股东关注的回购、分红问题，董事会秘书彭家文坦言，现阶段公司在研究，但是在实施当中会遇到一些障碍。 在分红层面，彭家文表示，分红是招商银行非常重视的事情。招商银行已将“分红比例不低于30%”写入公司章程，这是对全体股东的庄严承诺。近年来公司持续提升分红比例，目前分红比例已提升至35%。从市场募资的4.5倍，非常注重投
+中新社福建晋江4月30日电 (记者 孙虹)以“潮起十三州”为主题，第五届梧林南洋文化月暨娘惹文化季4月30日在福建晋江梧林传统村落启幕，通过文化对谈、时尚秀场、南洋长桌宴等多场活动，全方位展现娘惹文化。 作为中国知名侨乡，晋江拥有旅居海外侨胞和台港澳同胞300多万，遍布60多个国家和地区。位于晋江新塘街道的梧林传统村落，聚集了200多幢百年建筑，被誉为“华侨建筑博物馆”。近年来
 
 ## 正文
 
-6月25日金融一线消息，招商银行今日召开2025年度股东会。
+中新社福建晋江4月30日电 (记者 孙虹)以“潮起十三州”为主题，第五届梧林南洋文化月暨娘惹文化季4月30日在福建晋江梧林传统村落启幕，通过文化对谈、时尚秀场、南洋长桌宴等多场活动，全方位展现娘惹文化。
 
-针对股东关注的回购、分红问题，董事会秘书彭家文坦言，现阶段公司在研究，但是在实施当中会遇到一些障碍。
+作为中国知名侨乡，晋江拥有旅居海外侨胞和台港澳同胞300多万，遍布60多个国家和地区。
 
-在分红层面，彭家文表示，分红是招商银行非常重视的事情。
+位于晋江新塘街道的梧林传统村落，聚集了200多幢百年建筑，被誉为“华侨建筑博物馆”。
 
-招商银行已将“分红比例不低于30%”写入公司章程，这是对全体股东的庄严承诺。
+近年来，梧林传统村落持续打造中国首个“娘惹文化体验村”，由娘惹文化串联起的换装体验、美食、手艺等南洋主题体验游已成当地常态活动。
 
-近年来公司持续提升分红比例，目前分红比例已提升至35%。
+马来西亚槟城峇峇娘惹博物馆馆长唐宝琼第一次来到福建，对梧林传统村落洋溢的南洋风情印象深刻。
 
-从市场募资的4.5倍，非常注重投资者的回报。
+“我的母亲祖籍泉州，所以感触更深。
 
-对于市场关心的能否继续提高分红比例的问题，彭家文指出，分红不是一个单纯的因素。
+”唐宝琼说，作为槟城娘惹文化的第六代传人，看到娘惹元素在梧林遍地开花，吸引这么多游客参与体验，“我很感动、也很自豪”。
 
-从主观愿望上，希望能够更多的给投资者回报，但是在客观的经营管理当中，我们必须平衡好资本充足率等一系列的要素指标。
+“期待未来能与晋江有更多交流，也欢迎中国游客到马来西亚感受娘惹文化，顺着历史与文化的脉络，体验不一样的精彩。
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 06:50 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 06:30 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 06:50 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 06:44 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 06:41 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 06:49 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 06:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 06:46 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 06:42 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 06:49 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 06:59 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 06:47 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 06:34 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 06:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 06:33 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 06:34 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 06:37 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 06:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 06:57 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 06:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 06:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/84229706.shtml)
-- 2026-06-30 06:50 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/0119379.shtml)
-- 2026-06-30 06:41 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/047853565041.shtml)
-- 2026-06-30 06:49 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/54272248.shtml)
-- 2026-06-30 06:37 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/9239751334.shtml)
-- 2026-06-30 06:34 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/2558514.shtml)
-- 2026-06-30 06:39 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/183990853900.shtml)
-- 2026-06-30 06:32 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/076004.shtml)
-- 2026-06-30 06:30 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/604369744523.shtml)
-- 2026-06-30 06:33 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/79027501079.shtml)
-- 2026-06-30 06:32 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/50687313.shtml)
-- 2026-06-30 06:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/133617675.shtml)
-- 2026-06-30 06:48 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/66455.shtml)
-- 2026-06-30 06:42 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/539630.shtml)
-- 2026-06-30 06:34 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/294382712254.shtml)
+- 2026-06-30 06:41 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/6144112.shtml)
+- 2026-06-30 06:49 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/0145439618.shtml)
+- 2026-06-30 06:50 - [美股](https://www.share.kurohicncr.top/Article/details/8177308296.shtml)
+- 2026-06-30 06:53 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/45032.shtml)
+- 2026-06-30 06:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/00612601.shtml)
+- 2026-06-30 06:41 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/5607938.shtml)
+- 2026-06-30 06:38 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/59338784703.shtml)
+- 2026-06-30 06:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/442754.shtml)
+- 2026-06-30 06:36 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/6031170.shtml)
+- 2026-06-30 06:40 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/715666630.shtml)
+- 2026-06-30 06:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/426696.shtml)
+- 2026-06-30 06:54 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/607820818289.shtml)
+- 2026-06-30 06:47 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/7625850.shtml)
+- 2026-06-30 06:42 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/041316781.shtml)
+- 2026-06-30 06:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/72933473.shtml)

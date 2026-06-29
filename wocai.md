@@ -1,61 +1,60 @@
-# 新文科观察：高校如何用实验室丈量中国城市全球声量？
+# 特朗普要降息，同僚却反对：沃什的美联储主席之路开局即地狱模式
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网杭州6月25日电(林波 孙琳茹)走进浙江传媒学院国际传播智能计算实验室，电子屏幕上，世界地图被密密麻麻的数据点覆盖。轻点鼠标，某个城市当天的报道总量、高频热词等便实时呈现——这是实验室研发的“智能计算驾驶舱”一景。 “在智媒时代，城市品牌传播不只是‘讲故事’，更是‘算故事’——通过算法揭示传播规律，以数据评估传播效果，以智能助力国际表达。”近日，浙江传媒学院校长、国际传播
+随着凯文·沃什距离出任美联储主席越来越近，他未来的同僚们却与特朗普所期待的恢复降息渐行渐远。 在现任主席杰罗姆·鲍威尔主持的最后一次会议上，美联储决策者周三几乎一致同意维持利率不变。然而，对于未来利率的走向，会议内部却出现了深刻分歧——三位官员对政策声明中仍指向未来降息的措辞投下了反对票。 鲍威尔同时确认，他将在5月卸任主席后继续担任美联储理事，这将推迟特朗普提名一位更倾向于降
 
 ## 正文
 
-中新网杭州6月25日电(林波 孙琳茹)走进浙江传媒学院国际传播智能计算实验室，电子屏幕上，世界地图被密密麻麻的数据点覆盖。
+随着凯文·沃什距离出任美联储主席越来越近，他未来的同僚们却与特朗普所期待的恢复降息渐行渐远。
 
-轻点鼠标，某个城市当天的报道总量、高频热词等便实时呈现——这是实验室研发的“智能计算驾驶舱”一景。
+在现任主席杰罗姆·鲍威尔主持的最后一次会议上，美联储决策者周三几乎一致同意维持利率不变。
 
-“在智媒时代，城市品牌传播不只是‘讲故事’，更是‘算故事’——通过算法揭示传播规律，以数据评估传播效果，以智能助力国际表达。
+然而，对于未来利率的走向，会议内部却出现了深刻分歧——三位官员对政策声明中仍指向未来降息的措辞投下了反对票。
 
-”近日，浙江传媒学院校长、国际传播智能计算实验室主任韦路接受专访时说。
+鲍威尔同时确认，他将在5月卸任主席后继续担任美联储理事，这将推迟特朗普提名一位更倾向于降息的新理事的机会。
 
-2025年底，该实验室入选浙江省首批12家哲学社会科学重点实验室，也是浙江省首家新闻传播学科省级哲学社会科学实验室。
+WisdomTree投资策略主管Kevin Flanagan表示：“如果有人认为沃什一上任就会立即降息，那他们恐怕要失望了。
 
-在AI浪潮席卷各行各业的当下，文科实验室的崛起，折射出新文科建设一条值得关注的路径。
+未来六周甚至更长时间的经济数据，将决定那三位持反对意见的官员能否转变立场，重新支持降息。
 
-为什么要给国际传播“算一笔账” 随着中国综合国力的显著提升，世界各国对中国的关注度与日俱增，如何在交流互鉴中更好地讲好中国故事、展现真实立体全面的国家形象，已成为一个需要持续深耕的重要课题。
+” 在4月21日接受采访时，特朗普曾表示，如果沃什上任后不立即降息，他会感到失望。
 
-韦路认为，在国际传播领域，投入与实效之间需要更清晰的“连接线”——“我们做了什么、效果如何、短板在哪里，这些都需要用科学的方法来回答”。
+沃什长期以来虽暗示存在降息空间，但并未明确承诺一旦宣誓就职就会立即要求美联储同僚采取行动。
 
 ## 相关推荐
 
-- 2026-06-30 06:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 06:37 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 06:46 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 06:34 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 06:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 06:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 06:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 06:36 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 06:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 06:48 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 06:29 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 06:28 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 06:30 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 06:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 06:28 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 06:58 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 06:55 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 06:34 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 06:55 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 06:51 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 06:54 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 06:41 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 06:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 06:58 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 06:55 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 06:44 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 06:38 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 06:34 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 06:50 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:53 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/902693396.shtml)
-- 2026-06-30 06:25 - [日本16强魔咒](https://www.blog.minike.top/Article/details/38684779487.shtml)
-- 2026-06-30 06:36 - [女心理师](http://www.share.kurohicncr.top/Article/details/05948576.shtml)
-- 2026-06-30 06:47 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/73035208.shtml)
-- 2026-06-30 06:44 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/05369361306.shtml)
-- 2026-06-30 06:32 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/97404737.shtml)
-- 2026-06-30 06:32 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/9896569344.shtml)
-- 2026-06-30 06:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/0403429504.shtml)
-- 2026-06-30 06:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/90580993.shtml)
-- 2026-06-30 06:44 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/723356237473.shtml)
-- 2026-06-30 06:40 - [日本 高位逼抢](https://www.share.minike.top/Article/details/101641.shtml)
-- 2026-06-30 06:29 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/03764.shtml)
-- 2026-06-30 06:38 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/983706.shtml)
-- 2026-06-30 06:36 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/738616654.shtml)
-- 2026-06-30 06:34 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/7128303039.shtml)
+- 2026-06-30 06:39 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/48507.shtml)
+- 2026-06-30 06:39 - [周生如故](http://www.blog.kurohicncr.top/Article/details/90742691996.shtml)
+- 2026-06-30 06:58 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/95721.shtml)
+- 2026-06-30 06:54 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/36803754.shtml)
+- 2026-06-30 06:31 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/0701624.shtml)
+- 2026-06-30 06:49 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/2728956691.shtml)
+- 2026-06-30 06:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/83520.shtml)
+- 2026-06-30 06:42 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/1818142319.shtml)
+- 2026-06-30 06:57 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/205368517355.shtml)
+- 2026-06-30 06:56 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/188748492849.shtml)
+- 2026-06-30 06:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/25442.shtml)
+- 2026-06-30 06:44 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/59817091.shtml)
+- 2026-06-30 06:43 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/87240.shtml)
+- 2026-06-30 06:54 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/3953321270.shtml)
+- 2026-06-30 06:38 - [一见倾心](http://www.share.minike.top/Article/details/509150176.shtml)

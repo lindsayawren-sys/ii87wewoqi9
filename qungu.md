@@ -1,55 +1,59 @@
-# 德国拟取消军舰建造计划，军工股应声跳水，莱茵金属大跌13%
+# 美国证券交易委员会批准纳斯达克与基准指数挂钩的预测市场期权提案
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-核心要点 有报道称德国将放弃 6 艘军舰的建造计划，该项目原本会是德国自二战以来规模最大的军舰采购订单，受此消息影响，周三多国国防类股票应声大跌。 有消息称德国将搁置 6 艘军舰建造方案，投资者担忧政府国防开支增加给军工企业带来的业绩红利或将难以完全兑现，周三全球国防板块股票遭遇重挫。 《金融时报》援引两位知情人士消息报道，柏林方面计划砍掉一项耗资数十亿欧元的 F126 型护卫
+根据一份监管命令，美国证券交易委员会（SEC）周四批准了纳斯达克期权交易平台的一项提案，允许其上市并交易一种与主要指数挂钩的新类别的股市预测工具。 随着预测市场日益获得认可，并开辟了新的收入来源和市场洞察，多家公司正积极寻求进入这一领域，该市场允许用户对现实世界事件的结果进行押注。 这家总部位于纽约的交易所运营商推出的产品是现金结算合约，到期时将根据指数收盘价是否高于或低于设定
 
 ## 正文
 
-核心要点 有报道称德国将放弃 6 艘军舰的建造计划，该项目原本会是德国自二战以来规模最大的军舰采购订单，受此消息影响，周三多国国防类股票应声大跌。
+根据一份监管命令，美国证券交易委员会（SEC）周四批准了纳斯达克期权交易平台的一项提案，允许其上市并交易一种与主要指数挂钩的新类别的股市预测工具。
 
-有消息称德国将搁置 6 艘军舰建造方案，投资者担忧政府国防开支增加给军工企业带来的业绩红利或将难以完全兑现，周三全球国防板块股票遭遇重挫。
+随着预测市场日益获得认可，并开辟了新的收入来源和市场洞察，多家公司正积极寻求进入这一领域，该市场允许用户对现实世界事件的结果进行押注。
 
-《金融时报》援引两位知情人士消息报道，柏林方面计划砍掉一项耗资数十亿欧元的 F126 型护卫舰建造项目，该订单原本将成为德国自第二次世界大战以来金额最高的军舰采购合同。
+这家总部位于纽约的交易所运营商推出的产品是现金结算合约，到期时将根据指数收盘价是否高于或低于设定水平支付固定金额。
 
-作为德国政府军工大单的主要受益方，德国军火制造商莱茵金属早盘股价最大跌幅达 13%；德国本土上市企业亨索尔特、伦克集团股价分别下跌 5%、3.8%；瑞典萨博公司股价走低 3.1%，意大利莱昂纳多集团下跌 3.7%，英国军工巨头 BAE 系统公司股价下滑 1.6%。
+美国证券交易委员会表示，二元期权——一种根据“是”或“否”的投注结果提供收益的合约——若到期时处于实值状态，其“固定、全有或全无的行权结算金额”为100美元。
 
-责任编辑：郭明煜
+由纳斯达克运营的美国电子期权交易所纳斯达克MRX将首先推出与纳斯达克100指数及纳斯达克100微型指数挂钩的期权产品。
+
+纳斯达克100指数追踪纳斯达克交易所上市的100家最大型非金融公司，包括苹果、英伟达和英特尔。
+
+微型指数的基准值相当于纳斯达克100指数总市值的1/100。
+
+该委员会批准了纳斯达克于3月通过提交的加速审批申请，称该提案“符合法案要求”，且未引发新的监管担忧。
 
 ## 相关推荐
 
-- 2026-06-30 06:53 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 06:47 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 06:39 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 06:36 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 06:27 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 06:32 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 06:34 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 06:48 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-30 06:50 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 06:41 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 06:45 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 06:37 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 06:49 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 06:28 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 06:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 06:59 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 06:46 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 06:55 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 06:30 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 06:43 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 06:43 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 06:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 06:42 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 06:34 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 06:55 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 06:38 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 06:57 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 06:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:46 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/104122972.shtml)
-- 2026-06-30 06:31 - [起风了](http://www.share.minike.top/Article/details/1518415.shtml)
-- 2026-06-30 06:49 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/117194774918.shtml)
-- 2026-06-30 06:34 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/5738310.shtml)
-- 2026-06-30 06:24 - [极限挑战第一季](http://www.blog.minike.top/Article/details/516684852751.shtml)
-- 2026-06-30 06:38 - [周生如故](https://www.blog.kurohicncr.top/Article/details/84701333.shtml)
-- 2026-06-30 06:28 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/6385737.shtml)
-- 2026-06-30 06:36 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/49257361470.shtml)
-- 2026-06-30 06:47 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/19421149746.shtml)
-- 2026-06-30 06:26 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/247961429.shtml)
-- 2026-06-30 06:44 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/859356008.shtml)
-- 2026-06-30 06:27 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/3561310038.shtml)
-- 2026-06-30 06:53 - [乔家的儿女](http://www.share.minike.top/Article/details/1979224.shtml)
-- 2026-06-30 06:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/2572217.shtml)
-- 2026-06-30 06:33 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/2769981381.shtml)
+- 2026-06-30 06:55 - [美人鱼](http://www.blog.minike.top/Article/details/095853544.shtml)
+- 2026-06-30 06:57 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/32358739.shtml)
+- 2026-06-30 06:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/240106.shtml)
+- 2026-06-30 06:42 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/26487532256.shtml)
+- 2026-06-30 06:52 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/751807.shtml)
+- 2026-06-30 06:46 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/95589329.shtml)
+- 2026-06-30 06:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/902095796.shtml)
+- 2026-06-30 06:43 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/9629585175.shtml)
+- 2026-06-30 06:41 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/541548.shtml)
+- 2026-06-30 06:46 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/432911314.shtml)
+- 2026-06-30 06:49 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/68666695675.shtml)
+- 2026-06-30 06:36 - [电影后室值得看吗](http://www.share.minike.top/Article/details/5315240.shtml)
+- 2026-06-30 06:54 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/300316290.shtml)
+- 2026-06-30 06:42 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/646086.shtml)
+- 2026-06-30 06:58 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/92667.shtml)

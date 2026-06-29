@@ -1,57 +1,57 @@
-# 文化开放日活动在雅加达举行
+# 中缅近期高层会晤时是否讨论了昂山素季？外交部回应
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网雅加达6月25日电 (记者 李志全)为庆祝中国—东盟建立全面战略伙伴关系5周年，中国驻东盟使团和中国公共外交协会23日在印度尼西亚雅加达联合举办文化开放日活动。中国驻东盟大使王擎夫妇、中国公共外交协会副会长佟晓玲以及东盟副秘书长山伦、各国驻东盟使节等150余人出席。 王擎回顾5年来中国—东盟全面战略伙伴关系取得的重要进展，强调中国东盟人文交流为构建更为紧密的中国—东盟命运
+4月30日，外交部发言人林剑主持例行记者会。 法新社记者提问，上周六，缅甸新任总统敏昂莱会见中共中央政治局委员、外交部长王毅，双方是否讨论了昂山素季？ 林剑表示：“我们已经发布了消息。昂山素季女士是中国的老朋友，我们一直关心她的情况。作为友好邻邦，中方支持缅甸走符合本国国情的发展道路，支持缅甸各方实现更广泛、更牢固、更持久的和平和解。” 澎湃新闻记者 杨文钦 于潇清责任编辑：刘
 
 ## 正文
 
-中新网雅加达6月25日电 (记者 李志全)为庆祝中国—东盟建立全面战略伙伴关系5周年，中国驻东盟使团和中国公共外交协会23日在印度尼西亚雅加达联合举办文化开放日活动。
+4月30日，外交部发言人林剑主持例行记者会。
 
-中国驻东盟大使王擎夫妇、中国公共外交协会副会长佟晓玲以及东盟副秘书长山伦、各国驻东盟使节等150余人出席。
+法新社记者提问，上周六，缅甸新任总统敏昂莱会见中共中央政治局委员、外交部长王毅，双方是否讨论了昂山素季？
 
-王擎回顾5年来中国—东盟全面战略伙伴关系取得的重要进展，强调中国东盟人文交流为构建更为紧密的中国—东盟命运共同体发挥了不可替代的重要作用。
+林剑表示：“我们已经发布了消息。
 
-中方愿以全球文明倡议为指引，同东盟持续深化人文领域交流合作，促进文明互鉴，传承世代友好，携手建设和平、安宁、繁荣、美丽、友好“五大家园”。
+昂山素季女士是中国的老朋友，我们一直关心她的情况。
 
-活动期间，福建泉州艺术团进行了南音、提线木偶戏等非遗表演和文创展示，与活动承办方雅加达公共关系学院学生表演的巴厘岛传统舞蹈珠联璧合，受到来宾热烈欢迎。
+作为友好邻邦，中方支持缅甸走符合本国国情的发展道路，支持缅甸各方实现更广泛、更牢固、更持久的和平和解。
 
-(完)
+” 澎湃新闻记者 杨文钦 于潇清责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 06:46 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 06:30 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 06:27 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 06:39 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 06:32 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 06:46 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 06:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 06:44 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 06:42 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 06:46 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 06:32 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 06:32 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 06:32 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 06:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 06:45 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 06:50 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 06:31 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 06:53 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 06:58 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 06:45 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 06:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 06:50 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 06:35 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 06:58 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 06:46 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 06:33 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 06:35 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 06:58 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 06:48 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 06:50 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:50 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/3685172073.shtml)
-- 2026-06-30 06:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/3485922.shtml)
-- 2026-06-30 06:44 - [急先锋](https://www.share.minike.top/Article/details/63151331.shtml)
-- 2026-06-30 06:52 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/6754816389.shtml)
-- 2026-06-30 06:30 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/597671915.shtml)
-- 2026-06-30 06:42 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/880216012927.shtml)
-- 2026-06-30 06:39 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/5820160.shtml)
-- 2026-06-30 06:38 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/765906293147.shtml)
-- 2026-06-30 06:34 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/17819093073.shtml)
-- 2026-06-30 06:26 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/023205.shtml)
-- 2026-06-30 06:42 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/53824813440.shtml)
-- 2026-06-30 06:38 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/677283.shtml)
-- 2026-06-30 06:27 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/036127229203.shtml)
-- 2026-06-30 06:25 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/25133331986.shtml)
-- 2026-06-30 06:33 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/55409165.shtml)
+- 2026-06-30 06:50 - [美股](https://www.blog.kurohicncr.top/Article/details/69320121859.shtml)
+- 2026-06-30 06:37 - [女心理师](https://www.blog.kurohicncr.top/Article/details/7886072.shtml)
+- 2026-06-30 06:40 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/629792.shtml)
+- 2026-06-30 06:37 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/404896191118.shtml)
+- 2026-06-30 06:57 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/57918.shtml)
+- 2026-06-30 06:30 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/1626060.shtml)
+- 2026-06-30 06:46 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/478274083.shtml)
+- 2026-06-30 06:39 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/64650566182.shtml)
+- 2026-06-30 06:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/574283855973.shtml)
+- 2026-06-30 06:50 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/554778971.shtml)
+- 2026-06-30 06:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/40357.shtml)
+- 2026-06-30 06:45 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/68794238896.shtml)
+- 2026-06-30 06:32 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/4530995368.shtml)
+- 2026-06-30 06:43 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/6514151.shtml)
+- 2026-06-30 06:41 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/6087101.shtml)

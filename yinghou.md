@@ -1,61 +1,56 @@
-# “十四五”期间，我国单位GDP使用建设用地面积累计下降19.36%
+# 纽伯格阿马托警告：市场“窄幅化”卷土重来，投资者需警惕集中度风险
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月25日电 (陶思阅)今年6月25日是第36个全国土地日。自然资源部25日透露，“十四五”期间，我国单位GDP使用建设用地面积累计下降19.36%，高出15%的预期目标4.36个百分点。 自然资源部当日还发布《节地技术和节地模式推荐目录(第五批)》，引导各地进一步提升节约集约用地水平，推动经济社会发展全面绿色转型。 据悉，本次目录共收录了来自22个省(区、市)的48
+随着美股主要股指徘徊于历史高位，其背后的结构性隐忧已引起华尔街重量级机构的警觉。纽伯格伯曼总裁兼首席投资官乔·阿马托周三在接受采访时指出，“市场窄幅化已经卷土重来”，并警告投资者当前的上涨高度依赖于少数超大型科技股。 乔·阿马托（Joe Amato）是纽伯格伯曼集团（Neuberger Berman）的总裁兼股票首席投资官（CIO）。 他是一名拥有超过40年行业经验的华尔街“老
 
 ## 正文
 
-中新网北京6月25日电 (陶思阅)今年6月25日是第36个全国土地日。
+随着美股主要股指徘徊于历史高位，其背后的结构性隐忧已引起华尔街重量级机构的警觉。
 
-自然资源部25日透露，“十四五”期间，我国单位GDP使用建设用地面积累计下降19.36%，高出15%的预期目标4.36个百分点。
+纽伯格伯曼总裁兼首席投资官乔·阿马托周三在接受采访时指出，“市场窄幅化已经卷土重来”，并警告投资者当前的上涨高度依赖于少数超大型科技股。
 
-自然资源部当日还发布《节地技术和节地模式推荐目录(第五批)》，引导各地进一步提升节约集约用地水平，推动经济社会发展全面绿色转型。
+乔·阿马托（Joe Amato）是纽伯格伯曼集团（Neuberger Berman）的总裁兼股票首席投资官（CIO）。
 
-据悉，本次目录共收录了来自22个省(区、市)的48个节地技术与节地模式典型案例，覆盖了城乡发展、产业园区及工业项目、基础设施和公共服务设施等多个领域节约集约用地，各具特色，有很强的代表性和示范性。
+他是一名拥有超过40年行业经验的华尔街“老兵”。
 
-目录聚焦“向优化结构要空间”“向立体开发要效益”“向科技创新要产出”“向功能转换要品质”四大方向。
+阿马托的这一判断直指当前美股市场最关键的风险点之一：标普500指数正变得越来越像一只重仓科技股的大型基金。
 
-围绕“向优化结构要空间”开展实践的典型案例共13个。
+尽管指数表面屡创新高，但推动其上涨的驱动力高度集中于少数几家巨头。
 
-在存量工业用地盘活方面，整合碎片化闲置土地、实施“腾笼换鸟”。
+数据显示，所谓的“科技七巨头”在标普500指数中的合计权重已高达30%至35%。
 
-例如，宁夏宁东市能源化工基地项目通过系统排查，锁定碎片化可盘活存量用地，探索“商业+文化”业态融合开发、公共设施邻建嵌入等方式，提升城市功能品质。
+这种结构意味着，这少数几家公司的股价波动，就足以影响整个大盘的走势。
 
 ## 相关推荐
 
-- 2026-06-30 06:43 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 06:46 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-30 06:34 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 06:32 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 06:31 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 06:33 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 06:35 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 06:36 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 06:41 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 06:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 06:30 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 06:46 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 06:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 06:44 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 06:40 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 06:46 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-30 06:53 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 06:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 06:46 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 06:44 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 06:35 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 06:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 06:52 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 06:32 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 06:42 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:44 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/3425555662.shtml)
-- 2026-06-30 06:49 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/415577.shtml)
-- 2026-06-30 06:26 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/4258731607.shtml)
-- 2026-06-30 06:47 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/6273218.shtml)
-- 2026-06-30 06:30 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/2879491.shtml)
-- 2026-06-30 06:43 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/3771062.shtml)
-- 2026-06-30 06:42 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/143086190.shtml)
-- 2026-06-30 06:48 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/517632136.shtml)
-- 2026-06-30 06:30 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/1440102.shtml)
-- 2026-06-30 06:45 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/938221.shtml)
-- 2026-06-30 06:46 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/880595837681.shtml)
-- 2026-06-30 06:29 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/37475584.shtml)
-- 2026-06-30 06:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/22056164.shtml)
-- 2026-06-30 06:53 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/326238554.shtml)
-- 2026-06-30 06:47 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/75751.shtml)
+- 2026-06-30 06:39 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/989523.shtml)
+- 2026-06-30 06:35 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/7596643756.shtml)
+- 2026-06-30 06:39 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/513031494701.shtml)
+- 2026-06-30 06:58 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/39058.shtml)
+- 2026-06-30 06:39 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/5268925814.shtml)
+- 2026-06-30 06:57 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/20335369829.shtml)
+- 2026-06-30 06:44 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/569353273354.shtml)
+- 2026-06-30 06:54 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/92062.shtml)
+- 2026-06-30 06:30 - [我和我的家乡](https://www.share.minike.top/Article/details/679248.shtml)
+- 2026-06-30 06:46 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/14954.shtml)
+- 2026-06-30 06:57 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/94697458.shtml)
+- 2026-06-30 06:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/515385287403.shtml)
+- 2026-06-30 06:45 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/43448584462.shtml)
+- 2026-06-30 06:45 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/2348870.shtml)
+- 2026-06-30 06:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/280918500793.shtml)

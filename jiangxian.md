@@ -1,60 +1,56 @@
-# 中国华侨公益基金会善行团公益基金驰援马达加斯加受灾侨胞
+# 长春法院2025年受理劳动人事争议案件超万件
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月24日电 (记者 张素)近日，中国华侨公益基金会善行团公益基金统筹发起的42吨赈灾爱心大米正式发车启运。这批物资将奔赴马达加斯加，为当地受灾侨胞纾解燃眉之急。 据介绍，马达加斯加地处西印度洋海域，常年受热带气旋、强降雨、洪水、干旱等自然灾害影响。当地基础设施薄弱，防灾抗灾能力有限。近日，受多重自然灾害叠加影响，当地侨胞出现粮食短缺等生活困境。 灾情发生后，善行团公
+中新网长春4月30日电 (谭伟旗 金乔)4月30日，长春市中级人民法院召开劳动者权益保护新闻发布会，通报全市法院劳动争议审判工作成效。 长春市中级人民法院审判委员会专职委员姚建新介绍，2025年，长春法院共受理劳动人事争议案件10002件，依法高效化解一批重大劳动争议纠纷，有效平衡劳资双方权益。 随着经济业态迭代更新，传统用工与平台新业态用工交织叠加，当地劳动争议呈现类型多元化
 
 ## 正文
 
-中新网北京6月24日电 (记者 张素)近日，中国华侨公益基金会善行团公益基金统筹发起的42吨赈灾爱心大米正式发车启运。
+中新网长春4月30日电 (谭伟旗 金乔)4月30日，长春市中级人民法院召开劳动者权益保护新闻发布会，通报全市法院劳动争议审判工作成效。
 
-这批物资将奔赴马达加斯加，为当地受灾侨胞纾解燃眉之急。
+长春市中级人民法院审判委员会专职委员姚建新介绍，2025年，长春法院共受理劳动人事争议案件10002件，依法高效化解一批重大劳动争议纠纷，有效平衡劳资双方权益。
 
-据介绍，马达加斯加地处西印度洋海域，常年受热带气旋、强降雨、洪水、干旱等自然灾害影响。
+随着经济业态迭代更新，传统用工与平台新业态用工交织叠加，当地劳动争议呈现类型多元化、诉求复杂化、纠纷群体化新特点。
 
-当地基础设施薄弱，防灾抗灾能力有限。
+对此，长春法院聚焦劳动司法领域重点难点，公正高效审理各类案件，兼顾劳动者合法权益与企业生存发展。
 
-近日，受多重自然灾害叠加影响，当地侨胞出现粮食短缺等生活困境。
+姚建新表示，长春法院一方面坚决守护劳动者劳动报酬、社会保险、工伤赔偿、休息休假等核心权益，依法整治违法用工、恶意欠薪、违规辞退等行为；另一方面坚持善意文明司法，引导企业规范用工、完善制度、合规经营，助力企业健康发展，营造规范有序、公平公正、和谐稳定的用工环境。
 
-灾情发生后，善行团公益基金迅速启动跨国援助机制，对接受灾侨胞核心需求，敲定以刚需主粮为核心的专项驰援方案，第一时间推进物资筹备工作。
+针对农民工欠薪问题，长春法院开展专项整治，通过“快立、快审、快调、快执”机制高效追回欠薪。
 
-负责赈灾爱心大米承接供应的白石山林业负责人介绍，团队严格对标赈灾物资标准，对大米物资筛选、质量核验、分类清点、规范封装、仓储打包等全流程环节严格把关，确保赈灾物资品质可靠、达标可用。
+同时，法院强化机制创新，推动劳动仲裁与诉讼建立常态化沟通，统一裁判尺度，畅通维权渠道；聚焦新业态用工，在商圈设立新业态案件巡回审判点，及时回应群众司法需求；广泛开展普法宣传，引导用人单位规范用工，提升劳动者依法维权意识。
 
-善行团公益基金于2013年发起，是在中国华侨公益基金会监管下规范化运作的全国性民间公益组织。
+姚建新说，依法维护劳动者合法权益，是人民法院践行司法为民宗旨、履行审判职能的重要使命，也是稳定就业、优化营商环境、化解基层矛盾、增进民生福祉的关键举措。
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 06:26 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 06:31 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 06:45 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 06:30 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 06:35 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 06:42 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 06:31 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 06:41 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 06:27 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 06:53 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 06:31 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 06:53 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 06:52 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 06:59 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 06:55 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 06:52 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 06:36 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 06:51 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 06:42 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 06:42 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 06:39 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 06:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 06:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/559633.shtml)
-- 2026-06-30 06:50 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/90796.shtml)
-- 2026-06-30 06:33 - [人类...完蛋了...](http://www.share.minike.top/Article/details/6957050439.shtml)
-- 2026-06-30 06:40 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/183213695.shtml)
-- 2026-06-30 06:43 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/5999162.shtml)
-- 2026-06-30 06:50 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/20789428125.shtml)
-- 2026-06-30 06:46 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/390329981601.shtml)
-- 2026-06-30 06:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/159811472.shtml)
-- 2026-06-30 06:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/472661.shtml)
-- 2026-06-30 06:44 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/680026621.shtml)
-- 2026-06-30 06:33 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/722173.shtml)
-- 2026-06-30 06:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/33056460.shtml)
-- 2026-06-30 06:49 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/70523.shtml)
-- 2026-06-30 06:34 - [小娘惹](https://www.blog.minike.top/Article/details/07885.shtml)
-- 2026-06-30 06:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/25793983164.shtml)
+- 2026-06-30 06:54 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/92988133.shtml)
+- 2026-06-30 06:40 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/08933490.shtml)
+- 2026-06-30 06:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/952012.shtml)
+- 2026-06-30 06:35 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/1728318100.shtml)
+- 2026-06-30 06:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/50087214.shtml)
+- 2026-06-30 06:54 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/7594807.shtml)
+- 2026-06-30 06:40 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/26341.shtml)
+- 2026-06-30 06:45 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/16590.shtml)
+- 2026-06-30 06:35 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/574285.shtml)
+- 2026-06-30 06:51 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/24817.shtml)
+- 2026-06-30 06:44 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/6918118.shtml)
+- 2026-06-30 06:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/22748858882.shtml)
+- 2026-06-30 06:37 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/726994564.shtml)
+- 2026-06-30 06:47 - [金牌调解](http://www.share.minike.top/Article/details/330836326307.shtml)
+- 2026-06-30 06:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/6562666494.shtml)

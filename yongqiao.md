@@ -1,60 +1,43 @@
-# 周国平用西方哲学解读庄子 提出庄子审美的人生观
+# 王沪宁出席长江生态环境保护民主监督总结暨黄河流域生态保护和高质量发展民主监督工作启动会
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月25日电 (记者 应妮)《至人庄子——周国平的庄子课》日前由人民文学出版社推出。这是周国平多年研究、解读《庄子》的最新成果。通过亲切平易、娓娓道来的诠释，看似零散的言论和寓言，被梳理成一套完整、清晰的庄子哲学思想脉络。 周国平在新书中有一个“野心”——为庄子在哲学史上证明。 西方哲学界长期认为中国只有老子一个哲学家。在日前的首发直播中，周国平说：“庄子在哲学上太精
+发布时间：2026年05月01日 08:31 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 正文
 
-中新网北京6月25日电 (记者 应妮)《至人庄子——周国平的庄子课》日前由人民文学出版社推出。
-
-这是周国平多年研究、解读《庄子》的最新成果。
-
-通过亲切平易、娓娓道来的诠释，看似零散的言论和寓言，被梳理成一套完整、清晰的庄子哲学思想脉络。
-
-周国平在新书中有一个“野心”——为庄子在哲学史上证明。
-
-西方哲学界长期认为中国只有老子一个哲学家。
-
-在日前的首发直播中，周国平说：“庄子在哲学上太精彩了，但是他的精彩到现在为止没有被看到，这一点特别遗憾。
-
-”他创作《至人庄子》的动力，是以西方哲学三大核心维度——本体论、认识论、人生论为标尺，“通过哲学的架构解读为什么庄子是一个哲学家”。
-
-周国平认为，庄子三者兼备，是中国哲学源头处思想体系完整的哲学家。
+发布时间：2026年05月01日 08:31 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:47 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 06:29 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 06:27 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 06:42 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 06:38 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 06:38 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 06:53 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 06:50 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 06:52 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 06:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 06:48 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 06:51 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 06:25 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 06:44 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 06:55 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 06:36 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 06:34 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 06:40 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 06:47 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 06:51 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 06:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 06:54 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 06:32 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 06:52 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 06:45 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:29 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/006791912552.shtml)
-- 2026-06-30 06:31 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/18044.shtml)
-- 2026-06-30 06:47 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/85140669.shtml)
-- 2026-06-30 06:48 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/4863370172.shtml)
-- 2026-06-30 06:46 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/85966638.shtml)
-- 2026-06-30 06:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/8992349907.shtml)
-- 2026-06-30 06:52 - [巴西vs日本](http://www.share.minike.top/Article/details/89272384056.shtml)
-- 2026-06-30 06:37 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/78225950.shtml)
-- 2026-06-30 06:43 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/09220642417.shtml)
-- 2026-06-30 06:50 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/747474.shtml)
-- 2026-06-30 06:45 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/56379.shtml)
-- 2026-06-30 06:44 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/638306965.shtml)
-- 2026-06-30 06:33 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/8154627600.shtml)
-- 2026-06-30 06:29 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/67036.shtml)
-- 2026-06-30 06:34 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/09281722.shtml)
+- 2026-06-30 06:45 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/07684599.shtml)
+- 2026-06-30 06:53 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/51573.shtml)
+- 2026-06-30 06:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/48094.shtml)
+- 2026-06-30 06:51 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/745368124.shtml)
+- 2026-06-30 06:32 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/1545870.shtml)
+- 2026-06-30 06:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/12058774625.shtml)
+- 2026-06-30 06:39 - [小娘惹](http://www.share.minike.top/Article/details/738573513.shtml)
+- 2026-06-30 06:44 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/24057162.shtml)
+- 2026-06-30 06:47 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/294015674.shtml)
+- 2026-06-30 06:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/77705.shtml)
+- 2026-06-30 06:51 - [扬名立万](https://www.share.minike.top/Article/details/72955145000.shtml)
+- 2026-06-30 06:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/93329.shtml)
+- 2026-06-30 06:41 - [斛珠夫人](http://www.blog.minike.top/Article/details/12471692683.shtml)
+- 2026-06-30 06:43 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/727025328188.shtml)
+- 2026-06-30 06:31 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/70182.shtml)

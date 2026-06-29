@@ -1,61 +1,58 @@
-# 刚果（金）加强疫区人员旅行管理 法国隔离密接者
+# 光大期货：4月30日软商品日报
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-刚果(金)政府24日宣布，来自该国埃博拉疫区的人员在进行国内或国际旅行前，须先完成21天自我观察，以降低疫情传播风险。法国24日报告确诊一例从刚果(金)返回的输入性病例后，该国卫生部已确认并隔离5名密切接触者。刚果(金)政府当天发表公告说，法国报告的病例曾于5月22日至6月19日在刚果(金)东部伊图里省鲁万帕拉镇一处埃博拉治疗中心工作，是一名医生，结束轮换后返回法国。该医生在刚
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西国家商品供应公司（Conab）发布首期2026/27榨季甘蔗调查报告，该机构预计2026/27榨季巴西甘蔗产量将达7.091亿吨，同比增长5.3%，创下该机构统计史上第二高纪录，仅次于2023/24榨季甘蔗产量。巴西2026/27榨季乙醇总产量将达406.9亿升。随着乙醇市场环境持
 
 ## 正文
 
-刚果(金)政府24日宣布，来自该国埃博拉疫区的人员在进行国内或国际旅行前，须先完成21天自我观察，以降低疫情传播风险。
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西国家商品供应公司（Conab）发布首期2026/27榨季甘蔗调查报告，该机构预计2026/27榨季巴西甘蔗产量将达7.091亿吨，同比增长5.3%，创下该机构统计史上第二高纪录，仅次于2023/24榨季甘蔗产量。
 
-法国24日报告确诊一例从刚果(金)返回的输入性病例后，该国卫生部已确认并隔离5名密切接触者。
+巴西2026/27榨季乙醇总产量将达406.9亿升。
 
-刚果(金)政府当天发表公告说，法国报告的病例曾于5月22日至6月19日在刚果(金)东部伊图里省鲁万帕拉镇一处埃博拉治疗中心工作，是一名医生，结束轮换后返回法国。
+随着乙醇市场环境持续向好，叠加甘蔗制乙醇与玉米制乙醇产量同步扩张，预计乙醇总产量同比增长8.5%，或将刷新历史纪录。
 
-该医生在刚果(金)期间未出现异常症状。
+预计甘蔗制乙醇产量达292.6亿升，同比增加7.1%。
 
-公告说，已同法国政府联系并共享相关数据，以便追踪可能的接触者。
+现货报价方面，广西制糖集团报价区间5310~5400元/吨，部分下调10元/吨；云南制糖集团报价5140~5220元/吨，下调10元/吨；加工糖厂主流报价区间为5600~5880元/吨，个别下调10元/吨。
 
-刚果(金)政府同时宣布，来自该国埃博拉疫区人员在进行国内或国际旅行前，须先完成21天自我观察，相关部门须加强对潜在暴露人员的管理。
+原糖方面，受原油大幅上涨影响，糖价涨幅超3%，除宏观扰动外，未来巴西压榨进度是短期市场焦点。
 
-法国卫生部长斯特凡妮·里斯特24日说，上述确诊病例在医院接受隔离治疗，已确认并隔离5名密切接触者，他们乘坐同一航班返回法国。
+国内方面，上有丰产压力下有政策及成本支撑，远期天气和通胀题材仍未发酵，多空双方仍将交织反复。
 
-刚果(金)政府24日发布的疫情数据显示，该国本轮埃博拉疫情累计确诊病例升至1118例，其中291例死亡。
+假期在即，注意持仓风险。
 
 ## 相关推荐
 
-- 2026-06-30 06:44 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 06:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 06:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 06:52 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 06:39 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 06:32 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 06:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 06:34 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 06:29 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 06:27 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 06:46 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 06:27 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 06:31 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 06:49 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-30 06:45 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 06:47 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 06:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 06:51 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 06:36 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 06:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 06:31 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 06:56 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 06:52 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 06:53 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 06:59 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 06:57 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 06:31 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/05691706965.shtml)
-- 2026-06-30 06:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/7061301336.shtml)
-- 2026-06-30 06:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/0897546.shtml)
-- 2026-06-30 06:31 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/55493076071.shtml)
-- 2026-06-30 06:26 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/21281534.shtml)
-- 2026-06-30 06:30 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/58585871282.shtml)
-- 2026-06-30 06:52 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/60613.shtml)
-- 2026-06-30 06:45 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/812059315320.shtml)
-- 2026-06-30 06:40 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/4857383491.shtml)
-- 2026-06-30 06:28 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/9920710081.shtml)
-- 2026-06-30 06:40 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/2754419.shtml)
-- 2026-06-30 06:49 - [急先锋](http://www.blog.minike.top/Article/details/809742.shtml)
-- 2026-06-30 06:41 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/167766455.shtml)
-- 2026-06-30 06:26 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/182277322246.shtml)
-- 2026-06-30 06:38 - [金刚川](http://www.blog.kurohicncr.top/Article/details/388551430942.shtml)
+- 2026-06-30 06:39 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/380967.shtml)
+- 2026-06-30 06:39 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/927361.shtml)
+- 2026-06-30 06:51 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/179164977.shtml)
+- 2026-06-30 06:33 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/1222903096.shtml)
+- 2026-06-30 06:51 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/15810368653.shtml)
+- 2026-06-30 06:52 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/09513966.shtml)
+- 2026-06-30 06:35 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/2606022749.shtml)
+- 2026-06-30 06:42 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/74488476352.shtml)
+- 2026-06-30 06:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/29459.shtml)
+- 2026-06-30 06:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/14518.shtml)
+- 2026-06-30 06:56 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/4608252966.shtml)
+- 2026-06-30 06:31 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/69810456.shtml)
+- 2026-06-30 06:41 - [中国新一轮出口管制直指日本命脉](http://www.share.minike.top/Article/details/332791879486.shtml)
+- 2026-06-30 06:58 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/4980944.shtml)
+- 2026-06-30 06:30 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/699530068375.shtml)

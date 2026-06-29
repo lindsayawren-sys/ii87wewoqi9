@@ -1,58 +1,56 @@
-# 17家商业银行共计发行“二永债”9800亿元
+# 日本已敲定修改自卫队“官阶”的方案，外交部回应
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-原标题：17家商业银行，共计发行9800亿元！ 来源：金融时报客户端 记者：张冰洁 在经历了整整一个季度的“空窗期”后，二季度以来，商业银行二级资本债与永续债（以下简称“二永债”）的发行节奏明显加快。 《金融时报》记者梳理Wind数据时发现，截至6月24日，17家商业银行共计发行33只“二永债”，合计金额高达9800亿元。从发行主体看，国有大行成为“二永债”发行的绝对主力，六家
+4月30日，外交部发言人林剑主持例行记者会。 有记者提问，据报道，日本已敲定修改自卫队官阶名称的方案，并计划于年内向国会提交相关修订草案。新的更名方案将恢复二战结束前日本军队的“大将”“大佐”等称谓。报道还称，日本政府高官评价此举旨在“营造具有荣誉感的工作环境，以吸引和留住人才”。发言人对此有何评论？ 林剑表示，二战结束后，日本作为战败国，军队被解散、军事机构被撤销。1954年
 
 ## 正文
 
-原标题：17家商业银行，共计发行9800亿元！
+4月30日，外交部发言人林剑主持例行记者会。
 
-来源：金融时报客户端 记者：张冰洁 在经历了整整一个季度的“空窗期”后，二季度以来，商业银行二级资本债与永续债（以下简称“二永债”）的发行节奏明显加快。
+有记者提问，据报道，日本已敲定修改自卫队官阶名称的方案，并计划于年内向国会提交相关修订草案。
 
-《金融时报》记者梳理Wind数据时发现，截至6月24日，17家商业银行共计发行33只“二永债”，合计金额高达9800亿元。
+新的更名方案将恢复二战结束前日本军队的“大将”“大佐”等称谓。
 
-从发行主体看，国有大行成为“二永债”发行的绝对主力，六家国有大行年内共发行16只“二永债”，合计金额高达6150亿元，占全市场发行总量的60%以上。
+报道还称，日本政府高官评价此举旨在“营造具有荣誉感的工作环境，以吸引和留住人才”。
 
-近日，中国建设银行完成2026年第一期无固定期限资本债券（以下简称“永续债”）发行工作。
+发言人对此有何评论？
 
-本期永续债发行规模为300亿元，基础发行规模200亿元，超额增发100亿元，期限为5+N年期，票面利率1.92%，全场倍数2.4倍。
+林剑表示，二战结束后，日本作为战败国，军队被解散、军事机构被撤销。
 
-“本次永续债在成本可控前提下合理平衡发行规模与价格，精准匹配市场投资需求。
+1954年日本自卫队成立时废弃了旧军队中的称谓，采用数字序列衔级名称等新制度。
 
-”建设银行发布的消息显示，本次募集资金将用于补充其他一级资本，有助于该行持续巩固多层次资本实力、夯实发展底盘。
+日本国内普遍认为，自卫队采用去军事化的衔级名称，意在切断与旧军队的历史联系，体现和平宪法的精神。
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 06:48 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 06:28 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 06:24 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 06:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 06:29 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 06:29 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 06:50 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 06:32 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 06:28 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 06:45 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 06:29 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 06:55 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 06:42 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 06:48 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 06:55 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 06:47 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 06:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 06:58 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 06:44 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 06:32 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 06:58 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:51 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/5425713758.shtml)
-- 2026-06-30 06:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/543398381.shtml)
-- 2026-06-30 06:25 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/4326411.shtml)
-- 2026-06-30 06:45 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/686159586.shtml)
-- 2026-06-30 06:47 - [我们的少年时代2](https://www.share.minike.top/Article/details/11387119419.shtml)
-- 2026-06-30 06:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/46136287.shtml)
-- 2026-06-30 06:24 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/61374.shtml)
-- 2026-06-30 06:46 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/37202937.shtml)
-- 2026-06-30 06:44 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/516476427472.shtml)
-- 2026-06-30 06:45 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/247604443738.shtml)
-- 2026-06-30 06:29 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/2704375.shtml)
-- 2026-06-30 06:27 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/32859261954.shtml)
-- 2026-06-30 06:27 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/56628.shtml)
-- 2026-06-30 06:48 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/624361882.shtml)
-- 2026-06-30 06:50 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/515228415293.shtml)
+- 2026-06-30 06:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/2317559.shtml)
+- 2026-06-30 06:51 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/14838295.shtml)
+- 2026-06-30 06:40 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/215185868.shtml)
+- 2026-06-30 06:53 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/0592262106.shtml)
+- 2026-06-30 06:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/3885653519.shtml)
+- 2026-06-30 06:47 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/10594012163.shtml)
+- 2026-06-30 06:38 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/48534.shtml)
+- 2026-06-30 06:37 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/477773688.shtml)
+- 2026-06-30 06:50 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/71504397.shtml)
+- 2026-06-30 06:37 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/05461.shtml)
+- 2026-06-30 06:37 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/012656.shtml)
+- 2026-06-30 06:50 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/951602945430.shtml)
+- 2026-06-30 06:33 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/549622.shtml)
+- 2026-06-30 06:46 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/472484.shtml)
+- 2026-06-30 06:46 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/973375530.shtml)

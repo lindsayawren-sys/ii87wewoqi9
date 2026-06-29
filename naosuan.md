@@ -1,57 +1,57 @@
-# 苹果调整Mac芯片战略 下一代高端芯片将直接跃迁至M7系列
+# 失控的军国列车，“自杀式冲锋”？｜新漫评
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-苹果公司正对其Mac芯片战略进行史上最大调整之一，准备让下一代高端处理器直接跃迁至聚焦人工智能的新一代芯片。 知情人士称，目前使用M5系列的苹果计划最早于今年推出基础版M6处理器，用于入门级Mac，但该公司将首次跳过这款芯片的高端版本。 知情人士称，苹果转而计划在2027年推出具备更先进计算和图形处理能力的下一代Pro和Max芯片，作为新一代M7芯片的一部分。 苹果此举不同寻常
+近日，日本首相高市早苗连续向供奉二战甲级战犯的靖国神社供奉“真榊”、“玉串料”等。同一天，日本政府通过内阁决议，正式修改“防卫装备转移三原则”，原则上允许杀伤性武器对外出口，出口前无需国会提前审批。这是日本政府推动“再军事化”的关键一步，意味着日本在“再军事化”的道路上愈走愈远，面临失控风险。 1967年，日本政府确立“武器出口三原则”，全面禁止武器出口。然而，随着日本右翼势力
 
 ## 正文
 
-苹果公司正对其Mac芯片战略进行史上最大调整之一，准备让下一代高端处理器直接跃迁至聚焦人工智能的新一代芯片。
+近日，日本首相高市早苗连续向供奉二战甲级战犯的靖国神社供奉“真榊”、“玉串料”等。
 
-知情人士称，目前使用M5系列的苹果计划最早于今年推出基础版M6处理器，用于入门级Mac，但该公司将首次跳过这款芯片的高端版本。
+同一天，日本政府通过内阁决议，正式修改“防卫装备转移三原则”，原则上允许杀伤性武器对外出口，出口前无需国会提前审批。
 
-知情人士称，苹果转而计划在2027年推出具备更先进计算和图形处理能力的下一代Pro和Max芯片，作为新一代M7芯片的一部分。
+这是日本政府推动“再军事化”的关键一步，意味着日本在“再军事化”的道路上愈走愈远，面临失控风险。
 
-苹果此举不同寻常，旨在加快推出原本计划稍后发布的技术。
+1967年，日本政府确立“武器出口三原则”，全面禁止武器出口。
 
-这一调整应有助于满足市场对设备端AI功能和图形处理需求更高的软件日益增长的需求。
+然而，随着日本右翼势力日益崛起，政府持续对这一限制政策进行松绑。
 
-苹果的Pro和Max芯片面向高端Mac mini、Mac Studio和MacBook Pro，而基础版芯片通常用于入门级MacBook Pro、入门级Mac mini和iMac台式电脑。
+2014年，安倍政府用“防卫装备转移三原则”取而代之，在措辞上淡化军事敏感性。
 
-苹果还在部分iPad Pro和iPad Air机型中使用这些低端芯片。
+此后，日本借乌克兰危机、巴以冲突持续升级之机，加速松绑。
 
-苹果发言人拒绝就公司计划置评。
+直至今日，日本可谓彻底撕毁战后延续近六十年的武器出口“枷锁”，一系列危险动作，更让日本右翼势力撕下伪装，将其完整的“再军事化”路线图彻底曝光在世人眼前。
 
 ## 相关推荐
 
-- 2026-06-30 06:34 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 06:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 06:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 06:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 06:45 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 06:27 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 06:27 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 06:48 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 06:24 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 06:49 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 06:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 06:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 06:30 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 06:51 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 06:39 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 06:50 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 06:42 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 06:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 06:46 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 06:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 06:47 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 06:51 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:46 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/63220.shtml)
-- 2026-06-30 06:52 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/22516398.shtml)
-- 2026-06-30 06:48 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/572851.shtml)
-- 2026-06-30 06:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/57283572318.shtml)
-- 2026-06-30 06:37 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/82874.shtml)
-- 2026-06-30 06:32 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/274659814425.shtml)
-- 2026-06-30 06:39 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/894790110833.shtml)
-- 2026-06-30 06:34 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/106945183221.shtml)
-- 2026-06-30 06:40 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/754925.shtml)
-- 2026-06-30 06:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/717445900.shtml)
-- 2026-06-30 06:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/896920.shtml)
-- 2026-06-30 06:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/435436.shtml)
-- 2026-06-30 06:34 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/974136376.shtml)
-- 2026-06-30 06:49 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/86350.shtml)
-- 2026-06-30 06:46 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/3977408.shtml)
+- 2026-06-30 06:57 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/4438582159.shtml)
+- 2026-06-30 06:59 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/99342707.shtml)
+- 2026-06-30 06:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/99899.shtml)
+- 2026-06-30 06:44 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/86125506151.shtml)
+- 2026-06-30 06:46 - [点菜也要教吗](https://www.share.minike.top/Article/details/499565095553.shtml)
+- 2026-06-30 06:57 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/6409847507.shtml)
+- 2026-06-30 06:59 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/97653.shtml)
+- 2026-06-30 06:52 - [日本进球](https://www.share.minike.top/Article/details/21071993488.shtml)
+- 2026-06-30 06:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/521644.shtml)
+- 2026-06-30 06:59 - [沉睡花园](https://www.share.minike.top/Article/details/3978291.shtml)
+- 2026-06-30 06:50 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/161050.shtml)
+- 2026-06-30 06:49 - [一见倾心](http://www.share.minike.top/Article/details/180985525.shtml)
+- 2026-06-30 06:36 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/6988728.shtml)
+- 2026-06-30 06:48 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/329790.shtml)
+- 2026-06-30 06:39 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/711058.shtml)

@@ -1,56 +1,57 @@
-# 新氧转型迷局：传统业务持续下挫 央视点名、供应商封杀、明星起诉医美诊疗业务屡触合规红线
+# 央行、海关总署：进一步优化黄金及黄金制品进出口准许证“非一批一证”管理
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：新消费主张/cici 新氧2025年财报勾勒出一家转型深水区公司的典型困境：传统业务断崖下滑，信息与预订服务收入骤降32.2%，2024年该业务收入同比下降19.3%。陷入增长焦虑的新氧科技，不断尝试开拓新的业务以稳增长。从医美激光器械到独家代理玻尿酸再到开设医疗美容机构
+4月30日金融一线消息，为进一步简政放权，促进贸易便利化，优化营商环境，中国人民银行、海关总署决定进一步优化黄金及黄金制品进出口准许证“非一批一证”管理，现就有关事宜公告如下：一、黄金及黄金制品进出口业务频繁的法人可以按《黄金及黄金制品进出口管理办法》（中国人民银行 海关总署令〔2020〕第3号修订）的条件和审批流程，申请《中国人民银行黄金及黄金制品进出口准许证》“非一批一证”
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月30日金融一线消息，为进一步简政放权，促进贸易便利化，优化营商环境，中国人民银行、海关总署决定进一步优化黄金及黄金制品进出口准许证“非一批一证”管理，现就有关事宜公告如下：一、黄金及黄金制品进出口业务频繁的法人可以按《黄金及黄金制品进出口管理办法》（中国人民银行 海关总署令〔2020〕第3号修订）的条件和审批流程，申请《中国人民银行黄金及黄金制品进出口准许证》“非一批一证”（以下简称《准许证》“非一批一证”）。
 
-出品：新浪财经上市公司研究院 作者：新消费主张/cici 新氧2025年财报勾勒出一家转型深水区公司的典型困境：传统业务断崖下滑，信息与预订服务收入骤降32.2%，2024年该业务收入同比下降19.3%。
+中国人民银行及其分行将对核发的《准许证》“非一批一证”使用情况，通过联网核查系统进行跟踪，加强监督管理。
 
-陷入增长焦虑的新氧科技，不断尝试开拓新的业务以稳增长。
+二、实行《准许证》“非一批一证”管理的海关为北京、上海、广州、南京、青岛、深圳、天津、成都、武汉、西安、厦门、宁波、三亚、重庆、南宁15个海关。
 
-从医美激光器械到独家代理玻尿酸再到开设医疗美容机构等，公司不断向产业链中上游延伸，不断做重资产。
+其他海关仍按照现行规定办理。
 
-从最新一期财报可以看出，美容治疗服务业务的延伸给新氧的业绩带来结构性变化。
+三、《准许证》“非一批一证”自签发之日起9个月内有效，逾期自行失效。
 
-2025年全年，线下连锁业务收入达到6.75亿元，同比增长298.7%，在总营收中的占比（44%）已首次超过了其传统的线上信息与预订服务（32.8%）。
+《准许证》“非一批一证”可以在有效期且不超过规定数量内不限制报关批次使用。
 
-新业务虽营收激增却深陷“烧钱”泥潭，成本同步飙升294.2%。
+本公告自2026年6月1日起施行。
 
-比财务困局更令人担忧的，是线下扩张中集中爆发的合规危机：央视点名、供应商封杀、明星侵权诉讼接踵而至。
+《中国人民银行 海关总署公告》（〔2016〕第9号）、《中国人民银行 海关总署公告》（〔2017〕第5号）同时废止。
 
 ## 相关推荐
 
-- 2026-06-30 06:34 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 06:51 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 06:45 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 06:47 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 06:43 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 06:34 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 06:48 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 06:35 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 06:29 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 06:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 06:49 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 06:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 06:53 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 06:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 06:55 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 06:54 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 06:40 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 06:31 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 06:49 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 06:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 06:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [千与千寻](http://www.blog.minike.top/Article/details/8838010.shtml)
-- 2026-06-30 06:48 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/633131851.shtml)
-- 2026-06-30 06:33 - [网瘾賊大的阿嬷](https://www.blog.kurohicncr.top/Article/details/3044689600.shtml)
-- 2026-06-30 06:51 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/028445.shtml)
-- 2026-06-30 06:27 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/49894.shtml)
-- 2026-06-30 06:34 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/431204939317.shtml)
-- 2026-06-30 06:24 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/63829086.shtml)
-- 2026-06-30 06:48 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/786882833232.shtml)
-- 2026-06-30 06:25 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/630073752802.shtml)
-- 2026-06-30 06:25 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/0174828.shtml)
-- 2026-06-30 06:29 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/721403876.shtml)
-- 2026-06-30 06:32 - [月亮](http://www.blog.minike.top/Article/details/8777429261.shtml)
-- 2026-06-30 06:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/51526.shtml)
-- 2026-06-30 06:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/0687905077.shtml)
-- 2026-06-30 06:33 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/0575465.shtml)
+- 2026-06-30 06:45 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/85802676872.shtml)
+- 2026-06-30 06:30 - [绘画区你赢了](http://www.blog.minike.top/Article/details/072835.shtml)
+- 2026-06-30 06:47 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/58194.shtml)
+- 2026-06-30 06:52 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/745839.shtml)
+- 2026-06-30 06:37 - [毒液2](https://www.blog.minike.top/Article/details/8054026594.shtml)
+- 2026-06-30 06:53 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/33324.shtml)
+- 2026-06-30 06:52 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/019594.shtml)
+- 2026-06-30 06:45 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/43288519.shtml)
+- 2026-06-30 06:44 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/9288415.shtml)
+- 2026-06-30 06:30 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/04674041102.shtml)
+- 2026-06-30 06:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/8468133316.shtml)
+- 2026-06-30 06:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/75442647.shtml)
+- 2026-06-30 06:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/94942753807.shtml)
+- 2026-06-30 06:46 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/31547779165.shtml)
+- 2026-06-30 06:40 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/41399653.shtml)

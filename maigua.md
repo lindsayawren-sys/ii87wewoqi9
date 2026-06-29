@@ -1,59 +1,58 @@
-# 隔夜逆回购操作月底将登场 未来政策利率将盯哪一个？
+# 韩正分别会见第80届联合国大会主席贝尔伯克、澳大利亚外长黄英贤
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-每经记者|张寿林 6月25日，中国人民银行发布公开市场业务公告，为更好匹配银行体系短期流动性需求，中国人民银行将在6月29日、6月30日公开市场操作中增加隔夜逆回购操作品种，隔夜逆回购操作采用固定利率、数量招标。 在政策利率持续盯住7天期逆回购的背景下，隔夜逆回购的推出是否意味着下一步政策利率换锚？ 中信证券首席经济学家明明团队接受《每日经济新闻》记者采访时表示，隔夜逆回购当下
+新华社北京4月29日电 4月29日，国家副主席韩正在北京分别会见第80届联合国大会主席贝尔伯克、澳大利亚外长黄英贤。 在会见贝尔伯克时，韩正表示，当前国际形势变乱交织，以联合国为核心的国际体系遭受严重冲击。去年9月，习近平主席提出全球治理倡议，发出坚定捍卫联合国权威和核心地位的明确信号，得到国际社会广泛支持。中方愿以落实倡议为契机，持续深化同联合国合作，支持联合国大会坚持真正的
 
 ## 正文
 
-每经记者|张寿林 6月25日，中国人民银行发布公开市场业务公告，为更好匹配银行体系短期流动性需求，中国人民银行将在6月29日、6月30日公开市场操作中增加隔夜逆回购操作品种，隔夜逆回购操作采用固定利率、数量招标。
+新华社北京4月29日电 4月29日，国家副主席韩正在北京分别会见第80届联合国大会主席贝尔伯克、澳大利亚外长黄英贤。
 
-在政策利率持续盯住7天期逆回购的背景下，隔夜逆回购的推出是否意味着下一步政策利率换锚？
+在会见贝尔伯克时，韩正表示，当前国际形势变乱交织，以联合国为核心的国际体系遭受严重冲击。
 
-中信证券首席经济学家明明团队接受《每日经济新闻》记者采访时表示，隔夜逆回购当下指定日期，以及“增加操作”的表述，可能意味着其操作频率未必是常态化。
+去年9月，习近平主席提出全球治理倡议，发出坚定捍卫联合国权威和核心地位的明确信号，得到国际社会广泛支持。
 
-伴随后续改革推进，预计隔夜和7天逆回购孰为主要政策利率的定位将会得到进一步明确。
+中方愿以落实倡议为契机，持续深化同联合国合作，支持联合国大会坚持真正的多边主义、坚持发展优先和守正创新，共同维护世界和平安全、促进发展繁荣。
 
-隔夜期限利率变动受更多关注 隔夜逆回购政策调整，成为当前货币政策框架完善进程中引人注目的一项突破。
+贝尔伯克表示，中国是联合国关键合作伙伴和多边主义重要支柱。
 
-近日，中国人民银行行长潘功胜在2026陆家嘴论坛主题演讲中提出了改革完善货币政策框架的一些考虑，包括明确7天期逆回购操作利率为主要政策利率，适度收窄利率走廊的宽度等。
+我赞赏习近平主席提出的重要倡议，愿同中方深化合作，重振多边主义，共同促进全球和平发展。
 
-在实践中，7天期逆回购操作利率较好地发挥了市场定价锚的作用，向市场利率的传导有效，短端利率波动性逐步降低。
+在会见黄英贤时，韩正表示，中澳关系10多年来取得长足发展，也经历过波折。
 
-潘功胜说，为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化。
+近年来，习近平主席同阿尔巴尼斯总理多次会晤，达成重要共识，为中澳关系继续向前发展作出战略引领，推动两国各领域交流合作取得实在成果。
 
 ## 相关推荐
 
-- 2026-06-30 06:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 06:43 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 06:28 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 06:49 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 06:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 06:50 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 06:34 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 06:24 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 06:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 06:28 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 06:37 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 06:39 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 06:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 06:57 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 06:47 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 06:59 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 06:37 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 06:57 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 06:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 06:30 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 06:44 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 06:48 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 06:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 06:48 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 06:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:41 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/451683835.shtml)
-- 2026-06-30 06:36 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/60032925.shtml)
-- 2026-06-30 06:34 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/57602261962.shtml)
-- 2026-06-30 06:33 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/5221793374.shtml)
-- 2026-06-30 06:35 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/686958.shtml)
-- 2026-06-30 06:50 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/6281400661.shtml)
-- 2026-06-30 06:35 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/948810260.shtml)
-- 2026-06-30 06:47 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/455701.shtml)
-- 2026-06-30 06:32 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/2982269748.shtml)
-- 2026-06-30 06:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/54488529.shtml)
-- 2026-06-30 06:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/3927447.shtml)
-- 2026-06-30 06:51 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/685043321271.shtml)
-- 2026-06-30 06:31 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/04347.shtml)
-- 2026-06-30 06:40 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/215697352960.shtml)
-- 2026-06-30 06:46 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/47906120.shtml)
+- 2026-06-30 06:51 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/105991733866.shtml)
+- 2026-06-30 06:54 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/72953605180.shtml)
+- 2026-06-30 06:34 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/224223218650.shtml)
+- 2026-06-30 06:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/0198096.shtml)
+- 2026-06-30 06:43 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/61872053.shtml)
+- 2026-06-30 06:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/47892079167.shtml)
+- 2026-06-30 06:45 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/2238923.shtml)
+- 2026-06-30 06:49 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/67980685916.shtml)
+- 2026-06-30 06:56 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/150364243.shtml)
+- 2026-06-30 06:42 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/355033.shtml)
+- 2026-06-30 06:54 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/552649.shtml)
+- 2026-06-30 06:37 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/529907812.shtml)
+- 2026-06-30 06:50 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/39520.shtml)
+- 2026-06-30 06:36 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/881618978721.shtml)
+- 2026-06-30 06:34 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/67987762068.shtml)

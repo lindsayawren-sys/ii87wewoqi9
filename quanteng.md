@@ -1,60 +1,56 @@
-# 张雪机车首次批量出口摩托车至欧洲
+# 五一假期，这些方向火车票仍有余票
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新社重庆6月25日电 (张旭)重庆海关25日发布消息称，重庆张雪机车工业有限公司(以下简称“张雪机车”)生产的一批摩托车整车24日从上海乘船出海，出口欧洲市场。 这批摩托车整车共计200余辆，由张雪机车申报出口，经重庆海关所属重庆港海关监管后，从重庆果园港启程，沿长江顺流而下，经上海转海运，最终将运抵波兰。这是张雪机车生产的摩托车首次批量出口至欧洲。 重庆港海关关员介绍，张雪
+中新网北京4月29日电(记者 李京统)记者从中国国家铁路集团有限公司客运中心获悉，铁路五一假期运输今日启动，自4月29日至5月6日，为期8天。自4月15日发售五一假期车票以来，截至29日8时，铁路12306已累计发售五一假期运输期间火车票8302万张，部分线路和时段火车票仍有余票。 国铁集团客运中心相关负责人介绍，从目前铁路12306售票情况看，部分线路和时段火车票仍有余票可发
 
 ## 正文
 
-中新社重庆6月25日电 (张旭)重庆海关25日发布消息称，重庆张雪机车工业有限公司(以下简称“张雪机车”)生产的一批摩托车整车24日从上海乘船出海，出口欧洲市场。
+中新网北京4月29日电(记者 李京统)记者从中国国家铁路集团有限公司客运中心获悉，铁路五一假期运输今日启动，自4月29日至5月6日，为期8天。
 
-这批摩托车整车共计200余辆，由张雪机车申报出口，经重庆海关所属重庆港海关监管后，从重庆果园港启程，沿长江顺流而下，经上海转海运，最终将运抵波兰。
+自4月15日发售五一假期车票以来，截至29日8时，铁路12306已累计发售五一假期运输期间火车票8302万张，部分线路和时段火车票仍有余票。
 
-这是张雪机车生产的摩托车首次批量出口至欧洲。
+国铁集团客运中心相关负责人介绍，从目前铁路12306售票情况看，部分线路和时段火车票仍有余票可发售。
 
-重庆港海关关员介绍，张雪机车是首次在果园港开展出口报关业务。
+如，4月30日，北京至大同、呼和浩特、上海，上海至福州、昆明、南昌，广州至香港、昆明，成都至西安、广州、北京；5月1日，北京至大同，广州至香港、南宁、南昌，成都至西安、上海、北京；5月5日，香港、南宁至广州，西安、南宁、上海至成都。
 
-为保障该批货物能高效运抵欧洲，重庆港海关通过多式联运模式，实现了“一次申报、一单贯通”，企业申报数据更精简，办理通关手续更便捷。
+此外，铁路部门在确保安全前提下，于4月29日夜间至5月2日凌晨、5月4日夜间至6日凌晨在京沪、京广、京哈、沪昆等高铁干线安排开行直通夜间高铁，目前夜间高铁部分车次仍有余票，如4月30日太原、大同、安阳、沈阳、长春至北京；5月1日北京至郑州、沈阳，武汉至广州、上海，南京至上海；5月5日沈阳至北京，太原至北京，南昌至上海，上海至武汉等。
 
-“直接在果园港报关出口非常方便，特别是江海联运模式，让我们的摩托车可以更加‘轻装上阵’走向国际市场。
-
-”张雪机车外贸部部长黄秦表示，张雪机车以往更多是出口到亚洲市场，最近在欧洲市场的订单增长迅速。
-
-除了这批摩托车外，还有330辆出口到西班牙的摩托车也已经从果园港发出，预计将在近日登船出海。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 06:45 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 06:31 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 06:26 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 06:43 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 06:45 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 06:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 06:32 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 06:40 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 06:35 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-30 06:34 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 06:26 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 06:52 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 06:50 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 06:37 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 06:53 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 06:37 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 06:56 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 06:38 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 06:31 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 06:40 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 06:53 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 06:57 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 06:58 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 06:40 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 06:45 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 06:52 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 06:34 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:41 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/1571705.shtml)
-- 2026-06-30 06:41 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/9102391.shtml)
-- 2026-06-30 06:51 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/688352990338.shtml)
-- 2026-06-30 06:37 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/6220844.shtml)
-- 2026-06-30 06:35 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/0691511109.shtml)
-- 2026-06-30 06:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/6907685.shtml)
-- 2026-06-30 06:48 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/60327865187.shtml)
-- 2026-06-30 06:40 - [《共患难》](http://www.blog.minike.top/Article/details/309188544.shtml)
-- 2026-06-30 06:27 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/30879.shtml)
-- 2026-06-30 06:47 - [急先锋](http://www.blog.minike.top/Article/details/762604737.shtml)
-- 2026-06-30 06:52 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/0552765372.shtml)
-- 2026-06-30 06:51 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/535496.shtml)
-- 2026-06-30 06:37 - [房价什么时候能涨](http://www.share.minike.top/Article/details/0167619173.shtml)
-- 2026-06-30 06:52 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/2754996.shtml)
-- 2026-06-30 06:34 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/89023448168.shtml)
+- 2026-06-30 06:56 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/5509375674.shtml)
+- 2026-06-30 06:43 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/686585860.shtml)
+- 2026-06-30 06:35 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/7114575.shtml)
+- 2026-06-30 06:53 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/37600032566.shtml)
+- 2026-06-30 06:34 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/400241243.shtml)
+- 2026-06-30 06:31 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/91221.shtml)
+- 2026-06-30 06:35 - [流金岁月](http://www.share.minike.top/Article/details/41556.shtml)
+- 2026-06-30 06:55 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/87464081208.shtml)
+- 2026-06-30 06:35 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/169762.shtml)
+- 2026-06-30 06:59 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/9963494426.shtml)
+- 2026-06-30 06:41 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/366131099383.shtml)
+- 2026-06-30 06:37 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/590256.shtml)
+- 2026-06-30 06:52 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/64166.shtml)
+- 2026-06-30 06:50 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/3403760001.shtml)
+- 2026-06-30 06:44 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/6985047.shtml)

@@ -1,59 +1,57 @@
-# 工信部：支持全球顶尖开源项目和开发者来华发展
+# 酒价内参4月30日价格发布：水晶剑南春下跌2元
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月25日电 2026开放原子开源生态大会25日在北京开幕，工业和信息化部副部长熊继军出席大会并致辞。他在致辞中指出，支持全球顶尖的开源项目和开发者来华发展。 熊继军指出，开源作为数字时代跨国别、跨领域的重要协作方式，在引领技术创新发展、推动产业协同演进方面作用日益凸显。目前，我国构建了连接国内外、贯通产学研的协同创新平台，开源参与者数量、增长速度均位居世界前列，At
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月30日出现明显回调。如果主要单品各取一瓶整体打包售卖，今日总售价为9949元，较昨日大幅下跌26元，创下6日以来最低。整体价格在高位快速下探，市场运行呈放量加速调整态势。 今日白酒市场11大单品三涨六跌两平，输家占据明显上风。上涨方面，青花汾20涨幅居前，上涨3元/瓶，结束四连阴重返380
 
 ## 正文
 
-中新网北京6月25日电 2026开放原子开源生态大会25日在北京开幕，工业和信息化部副部长熊继军出席大会并致辞。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月30日出现明显回调。
 
-他在致辞中指出，支持全球顶尖的开源项目和开发者来华发展。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9949元，较昨日大幅下跌26元，创下6日以来最低。
 
-熊继军指出，开源作为数字时代跨国别、跨领域的重要协作方式，在引领技术创新发展、推动产业协同演进方面作用日益凸显。
+整体价格在高位快速下探，市场运行呈放量加速调整态势。
 
-目前，我国构建了连接国内外、贯通产学研的协同创新平台，开源参与者数量、增长速度均位居世界前列，AtomGit人工智能开源社区成立，一批优质开源项目活跃在国际舞台上，开源生态正从规模扩张迈向高质量发展新阶段。
+今日白酒市场11大单品三涨六跌两平，输家占据明显上风。
 
-熊继军表示，下一步，工业和信息化部将加快推进开源体系建设迈上新台阶。
+上涨方面，青花汾20涨幅居前，上涨3元/瓶，结束四连阴重返380元关口上方；五粮液普五八代上涨2元/瓶；习酒君品小幅上涨1元/瓶。
 
-提升开源供给能力，加大对基础软件、工业软件、人工智能等领域开源发展的牵引力度，夯实数字产业发展根基。
+下跌方面，国窖1573与古井贡古20跌幅居前，均下跌8元/瓶，后者已连续两天大幅下挫，跌破550元关口；青花郎下跌7元/瓶，回落至700元下方；精品茅台下跌4元/瓶；飞天茅台下跌3元/瓶；水晶剑南春下跌2元/瓶，但近期其价格中枢一直呈上升势头。
 
-繁荣开源产业生态，坚持应用牵引，支持优秀开源产品落地应用，加快探索开源商业模式创新，实现从社区代码到商业产品的转化闭环。
+五粮液1618及洋河梦之蓝M6+的价格环比保持不变。
 
-筑牢开源治理防线，推动完善开源安全治理规则，提升企业和开发者的治理素养，构建“社区响应、平台预警、企业履责”的协同治理防线。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 06:27 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 06:46 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 06:33 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 06:26 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 06:24 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-30 06:49 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 06:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 06:52 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 06:47 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 06:34 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 06:27 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 06:27 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 06:53 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 06:43 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 06:49 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 06:57 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 06:39 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 06:44 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 06:53 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 06:47 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 06:59 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 06:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 06:39 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 06:53 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:49 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/9699481326.shtml)
-- 2026-06-30 06:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/8439117.shtml)
-- 2026-06-30 06:48 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/77727.shtml)
-- 2026-06-30 06:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/85859.shtml)
-- 2026-06-30 06:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/111055558893.shtml)
-- 2026-06-30 06:33 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/1973177.shtml)
-- 2026-06-30 06:39 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/121201.shtml)
-- 2026-06-30 06:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/09746198882.shtml)
-- 2026-06-30 06:38 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/3520829802.shtml)
-- 2026-06-30 06:29 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/8719988451.shtml)
-- 2026-06-30 06:32 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/40058642.shtml)
-- 2026-06-30 06:33 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/239748.shtml)
-- 2026-06-30 06:48 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/16788041213.shtml)
-- 2026-06-30 06:45 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/4406394.shtml)
-- 2026-06-30 06:29 - [沉睡花园](http://www.share.minike.top/Article/details/4442644.shtml)
+- 2026-06-30 06:44 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/1130198.shtml)
+- 2026-06-30 06:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/525760.shtml)
+- 2026-06-30 06:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/1025097.shtml)
+- 2026-06-30 06:35 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/611289937.shtml)
+- 2026-06-30 06:33 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/395251358951.shtml)
+- 2026-06-30 06:50 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/718648.shtml)
+- 2026-06-30 06:57 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/57829.shtml)
+- 2026-06-30 06:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/478851407741.shtml)
+- 2026-06-30 06:48 - [金刚川](http://www.share.kurohicncr.top/Article/details/191999.shtml)
+- 2026-06-30 06:50 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/4103746.shtml)
+- 2026-06-30 06:55 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/52571742506.shtml)
+- 2026-06-30 06:30 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/5458829.shtml)
+- 2026-06-30 06:49 - [急先锋](https://www.share.kurohicncr.top/Article/details/0060926449.shtml)
+- 2026-06-30 06:56 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/8078091230.shtml)
+- 2026-06-30 06:50 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/81196259074.shtml)

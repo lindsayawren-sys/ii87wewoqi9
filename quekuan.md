@@ -1,58 +1,60 @@
-# 最高法发布2025年全国海事审判典型案例
+# “五一”假期 中外年轻人都去哪儿
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网6月24日电 据最高人民法院微信公众号消息，在6月25日“世界海员日”即将到来之际，最高人民法院发布2025年全国海事审判典型案例。此次发布的案例，具有以下三个方面的特点： 一是民生为重，坚决保障船员劳动权益。船员权益保障不仅是法律要求和人道关怀，更是国际航运供应链安全和航行安全的基石，是促推海洋经济高质量发展的前提。本批典型案例将船员劳动权益保护摆在突出位置，以司法裁判
+4月24日，上海，中外游客在2026年长三角文旅惠民市集体验非遗昆曲《牡丹亭》。视觉中国供图 “五一”假期临近，随着中国免签“朋友圈”不断扩大，“中国游”与出境游热度同步攀升，年轻群体成为假期出游主力，一边是出境游持续回暖，长线目的地热度攀升；另一边是入境游话题热度不减，外国游客走进更多“小而美”的中国城市。从“打卡式旅游”到“沉浸式体验”，出入境游双向流动背后，折射出这届年轻
 
 ## 正文
 
-中新网6月24日电 据最高人民法院微信公众号消息，在6月25日“世界海员日”即将到来之际，最高人民法院发布2025年全国海事审判典型案例。
+4月24日，上海，中外游客在2026年长三角文旅惠民市集体验非遗昆曲《牡丹亭》。
 
-此次发布的案例，具有以下三个方面的特点： 一是民生为重，坚决保障船员劳动权益。
+视觉中国供图 “五一”假期临近，随着中国免签“朋友圈”不断扩大，“中国游”与出境游热度同步攀升，年轻群体成为假期出游主力，一边是出境游持续回暖，长线目的地热度攀升；另一边是入境游话题热度不减，外国游客走进更多“小而美”的中国城市。
 
-船员权益保障不仅是法律要求和人道关怀，更是国际航运供应链安全和航行安全的基石，是促推海洋经济高质量发展的前提。
+从“打卡式旅游”到“沉浸式体验”，出入境游双向流动背后，折射出这届年轻人文旅消费趋势的变化，也释放出中国文旅市场持续复苏的积极信号。
 
-本批典型案例将船员劳动权益保护摆在突出位置，以司法裁判划定权益边界、守住民生底线。
+长线目的地热度明显攀升 “五一”假期，出境出行活力持续释放。
 
-案例一作为船员劳务合同纠纷典型案件，针对船东要求船员出具承诺书放弃船员工资船舶优先权的不规范做法，明确否定此类格式承诺书对法定优先权的排除效力，从法律层面压实船东责任，防范其利用优势地位侵害船员利益，有力保护船员工资报酬法定优先受偿的权利，大力弘扬社会主义核心价值观，也为全国同类船员维权案件树立了明确裁判指引。
+航旅纵横大数据显示，截至4月28日，“五一”假期出入境航线机票预订量超112万张，较去年同期稳步增长。
 
-案例二当事人均为外籍，因外籍船东拖欠船员薪酬等费用而产生纠纷，外籍船舶管理公司基于对中国海事司法的信任，向我国海事法院申请扣押涉案船舶，海事法院以扣船为契机，积极引导双方当事人就实体争议进行协商，双方均同意放弃伦敦仲裁。
+在线旅游平台去哪儿发布的数据显示，平台用户已预订“五一”期间入住全球3000多个城市的酒店，热门出境目的地酒店预订量同比增长20%。
 
-海事法院仅用9天就促成双方达成和解，船东支付了船员的薪资报酬。
+泰国、韩国、马来西亚、中国香港、新加坡、越南、澳大利亚、印度尼西亚、中国澳门、意大利位列热门出境游目的地前十。
 
-纠纷的高效化解，让中外船员在更加有序、规范的国际航运环境中安心从业。
+值得关注的是，增幅最高的20个出境目的地中，有14个为飞行距离4000公里及以上的中长线目的地，覆盖欧洲、美洲及中亚等区域，长线游增势尤为明显。
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 06:31 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 06:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 06:39 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 06:32 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 06:26 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 06:26 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 06:45 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 06:31 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 06:50 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 06:33 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 06:46 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 06:49 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 06:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 06:33 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 06:52 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 06:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 06:46 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 06:55 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 06:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 06:42 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 06:55 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 06:46 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 06:31 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 06:55 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 06:53 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:37 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/49888101678.shtml)
-- 2026-06-30 06:51 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/8764130.shtml)
-- 2026-06-30 06:46 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/674520.shtml)
-- 2026-06-30 06:29 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/604019612829.shtml)
-- 2026-06-30 06:28 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/379497.shtml)
-- 2026-06-30 06:53 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/9315536096.shtml)
-- 2026-06-30 06:52 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/97053082125.shtml)
-- 2026-06-30 06:50 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/9395865.shtml)
-- 2026-06-30 06:26 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/7879930.shtml)
-- 2026-06-30 06:28 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/380409.shtml)
-- 2026-06-30 06:50 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/933958316.shtml)
-- 2026-06-30 06:32 - [第一炉香](http://www.share.kurohicncr.top/Article/details/85081225.shtml)
-- 2026-06-30 06:33 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/9875644573.shtml)
-- 2026-06-30 06:38 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/857571256239.shtml)
-- 2026-06-30 06:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/325552498111.shtml)
+- 2026-06-30 06:30 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/097433814.shtml)
+- 2026-06-30 06:37 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/509366.shtml)
+- 2026-06-30 06:51 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/649565665.shtml)
+- 2026-06-30 06:40 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/95278926782.shtml)
+- 2026-06-30 06:54 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/360887.shtml)
+- 2026-06-30 06:31 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/659971367.shtml)
+- 2026-06-30 06:41 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/9778605.shtml)
+- 2026-06-30 06:47 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/44991370796.shtml)
+- 2026-06-30 06:50 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/5847794.shtml)
+- 2026-06-30 06:46 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/4132096188.shtml)
+- 2026-06-30 06:46 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/22289706219.shtml)
+- 2026-06-30 06:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/9324963104.shtml)
+- 2026-06-30 06:44 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/635168380503.shtml)
+- 2026-06-30 06:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/9822269.shtml)
+- 2026-06-30 06:35 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/27475738.shtml)

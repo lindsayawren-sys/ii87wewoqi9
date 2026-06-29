@@ -1,45 +1,49 @@
-# 定海海洋农商银行获批增加注册资本至5.85亿元
+# 黄德炜获批出任明亚保险经纪董事长
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-6月25日金融一线消息，国家金融监督管理总局舟山监管分局发布批复，同意定海海洋农商银行增加注册资本19778038元人民币，由565084200元人民币变更为584862238元人民币。 责任编辑：秦艺
+4月30日金融一线消息，北京金融监管局发布批复，核准黄德炜明亚保险经纪股份有限公司董事长的任职资格。 责任编辑：秦艺
 
 ## 正文
 
-6月25日金融一线消息，国家金融监督管理总局舟山监管分局发布批复，同意定海海洋农商银行增加注册资本19778038元人民币，由565084200元人民币变更为584862238元人民币。
+4月30日金融一线消息，北京金融监管局发布批复，核准黄德炜明亚保险经纪股份有限公司董事长的任职资格。
 
 责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 06:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 06:53 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 06:48 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 06:48 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 06:26 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 06:29 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 06:29 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 06:28 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 06:27 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 06:42 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 06:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 06:34 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 06:49 - [人类...完蛋了...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 06:44 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 06:53 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 06:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 06:36 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 06:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 06:30 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 06:31 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 06:43 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 06:47 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 06:57 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 06:36 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 06:37 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 06:51 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/258488.shtml)
-- 2026-06-30 06:42 - [一生一世](http://www.share.kurohicncr.top/Article/details/228631.shtml)
-- 2026-06-30 06:38 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/19651429.shtml)
-- 2026-06-30 06:51 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/4969096058.shtml)
-- 2026-06-30 06:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/693268.shtml)
-- 2026-06-30 06:48 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/192734155.shtml)
-- 2026-06-30 06:30 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/24876006.shtml)
-- 2026-06-30 06:30 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/5916293.shtml)
-- 2026-06-30 06:35 - [明星大侦探第四季](https://www.share.minike.top/Article/details/80302609939.shtml)
-- 2026-06-30 06:46 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/384483384223.shtml)
-- 2026-06-30 06:40 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/35722.shtml)
-- 2026-06-30 06:41 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/1868903.shtml)
-- 2026-06-30 06:31 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/400649.shtml)
-- 2026-06-30 06:27 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/24125.shtml)
-- 2026-06-30 06:51 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/8798062.shtml)
+- 2026-06-30 06:31 - [天道](https://www.blog.minike.top/Article/details/359810708.shtml)
+- 2026-06-30 06:55 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/43929183711.shtml)
+- 2026-06-30 06:45 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/2898570.shtml)
+- 2026-06-30 06:50 - [《贺子珍》](https://www.blog.minike.top/Article/details/1429338.shtml)
+- 2026-06-30 06:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/124690799606.shtml)
+- 2026-06-30 06:42 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/7039507.shtml)
+- 2026-06-30 06:54 - [爱很美味](https://www.blog.minike.top/Article/details/44901442.shtml)
+- 2026-06-30 06:58 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/970275.shtml)
+- 2026-06-30 06:49 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/23600815148.shtml)
+- 2026-06-30 06:42 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/603071346454.shtml)
+- 2026-06-30 06:30 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/41146306912.shtml)
+- 2026-06-30 06:37 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/607432905527.shtml)
+- 2026-06-30 06:58 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/539039.shtml)
+- 2026-06-30 06:40 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/66007132.shtml)
+- 2026-06-30 06:50 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/68210.shtml)

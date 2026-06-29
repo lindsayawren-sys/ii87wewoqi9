@@ -1,61 +1,56 @@
-# 黄金、白银大涨大跌！多家银行宣布：停办！
+# 日本向投机客发出“最后警告”后日元应声走强 市场猜测干预已至
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-文章来源：中新经纬 6月24日电 （魏薇）又有银行对贵金属业务出手。工商银行24日公告称，根据贵金属风险管理和业务需要，该行决定停办代理上海黄金交易所（下称上金所）个人贵金属竞价交易业务。 近年来，银行业逐步收紧甚至清退代理上海黄金交易所的个人贵金属交易业务，从前期的交易风险提示、暂停新客户开户，到对存量客户进行有序清退，再到如今的停办该业务，调整的力度逐步加大。银行此番调整对
+在日本官员向投机客发出“最后警告”、要求停止抛售日元的数小时后，市场猜测日本已出手干预外汇市场，推动日元一度飙升3%，创近两年来最大盘中涨幅。 日本财务省官员未立即回应置评请求。不过，据报道，日本政府已入市干预，买入日元、卖出美元。 周四，日元一度触及1美元兑155.57日元，为2月底以来最强水平。此前，日本外汇事务负责人三村淳呼应了财务大臣片山皋月关于“采取大胆措施的时机正在
 
 ## 正文
 
-文章来源：中新经纬 6月24日电 （魏薇）又有银行对贵金属业务出手。
+在日本官员向投机客发出“最后警告”、要求停止抛售日元的数小时后，市场猜测日本已出手干预外汇市场，推动日元一度飙升3%，创近两年来最大盘中涨幅。
 
-工商银行24日公告称，根据贵金属风险管理和业务需要，该行决定停办代理上海黄金交易所（下称上金所）个人贵金属竞价交易业务。
+日本财务省官员未立即回应置评请求。
 
-近年来，银行业逐步收紧甚至清退代理上海黄金交易所的个人贵金属交易业务，从前期的交易风险提示、暂停新客户开户，到对存量客户进行有序清退，再到如今的停办该业务，调整的力度逐步加大。
+不过，据报道，日本政府已入市干预，买入日元、卖出美元。
 
-银行此番调整对投资者有何影响？
+周四，日元一度触及1美元兑155.57日元，为2月底以来最强水平。
 
-多家银行停办代理个人贵金属业务 根据公告，自2026年7月24日（星期五）日终清算时起，工商银行停办代理上海黄金交易所个人贵金属竞价交易业务，涉及的合约品种包括Au99.99、Au100g、Au99.95、PGC30g、Au（T+D）、mAu（T+D）、Ag（T+D）、Au（T+N1）、Au（T+N2）等。
+此前，日本外汇事务负责人三村淳呼应了财务大臣片山皋月关于“采取大胆措施的时机正在临近”的警告。
 
-公告显示，2026年7月24日（星期五）日终清算完成后，工商银行将择时关闭手机银行、网上银行、网点柜面等渠道的代理个人竞价交易业务交易权限。
+这一剧烈波动引发交易员和策略师猜测，当局已入市支撑日元。
 
-关闭后，持仓客户的平仓、卖出和提货操作权限将受到限制。
+此前该货币一直徘徊在四十年来最低水平附近。
 
-工商银行建议，存量持仓客户及时通过手机银行、网上银行、网点柜面等渠道，对所持有的各类竞价交易合约进行卖出、平仓或提货操作，并办理保证金账户剩余资金的出金。
+日元兑美元的盘中涨幅为自2024年8月以来最大。
 
 ## 相关推荐
 
-- 2026-06-30 06:36 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 06:53 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 06:48 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 06:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 06:25 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 06:38 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 06:51 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 06:50 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 06:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 06:28 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 06:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 06:45 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 06:43 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 06:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 06:37 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 06:59 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 06:54 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 06:43 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 06:52 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 06:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 06:36 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 06:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 06:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 06:42 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 06:33 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/996221011807.shtml)
-- 2026-06-30 06:32 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/4109754806.shtml)
-- 2026-06-30 06:25 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/34225399081.shtml)
-- 2026-06-30 06:32 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/23620.shtml)
-- 2026-06-30 06:24 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/20573.shtml)
-- 2026-06-30 06:46 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/40498472434.shtml)
-- 2026-06-30 06:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/6778197.shtml)
-- 2026-06-30 06:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/995755446486.shtml)
-- 2026-06-30 06:38 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/36444.shtml)
-- 2026-06-30 06:36 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/98567954647.shtml)
-- 2026-06-30 06:25 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/50612.shtml)
-- 2026-06-30 06:34 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/4441825813.shtml)
-- 2026-06-30 06:40 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/18639.shtml)
-- 2026-06-30 06:32 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/087955.shtml)
-- 2026-06-30 06:49 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/28102407.shtml)
+- 2026-06-30 06:44 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/33822274.shtml)
+- 2026-06-30 06:38 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/6239895384.shtml)
+- 2026-06-30 06:49 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/22222601353.shtml)
+- 2026-06-30 06:53 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/08050.shtml)
+- 2026-06-30 06:59 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/2244148872.shtml)
+- 2026-06-30 06:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/121454261.shtml)
+- 2026-06-30 06:30 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/66475.shtml)
+- 2026-06-30 06:30 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/256383.shtml)
+- 2026-06-30 06:48 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/50291279356.shtml)
+- 2026-06-30 06:32 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/0452634.shtml)
+- 2026-06-30 06:55 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/7698582.shtml)
+- 2026-06-30 06:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/601129.shtml)
+- 2026-06-30 06:43 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/04004112.shtml)
+- 2026-06-30 06:40 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/81069.shtml)
+- 2026-06-30 06:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/74477608128.shtml)

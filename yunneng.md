@@ -1,51 +1,58 @@
-# 越来越多台青认知到我们中国的强大 两岸青年融合势在必行
+# 温克尔沃斯兄弟加密交易所获关键监管批准，剑指衍生品扩张
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 16:07 来源：中国新闻网 迅速解决落地温州台青的食住行、协调免费创业场地、手把手帮助企业注册……温台融合发展青年创业基地负责人潘柏铨，为赴陆创业的台湾青年提供全方位帮扶，被大家视作事业上的“摆渡人”。同为台湾同胞，潘柏铨深知台青创业的痛点。他不仅逐一摸清生活难点、跑通全部创业环节，还创办了直播电商项目“元气叮咚”，既为台青提供就业岗位，也持
+Gemini Space Station已获得美国商品期货交易委员会（CFTC）批准，可运营其自有的受监管衍生品清算所。这一举措使温克尔沃斯兄弟旗下的这家加密货币交易所能够自行清算和结算交易，而无需依赖外部基础设施，从而对其预测市场产品的运作和规模化获得更大的控制权。 此消息推动该公司股价在盘前交易中上涨了2.5%。 Gemini总裁兼联合创始人卡梅伦·温克尔沃斯在接受CNBC
 
 ## 正文
 
-发布时间：2026年06月24日 16:07 来源：中国新闻网 迅速解决落地温州台青的食住行、协调免费创业场地、手把手帮助企业注册……温台融合发展青年创业基地负责人潘柏铨，为赴陆创业的台湾青年提供全方位帮扶，被大家视作事业上的“摆渡人”。
+Gemini Space Station已获得美国商品期货交易委员会（CFTC）批准，可运营其自有的受监管衍生品清算所。
 
-同为台湾同胞，潘柏铨深知台青创业的痛点。
+这一举措使温克尔沃斯兄弟旗下的这家加密货币交易所能够自行清算和结算交易，而无需依赖外部基础设施，从而对其预测市场产品的运作和规模化获得更大的控制权。
 
-他不仅逐一摸清生活难点、跑通全部创业环节，还创办了直播电商项目“元气叮咚”，既为台青提供就业岗位，也持续培育台湾电商人才。
+此消息推动该公司股价在盘前交易中上涨了2.5%。
 
-每年，潘柏铨都会前往温州洞头盼归亭悬挂同心锁，在他看来，两岸青年只有携手同心，才能更好地在国际舞台发光发热。
+Gemini总裁兼联合创始人卡梅伦·温克尔沃斯在接受CNBC独家采访时表示：“考虑到预测市场以及未来加密衍生品的巨大机遇，端到端地拥有和运营市场是非常强大的。
 
-(罗嗣昱 制作 王雪茵） 责任编辑：【罗攀】
+” 此次获批标志着Gemini在构建全方位合规衍生品平台的道路上迈出了关键一步。
+
+据悉，Gemini旗下的Olympus部门获得的这张衍生品清算组织（DCO）牌照，使其能够作为内部清算机构，独立处理结算、风险管理及抵押品管理。
+
+这彻底改变了之前必须依赖第三方清算机构的模式，有望显著降低运营成本并提升交易效率。
+
+早在2025年12月，Gemini的一家关联实体已获得CFTC颁发的指定合约市场（DCM）牌照，并借此推出了预测市场。
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 06:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 06:50 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 06:35 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 06:32 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 06:31 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 06:52 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-30 06:24 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 06:51 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-30 06:43 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 06:41 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 06:59 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 06:45 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 06:46 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 06:53 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 06:35 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 06:50 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 06:32 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 06:30 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 06:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 06:36 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 06:49 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 06:34 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:24 - [电影后室值得看吗](https://www.share.minike.top/Article/details/09112.shtml)
-- 2026-06-30 06:49 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/54976.shtml)
-- 2026-06-30 06:43 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/273451422420.shtml)
-- 2026-06-30 06:50 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/053452614.shtml)
-- 2026-06-30 06:46 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/384192843.shtml)
-- 2026-06-30 06:25 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/76551494.shtml)
-- 2026-06-30 06:44 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/68129777305.shtml)
-- 2026-06-30 06:42 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/5684861238.shtml)
-- 2026-06-30 06:30 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/09977888370.shtml)
-- 2026-06-30 06:30 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/1357534555.shtml)
-- 2026-06-30 06:44 - [苗族银饰](https://www.share.minike.top/Article/details/472236873.shtml)
-- 2026-06-30 06:48 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/04876333.shtml)
-- 2026-06-30 06:24 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/81178.shtml)
-- 2026-06-30 06:47 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/038327.shtml)
-- 2026-06-30 06:43 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/08398599663.shtml)
+- 2026-06-30 06:33 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/802522713.shtml)
+- 2026-06-30 06:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/6168881.shtml)
+- 2026-06-30 06:47 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/280544981.shtml)
+- 2026-06-30 06:33 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/604033888.shtml)
+- 2026-06-30 06:31 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/74154.shtml)
+- 2026-06-30 06:44 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/7610564.shtml)
+- 2026-06-30 06:39 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/50064360485.shtml)
+- 2026-06-30 06:38 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/930122.shtml)
+- 2026-06-30 06:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/647885487.shtml)
+- 2026-06-30 06:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/109183953022.shtml)
+- 2026-06-30 06:41 - [日本领先巴西](https://www.share.minike.top/Article/details/171442.shtml)
+- 2026-06-30 06:53 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/1683404263.shtml)
+- 2026-06-30 06:47 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/99552134963.shtml)
+- 2026-06-30 06:49 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/8353031.shtml)
+- 2026-06-30 06:31 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/9154204721.shtml)

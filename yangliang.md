@@ -1,53 +1,61 @@
-# 平安银行：吴雷鸣副行长任职资格获核准
+# 市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-6月25日金融一线消息，平安银行发布公告称，近日，公司收到《国家金融监督管理总局关于吴雷鸣平安银行副行长任职资格的批复》（金复〔2026〕345号），国家金融监督管理总局核准吴雷鸣平安银行股份有限公司副行长的任职资格。 简历显示，吴雷鸣，1976年出生，中南财经大学金融学学士、武汉大学工商管理硕士。吴雷鸣于1997年7月至2002年10月，任职于中国农业银行湖北省分行；2002
+新华社北京4月30日电 题：市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展 新华社记者叶昊鸣 中国物流与采购联合会日前公布今年前3个月我国物流运行数据。一季度，全国社会物流总额96.4万亿元，按可比价格计算，同比增长6.2%，增速较2025年全年、2025年同期分别提高1.1和0.5个百分点。物流运行稳中有进、平稳有序。 一季度，我国工业品物流总额同比增长5.
 
 ## 正文
 
-6月25日金融一线消息，平安银行发布公告称，近日，公司收到《国家金融监督管理总局关于吴雷鸣平安银行副行长任职资格的批复》（金复〔2026〕345号），国家金融监督管理总局核准吴雷鸣平安银行股份有限公司副行长的任职资格。
+新华社北京4月30日电 题：市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展 新华社记者叶昊鸣 中国物流与采购联合会日前公布今年前3个月我国物流运行数据。
 
-简历显示，吴雷鸣，1976年出生，中南财经大学金融学学士、武汉大学工商管理硕士。
+一季度，全国社会物流总额96.4万亿元，按可比价格计算，同比增长6.2%，增速较2025年全年、2025年同期分别提高1.1和0.5个百分点。
 
-吴雷鸣于1997年7月至2002年10月，任职于中国农业银行湖北省分行；2002年10月至2006年7月，历任深圳发展银行北京分行市场管理部市场调查室职员、经理、总经理助理兼贸易融资部副总经理；2006年7月至2009年10月，任深圳发展银行信贷审批部、华北信贷审批中心副经理；2009年10月至2013年4月，历任平安银行（原深圳发展银行）北京分行信贷审批中心副总经理（主持工作）、总经理；2013年4月至2016年12月，历任平安银行郑州分行信贷审批执行官、副行长兼风险总监；2016年12月至2020年6月，任平安银行北京分行副行长；2020年6月至2023年12月，任平安银行西安分行行长；2023年12月至今，任平安银行总行党委委员；2024年4月至2026年3月，任平安银行总行行长助理兼首席风险官；2026年3月至今，任平安银行总行行长助理兼首席
+物流运行稳中有进、平稳有序。
 
-责任编辑：王馨茹
+一季度，我国工业品物流总额同比增长5.8%，对社会物流总额的增长贡献率超过80%。
+
+从行业结构看，制造业物流需求占比超八成，计算机等高端制造领域增速均超过10%。
+
+装备制造产业占比持续提升，有力带动产业链上下游协同复苏。
+
+民生消费物流稳步向好，新型消费动能持续增强。
+
+一季度，我国单位与居民物品物流总额同比增长6.5%。
 
 ## 相关推荐
 
-- 2026-06-30 06:45 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 06:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 06:25 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 06:32 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 06:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 06:42 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 06:38 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 06:53 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 06:43 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 06:24 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 06:30 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 06:26 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 06:39 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 06:34 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 06:28 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 06:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 06:35 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 06:59 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 06:43 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 06:39 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 06:53 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 06:45 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 06:30 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 06:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 06:31 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 06:45 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 06:53 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 06:37 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 06:33 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 06:52 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/70134.shtml)
-- 2026-06-30 06:30 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/7207056.shtml)
-- 2026-06-30 06:43 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/726585330.shtml)
-- 2026-06-30 06:37 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/3431821.shtml)
-- 2026-06-30 06:37 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/676642018233.shtml)
-- 2026-06-30 06:25 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/8123011430.shtml)
-- 2026-06-30 06:39 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/99695.shtml)
-- 2026-06-30 06:52 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/11504.shtml)
-- 2026-06-30 06:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/473496.shtml)
-- 2026-06-30 06:24 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/59819.shtml)
-- 2026-06-30 06:36 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/67440483.shtml)
-- 2026-06-30 06:46 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/312363.shtml)
-- 2026-06-30 06:33 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/9220894.shtml)
-- 2026-06-30 06:47 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/4150962.shtml)
-- 2026-06-30 06:42 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/625481718.shtml)
+- 2026-06-30 06:34 - [苗族银饰](https://www.blog.minike.top/Article/details/86877.shtml)
+- 2026-06-30 06:30 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/38681.shtml)
+- 2026-06-30 06:50 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/346708503.shtml)
+- 2026-06-30 06:33 - [刘念回应](https://www.share.kurohicncr.top/Article/details/4957022193.shtml)
+- 2026-06-30 06:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/24899421.shtml)
+- 2026-06-30 06:35 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/29278074047.shtml)
+- 2026-06-30 06:49 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/8561157.shtml)
+- 2026-06-30 06:40 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/891975176907.shtml)
+- 2026-06-30 06:45 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/6112730403.shtml)
+- 2026-06-30 06:37 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/4230515257.shtml)
+- 2026-06-30 06:37 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/618341895816.shtml)
+- 2026-06-30 06:59 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/27658460.shtml)
+- 2026-06-30 06:34 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/18994893.shtml)
+- 2026-06-30 06:43 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/4280001346.shtml)
+- 2026-06-30 06:33 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/8751820.shtml)

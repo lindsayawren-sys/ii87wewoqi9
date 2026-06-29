@@ -1,56 +1,58 @@
-# 国台办评台“立即备战操演”：包藏祸心 纯属徒劳
+# 马里安全局势恶化 法国官方建议本国公民尽快撤离
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新社北京6月24日电 (记者 张杨彬)针对台湾军方正在进行所谓“立即备战操演”，国务院台办发言人张晗24日表示，所谓“操演”包藏民进党当局“以武谋独”的祸心，证明其是煽动两岸对立对抗、导致台海局势紧张动荡的祸根乱源。这一“操演”宣称“着重验证当大陆有所动作时，各作战区的应变能力以及联合作战能力”。在24日举行的例行新闻发布会上，张晗作上述回应并强调，在强大的人民军队面前，民进
+中新网巴黎4月30日电(李洋 孙羽婷)法国官方当地时间29日建议在马里的法国公民“在条件允许的情况下尽快暂时离境”，并呼吁仍在当地的人员提高警惕，密切关注局势发展。 法国外交部在当天发布的一份声明中表示，近期马里多地发生一系列袭击事件，安全形势“极为动荡”。在本月25日发生的多起攻击中，包括首都巴马科在内的多座城市遭到袭击，马里国防和退伍军人事务部长卡马拉在其住所遇袭身亡。袭击
 
 ## 正文
 
-中新社北京6月24日电 (记者 张杨彬)针对台湾军方正在进行所谓“立即备战操演”，国务院台办发言人张晗24日表示，所谓“操演”包藏民进党当局“以武谋独”的祸心，证明其是煽动两岸对立对抗、导致台海局势紧张动荡的祸根乱源。
+中新网巴黎4月30日电(李洋 孙羽婷)法国官方当地时间29日建议在马里的法国公民“在条件允许的情况下尽快暂时离境”，并呼吁仍在当地的人员提高警惕，密切关注局势发展。
 
-这一“操演”宣称“着重验证当大陆有所动作时，各作战区的应变能力以及联合作战能力”。
+法国外交部在当天发布的一份声明中表示，近期马里多地发生一系列袭击事件，安全形势“极为动荡”。
 
-在24日举行的例行新闻发布会上，张晗作上述回应并强调，在强大的人民军队面前，民进党当局的装腔作势纯属徒劳。
+在本月25日发生的多起攻击中，包括首都巴马科在内的多座城市遭到袭击，马里国防和退伍军人事务部长卡马拉在其住所遇袭身亡。
 
-台民意机构通过“删减版”防务预算后，民进党当局领导人赖清德称不放弃提高防务支出。
+袭击由与“基地”组织有关联的极端组织“支持伊斯兰与穆斯林组织”以及分离主义武装组织“阿扎瓦德解放阵线”共同发动。
 
-对此，张晗表示，民进党当局为一党政治私利，不断挥霍台湾老百姓的血汗钱穷兵黩武，企图把台湾民众绑上“台独”战车，只会把台湾推入更加危险的境地。
+声明称，鉴于当前安全风险上升，法国公民应优先考虑通过仍在运营的商业航班离开马里。
 
-美《外交政策》刊文指，台湾近年将安全与战略前途过度押注于美国支持，却忽略“没有任何大国会永远无条件支持另一方”的现实。
+同时，法方建议当地人员尽量减少外出，与亲友保持联系。
 
-张晗强调，解决台湾问题，是两岸中国人自己的事。
+如确需外出，应“保持高度谨慎”，并严格遵守当地安全指引。
 
-她还表示，希望国际社会认清民进党当局“台独”本质及其严重危害，理解支持中国政府、中国人民反对“台独”分裂、完成国家统一的正义事业。
+近年来，马里持续受到极端主义武装和分离主义势力的冲击，安全形势长期紧张。
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 06:44 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 06:26 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 06:29 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 06:53 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 06:29 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 06:36 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 06:36 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 06:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 06:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 06:42 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 06:35 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 06:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 06:36 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 06:54 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 06:48 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 06:42 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 06:59 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 06:47 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 06:51 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 06:42 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 06:51 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:43 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/0109394.shtml)
-- 2026-06-30 06:51 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/07291.shtml)
-- 2026-06-30 06:32 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/04134.shtml)
-- 2026-06-30 06:32 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/683976.shtml)
-- 2026-06-30 06:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/7274679.shtml)
-- 2026-06-30 06:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/92328010.shtml)
-- 2026-06-30 06:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/11941815.shtml)
-- 2026-06-30 06:38 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/340406221252.shtml)
-- 2026-06-30 06:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/66489209.shtml)
-- 2026-06-30 06:38 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/08348.shtml)
-- 2026-06-30 06:41 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/07237715.shtml)
-- 2026-06-30 06:31 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/60823.shtml)
-- 2026-06-30 06:42 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/00512871.shtml)
-- 2026-06-30 06:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/207050.shtml)
-- 2026-06-30 06:32 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/285048401.shtml)
+- 2026-06-30 06:50 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/5428232.shtml)
+- 2026-06-30 06:38 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/843000329.shtml)
+- 2026-06-30 06:40 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/155109.shtml)
+- 2026-06-30 06:46 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/994901789.shtml)
+- 2026-06-30 06:35 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/051026181244.shtml)
+- 2026-06-30 06:35 - [明星大侦探第一季](http://www.share.minike.top/Article/details/81175.shtml)
+- 2026-06-30 06:58 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/78049.shtml)
+- 2026-06-30 06:57 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/59485.shtml)
+- 2026-06-30 06:55 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/66292566.shtml)
+- 2026-06-30 06:39 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/966733170027.shtml)
+- 2026-06-30 06:45 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/9521462020.shtml)
+- 2026-06-30 06:57 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/348747689746.shtml)
+- 2026-06-30 06:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/95731215.shtml)
+- 2026-06-30 06:33 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/529648.shtml)
+- 2026-06-30 06:44 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/1168440.shtml)

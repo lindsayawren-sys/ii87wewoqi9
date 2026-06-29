@@ -1,60 +1,57 @@
-# 谷歌两名人工智能研发干将据悉计划跳槽至Anthropic
+# 本周欧洲央行会加息吗？欧洲各国央行直面滞胀风险
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-知情人士透露，Alphabet旗下谷歌的两名AI研究干将计划转投竞争对手Anthropic PBC。结合近期一系列的高层人才流失，这家搜索巨头在人工智能领域的地位恐将面临威胁。 知情人士表示，被视为谷歌Gemini大模型关键贡献者的Jonas Adler和Alexander Pritzel即将加入Anthropic。Adler曾参与谷歌的AI编程项目，而Pritzel则参与AI
+核心要点 本周全球目光聚焦欧洲央行动向。在物价攀升、经济增长担忧升温的背景下，欧洲央行、英国央行将先后发布最新货币政策决议。 欧元区与英国 3 月经济数据显示，伊朗冲突已开始拖累经济，市场担忧滞胀风险逼近 —— 即经济增长低迷、通胀高企、失业率攀升同时出现。 战事冲击全球经济之初，欧央行、英央行在 3 月会议均维持利率不变；市场普遍预计，两家央行本周周四仍将保持谨慎立场。 伊朗
 
 ## 正文
 
-知情人士透露，Alphabet旗下谷歌的两名AI研究干将计划转投竞争对手Anthropic PBC。
+核心要点 本周全球目光聚焦欧洲央行动向。
 
-结合近期一系列的高层人才流失，这家搜索巨头在人工智能领域的地位恐将面临威胁。
+在物价攀升、经济增长担忧升温的背景下，欧洲央行、英国央行将先后发布最新货币政策决议。
 
-知情人士表示，被视为谷歌Gemini大模型关键贡献者的Jonas Adler和Alexander Pritzel即将加入Anthropic。
+欧元区与英国 3 月经济数据显示，伊朗冲突已开始拖累经济，市场担忧滞胀风险逼近 —— 即经济增长低迷、通胀高企、失业率攀升同时出现。
 
-Adler曾参与谷歌的AI编程项目，而Pritzel则参与AI系统训练工作。
+战事冲击全球经济之初，欧央行、英央行在 3 月会议均维持利率不变；市场普遍预计，两家央行本周周四仍将保持谨慎立场。
 
-作为人工智能领域的早期先驱，谷歌在当前这轮AI热潮的大部分时间里一直落后于OpenAI和Anthropic等竞争对手，直到去年年底才凭借更先进的模型和芯片重新站稳脚跟。
+伊朗冲突爆发后，市场一度迅速计价两家央行即将加息。
 
-然而，最近几天该公司失去了两名重量级人才。
+但如今经济学家认为，政策制定者会无视本轮通胀短期扰动，维持利率更长时间不变： 欧洲央行基准利率维持2%，英国央行维持3.75%。
 
-诺贝尔奖得主John Jumper加盟Anthropic，而明星研究员Noam Shazeer转投OpenAI。
+当前欧元区通胀率为2.5%，英国通胀3.3%，均高于两家央行 2% 的通胀目标。
 
-这些离职事件令投资者不安，也再次引发市场对谷歌能否在激烈的大模型竞赛中保持竞争力的质疑。
+牛津经济学首席德国经济学家奥利弗・拉考通过邮件向 CNBC 表示： “能源价格涨幅尚未大幅超出欧央行的预测基准，且美伊谈判仍在推进，市场普遍倾向于认为冲突不会长期化。
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 06:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 06:32 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 06:26 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 06:42 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 06:49 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 06:26 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 06:31 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 06:34 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 06:25 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 06:31 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 06:49 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 06:47 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 06:45 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 06:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 06:35 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 06:36 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 06:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 06:51 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 06:40 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 06:50 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 06:52 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 06:55 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 06:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 06:31 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:36 - [刘宇宁高情商化解谁站C位](http://www.share.kurohicncr.top/Article/details/95496449559.shtml)
-- 2026-06-30 06:27 - [金牌调解](http://www.share.kurohicncr.top/Article/details/97986.shtml)
-- 2026-06-30 06:37 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/21969513814.shtml)
-- 2026-06-30 06:30 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/54416954.shtml)
-- 2026-06-30 06:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/156205.shtml)
-- 2026-06-30 06:46 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/61380326.shtml)
-- 2026-06-30 06:33 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/255106.shtml)
-- 2026-06-30 06:49 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/10669.shtml)
-- 2026-06-30 06:53 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/71229.shtml)
-- 2026-06-30 06:41 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/36236838.shtml)
-- 2026-06-30 06:29 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/154529.shtml)
-- 2026-06-30 06:34 - [一生一世](https://www.share.minike.top/Article/details/84561035331.shtml)
-- 2026-06-30 06:33 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/3223652200.shtml)
-- 2026-06-30 06:36 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/53186.shtml)
-- 2026-06-30 06:34 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/742997445075.shtml)
+- 2026-06-30 06:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/16299364653.shtml)
+- 2026-06-30 06:52 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/64087.shtml)
+- 2026-06-30 06:48 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/2960704811.shtml)
+- 2026-06-30 06:42 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/990489049251.shtml)
+- 2026-06-30 06:38 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/39206613473.shtml)
+- 2026-06-30 06:43 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/01699.shtml)
+- 2026-06-30 06:59 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/6307952940.shtml)
+- 2026-06-30 06:32 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/920065.shtml)
+- 2026-06-30 06:49 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/10102.shtml)
+- 2026-06-30 06:44 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/9235996.shtml)
+- 2026-06-30 06:31 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/3375368.shtml)
+- 2026-06-30 06:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/636285.shtml)
+- 2026-06-30 06:58 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/0992028.shtml)
+- 2026-06-30 06:48 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/508610.shtml)
+- 2026-06-30 06:42 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/35357843.shtml)

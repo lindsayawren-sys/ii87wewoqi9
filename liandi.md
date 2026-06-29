@@ -1,57 +1,57 @@
-# 美国科技股下跌，“木头姐”大举加仓
+# 荣誉映初心 奋进新征程——回访2025年全国劳动模范
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-美国科技股周二普遍下跌，凯茜·伍德的ARK投资管理公司增持了多家科技和出行公司的股份。 ARK通过旗下两只基金ARKK和ARKK买入了21226股特斯拉股票，按收盘价每股381.61美元计算，价值约810万美元。 此次买入正值特斯拉在德克萨斯州一起致命事故后面临对其FSD技术的严格审查之际。埃隆·马斯克和特斯拉人工智能主管已公开否认事故与FSD系统有关，并强调事故发生时驾驶员进
+新华社北京4月29日电 题：荣誉映初心 奋进新征程——回访2025年全国劳动模范 新华社记者 春日中国，万物竞发，又一个劳动者的节日即将到来。 放眼神州，广袤大地上，亿万劳动者牢记习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神，与党同心、跟党奋斗，辛勤劳动、奋发前行。光荣属于劳动者，幸福属于劳动者。“五一”国际劳动节来临之际，记
 
 ## 正文
 
-美国科技股周二普遍下跌，凯茜·伍德的ARK投资管理公司增持了多家科技和出行公司的股份。
+新华社北京4月29日电 题：荣誉映初心 奋进新征程——回访2025年全国劳动模范 新华社记者 春日中国，万物竞发，又一个劳动者的节日即将到来。
 
-ARK通过旗下两只基金ARKK和ARKK买入了21226股特斯拉股票，按收盘价每股381.61美元计算，价值约810万美元。
+放眼神州，广袤大地上，亿万劳动者牢记习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神，与党同心、跟党奋斗，辛勤劳动、奋发前行。
 
-此次买入正值特斯拉在德克萨斯州一起致命事故后面临对其FSD技术的严格审查之际。
+光荣属于劳动者，幸福属于劳动者。
 
-埃隆·马斯克和特斯拉人工智能主管已公开否认事故与FSD系统有关，并强调事故发生时驾驶员进行了手动干预。
+“五一”国际劳动节来临之际，记者走近2025年全国劳模，记录他们的足迹，讲述新时代奋斗故事。
 
-Ark还通过ARKK和ARKW买入了Cerebras Systems的25795 股股票，价值约 580 万美元。
+笃行实干 扛责在肩 鄂西地区，宜涪高铁控制性工程甘名溪大桥施工现场紧张有序。
 
-此次交易紧随Cerebras公布首份财报之后。
+中铁十八局二公司总经理韦有波走进工地，俯身检查刚浇筑完成的混凝土面，仔细核对线形与平整度。
 
-尽管该公司报告亏损，但其业绩仍超出市场预期，其股价在周三盘后交易中下跌了超过 11%。
+“练就铁骨头，敢挑千斤担。
 
-Ark通过ARKF、ARKK 和 ARKW买入了Palantir的 81，254 股股票。
+”这是他在工作日志扉页上写的话。
 
 ## 相关推荐
 
-- 2026-06-30 06:32 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 06:27 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 06:24 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 06:40 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 06:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 06:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 06:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 06:27 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 06:46 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 06:36 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 06:24 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 06:33 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 06:57 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 06:42 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 06:50 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 06:41 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 06:47 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 06:55 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 06:59 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 06:49 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 06:45 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 06:41 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:25 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/621318987953.shtml)
-- 2026-06-30 06:48 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/41381006.shtml)
-- 2026-06-30 06:27 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/085643246.shtml)
-- 2026-06-30 06:53 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/5898368281.shtml)
-- 2026-06-30 06:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/1333349.shtml)
-- 2026-06-30 06:26 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/090276330.shtml)
-- 2026-06-30 06:48 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/542269021.shtml)
-- 2026-06-30 06:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/56610429.shtml)
-- 2026-06-30 06:36 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/22886112991.shtml)
-- 2026-06-30 06:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/14976.shtml)
-- 2026-06-30 06:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/53246.shtml)
-- 2026-06-30 06:51 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/8633872.shtml)
-- 2026-06-30 06:25 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/5070504.shtml)
-- 2026-06-30 06:41 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/15764874976.shtml)
-- 2026-06-30 06:34 - [极限挑战第一季](http://www.blog.minike.top/Article/details/6489796.shtml)
+- 2026-06-30 06:56 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/22957388.shtml)
+- 2026-06-30 06:49 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/369044255055.shtml)
+- 2026-06-30 06:30 - [日本进球](https://www.blog.kurohicncr.top/Article/details/6968363.shtml)
+- 2026-06-30 06:50 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/03167.shtml)
+- 2026-06-30 06:48 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/394417.shtml)
+- 2026-06-30 06:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/79541079.shtml)
+- 2026-06-30 06:39 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/18846597219.shtml)
+- 2026-06-30 06:53 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/497852467.shtml)
+- 2026-06-30 06:31 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/6627777816.shtml)
+- 2026-06-30 06:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/908241403962.shtml)
+- 2026-06-30 06:30 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/0590435731.shtml)
+- 2026-06-30 06:56 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/32027.shtml)
+- 2026-06-30 06:47 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/6798672.shtml)
+- 2026-06-30 06:59 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/714206128169.shtml)
+- 2026-06-30 06:31 - [扬名立万](http://www.blog.minike.top/Article/details/39034839.shtml)

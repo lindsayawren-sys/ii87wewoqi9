@@ -1,44 +1,52 @@
-# 最高检：依法打击寄递毒品犯罪 推动寄递安全三项制度严格落实
+# 劳动者，了不起！这首歌献给奋斗的你
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网6月25日电 最高人民检察院25日举行“强化毒品案件法律监督 依法从严惩治毒品犯罪”新闻发布会，最高人民检察院党组成员、副检察长苗生明在会上通报检察机关惩治毒品犯罪工作情况。 苗生明介绍，针对“互联网+寄递”毒品犯罪高发问题，检察机关常态化落实最高检“七号检察建议”，始终保持对寄递领域涉毒犯罪高压态势，推动寄递安全“三项制度”(即实名收寄、收寄验视、过机安检)严格落实，协
+发布时间：2026年05月01日 08:01 来源：中国新闻网 岗位有别，光芒无异；双手所及，皆是荣光。“五一”国际劳动节，我们用AI作词谱曲，为每一位平凡而伟大的劳动者献上一首歌。致敬努力工作、认真生活的你。每一位劳动者，都了不起！ 责任编辑：【任帅】
 
 ## 正文
 
-中新网6月25日电 最高人民检察院25日举行“强化毒品案件法律监督 依法从严惩治毒品犯罪”新闻发布会，最高人民检察院党组成员、副检察长苗生明在会上通报检察机关惩治毒品犯罪工作情况。
+发布时间：2026年05月01日 08:01 来源：中国新闻网 岗位有别，光芒无异；双手所及，皆是荣光。
 
-苗生明介绍，针对“互联网+寄递”毒品犯罪高发问题，检察机关常态化落实最高检“七号检察建议”，始终保持对寄递领域涉毒犯罪高压态势，推动寄递安全“三项制度”(即实名收寄、收寄验视、过机安检)严格落实，协同推进行业综合治理，努力斩断毒品流通“隐形通道”。
+“五一”国际劳动节，我们用AI作词谱曲，为每一位平凡而伟大的劳动者献上一首歌。
+
+致敬努力工作、认真生活的你。
+
+每一位劳动者，都了不起！
+
+责任编辑：【任帅】
 
 ## 相关推荐
 
-- 2026-06-30 06:25 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 06:45 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 06:26 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 06:29 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 06:37 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 06:30 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 06:46 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 06:32 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 06:45 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 06:51 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 06:41 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 06:31 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 06:46 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 06:33 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 06:53 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 06:57 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 06:59 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 06:51 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 06:39 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 06:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 06:53 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 06:35 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/7083141.shtml)
-- 2026-06-30 06:37 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/25786771221.shtml)
-- 2026-06-30 06:27 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/908809304585.shtml)
-- 2026-06-30 06:46 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/4612462.shtml)
-- 2026-06-30 06:48 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/438361174265.shtml)
-- 2026-06-30 06:31 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/380063.shtml)
-- 2026-06-30 06:36 - [小娘惹](http://www.share.kurohicncr.top/Article/details/746381720257.shtml)
-- 2026-06-30 06:29 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/20781.shtml)
-- 2026-06-30 06:42 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/7780193.shtml)
-- 2026-06-30 06:30 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/009586651.shtml)
-- 2026-06-30 06:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/55064250.shtml)
-- 2026-06-30 06:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/22815.shtml)
-- 2026-06-30 06:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/052501.shtml)
-- 2026-06-30 06:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/71327138222.shtml)
-- 2026-06-30 06:46 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/676398608142.shtml)
+- 2026-06-30 06:43 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/85002773305.shtml)
+- 2026-06-30 06:30 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/2820079850.shtml)
+- 2026-06-30 06:40 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/543429.shtml)
+- 2026-06-30 06:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/17415.shtml)
+- 2026-06-30 06:52 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/65826.shtml)
+- 2026-06-30 06:40 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/254059266.shtml)
+- 2026-06-30 06:44 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/95289.shtml)
+- 2026-06-30 06:33 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/50043845391.shtml)
+- 2026-06-30 06:44 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/5932679.shtml)
+- 2026-06-30 06:51 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/316181.shtml)
+- 2026-06-30 06:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/620493171566.shtml)
+- 2026-06-30 06:31 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/0488695.shtml)
+- 2026-06-30 06:51 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/735537.shtml)
+- 2026-06-30 06:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/315777801298.shtml)
+- 2026-06-30 06:49 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/64731777293.shtml)

@@ -1,56 +1,46 @@
-# Kalshi寻求以400亿美元估值进行新一轮融资
+# 特朗普任命Nicole B. Saphier为公共卫生局局长
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-Kalshi正冲击400亿美元估值，其与Polymarket的差距从未如此悬殊。 Kalshi最新一轮融资谈判不仅仅是一次常规的估值上调。它表明，受监管的预测市场正被迅速视为金融基础设施，而Polymarket仍在花钱买路，试图回到同一起跑线。 Kalshi目前正尝试以约400亿美元的估值进行融资，不妨先静下心来审视一下这个数字。2025年6月，在由Paradigm领投的1.8
+特朗普在Truth Social上发帖称，已提名Nicole B． Saphier出任公共卫生局局长。责任编辑：何云
 
 ## 正文
 
-Kalshi正冲击400亿美元估值，其与Polymarket的差距从未如此悬殊。
+特朗普在Truth Social上发帖称，已提名Nicole B． Saphier出任公共卫生局局长。
 
-Kalshi最新一轮融资谈判不仅仅是一次常规的估值上调。
-
-它表明，受监管的预测市场正被迅速视为金融基础设施，而Polymarket仍在花钱买路，试图回到同一起跑线。
-
-Kalshi目前正尝试以约400亿美元的估值进行融资，不妨先静下心来审视一下这个数字。
-
-2025年6月，在由Paradigm领投的1.85亿美元融资后，该公司的估值为20亿美元。
-
-到了12月，估值达到110亿美元。
-
-2026年5月，Kalshi从Coatue、红杉资本、AndreessenHorowitz和摩根士丹利等投资者手中筹集了10亿美元，估值达到220亿美元。
-
-该公司已就新一轮融资展开深入谈判，该轮融资最早可能在第三季度完成。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 06:43 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 06:38 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 06:37 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 06:36 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 06:40 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 06:44 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 06:30 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 06:27 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 06:52 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 06:41 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 06:59 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 06:30 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 06:44 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 06:56 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 06:35 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 06:53 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 06:58 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 06:48 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 06:47 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 06:47 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 06:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 06:39 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:35 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/9984829.shtml)
-- 2026-06-30 06:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/2086846836.shtml)
-- 2026-06-30 06:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/494513856503.shtml)
-- 2026-06-30 06:35 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/50347671598.shtml)
-- 2026-06-30 06:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/948617948.shtml)
-- 2026-06-30 06:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/7854313738.shtml)
-- 2026-06-30 06:36 - [金刚川](https://www.share.minike.top/Article/details/853850398.shtml)
-- 2026-06-30 06:30 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/163991.shtml)
-- 2026-06-30 06:53 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/0296540.shtml)
-- 2026-06-30 06:41 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/863499195.shtml)
-- 2026-06-30 06:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/73301618.shtml)
-- 2026-06-30 06:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/14695.shtml)
-- 2026-06-30 06:33 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/079010611893.shtml)
-- 2026-06-30 06:38 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/02816847.shtml)
-- 2026-06-30 06:52 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/431943684336.shtml)
+- 2026-06-30 06:41 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/45277.shtml)
+- 2026-06-30 06:30 - [我和我的家乡](https://www.share.minike.top/Article/details/853949732.shtml)
+- 2026-06-30 06:46 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/6363726.shtml)
+- 2026-06-30 06:58 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/928863.shtml)
+- 2026-06-30 06:59 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/6767683.shtml)
+- 2026-06-30 06:33 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/98653754536.shtml)
+- 2026-06-30 06:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/02667.shtml)
+- 2026-06-30 06:49 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/165351679.shtml)
+- 2026-06-30 06:44 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/35593093.shtml)
+- 2026-06-30 06:57 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/1877072578.shtml)
+- 2026-06-30 06:33 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/763127401.shtml)
+- 2026-06-30 06:56 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/92181960.shtml)
+- 2026-06-30 06:47 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/30068822.shtml)
+- 2026-06-30 06:48 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/15380526759.shtml)
+- 2026-06-30 06:41 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/845698904.shtml)

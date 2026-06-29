@@ -1,61 +1,42 @@
-# 压力测试过关 摩根大通、高盛等大型银行提高股利并回购股份
+# 伊朗高级官员：将以“前所未有的军事行动”回应美“海盗行为”
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-美国几家大型银行在通过了今年的美联储压力测试后提高了股息；近年来，随着监管机构研拟新的要求，压力测试已趋于宽松。 美联储年度评估结果公布后，美国最大贷款机构摩根大通将季度股利由每股1.50美元提高到1.65美元，高盛的股利从4.50美元上调至5美元。摩根大通也批准了一项新的500亿美元股票回购计划，自7月1日起生效。 富国银行的股利从45美分升至50美分，摩根士丹利也上调股利，
+新华社德黑兰4月29日电 伊朗新闻电视台29日援引一名高级安全官员的话说，伊朗将很快以“前所未有的军事行动”回应美国“持续不断的海盗行为”。
 
 ## 正文
 
-美国几家大型银行在通过了今年的美联储压力测试后提高了股息；近年来，随着监管机构研拟新的要求，压力测试已趋于宽松。
-
-美联储年度评估结果公布后，美国最大贷款机构摩根大通将季度股利由每股1.50美元提高到1.65美元，高盛的股利从4.50美元上调至5美元。
-
-摩根大通也批准了一项新的500亿美元股票回购计划，自7月1日起生效。
-
-富国银行的股利从45美分升至50美分，摩根士丹利也上调股利，从1美元升至1.15美元。
-
-这项源于2008年金融危机后建立的美联储压力测试显示，所有受检银行都能维持足够资本，以承受假设中的经济衰退冲击。
-
-该项检测通常决定银行通过股利与股票回购向股东返还资本时，能采取多大程度的积极作为。
-
-测试要求银行评估假设的危机情境，并根据其业务组合估算可能面临的损失。
-
-美国银行表示，将在7月的董事会会议后公布下一季的股息派发计划。
+新华社德黑兰4月29日电 伊朗新闻电视台29日援引一名高级安全官员的话说，伊朗将很快以“前所未有的军事行动”回应美国“持续不断的海盗行为”。
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 06:28 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 06:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 06:36 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 06:40 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 06:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 06:49 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 06:36 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 06:32 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 06:35 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 06:35 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 06:24 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 06:32 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 06:24 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 06:46 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 06:39 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 06:56 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 06:53 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 06:38 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 06:32 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 06:59 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 06:41 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 06:56 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 06:55 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 06:43 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:29 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/1155737.shtml)
-- 2026-06-30 06:27 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/94878367063.shtml)
-- 2026-06-30 06:48 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/52079808083.shtml)
-- 2026-06-30 06:43 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/53303.shtml)
-- 2026-06-30 06:36 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/779444301.shtml)
-- 2026-06-30 06:53 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/900507694.shtml)
-- 2026-06-30 06:51 - [美人鱼](https://www.share.kurohicncr.top/Article/details/2915473.shtml)
-- 2026-06-30 06:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/26060989.shtml)
-- 2026-06-30 06:53 - [刘念回应](https://www.blog.minike.top/Article/details/12856.shtml)
-- 2026-06-30 06:50 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/622520202.shtml)
-- 2026-06-30 06:26 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/353520616245.shtml)
-- 2026-06-30 06:26 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/272874887660.shtml)
-- 2026-06-30 06:25 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/9541684328.shtml)
-- 2026-06-30 06:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/921422.shtml)
-- 2026-06-30 06:37 - [一生一世](http://www.share.kurohicncr.top/Article/details/6790713055.shtml)
+- 2026-06-30 06:43 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/121668376576.shtml)
+- 2026-06-30 06:59 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/61923.shtml)
+- 2026-06-30 06:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/6669199270.shtml)
+- 2026-06-30 06:38 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/5767874148.shtml)
+- 2026-06-30 06:30 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/48656594026.shtml)
+- 2026-06-30 06:36 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/45384733.shtml)
+- 2026-06-30 06:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/54542938.shtml)
+- 2026-06-30 06:31 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/947795231.shtml)
+- 2026-06-30 06:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/47638.shtml)
+- 2026-06-30 06:58 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/45488731.shtml)
+- 2026-06-30 06:50 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/55719109385.shtml)
+- 2026-06-30 06:41 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/372506.shtml)
+- 2026-06-30 06:39 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/21398068.shtml)
+- 2026-06-30 06:30 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/4575753055.shtml)
+- 2026-06-30 06:49 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/7842469.shtml)

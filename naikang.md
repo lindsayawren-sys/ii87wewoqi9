@@ -1,57 +1,58 @@
-# 急修“安保三文件”，暴露日本加速军事转轨的急躁姿态（钟声）
+# 中国将担任联合国安理会5月轮值主席 外交部：期待共同践行真正的多边主义
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-历史从不宽恕无视教训的冒险者。日方任何形式的“再军事化”举动，不仅是对地区安全稳定的冲击，更是对自身未来最轻率的背弃 围绕年内修订“安保三文件”，日本自民党日前通过该党拟向政府提交的建议草案。草案内容激进，包括大幅增加防卫费、全面取消武器出口限制，以及大力发展进攻性军事力量等。这已非简单的政策调整，而是日本右翼势力加速挣脱战后束缚、全面推进“再军事化”的危险举措，对地区和平稳定
+中新网北京4月30日电 (记者 李京泽)中国外交部发言人林剑4月30日主持例行记者会。 有记者提问：中国将担任联合国安理会5月轮值主席，请问中方将如何行使职责并发挥作用？ 林剑：中国将于5月1日起担任联合国安理会轮值主席。当前，国际形势变乱交织，地缘冲突此起彼伏。安理会肩负维护国际和平与安全的首要责任，作用备受关注。中方高度重视担任轮值主席工作，将本着负责任、建设性态度，推动安
 
 ## 正文
 
-历史从不宽恕无视教训的冒险者。
+中新网北京4月30日电 (记者 李京泽)中国外交部发言人林剑4月30日主持例行记者会。
 
-日方任何形式的“再军事化”举动，不仅是对地区安全稳定的冲击，更是对自身未来最轻率的背弃 围绕年内修订“安保三文件”，日本自民党日前通过该党拟向政府提交的建议草案。
+有记者提问：中国将担任联合国安理会5月轮值主席，请问中方将如何行使职责并发挥作用？
 
-草案内容激进，包括大幅增加防卫费、全面取消武器出口限制，以及大力发展进攻性军事力量等。
+林剑：中国将于5月1日起担任联合国安理会轮值主席。
 
-这已非简单的政策调整，而是日本右翼势力加速挣脱战后束缚、全面推进“再军事化”的危险举措，对地区和平稳定的潜在冲击不容小觑。
+当前，国际形势变乱交织，地缘冲突此起彼伏。
 
-日本政府紧锣密鼓推动修订“安保三文件”，是突破战后“专守防卫”原则的关键一步。
+安理会肩负维护国际和平与安全的首要责任，作用备受关注。
 
-《国家安全保障战略》《国家防卫战略》《防卫力量整备计划》三份安保文件，被认为是日本安全与防务的总纲领。
+中方高度重视担任轮值主席工作，将本着负责任、建设性态度，推动安理会加强团结合作，保持公正开放，立足务实行动，促推政治解决，切实履行好联合国宪章赋予的职责。
 
-2022年底，日本政府通过现行版本，原计划到2027财年将防卫费提升至国内生产总值(GDP)的2%。
+我们也期待国际社会支持中方履职，配合安理会推进5月议程上的各项任务，共同践行真正的多边主义，为和平与发展事业作出更大贡献。
 
-然而，高市早苗上台后便加快推进相关计划，将这一目标提前至2025财年完成。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:33 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 06:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 06:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 06:25 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 06:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 06:40 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 06:39 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 06:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 06:26 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 06:24 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 06:42 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 06:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 06:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 06:31 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 06:31 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 06:38 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 06:38 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 06:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 06:41 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 06:33 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 06:48 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 06:33 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 06:48 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/3454682.shtml)
-- 2026-06-30 06:44 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/333510873.shtml)
-- 2026-06-30 06:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/290145596720.shtml)
-- 2026-06-30 06:46 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/161120.shtml)
-- 2026-06-30 06:48 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/8537633.shtml)
-- 2026-06-30 06:43 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/18825468.shtml)
-- 2026-06-30 06:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/76694.shtml)
-- 2026-06-30 06:43 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/03935003112.shtml)
-- 2026-06-30 06:34 - [日本进球](http://www.blog.minike.top/Article/details/889405.shtml)
-- 2026-06-30 06:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/95689.shtml)
-- 2026-06-30 06:42 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/0015526584.shtml)
-- 2026-06-30 06:39 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/55222.shtml)
-- 2026-06-30 06:32 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/1954362659.shtml)
-- 2026-06-30 06:36 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/440616521712.shtml)
-- 2026-06-30 06:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/685871057975.shtml)
+- 2026-06-30 06:32 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/67381.shtml)
+- 2026-06-30 06:41 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/89010590.shtml)
+- 2026-06-30 06:36 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/3407861992.shtml)
+- 2026-06-30 06:33 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/73292103530.shtml)
+- 2026-06-30 06:30 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/694107.shtml)
+- 2026-06-30 06:30 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/60244.shtml)
+- 2026-06-30 06:49 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/482305836787.shtml)
+- 2026-06-30 06:34 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/0112462.shtml)
+- 2026-06-30 06:55 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/718886.shtml)
+- 2026-06-30 06:48 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/35667026.shtml)
+- 2026-06-30 06:56 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/87247273.shtml)
+- 2026-06-30 06:46 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/590203.shtml)
+- 2026-06-30 06:56 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/367818655.shtml)
+- 2026-06-30 06:54 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/1967991.shtml)
+- 2026-06-30 06:59 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/85030641408.shtml)

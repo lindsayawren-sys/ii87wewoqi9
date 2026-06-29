@@ -1,57 +1,56 @@
-# 《网络销售重点工业产品清单（2026年版）》发布
+# 华泰期货：苹果增产预期压制，红枣去库缓慢
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-记者今天了解到，市场监管总局发布《网络销售重点工业产品清单(2026年版)》(以下简称《清单》)，作为《网络销售重点工业产品质量安全监督管理规定》的核心配套文件，《清单》将于12月1日与《管理规定》同步实施，明确网络销售重点工业产品范围，为电子商务经营者提供清晰的合规指引。《清单》优先将量大面广、消费者广泛使用的工业产品纳入管理范围，重点聚焦物理结构、化学材质、电气性能等方面可
+来源：华泰期货 作者： 白旭宇 苹果观点 市场要闻与重要数据 期货方面，昨日收盘苹果2610合约7615元/吨，较前一日变动+62元/吨，幅度+0.82%。现货方面，山东栖霞80# 一二级晚富士价格3.60元/斤，较前一日变动+0.00元/斤，现货基差AP10-415，较前一日变动-62；陕西洛川70# 以上半商品晚富士价格4.20元/斤，较前一日变动-0.15元/斤，现货基差
 
 ## 正文
 
-记者今天了解到，市场监管总局发布《网络销售重点工业产品清单(2026年版)》(以下简称《清单》)，作为《网络销售重点工业产品质量安全监督管理规定》的核心配套文件，《清单》将于12月1日与《管理规定》同步实施，明确网络销售重点工业产品范围，为电子商务经营者提供清晰的合规指引。
+来源：华泰期货 作者： 白旭宇 苹果观点 市场要闻与重要数据 期货方面，昨日收盘苹果2610合约7615元/吨，较前一日变动+62元/吨，幅度+0.82%。
 
-《清单》优先将量大面广、消费者广泛使用的工业产品纳入管理范围，重点聚焦物理结构、化学材质、电气性能等方面可能存在质量安全风险的工业产品。
+现货方面，山东栖霞80# 一二级晚富士价格3.60元/斤，较前一日变动+0.00元/斤，现货基差AP10-415，较前一日变动-62；陕西洛川70# 以上半商品晚富士价格4.20元/斤，较前一日变动-0.15元/斤，现货基差AP10+785，较前一日变动-362。
 
-《清单》共有99种产品，产品分类主要依据《工业产品生产许可证管理目录》《强制性产品认证目录》，结合产品功能属性与适用对象进行系统归类。
+近期市场资讯，产地库存苹果走货不佳，五一节前备货未见明显提振，果农通货价格偏弱运行。
 
-其中： 实施工业产品生产许可证管理的产品9类20个品种； 实施强制性产品认证管理的产品13类57个品种； 不实施工业产品生产许可、强制性产品认证管理，但涉及人身健康和生命财产安全且实施强制性标准的产品9类22个品种。
+西北地区多以客商发自存货源为主，一般质量果农通货价格虽然稍有松动但成交依旧不快。
 
-《清单》将实行“有进有出”的动态管理，结合网络销售产品特点、风险及质量安全状况，适时对《清单》进行调整更新，以公告形式发布，确保纳入管理要求的产品与监管形势相适应。
+山东产区果农及冷库多有急售情绪，价格继续下跌，少量客商调片红性价比高的货源，成交不多，外贸受限，整体成交清淡。
 
-自2026年12月1日起，针对列入《清单》的重点工业产品，电子商务经营者应当严格履行《管理规定》的各项义务，市场监管部门将加大网络销售领域监管执法力度，切实提升网售工业产品质量安全水平，保障人民群众生命财产安全。
+新季苹果陆续进入坐果期，整体表现良好。
 
-(总台央视记者 李晶晶)
+栖霞80#一二级片红价格3.0-4.2元/斤，80#统货2.2-2.8元/斤附近。
+
+陕西洛川产区果农统货出库价格3.3-4.0元/斤，半商品出库价格4.0-4.5元/斤。
 
 ## 相关推荐
 
-- 2026-06-30 06:38 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 06:34 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 06:50 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 06:51 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 06:24 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 06:37 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 06:30 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 06:28 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 06:47 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 06:36 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 06:34 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 06:39 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 06:38 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 06:38 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 06:53 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 06:58 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 06:55 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 06:51 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 06:42 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 06:54 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 06:40 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 06:55 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 06:42 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:25 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/9865569694.shtml)
-- 2026-06-30 06:47 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/8279942077.shtml)
-- 2026-06-30 06:29 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/52910047934.shtml)
-- 2026-06-30 06:47 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/750895859667.shtml)
-- 2026-06-30 06:36 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/452025268044.shtml)
-- 2026-06-30 06:39 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/362904464.shtml)
-- 2026-06-30 06:26 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/970250.shtml)
-- 2026-06-30 06:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/20152.shtml)
-- 2026-06-30 06:36 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/506298320.shtml)
-- 2026-06-30 06:50 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/610838482.shtml)
-- 2026-06-30 06:32 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/74716940.shtml)
-- 2026-06-30 06:43 - [沙丘](http://www.share.minike.top/Article/details/648381.shtml)
-- 2026-06-30 06:31 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/51104942207.shtml)
-- 2026-06-30 06:53 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/9617425.shtml)
-- 2026-06-30 06:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/665509800.shtml)
+- 2026-06-30 06:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/56551776.shtml)
+- 2026-06-30 06:40 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/62309.shtml)
+- 2026-06-30 06:49 - [逃狱兄弟](https://www.blog.minike.top/Article/details/44501958.shtml)
+- 2026-06-30 06:57 - [千与千寻](https://www.share.kurohicncr.top/Article/details/947124015.shtml)
+- 2026-06-30 06:47 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/01822.shtml)
+- 2026-06-30 06:51 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/80052145105.shtml)
+- 2026-06-30 06:57 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/2152248519.shtml)
+- 2026-06-30 06:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/61312719198.shtml)
+- 2026-06-30 06:54 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/319028951.shtml)
+- 2026-06-30 06:33 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/1745906.shtml)
+- 2026-06-30 06:56 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/35762802.shtml)
+- 2026-06-30 06:41 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/5948606218.shtml)
+- 2026-06-30 06:46 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/85381420.shtml)
+- 2026-06-30 06:43 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/3356700.shtml)
+- 2026-06-30 06:49 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/67641.shtml)

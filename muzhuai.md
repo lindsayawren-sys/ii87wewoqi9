@@ -1,58 +1,58 @@
-# 中国首次发现2.56亿年前棘鳞鲨 以化石产地邵阳命名建新种
+# 揭秘守护淮河安澜的“智慧大脑”
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月25日电 (记者 孙自法)记者6月25日从中国科学院古脊椎动物与古人类研究所吴飞翔研究员团队获悉，该团队与合作者最近在湖南邵阳动物群中研究发现保存较好的二叠纪棘鳞鲨化石，命名为新种邵阳棘鳞鲨。 作为一类已灭绝的软骨鱼类，邵阳棘鳞鲨年代距今约2.56亿年，早于二叠纪末大灭绝约500万年。这是中国二叠纪地层中首次发现棘鳞鲨化石，也为认识二叠纪大灭绝前夕软骨鱼类的多样性
+中新网蚌埠4月29日电(记者 邵萌)淮河，自古“来水快、行洪慢”，洪、涝、旱等灾害频繁。它曾被称为中国“最难治理的河流”，也是新中国成立后第一条全面系统治理的大河。 历史上治淮，离不开“人海战术”，而现在，数字孪生技术赋予了淮河治理新的活力。76年治淮路，筑起了防洪除涝的坚固屏障，也见证着治水理念与技术手段的深刻变革。 给淮河装上“智慧大脑” 在几乎铺满一整面墙的大屏幕上，淮河
 
 ## 正文
 
-中新网北京6月25日电 (记者 孙自法)记者6月25日从中国科学院古脊椎动物与古人类研究所吴飞翔研究员团队获悉，该团队与合作者最近在湖南邵阳动物群中研究发现保存较好的二叠纪棘鳞鲨化石，命名为新种邵阳棘鳞鲨。
+中新网蚌埠4月29日电(记者 邵萌)淮河，自古“来水快、行洪慢”，洪、涝、旱等灾害频繁。
 
-作为一类已灭绝的软骨鱼类，邵阳棘鳞鲨年代距今约2.56亿年，早于二叠纪末大灭绝约500万年。
+它曾被称为中国“最难治理的河流”，也是新中国成立后第一条全面系统治理的大河。
 
-这是中国二叠纪地层中首次发现棘鳞鲨化石，也为认识二叠纪大灭绝前夕软骨鱼类的多样性演化提供了新材料。
+历史上治淮，离不开“人海战术”，而现在，数字孪生技术赋予了淮河治理新的活力。
 
-吴飞翔研究员介绍，二叠纪-三叠纪大灭绝是显生宙最严重的生态危机，对海洋生态系统产生深远影响。
+76年治淮路，筑起了防洪除涝的坚固屏障，也见证着治水理念与技术手段的深刻变革。
 
-然而，晚二叠世鱼类化石记录相对稀少，限制了对于这场危机前夕海洋生态系统的深入认识。
+给淮河装上“智慧大脑” 在几乎铺满一整面墙的大屏幕上，淮河流域的实时雨情、水情等数据清晰可见，推演与情景模拟精准直观......日前，记者走进水利部淮河水利委员会，了解数字孪生淮河建设如何为防汛备汛赋能。
 
-研究团队此次在二叠纪邵阳动物群中初步考察发现包含头足类无脊椎动物(菊石、角石等)和若干鱼类(软骨鱼类和硬骨鱼类中的“古鳕类”、龙鱼类等)。
+如果说包括预报、预警、预演、预案的防洪“四预”系统是淮河流域防汛备汛的重要支撑，那么数字孪生淮河就是其重要的技术“底座”。
 
-生物地层证据显示，该动物群形成年代仅早于二叠纪末大灭绝约500万年。
+防汛备汛，“预”字当先，汛情监测预报预警至关重要。
 
-邵阳棘鳞鲨化石保存为皮齿印痕，标本高约3厘米至4厘米，整体狭长呈三角形。
+淮河水利委员会水文局(信息中心)副局长(副主任)王凯介绍，当前，淮河流域已建成包括14部水利测雨雷达、1.48万处雨量站、2973处水文(位)站在内的庞大站网，并广泛应用卫星遥感、无人机等先进技术，实现了对防汛抗旱、水资源调配等多要素的综合监测。
 
 ## 相关推荐
 
-- 2026-06-30 06:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 06:35 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 06:27 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 06:41 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 06:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 06:28 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 06:32 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 06:35 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 06:30 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 06:28 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 06:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 06:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 06:31 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 06:59 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 06:51 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 06:34 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 06:32 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 06:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 06:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 06:48 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 06:46 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 06:42 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 06:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 06:52 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:36 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/73146426.shtml)
-- 2026-06-30 06:41 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/7586755.shtml)
-- 2026-06-30 06:31 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/681645.shtml)
-- 2026-06-30 06:27 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/73309553.shtml)
-- 2026-06-30 06:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/64113.shtml)
-- 2026-06-30 06:24 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/62073.shtml)
-- 2026-06-30 06:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/40637800.shtml)
-- 2026-06-30 06:34 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/64333633.shtml)
-- 2026-06-30 06:46 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/74645767480.shtml)
-- 2026-06-30 06:47 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/207817.shtml)
-- 2026-06-30 06:24 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/81921446671.shtml)
-- 2026-06-30 06:47 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/71500714874.shtml)
-- 2026-06-30 06:35 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/408588993227.shtml)
-- 2026-06-30 06:44 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/99048876.shtml)
-- 2026-06-30 06:41 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/10321.shtml)
+- 2026-06-30 06:31 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/82301058605.shtml)
+- 2026-06-30 06:55 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/44032431.shtml)
+- 2026-06-30 06:32 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/74927213953.shtml)
+- 2026-06-30 06:55 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/45072170.shtml)
+- 2026-06-30 06:46 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/69798943.shtml)
+- 2026-06-30 06:44 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/501257095281.shtml)
+- 2026-06-30 06:39 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/0242375.shtml)
+- 2026-06-30 06:52 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/158971495444.shtml)
+- 2026-06-30 06:39 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/76948145.shtml)
+- 2026-06-30 06:41 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/306246009140.shtml)
+- 2026-06-30 06:48 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/754742860.shtml)
+- 2026-06-30 06:55 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/474255.shtml)
+- 2026-06-30 06:56 - [啊啊啊](http://www.blog.minike.top/Article/details/7528877.shtml)
+- 2026-06-30 06:35 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/39134.shtml)
+- 2026-06-30 06:46 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/8183217812.shtml)

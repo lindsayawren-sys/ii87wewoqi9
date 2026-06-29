@@ -1,58 +1,58 @@
-# 靠黄河水翻盘 内蒙古孪井滩上演沙漠逆袭记
+# 中方关于日本拥核问题的工作文件
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网阿拉善6月25日电 题：靠黄河水翻盘 内蒙古孪井滩上演沙漠逆袭记 作者 陈峰 马克锋 徐晓玲 向浩瀚的腾格里沙漠东缘俯瞰，一片生机盎然的绿洲格外醒目，这便是内蒙古阿拉善盟孪井滩生态移民示范区(以下简称示范区)。30余载光阴更迭，依托奔涌的黄河水，这片曾经寸草不生的荒漠戈壁，完成了良田连片、产业兴旺、沃土宜居的华丽蝶变。 据了解，昔日受草原退化、风沙侵蚀加剧、草场过度载畜等
+一、近年来，日本在拥有核武器问题上消极言行不断，日方官员多次公然讨论修改“无核三原则”(即“不拥有、不制造、不运进核武器”)。2025年11月，日本首相在众议院应询称，无法确认“无核三原则”是否将在日本安保政策修订过程中保持不变。2025年12月，日本首相官邸高官公开声称“日本应该拥有核武器”，暴露日本右翼势力的核野心，挑战国际社会底线。日本还不断寻求强化所谓“延伸威慑”合作，
 
 ## 正文
 
-中新网阿拉善6月25日电 题：靠黄河水翻盘 内蒙古孪井滩上演沙漠逆袭记 作者 陈峰 马克锋 徐晓玲 向浩瀚的腾格里沙漠东缘俯瞰，一片生机盎然的绿洲格外醒目，这便是内蒙古阿拉善盟孪井滩生态移民示范区(以下简称示范区)。
+一、近年来，日本在拥有核武器问题上消极言行不断，日方官员多次公然讨论修改“无核三原则”(即“不拥有、不制造、不运进核武器”)。
 
-30余载光阴更迭，依托奔涌的黄河水，这片曾经寸草不生的荒漠戈壁，完成了良田连片、产业兴旺、沃土宜居的华丽蝶变。
+2025年11月，日本首相在众议院应询称，无法确认“无核三原则”是否将在日本安保政策修订过程中保持不变。
 
-据了解，昔日受草原退化、风沙侵蚀加剧、草场过度载畜等因素影响，当地生态持续恶化，民众难以安居。
+2025年12月，日本首相官邸高官公开声称“日本应该拥有核武器”，暴露日本右翼势力的核野心，挑战国际社会底线。
 
-自1994年起，八千余位牧民挥别世代生活的草原，奔赴孪井滩这片全新的土地，开启拓荒生活。
+日本还不断寻求强化所谓“延伸威慑”合作，试图发展核动力潜艇，达成所谓“核共享”安排，图谋重新在日本部署核武器。
 
-今年是王金玉搬迁至示范区的第31年，他是示范区变迁的亲历者与见证者。
+国际社会必须保持高度警惕并坚决反对日方上述试探挑衅言行。
 
-“刚来时住的是土坯房，地方小、风沙大，开荒全靠铁锹，种下的作物也因常年缺水枯死，自从启动了‘引黄工程’，我们的庄稼长势才变得这么好，收益也上来了，现在日子一年比一年好。
+日本拥核图谋由来已久，早在二战期间就曾秘密开展核武器研发。
 
-”王金玉感慨道。
+日右翼代表人物、前航空自卫队幕僚长田母神俊雄于2013年出版《日本核武装计划》一书，详细制定20年内按照“三阶段、八步走”战略、实现自主拥核路线图。
 
-为破解缺水困局、扭转发展困境，当地推进“孪井滩引黄灌溉工程”。
+目前，日本掌握后处理技术、有能力提取武器级钚、有可运行的后处理设施，长期制造、储存远超民用核能实际需求的钚材料1，拥有短期内实现“核突破”的能力。
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 06:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 06:41 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 06:33 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 06:36 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 06:36 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 06:42 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 06:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 06:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 06:38 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 06:31 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 06:51 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 06:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 06:34 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 06:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 06:56 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 06:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 06:34 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 06:34 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 06:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 06:50 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 06:54 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 06:59 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 06:55 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:48 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/4734926.shtml)
-- 2026-06-30 06:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/5513550460.shtml)
-- 2026-06-30 06:31 - [美人鱼](https://www.share.kurohicncr.top/Article/details/9879746.shtml)
-- 2026-06-30 06:32 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/74031289.shtml)
-- 2026-06-30 06:53 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/86829918330.shtml)
-- 2026-06-30 06:40 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/49494.shtml)
-- 2026-06-30 06:52 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/19722517.shtml)
-- 2026-06-30 06:35 - [网瘾賊大的阿嬷](https://www.blog.kurohicncr.top/Article/details/10852.shtml)
-- 2026-06-30 06:37 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/9031060298.shtml)
-- 2026-06-30 06:35 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/038628543.shtml)
-- 2026-06-30 06:25 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/77313344488.shtml)
-- 2026-06-30 06:48 - [《共患难》](http://www.blog.minike.top/Article/details/79043643750.shtml)
-- 2026-06-30 06:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/78509.shtml)
-- 2026-06-30 06:50 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/81507806.shtml)
-- 2026-06-30 06:52 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/546390000688.shtml)
+- 2026-06-30 06:55 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/502769277418.shtml)
+- 2026-06-30 06:33 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/7376207.shtml)
+- 2026-06-30 06:56 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/976206913433.shtml)
+- 2026-06-30 06:36 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/7784019713.shtml)
+- 2026-06-30 06:39 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/3341883320.shtml)
+- 2026-06-30 06:45 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/4415716.shtml)
+- 2026-06-30 06:38 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/5381733.shtml)
+- 2026-06-30 06:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/16259277.shtml)
+- 2026-06-30 06:56 - [日本16强魔咒](https://www.blog.minike.top/Article/details/2785117469.shtml)
+- 2026-06-30 06:32 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/9888703.shtml)
+- 2026-06-30 06:55 - [千香](https://www.share.minike.top/Article/details/89351012218.shtml)
+- 2026-06-30 06:30 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/4710387079.shtml)
+- 2026-06-30 06:30 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/070951434934.shtml)
+- 2026-06-30 06:36 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/073425985826.shtml)
+- 2026-06-30 06:59 - [女心理师](https://www.blog.minike.top/Article/details/2148357577.shtml)

@@ -1,58 +1,57 @@
-# 奋进“十五五” 前海人寿全面开展2026年“7.8全国保险公众宣传日”系列活动
+# 民生直通车丨一季度新增就业299万人 下一步稳就业有实招
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-专题：2026年7.8全国保险公众宣传日——中国保险行业协会×新浪财经 近日，前海人寿保险股份有限公司（以下简称“前海人寿”）积极响应中国保险行业协会号召，围绕“奋进‘十五五’保险让前行更有底气”年度主题，全面启动2026年“7.8全国保险公众宣传日”系列活动。 前海人寿总分公司周密部署、上下联动，聚焦科技保险、养老保险、保险服务新市民需求、服务优化等多个维度，计划开展包括主题
+新华社北京4月28日电 题：一季度新增就业299万人 下一步稳就业有实招 新华社记者张晓洁 就业是最基本的民生。今年一季度就业形势如何？下一步稳就业有哪些政策举措？4月28日举行的人力资源社会保障部例行新闻发布会上，有关负责人介绍就业情况。 人力资源社会保障部政策研究司司长崔鹏程介绍，1至3月，全国城镇新增就业299万人，城镇调查失业率平均值为5.3%，就业形势保持总体稳定。有
 
 ## 正文
 
-专题：2026年7.8全国保险公众宣传日——中国保险行业协会×新浪财经 近日，前海人寿保险股份有限公司（以下简称“前海人寿”）积极响应中国保险行业协会号召，围绕“奋进‘十五五’保险让前行更有底气”年度主题，全面启动2026年“7.8全国保险公众宣传日”系列活动。
+新华社北京4月28日电 题：一季度新增就业299万人 下一步稳就业有实招 新华社记者张晓洁 就业是最基本的民生。
 
-前海人寿总分公司周密部署、上下联动，聚焦科技保险、养老保险、保险服务新市民需求、服务优化等多个维度，计划开展包括主题快闪、热梗微短剧创作、保险知识公益答题、“保险五进入”等形式多样、内容丰富的线上线下宣传活动，以实际行动全方位普及保险知识、解读保险价值、优化民生服务，助力塑造可信赖、能托付、有温度的保险行业形象。
+今年一季度就业形势如何？
 
-结合“七一”建党节，前海人寿各分公司将走进红色教育基地、城市地标、社区广场等场所，以歌咏、经典朗诵、情景表演等群众喜闻乐见的形式开展“不忘初心·保险同行”主题快闪活动，让红色文化与保险初心相融共生，凝聚奋进力量。
+下一步稳就业有哪些政策举措？
 
-在短剧创作方面，前海人寿将创新采用AI技术手段，将四大名著元素与保险生活场景结合，通过创作一系列“四大名著话保险”热梗微短剧，生动解读保险功能与保障意义。
+4月28日举行的人力资源社会保障部例行新闻发布会上，有关负责人介绍就业情况。
 
-同时，前海人寿将广泛动员全员、客户及社会公众参与“一朵小红花”保险知识公益答题活动，让保险知识、保险理念以更鲜活、更接地气的形式走入大众视野。
+人力资源社会保障部政策研究司司长崔鹏程介绍，1至3月，全国城镇新增就业299万人，城镇调查失业率平均值为5.3%，就业形势保持总体稳定。
 
-活动期间，前海人寿各分支机构将全面升级营业场所服务设施。
+有关部门加大惠企利民政策落实力度，发放失业保险稳岗返还资金31亿元、一次性扩岗补助5亿元、技能提升补贴8亿元。
 
-建设保险便民服务点、保险温暖驿站，完善爱心座椅、无障碍通道、适老化设施等便民硬件，设置新市民服务、助老护幼、关爱户外劳动者专属服务区域等，持续打造暖心舒适的服务空间。
+开展春风行动暨就业援助季活动，累计举办招聘会5.9万场、发布岗位3600万个。
 
-同时，还将组织员工主动走进学校、农村、社区、机关及企业，为群众面对面普及金融保险知识，开展消费者权益保护、防范非法金融活动、打击代理退保黑产、反洗钱、反保险欺诈等主题宣传，让保险宣传真正下沉基层、惠及民生。
+全力促进高质量充分就业，更多实招硬招即将推出。
 
 ## 相关推荐
 
-- 2026-06-30 06:41 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 06:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 06:37 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 06:43 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 06:47 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 06:32 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 06:32 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 06:50 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 06:29 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 06:25 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 06:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 06:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 06:54 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 06:34 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 06:31 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 06:30 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 06:40 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 06:54 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 06:58 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 06:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 06:50 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 06:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 06:52 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:39 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/226029268.shtml)
-- 2026-06-30 06:51 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/74068604.shtml)
-- 2026-06-30 06:38 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/87171368.shtml)
-- 2026-06-30 06:27 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/234970809091.shtml)
-- 2026-06-30 06:52 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/56879.shtml)
-- 2026-06-30 06:38 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/3287202.shtml)
-- 2026-06-30 06:31 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/35323987.shtml)
-- 2026-06-30 06:39 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/67667168.shtml)
-- 2026-06-30 06:47 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/3744768593.shtml)
-- 2026-06-30 06:51 - [明星大侦探第一季](https://www.share.minike.top/Article/details/253007953918.shtml)
-- 2026-06-30 06:29 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/768969192740.shtml)
-- 2026-06-30 06:35 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/816265205.shtml)
-- 2026-06-30 06:50 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/40444383.shtml)
-- 2026-06-30 06:38 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/0132939939.shtml)
-- 2026-06-30 06:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/73372022.shtml)
+- 2026-06-30 06:33 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/121852.shtml)
+- 2026-06-30 06:39 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/464809.shtml)
+- 2026-06-30 06:46 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/056169288.shtml)
+- 2026-06-30 06:46 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/60683587332.shtml)
+- 2026-06-30 06:50 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/91442.shtml)
+- 2026-06-30 06:47 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/7086661.shtml)
+- 2026-06-30 06:38 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/8557897540.shtml)
+- 2026-06-30 06:47 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/281768323.shtml)
+- 2026-06-30 06:44 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/12254.shtml)
+- 2026-06-30 06:45 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/87935274884.shtml)
+- 2026-06-30 06:52 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/2991407510.shtml)
+- 2026-06-30 06:40 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/36028064571.shtml)
+- 2026-06-30 06:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/548396245.shtml)
+- 2026-06-30 06:41 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/4933777.shtml)
+- 2026-06-30 06:47 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/979255781.shtml)

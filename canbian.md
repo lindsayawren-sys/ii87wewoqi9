@@ -1,56 +1,59 @@
-# 特朗普炮轰石油公司“宰客”：汽油价格降得太慢太少，要求司法部调查
+# 恩智浦半导体大涨26% 财报超预期创上市以来最佳单日表现
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-6月24日，由于通过霍尔木兹海峡的航运活动有所恢复、美国暂时解除对伊朗石油制裁，国际油价延续跌势。截至发稿，全球原油基准、伦敦洲际交易所8月交货的布伦特原油期货报75.35美元/桶，纽约商品交易所8月交货的WTI原油期货报71.59美元/桶，较战前仍有数美元的距离，但双双刷新3月初以来的新低。原油价格从峰值回落之际，美国总统特朗普谴责石油公司没有随近期原油价格的下跌相应降低汽油
+恩智浦半导体股价周三大涨 26%，有望创下公司 2010 年上市以来史上最佳单日表现。 这家半导体制造商于周二公布一季度财报，业绩大幅超出华尔街市场预期。 这家荷兰企业公布调整后每股收益 3.05 美元，高于路孚特预期的 2.95 美元；营收达 31.8 亿美元，同比增长 12%，同样超出路孚特 31.6 亿美元的营收预测。 公司首席执行官拉斐尔・索托马约尔将业绩增长归功于工业
 
 ## 正文
 
-6月24日，由于通过霍尔木兹海峡的航运活动有所恢复、美国暂时解除对伊朗石油制裁，国际油价延续跌势。
+恩智浦半导体股价周三大涨 26%，有望创下公司 2010 年上市以来史上最佳单日表现。
 
-截至发稿，全球原油基准、伦敦洲际交易所8月交货的布伦特原油期货报75.35美元/桶，纽约商品交易所8月交货的WTI原油期货报71.59美元/桶，较战前仍有数美元的距离，但双双刷新3月初以来的新低。
+这家半导体制造商于周二公布一季度财报，业绩大幅超出华尔街市场预期。
 
-原油价格从峰值回落之际，美国总统特朗普谴责石油公司没有随近期原油价格的下跌相应降低汽油零售价。
+这家荷兰企业公布调整后每股收益 3.05 美元，高于路孚特预期的 2.95 美元；营收达 31.8 亿美元，同比增长 12%，同样超出路孚特 31.6 亿美元的营收预测。
 
-“油价正在急剧暴跌！
+公司首席执行官拉斐尔・索托马约尔将业绩增长归功于工业及汽车处理器业务，该业务为软件定义汽车与实体人工智能提供支撑。
 
-换句话说，消费者正在被‘宰割’。
+随着人工智能普及，叠加数据中心需求激增，芯片企业股价集体走强。
 
-我已指示司法部立即对此事展开调查。
+在周二的财报电话会议上，索托马约尔着重强调了恩智浦在数据中心应用领域的地位正不断提升。
 
-汽油价格最好赶紧下降，而不是像现在这样慢！
+公司去年数据中心相关营收约 2 亿美元，索托马约尔预计 2026 年该项营收将突破 5 亿美元。
 
-”他在社交媒体发文称，未点名任何石油公司。
+与英伟达、超威半导体等芯片厂商不同，恩智浦并不生产图形处理器。
 
 ## 相关推荐
 
-- 2026-06-30 06:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-30 06:40 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 06:35 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 06:52 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 06:44 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 06:42 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 06:51 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-30 06:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 06:31 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 06:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 06:40 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 06:33 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 06:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 06:36 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 06:48 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 06:48 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 06:31 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 06:33 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 06:47 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 06:56 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 06:40 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 06:32 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 06:45 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:32 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/05720951339.shtml)
-- 2026-06-30 06:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/863979.shtml)
-- 2026-06-30 06:36 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/49665.shtml)
-- 2026-06-30 06:46 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/36029207557.shtml)
-- 2026-06-30 06:28 - [周生如故](https://www.share.kurohicncr.top/Article/details/19285.shtml)
-- 2026-06-30 06:26 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/6584774099.shtml)
-- 2026-06-30 06:36 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/08023789.shtml)
-- 2026-06-30 06:42 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/2367837.shtml)
-- 2026-06-30 06:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/386766166669.shtml)
-- 2026-06-30 06:25 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/427716.shtml)
-- 2026-06-30 06:37 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/063082.shtml)
-- 2026-06-30 06:37 - [日本领先巴西](http://www.blog.minike.top/Article/details/922808292818.shtml)
-- 2026-06-30 06:25 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/931596086788.shtml)
-- 2026-06-30 06:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/87165932155.shtml)
-- 2026-06-30 06:31 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/420961767.shtml)
+- 2026-06-30 06:58 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/331986399.shtml)
+- 2026-06-30 06:53 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/94033420.shtml)
+- 2026-06-30 06:52 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/4394666.shtml)
+- 2026-06-30 06:56 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/49459729076.shtml)
+- 2026-06-30 06:30 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/48292193366.shtml)
+- 2026-06-30 06:38 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/154409965416.shtml)
+- 2026-06-30 06:47 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/9032611604.shtml)
+- 2026-06-30 06:30 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/71447658.shtml)
+- 2026-06-30 06:44 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/870496.shtml)
+- 2026-06-30 06:54 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/504872442987.shtml)
+- 2026-06-30 06:38 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/372602563980.shtml)
+- 2026-06-30 06:54 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/003651155069.shtml)
+- 2026-06-30 06:32 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/47839140.shtml)
+- 2026-06-30 06:30 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/42969972.shtml)
+- 2026-06-30 06:49 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/11357150.shtml)

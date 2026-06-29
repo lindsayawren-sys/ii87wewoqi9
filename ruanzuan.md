@@ -1,54 +1,57 @@
-# 深化职教合作 天津向老挝捐赠4台网络综合布线实训台
+# 财达证券去年营收、净利润增速皆跑输行业 资管规模大增但收入下降
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网天津6月25日电 (薛淳月 周亚强)2026年是中老建交65周年暨“中老友好年”，天津市电子信息技师学院—老挝人民民主共和国理工学院实训设备捐赠活动近日在天津举行。 此次活动以“命运与共启新程 技能共建促发展”为主题，天津市电子信息技师学院和老挝理工学院共同签署设备捐赠交接协议，向老挝理工学院捐赠4台网络综合布线实训台。 老挝理工学院院长蓝丰·森沙旺在接受采访时表示：“此
+专题：上市券商2025年年报披露！各业务收入大比拼 近日，财达证券发布2025年年报和2026年一季报。 2025年全年，财达证券实现营业总收入27.00亿元，同比增长10.74%；归属于母公司股东的净利润7.47亿元，同比增长8.82%。营收与净利润均实现连续三年增长。 放在行业大盘中比较，2025年中证协数据显示150家券商合计实现营业收入5411.71亿元，同比增长19.
 
 ## 正文
 
-中新网天津6月25日电 (薛淳月 周亚强)2026年是中老建交65周年暨“中老友好年”，天津市电子信息技师学院—老挝人民民主共和国理工学院实训设备捐赠活动近日在天津举行。
+专题：上市券商2025年年报披露！
 
-此次活动以“命运与共启新程 技能共建促发展”为主题，天津市电子信息技师学院和老挝理工学院共同签署设备捐赠交接协议，向老挝理工学院捐赠4台网络综合布线实训台。
+各业务收入大比拼 近日，财达证券发布2025年年报和2026年一季报。
 
-老挝理工学院院长蓝丰·森沙旺在接受采访时表示：“此次捐赠将显著改善学院信息通信技术专业实训条件，为老挝数字产业发展所需技能人才培养提供有力支撑。
+2025年全年，财达证券实现营业总收入27.00亿元，同比增长10.74%；归属于母公司股东的净利润7.47亿元，同比增长8.82%。
 
-”他期待以此次合作为起点，推动两校在专业建设、师资培训、技能竞赛等领域持续深化交流。
+营收与净利润均实现连续三年增长。
 
-据介绍，天津市电子信息技师学院未来还将帮助老挝理工学院建成信息网络综合布线实训室，并开展“线上+线下”技能培训、师资互访、标准共建等系列合作，促进两国技能人才培养协同发展。
+放在行业大盘中比较，2025年中证协数据显示150家券商合计实现营业收入5411.71亿元，同比增长19.95%；合计实现净利润2194.39亿元，同比增长31.2%。
 
-天津市电子信息技师学院院长祝露表示，希望与老挝理工学院在技能发展示范项目、教师能力提升平台等领域合作，借助“一带一路”南南合作技能开发网络平台，持续推动技能标准互鉴与人才培养共进，为两国技能人才成长与区域发展贡献力量。
+财达证券10.74%的营收增速落后全行业约9个百分点，净利润8.82%的增速更是远逊于行业31.2%的平均水平，结构性差异显著。
 
-(完)
+从业务结构的变化趋势来看，手续费及佣金净收入15.66亿元，同比增长17.87%，占营业收入的58.01%。
+
+其中经纪业务手续费净收入10亿元，同比大幅增长33%；投资银行业务手续费净收入2.97亿元，同比增长6%；资产管理业务手续费净收入2.61亿元，同比下降9%。
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 06:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 06:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 06:33 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 06:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 06:33 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 06:27 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 06:45 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 06:37 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 06:32 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 06:48 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 06:43 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 06:36 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 06:44 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 06:46 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 06:31 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 06:37 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 06:50 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 06:44 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 06:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 06:40 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:25 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/560165.shtml)
-- 2026-06-30 06:37 - [日本16强魔咒](http://www.blog.minike.top/Article/details/43681087023.shtml)
-- 2026-06-30 06:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/90716.shtml)
-- 2026-06-30 06:50 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/3690838292.shtml)
-- 2026-06-30 06:29 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/62088549446.shtml)
-- 2026-06-30 06:32 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/996826088.shtml)
-- 2026-06-30 06:32 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/9731308306.shtml)
-- 2026-06-30 06:38 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/3072138876.shtml)
-- 2026-06-30 06:38 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/26268.shtml)
-- 2026-06-30 06:28 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/1787657927.shtml)
-- 2026-06-30 06:24 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/7039102562.shtml)
-- 2026-06-30 06:49 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/3058994.shtml)
-- 2026-06-30 06:39 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/95617.shtml)
-- 2026-06-30 06:38 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/131401987.shtml)
-- 2026-06-30 06:54 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/36844903896.shtml)
+- 2026-06-30 06:41 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/82812018912.shtml)
+- 2026-06-30 06:33 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/37580546965.shtml)
+- 2026-06-30 06:59 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/8596974834.shtml)
+- 2026-06-30 06:34 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/9068328.shtml)
+- 2026-06-30 06:31 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/833612903.shtml)
+- 2026-06-30 06:46 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/339347575.shtml)
+- 2026-06-30 06:35 - [千与千寻](https://www.share.kurohicncr.top/Article/details/85828758.shtml)
+- 2026-06-30 06:46 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/69932.shtml)
+- 2026-06-30 06:58 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/38564175089.shtml)
+- 2026-06-30 06:40 - [日本淘汰](https://www.share.minike.top/Article/details/037479406.shtml)
+- 2026-06-30 06:55 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/29836.shtml)
+- 2026-06-30 06:54 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/191704271.shtml)
+- 2026-06-30 06:40 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/955256572.shtml)
+- 2026-06-30 06:50 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/61370946.shtml)
+- 2026-06-30 06:30 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/12910452603.shtml)

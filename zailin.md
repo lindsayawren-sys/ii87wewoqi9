@@ -1,59 +1,57 @@
-# 高通预计到2029年手机以外芯片收入将达400亿美元，数据中心芯片收入将达150亿美元
+# 从“2025年度全国十大考古新发现”看民族交融史诗
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-高通公司周三表示，随着其业务重心从核心智能手机芯片转向其他领域，预计到 2029 年，其数据中心业务的销售额将达到 150 亿美元。受此消息提振，该公司股价在周三盘后交易中上涨超过 12%。 高通首席财务官Akash Palkhiwala在投资者介绍会上表示，数据中心业务将在 2027 财年带来 50 亿美元的收入，其中 10 亿美元来自新的定制芯片客户。 高通还表示，预计到
+为理解中华民族多元一体格局的形成与发展提供了珍贵的历史见证。 “2025年度全国十大考古新发现”中，多项考古发现从不同时期、不同地域，生动展现历史上各民族交往交流交融、中华民族多元一体的壮阔历程，为铸牢中华民族共同体意识提供了坚实的考古实证。 史前时期的跨区域文化交流 吉林东部长白山旧石器时代遗址群揭示距今22万年至1.3万年间东北亚古人类的迁徙与互动。黑曜岩石制品的长距离运输
 
 ## 正文
 
-高通公司周三表示，随着其业务重心从核心智能手机芯片转向其他领域，预计到 2029 年，其数据中心业务的销售额将达到 150 亿美元。
+为理解中华民族多元一体格局的形成与发展提供了珍贵的历史见证。
 
-受此消息提振，该公司股价在周三盘后交易中上涨超过 12%。
+“2025年度全国十大考古新发现”中，多项考古发现从不同时期、不同地域，生动展现历史上各民族交往交流交融、中华民族多元一体的壮阔历程，为铸牢中华民族共同体意识提供了坚实的考古实证。
 
-高通首席财务官Akash Palkhiwala在投资者介绍会上表示，数据中心业务将在 2027 财年带来 50 亿美元的收入，其中 10 亿美元来自新的定制芯片客户。
+史前时期的跨区域文化交流 吉林东部长白山旧石器时代遗址群揭示距今22万年至1.3万年间东北亚古人类的迁徙与互动。
 
-高通还表示，预计到 2029 年，智能手机以外的芯片收入将达到 400 亿美元，高于之前预计的 220 亿美元，而届时手机芯片将仅占其芯片收入的三分之一。
+黑曜岩石制品的长距离运输网络，实证史前时期双向跨区域资源流通。
 
-“我们将真正实现多元化，”Palkhiwala说。
+甘肃庆阳南佐遗址，其超大型聚落显示附近多个人口迁移聚集，打破原有氏族社会局限，凸显地缘关系，意味着以南佐都邑为核心的早期国家控制范围可能涵盖黄土高原大部地区，对于实证中华五千年文明史，具有极为重要的意义。
 
-为高通众多芯片提供底层技术的Arm Holdings的股价在预测发布后也上涨了5%。
+河北宣化郑家沟遗址则见证红山文化晚期人群向西南迁徙的历史。
 
-美国银行分析师此前曾表示，预计到2027-2028财年，高通的数据中心业务每年将带来约20亿至50亿美元的营收。
+该遗址人群遗传成分包含古代东北亚、黄河中游仰韶农业人群以及山东大汶口文化人群等多重来源，揭示了距今5000年前后辽西、中原与山东地区复杂的基因交流网络。
 
-当天早些时候，高通公司表示，微软和Meta Platforms将使用其新型AI芯片，并且还将为另外两家未透露名称的“超大规模云服务商”定制芯片。
+遗址中80%玉器原料源自辽宁岫岩，陶器纹饰却混合了本地七里河文化与红山经典纹饰，证实红山晚期族群沿燕山走廊与土著文化深度交融。
 
 ## 相关推荐
 
-- 2026-06-30 06:38 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 06:38 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 06:51 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 06:44 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 06:53 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 06:39 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 06:44 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 06:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 06:27 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 06:29 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 06:34 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 06:31 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 06:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 06:38 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 06:43 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 06:46 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 06:59 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 06:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 06:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 06:59 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 06:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 06:41 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 06:44 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 06:39 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/117785659.shtml)
-- 2026-06-30 06:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/613530.shtml)
-- 2026-06-30 06:51 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/9094177972.shtml)
-- 2026-06-30 06:27 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/9853654.shtml)
-- 2026-06-30 06:33 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/3744645964.shtml)
-- 2026-06-30 06:44 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/241670.shtml)
-- 2026-06-30 06:31 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/00531.shtml)
-- 2026-06-30 06:45 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/8824857.shtml)
-- 2026-06-30 06:33 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/744847466237.shtml)
-- 2026-06-30 06:39 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/556766132301.shtml)
-- 2026-06-30 06:27 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/6262812.shtml)
-- 2026-06-30 06:39 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/391862454365.shtml)
-- 2026-06-30 06:28 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/794442.shtml)
-- 2026-06-30 06:40 - [斗破苍穹](http://www.blog.minike.top/Article/details/120463.shtml)
-- 2026-06-30 06:28 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/79246338594.shtml)
+- 2026-06-30 06:48 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/519608382.shtml)
+- 2026-06-30 06:50 - [流金岁月](http://www.blog.minike.top/Article/details/52983.shtml)
+- 2026-06-30 06:54 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/7374076.shtml)
+- 2026-06-30 06:46 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/48204831314.shtml)
+- 2026-06-30 06:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/749415.shtml)
+- 2026-06-30 06:31 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/339647355.shtml)
+- 2026-06-30 06:45 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/496061644275.shtml)
+- 2026-06-30 06:51 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/365610250.shtml)
+- 2026-06-30 06:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/42051187949.shtml)
+- 2026-06-30 06:56 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/571414.shtml)
+- 2026-06-30 06:32 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/153459281804.shtml)
+- 2026-06-30 06:56 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/251143164596.shtml)
+- 2026-06-30 06:55 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/419864.shtml)
+- 2026-06-30 06:44 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/29235708.shtml)
+- 2026-06-30 06:38 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/302326.shtml)

@@ -1,43 +1,57 @@
-# 委内瑞拉强震遇难人数升至164人
+# 特朗普抨击国会限制其战争权力的举动
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-新华社快讯：据委内瑞拉官方通报，委内瑞拉强震遇难人数升至164人。
+特朗普总统周四对国会试图限制其战争权力的举动表示不满 —— 参议院已于当天下午否决了最新一项相关议案。 特朗普在椭圆形办公室对记者表示：“他们一而再、再而三地在战争权力问题上纠缠不休。” 他补充道：“我正在与伊朗谈判达成协议，可他们每周、每三天就抛出一项要求停止战争的议案。” 越战结束后通过的一项法律规定，未经国会授权动用军事力量的期限为 60 天。根据该法 ——《战争权力决议
 
 ## 正文
 
-新华社快讯：据委内瑞拉官方通报，委内瑞拉强震遇难人数升至164人。
+特朗普总统周四对国会试图限制其战争权力的举动表示不满 —— 参议院已于当天下午否决了最新一项相关议案。
+
+特朗普在椭圆形办公室对记者表示：“他们一而再、再而三地在战争权力问题上纠缠不休。
+
+” 他补充道：“我正在与伊朗谈判达成协议，可他们每周、每三天就抛出一项要求停止战争的议案。
+
+” 越战结束后通过的一项法律规定，未经国会授权动用军事力量的期限为 60 天。
+
+根据该法 ——《战争权力决议案》—— 的文本，对伊朗的战争将于 5 月 1 日达到 60 天期限，但国会内部对截止日期的确切日期存在分歧。
+
+部分议员称，60 天期限自敌对行动开始之日起算，因此截止日期为 4 月 29 日；另一些议员则援引法律文本，主张应从白宫正式通知国会当日起计算 60 个自然日，即截止日期为 5 月 1 日。
+
+还有共和党人认为，停火日不计入 60 天期限，或称特朗普可单方面将截止日期延长至 90 天。
+
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 06:44 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 06:31 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 06:26 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 06:33 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 06:39 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 06:41 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 06:37 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 06:50 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 06:43 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 06:30 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 06:37 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 06:42 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 06:50 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 06:30 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 06:30 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 06:35 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 06:55 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 06:45 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 06:31 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 06:35 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 06:56 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 06:49 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/900716895.shtml)
-- 2026-06-30 06:52 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/199711989938.shtml)
-- 2026-06-30 06:39 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/496049.shtml)
-- 2026-06-30 06:41 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/973072.shtml)
-- 2026-06-30 06:53 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/029633988299.shtml)
-- 2026-06-30 06:33 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/22815326441.shtml)
-- 2026-06-30 06:37 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/125030.shtml)
-- 2026-06-30 06:45 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/7875202.shtml)
-- 2026-06-30 06:53 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/622045.shtml)
-- 2026-06-30 06:28 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/201128.shtml)
-- 2026-06-30 06:45 - [爱很美味](http://www.share.kurohicncr.top/Article/details/6512874.shtml)
-- 2026-06-30 06:48 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/1530658.shtml)
-- 2026-06-30 06:27 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/282538428.shtml)
-- 2026-06-30 06:39 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/194203.shtml)
-- 2026-06-30 06:51 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/866357882.shtml)
+- 2026-06-30 06:44 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/1953443604.shtml)
+- 2026-06-30 06:48 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/17275.shtml)
+- 2026-06-30 06:35 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/288613783.shtml)
+- 2026-06-30 06:40 - [乔家的儿女](https://www.blog.minike.top/Article/details/283162504.shtml)
+- 2026-06-30 06:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/8670200281.shtml)
+- 2026-06-30 06:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/07457688936.shtml)
+- 2026-06-30 06:32 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/6415472575.shtml)
+- 2026-06-30 06:57 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/093371.shtml)
+- 2026-06-30 06:30 - [青春环游记第三季](https://www.blog.minike.top/Article/details/117022.shtml)
+- 2026-06-30 06:31 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/619005.shtml)
+- 2026-06-30 06:45 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/77374.shtml)
+- 2026-06-30 06:30 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/82253825842.shtml)
+- 2026-06-30 06:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/112013788.shtml)
+- 2026-06-30 06:44 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/23262584283.shtml)
+- 2026-06-30 06:32 - [苗族银饰](https://www.share.minike.top/Article/details/37615.shtml)

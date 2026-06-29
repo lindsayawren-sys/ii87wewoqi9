@@ -1,52 +1,56 @@
-# VITASOY INT‘L发布年度业绩 股东应占溢利2.74亿港元同比增长17%
+# 看不见的污染怎么治？农业专家“死磕”世界级难题
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-VITASOY INT‘L（00345）发布截至2026年3月31日止年度业绩，收入60.61亿港元，同比减少3%；公司股权持有人应占溢利2.74亿港元，同比增长17%；每股基本盈利26.3港仙。拟派发末期股息每股普通股13.5港仙。 集团收入较上一个财政年度减少3%，主要由于中国内地及香港业务（特别是澳门特别行政区及维他天地业务）疲弱的营商环境所致。公司股权持有人应占溢利增加
+发布时间：2026年04月30日 14:11 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期五年的长江生态环境保护民主监督。从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。 农业面源污染深埋地下、难以察觉，是长江生态治理的世界级难题。2023年，无党派人士、农业环境专家赵立欣随团赴江西鄱阳
 
 ## 正文
 
-VITASOY INT‘L（00345）发布截至2026年3月31日止年度业绩，收入60.61亿港元，同比减少3%；公司股权持有人应占溢利2.74亿港元，同比增长17%；每股基本盈利26.3港仙。
+发布时间：2026年04月30日 14:11 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期五年的长江生态环境保护民主监督。
 
-拟派发末期股息每股普通股13.5港仙。
+从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。
 
-集团收入较上一个财政年度减少3%，主要由于中国内地及香港业务（特别是澳门特别行政区及维他天地业务）疲弱的营商环境所致。
+农业面源污染深埋地下、难以察觉，是长江生态治理的世界级难题。
 
-公司股权持有人应占溢利增加17%至2.74亿港元，得益于出售维他奶（上海）有限公司持有的土地及楼宇（VSL 出售事项）的收益以及营运过程中有效合理控制经营成本，惟部分升幅被毛利下降、澳洲减值费用（VAP 减值）以及税项支出增加所抵销。
+2023年，无党派人士、农业环境专家赵立欣随团赴江西鄱阳湖调研，精准锁定当地因农田氮磷流失导致总磷超标的痛点。
 
-责任编辑：卢昱君
+调研团不仅深入一线发现问题，更发挥专业所长，将科研带入现场。
+
+团队针对当地气候与种植模式，集成优化了治理技术，成功使水稻氮磷地表径流流失率减少了40%。
+
+这次实践真正实现了用专业优势解决实际问题，将民主监督落到了实处，成为了长江守护行动中令人欣喜的成果。
+
+责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 06:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 06:40 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 06:37 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 06:32 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 06:45 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 06:37 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 06:34 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 06:30 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 06:47 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 06:33 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 06:30 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 06:43 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 06:54 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 06:59 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 06:57 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 06:41 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 06:59 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 06:45 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 06:49 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 06:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 06:53 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:25 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/29781.shtml)
-- 2026-06-30 06:53 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/124211.shtml)
-- 2026-06-30 06:28 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/89756.shtml)
-- 2026-06-30 06:40 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/125717.shtml)
-- 2026-06-30 06:40 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/17235695.shtml)
-- 2026-06-30 06:48 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/951817823.shtml)
-- 2026-06-30 06:42 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/3698558.shtml)
-- 2026-06-30 06:51 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/46867924199.shtml)
-- 2026-06-30 06:47 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/26848.shtml)
-- 2026-06-30 06:36 - [天道](http://www.blog.kurohicncr.top/Article/details/0772809566.shtml)
-- 2026-06-30 06:43 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/42140.shtml)
-- 2026-06-30 06:35 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/3402108034.shtml)
-- 2026-06-30 06:34 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/486980927.shtml)
-- 2026-06-30 06:48 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/06514.shtml)
-- 2026-06-30 06:43 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/86162661578.shtml)
+- 2026-06-30 06:55 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/64863792.shtml)
+- 2026-06-30 06:47 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/49902.shtml)
+- 2026-06-30 06:58 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/228913347.shtml)
+- 2026-06-30 06:30 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/237677.shtml)
+- 2026-06-30 06:51 - [千与千寻](http://www.share.kurohicncr.top/Article/details/8687849.shtml)
+- 2026-06-30 06:41 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/418261307978.shtml)
+- 2026-06-30 06:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/399690303555.shtml)
+- 2026-06-30 06:47 - [金刚川](https://www.blog.minike.top/Article/details/874415966424.shtml)
+- 2026-06-30 06:46 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/440421264.shtml)
+- 2026-06-30 06:52 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/8210592.shtml)
+- 2026-06-30 06:35 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/43223707.shtml)
+- 2026-06-30 06:36 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/185553.shtml)
+- 2026-06-30 06:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/426377.shtml)
+- 2026-06-30 06:33 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/091300.shtml)
+- 2026-06-30 06:43 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/639768.shtml)

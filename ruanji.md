@@ -1,58 +1,56 @@
-# 2026年“蔡襄奖”海峡两岸少年儿童书法大赛在福建泉州启动
+# 科技型企业贷款增速明显 湖南提升科创金融服务水平
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网泉州6月24日电 (记者 孙虹)2026年“蔡襄奖”海峡两岸少年儿童书法大赛启动仪式24日在福建泉州洛江区举办。据悉，大赛即日起面向两岸少年儿童书法爱好者征稿，征稿时间截至2026年7月26日。 洛江区政协主席李奉恒介绍，洛江已连续十二年举办蔡襄文化主题书法赛事，成功开展国家级、省、市、区各级活动20余次，“蔡襄奖”由此成长为专业性强、影响力广的品牌赛事，深受广大青少年及
+中新网长沙4月29日电(向一鹏)中国人民银行湖南省分行29日召开新闻发布会透露，截至今年3月末，湖南科技型企业贷款增速20.7%，新发放科技型企业贷款利率2.48%，“专精特新”企业获贷率达87%。 去年8月，湖南出台关于做好湖南金融“五篇大文章”服务经济高质量发展的实施意见，提出推行科技金融“湘伴前行”计划，引导更多长期资本、耐心资本和优质资本支持科技创新，促进“科技—产业—
 
 ## 正文
 
-中新网泉州6月24日电 (记者 孙虹)2026年“蔡襄奖”海峡两岸少年儿童书法大赛启动仪式24日在福建泉州洛江区举办。
+中新网长沙4月29日电(向一鹏)中国人民银行湖南省分行29日召开新闻发布会透露，截至今年3月末，湖南科技型企业贷款增速20.7%，新发放科技型企业贷款利率2.48%，“专精特新”企业获贷率达87%。
 
-据悉，大赛即日起面向两岸少年儿童书法爱好者征稿，征稿时间截至2026年7月26日。
+去年8月，湖南出台关于做好湖南金融“五篇大文章”服务经济高质量发展的实施意见，提出推行科技金融“湘伴前行”计划，引导更多长期资本、耐心资本和优质资本支持科技创新，促进“科技—产业—金融”良性循环。
 
-洛江区政协主席李奉恒介绍，洛江已连续十二年举办蔡襄文化主题书法赛事，成功开展国家级、省、市、区各级活动20余次，“蔡襄奖”由此成长为专业性强、影响力广的品牌赛事，深受广大青少年及家长好评。
+目前，该省正多措并举提升科技创新金融服务水平，全省科技创新领域融资供给实现“量增、价降、面扩、质升”。
 
-据悉，本次大赛分为小学一组(一至三年级)、小学二组(四至六年级)、中学组(含中职)三个组别，从参赛作品中按照各组别的投稿数量比例进行初评，初评产生300件入选作品进入复评，复评产生200件拟获奖作品，拟获奖作品的作者获得参加现场决赛资格。
+据了解，中国人民银行湖南省分行联合相关省直部门、市州政府举办专场政金企对接活动，组织创投基金、银行、保险、担保等金融机构深入市县、园区送产品、送服务，邀请企业现场路演、发布融资需求，有效搭建政金企对接合作平台，提升科技型企业金融服务质效。
 
-现场决赛拟于2026年8月中旬举行，根据各组别投稿数量比例，设置特等奖、一等奖、二等奖、三等奖若干名。
+目前，已围绕常德合成生物、岳阳石化转型、益阳高端电子元器件举办三场对接活动。
 
-“大赛将推动蔡襄书法文化的种子深植于更多少年儿童心中，在笔墨间生根发芽，在两岸间传递情谊。
+金融机构与市州政府签订合作备忘录，意向支持金额超2500亿元。
 
-”李奉恒如是说。
+开展科技金融“湘伴前行”计划试点，湖南推动试点金融机构围绕科技型企业不同成长阶段融资需求，创新推出差异化金融产品。
 
-(完)
+针对初创期企业，指导金融机构创新银企中长期合作模式，探索“贷款+外部直投”服务模式，累计发放相关贷款38.5亿元；针对成长期企业，推出人才贷系列产品，累计支持4812人(次)高层次人才创新创业及其所在企业发展，金额905亿元；针对成熟期企业，推动金融机构稳步发展并购贷款、银团贷款等业务，全省“专精特新”企业贷款余额保持较快增长。
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 06:35 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 06:50 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 06:48 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-30 06:39 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 06:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 06:33 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 06:27 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 06:51 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 06:25 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 06:51 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 06:48 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 06:59 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 06:42 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 06:37 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 06:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 06:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 06:53 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 06:55 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 06:36 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 06:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 06:39 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:48 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/632684.shtml)
-- 2026-06-30 06:44 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/013086.shtml)
-- 2026-06-30 06:46 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/1906141.shtml)
-- 2026-06-30 06:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/9621698.shtml)
-- 2026-06-30 06:33 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/809482.shtml)
-- 2026-06-30 06:54 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/1046765.shtml)
-- 2026-06-30 06:46 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/85356659.shtml)
-- 2026-06-30 06:32 - [天道](https://www.share.minike.top/Article/details/020604.shtml)
-- 2026-06-30 06:35 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/95391175.shtml)
-- 2026-06-30 06:35 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/58479.shtml)
-- 2026-06-30 06:29 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/78245031.shtml)
-- 2026-06-30 06:34 - [天道](https://www.share.minike.top/Article/details/94011.shtml)
-- 2026-06-30 06:53 - [我们的少年时代2](https://www.blog.minike.top/Article/details/7312888734.shtml)
-- 2026-06-30 06:27 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/9468790.shtml)
-- 2026-06-30 06:36 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/0986342479.shtml)
+- 2026-06-30 06:52 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/18309.shtml)
+- 2026-06-30 06:50 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/807317028.shtml)
+- 2026-06-30 06:43 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/7995239.shtml)
+- 2026-06-30 06:38 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/744823795998.shtml)
+- 2026-06-30 06:45 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/660215190674.shtml)
+- 2026-06-30 06:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/275975140.shtml)
+- 2026-06-30 06:52 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/809667506.shtml)
+- 2026-06-30 06:50 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/791795.shtml)
+- 2026-06-30 06:48 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/4085859456.shtml)
+- 2026-06-30 06:44 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/7699543.shtml)
+- 2026-06-30 06:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/69523010.shtml)
+- 2026-06-30 06:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/58431588758.shtml)
+- 2026-06-30 06:45 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/96892024716.shtml)
+- 2026-06-30 06:57 - [逃狱兄弟](https://www.share.minike.top/Article/details/298175422.shtml)
+- 2026-06-30 06:55 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/141205820.shtml)

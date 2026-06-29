@@ -1,58 +1,56 @@
-# TCL李东生：在供应链体系建设当中，AI技术是未来
+# 衢州市侨联召开八届三次全委会议
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-专题：2026第十七届夏季达沃斯论坛 2026年6月23日至25日，2026大连夏季达沃斯论坛，即世界经济论坛第十七届新领军者年会在中国辽宁省大连市举办。TCL创始人、董事长李东生出席“重构供应链？”论坛并演讲。 谈及AI在供应链领域的应用时，李东生表示，AI是一个热门概念，全球股市一大半的价值来自AI企业，但在供应链体系中，AI未来能在哪些方面实现革命性突破，仍在探索中。 李
+4月28日，衢州市侨联召开八届三次全委会议。会上传达学习了省委、市委全会，中国侨联、省侨联全委会会议精神，总结八届二次全委会议以来的侨联工作，研究部署今后的工作重点任务。市侨联党组书记、主席马伟民作工作报告，市纪委监委驻市委统战部纪检组组长李水良出席会议。会议认为，2025年，在市委、市政府的坚强领导下，在省侨联和市委统战部的精心指导下，市侨联与全市各级侨联组织一道，紧紧围绕服
 
 ## 正文
 
-专题：2026第十七届夏季达沃斯论坛 2026年6月23日至25日，2026大连夏季达沃斯论坛，即世界经济论坛第十七届新领军者年会在中国辽宁省大连市举办。
+4月28日，衢州市侨联召开八届三次全委会议。
 
-TCL创始人、董事长李东生出席“重构供应链？
+会上传达学习了省委、市委全会，中国侨联、省侨联全委会会议精神，总结八届二次全委会议以来的侨联工作，研究部署今后的工作重点任务。
 
-”论坛并演讲。
+市侨联党组书记、主席马伟民作工作报告，市纪委监委驻市委统战部纪检组组长李水良出席会议。
 
-谈及AI在供应链领域的应用时，李东生表示，AI是一个热门概念，全球股市一大半的价值来自AI企业，但在供应链体系中，AI未来能在哪些方面实现革命性突破，仍在探索中。
+会议认为，2025年，在市委、市政府的坚强领导下，在省侨联和市委统战部的精心指导下，市侨联与全市各级侨联组织一道，紧紧围绕服务大局、服务侨胞，突出重点、上下同心，大力实施“五侨工程”，侨联工作取得新进展，侨联组织呈现新气象。
 
-李东生回顾到，过去十多年，TCL从自动化到智能化，企业建立数字化管理系统的工作一直在持续推进。
+2025年11月，衢州市侨联被浙江省侨联、浙江省侨办、浙江省人力社保厅联合表彰为“全省侨联系统先进单位”。
 
-但他也坦诚，当下人们谈论AI时，往往会把智能化要做的事情都套到AI概念上。
+会议强调，2026年是中国共产党建党105周年、中国侨联成立70周年，是“十五五”规划开局之年，也是衢州走向高质量发展的关键之年。
 
-“这样讲也没有错，但真正基于大模型的AI应用，在供应链环节目前还没有太多实质的应用落地。
+会议要求，全市侨联系统要坚持以习近平新时代中国特色社会主义思想为指导，深入学习贯彻习近平总书记关于做好新时代党的统一战线工作的重要思想、关于群团工作和侨务工作的重要论述、关于侨联工作的重要指示批示精神，全面贯彻落实党的二十届四中全会、全国两会精神，坚决执行上级党委和上级侨联部署要求，紧密对接省市发展大局，尽责履行侨联六大职能，以“之江同心”为牵引，以“侨兴衢州”为主题，以“六侨联动”为抓手，守正创新、担当作为，在思想引领、助力发展、联络联谊、服务侨胞、建强基层中彰显衢侨贡献度、辨识度、显示度。
 
-” 不过他认为，这确实是一个方向。
+会议对2026年市侨联重点工作任务作了部署。
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-30 06:32 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 06:49 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 06:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 06:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 06:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 06:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 06:29 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 06:35 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 06:24 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 06:43 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 06:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 06:32 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 06:51 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 06:39 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 06:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 06:52 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 06:48 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 06:53 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 06:37 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 06:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 06:53 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:36 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/670178147165.shtml)
-- 2026-06-30 06:30 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/88217751168.shtml)
-- 2026-06-30 06:28 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/38487982.shtml)
-- 2026-06-30 06:38 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/58977415785.shtml)
-- 2026-06-30 06:40 - [巴西扳平比分](https://www.blog.minike.top/Article/details/05102473223.shtml)
-- 2026-06-30 06:47 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/768961079772.shtml)
-- 2026-06-30 06:47 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/26224.shtml)
-- 2026-06-30 06:34 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/889238127160.shtml)
-- 2026-06-30 06:48 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/8656271.shtml)
-- 2026-06-30 06:38 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/4248268.shtml)
-- 2026-06-30 06:36 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/28370352924.shtml)
-- 2026-06-30 06:47 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/807107518.shtml)
-- 2026-06-30 06:51 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/32498780.shtml)
-- 2026-06-30 06:32 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/143352867.shtml)
-- 2026-06-30 06:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/520336526549.shtml)
+- 2026-06-30 06:34 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/91192294.shtml)
+- 2026-06-30 06:39 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/5541036.shtml)
+- 2026-06-30 06:41 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/4266922296.shtml)
+- 2026-06-30 06:38 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/732915.shtml)
+- 2026-06-30 06:48 - [起风了](https://www.share.minike.top/Article/details/829082279035.shtml)
+- 2026-06-30 06:49 - [一见倾心](https://www.blog.minike.top/Article/details/15317.shtml)
+- 2026-06-30 06:55 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/521875.shtml)
+- 2026-06-30 06:53 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/65309414.shtml)
+- 2026-06-30 06:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/136335310.shtml)
+- 2026-06-30 06:31 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/3337103093.shtml)
+- 2026-06-30 06:48 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/26180.shtml)
+- 2026-06-30 06:39 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/122408947.shtml)
+- 2026-06-30 06:42 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/6856159.shtml)
+- 2026-06-30 06:36 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/860204.shtml)
+- 2026-06-30 06:54 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/96845.shtml)

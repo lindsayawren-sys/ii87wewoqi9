@@ -1,61 +1,57 @@
-# 盖茨作证：爱泼斯坦曾谋划借婚外情对其勒索
+# 王毅分别同比利时副首相兼外交大臣普雷沃、老挝副总理兼外长通沙万会谈会见
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-根据当地时间周二公布的闭门听证会笔录，微软联合创始人比尔・盖茨本月早些时候向美国众议院监督委员会作证称：在他试图断绝与已定罪性犯罪者杰弗里・爱泼斯坦往来后，对方曾打算利用盖茨婚外情的不雅私密信息，强行重新介入自己的生活，不过爱泼斯坦并未对他发出明确的威胁。 笔录显示，盖茨表示，爱泼斯坦通过一名顾问向他发出过隐晦的威胁，还似乎授意盖茨的顾问如何对自己实施勒索，并真假信息混杂，试图
+新华社北京4月30日电 中共中央政治局委员、外交部长王毅30日在北京同比利时副首相兼外交大臣普雷沃举行会谈，会见老挝副总理兼外长通沙万。 在同普雷沃会谈时，王毅说，在两国领导人关心支持下，双方确立了全方位友好合作伙伴关系。中方愿以建交55周年为契机，深挖务实合作潜力，推动中比关系迈上新台阶。希望比方在欧盟发挥积极、建设性作用，推动欧中通过对话协商妥处经贸分歧。 普雷沃表示，比方
 
 ## 正文
 
-根据当地时间周二公布的闭门听证会笔录，微软联合创始人比尔・盖茨本月早些时候向美国众议院监督委员会作证称：在他试图断绝与已定罪性犯罪者杰弗里・爱泼斯坦往来后，对方曾打算利用盖茨婚外情的不雅私密信息，强行重新介入自己的生活，不过爱泼斯坦并未对他发出明确的威胁。
+新华社北京4月30日电 中共中央政治局委员、外交部长王毅30日在北京同比利时副首相兼外交大臣普雷沃举行会谈，会见老挝副总理兼外长通沙万。
 
-笔录显示，盖茨表示，爱泼斯坦通过一名顾问向他发出过隐晦的威胁，还似乎授意盖茨的顾问如何对自己实施勒索，并真假信息混杂，试图利用私密负面材料拿捏这位软件行业亿万富豪。
+在同普雷沃会谈时，王毅说，在两国领导人关心支持下，双方确立了全方位友好合作伙伴关系。
 
-谈及美国司法部今年早些时候公开的爱泼斯坦相关文件，盖茨表示：“我并未遭到勒索，但翻看这些邮件能发现，爱泼斯坦当时的种种设想已经朝着勒索的方向发展。
+中方愿以建交55周年为契机，深挖务实合作潜力，推动中比关系迈上新台阶。
 
-从很多他写给自己的邮件里能看出，他一直在反复琢磨，自己或者授意其他人该如何勒索我，但这些内容从来没有发送给过我。
+希望比方在欧盟发挥积极、建设性作用，推动欧中通过对话协商妥处经贸分歧。
 
-” 听证过程中，盖茨承认自己至少有三段婚外情，但表示这些婚外情中的女性均与爱泼斯坦没有任何关系，爱泼斯坦也是在两人断绝往来之后才得知这些事情。
+普雷沃表示，比方始终坚持一个中国政策，愿同中方共同维护多边主义，捍卫国际法，为推动欧中关系健康发展发挥积极作用，赞赏中方为推动缓解地区紧张局势所作努力。
 
-这份证词罕见披露了爱泼斯坦被指试图利用私密负面信息操控知名公众人物的具体细节。
+在会见通沙万时，王毅表示，中老是同志加兄弟，中方愿同老方推进中老铁路建设和矿产等领域合作，深化在东盟等多边框架内合作，共同落实好两党两国最高领导人重要共识，推动具有战略意义的中老命运共同体建设不断向高标准、高质量、高水平迈进。
 
-美国司法部去年曾表示，没有发现可信证据能够证明爱泼斯坦对各界名流实施过勒索。
-
-责任编辑：陈钰嘉
+通沙万表示，老方坚定恪守一个中国原则，期待以老中建交65周年和“老中友好年”为契机，落实好老中命运共同体行动计划。
 
 ## 相关推荐
 
-- 2026-06-30 06:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 06:42 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 06:40 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 06:24 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 06:28 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 06:24 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 06:25 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 06:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 06:38 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 06:32 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 06:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 06:43 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 06:41 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 06:52 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 06:24 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 06:32 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 06:47 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 06:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 06:47 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 06:55 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 06:47 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 06:52 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 06:32 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 06:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 06:38 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 06:41 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 06:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-30 06:30 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:47 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/3479397.shtml)
-- 2026-06-30 06:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/3050224.shtml)
-- 2026-06-30 06:25 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/3234582.shtml)
-- 2026-06-30 06:37 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/689680493895.shtml)
-- 2026-06-30 06:44 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/712531727.shtml)
-- 2026-06-30 06:32 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/356473443259.shtml)
-- 2026-06-30 06:31 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/78059213048.shtml)
-- 2026-06-30 06:38 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/68043616510.shtml)
-- 2026-06-30 06:42 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/4358431550.shtml)
-- 2026-06-30 06:33 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/9564686279.shtml)
-- 2026-06-30 06:37 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/456108551.shtml)
-- 2026-06-30 06:53 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/977388331.shtml)
-- 2026-06-30 06:37 - [月亮](http://www.blog.kurohicncr.top/Article/details/33568483023.shtml)
-- 2026-06-30 06:38 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/866641308194.shtml)
-- 2026-06-30 06:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/86074478.shtml)
+- 2026-06-30 06:44 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/7291499124.shtml)
+- 2026-06-30 06:57 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/319030760.shtml)
+- 2026-06-30 06:38 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/74102.shtml)
+- 2026-06-30 06:50 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/29130228510.shtml)
+- 2026-06-30 06:48 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/33883.shtml)
+- 2026-06-30 06:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/573664083854.shtml)
+- 2026-06-30 06:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/629126521935.shtml)
+- 2026-06-30 06:59 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/2208802039.shtml)
+- 2026-06-30 06:46 - [《共患难》](https://www.blog.minike.top/Article/details/04081151482.shtml)
+- 2026-06-30 06:59 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/679382166715.shtml)
+- 2026-06-30 06:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/71799715832.shtml)
+- 2026-06-30 06:59 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/31156.shtml)
+- 2026-06-30 06:52 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/0568907560.shtml)
+- 2026-06-30 06:53 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/460852758916.shtml)
+- 2026-06-30 06:30 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/595053.shtml)

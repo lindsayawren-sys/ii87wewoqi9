@@ -1,55 +1,57 @@
-# 广西4条河流出现超警洪水
+# OpenAI悄然疏远微软，转而大举向亚马逊靠拢
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月25日电(陈秋霞 周也茹)广西壮族自治区水文中心25日提供的信息显示，6月24日8时至25日8时，据水文部门监测，百色、柳州、河池、南宁、来宾及桂林等市部分地区降大到暴雨，局地大暴雨，日雨量较大的有百色市凌云县玉洪乡212.0毫米、柳州市鱼峰区里雍镇150.5毫米、河池市南丹县月里镇143.5毫米。受局地强降雨及上游来水影响，广西共有红水河支流布柳河、洛清江支流西
+核心要点 OpenAI 营收主管黛安・德雷瑟在官宣与亚马逊合作后接受 CNBC 采访时表示，公司周二宣布将旗下大模型登陆亚马逊云，与前一日第二次重塑微软合作关系毫无关联。 她直言：“这两件事不存在任何关联。” 但分析师们并不买账。 自去年 10 月底 OpenAI 完成资本重组、微软获得其盈利实体 27% 股权以来，行业格局已发生诸多变化。 作为协议一部分，OpenAI 承诺额
 
 ## 正文
 
-中新网南宁6月25日电(陈秋霞 周也茹)广西壮族自治区水文中心25日提供的信息显示，6月24日8时至25日8时，据水文部门监测，百色、柳州、河池、南宁、来宾及桂林等市部分地区降大到暴雨，局地大暴雨，日雨量较大的有百色市凌云县玉洪乡212.0毫米、柳州市鱼峰区里雍镇150.5毫米、河池市南丹县月里镇143.5毫米。
+核心要点 OpenAI 营收主管黛安・德雷瑟在官宣与亚马逊合作后接受 CNBC 采访时表示，公司周二宣布将旗下大模型登陆亚马逊云，与前一日第二次重塑微软合作关系毫无关联。
 
-受局地强降雨及上游来水影响，广西共有红水河支流布柳河、洛清江支流西河、浔江支流白沙江及龙江支流小环江等4条河流4个水文站出现超警0.19米至0.43米的洪水。
+她直言：“这两件事不存在任何关联。
 
-25日8时，除红水河支流布柳河凌云县玉洪乡河段仍超警0.30米外，其余江河水位均在警戒以下；西江梧州水文站水位17.02米(警戒水位18.5米)，流量25400立方米每秒，缓慢退水中。
+” 但分析师们并不买账。
 
-广西壮族自治区水文中心预测，未来24小时，龙江金城江城区河段，红水河支流盘阳河、灵岐河，右江支流澄碧河、百东河将出现警戒水位左右洪水；右江上游及支流龙须河、英竹河，左江上游及支流黑水河，百南河，防城河，北仑河，茅岭江等江河可能出现1米至4米涨水过程。
+自去年 10 月底 OpenAI 完成资本重组、微软获得其盈利实体 27% 股权以来，行业格局已发生诸多变化。
 
-百色、河池、崇左、南宁、贵港及防城港等市部分中小河流可能出现超警洪水。
+作为协议一部分，OpenAI 承诺额外采购2500 亿美元的微软 Azure 云服务；且双方收益分成协议将持续生效，直至独立专家组认定 OpenAI 实现通用人工智能 AGI为止。
 
-(完)
+此后一大关键变局是：OpenAI 开始主动亲近微软在云基建领域的最大对手 ——亚马逊。
+
+去年 11 月，OpenAI 披露与亚马逊云达成380 亿美元算力采购承诺。
+
+今年 2 月末，亚马逊宣布向 OpenAI 投资500 亿美元；OpenAI 将使用亚马逊云自研的 Trainium 芯片，提供总计2 吉瓦算力用于大模型训练。
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 06:35 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 06:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 06:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 06:39 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 06:26 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 06:38 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 06:44 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 06:49 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 06:45 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 06:37 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 06:46 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 06:42 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 06:49 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 06:43 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 06:34 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 06:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 06:44 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 06:32 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 06:57 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 06:50 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 06:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 06:52 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 06:58 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:31 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/542312108578.shtml)
-- 2026-06-30 06:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/4096086315.shtml)
-- 2026-06-30 06:52 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/41197.shtml)
-- 2026-06-30 06:47 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/24136066054.shtml)
-- 2026-06-30 06:53 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/87596.shtml)
-- 2026-06-30 06:53 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/444848117372.shtml)
-- 2026-06-30 06:53 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/14027027494.shtml)
-- 2026-06-30 06:50 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/9007789434.shtml)
-- 2026-06-30 06:45 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/19994168.shtml)
-- 2026-06-30 06:26 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/71947.shtml)
-- 2026-06-30 06:39 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/3235476440.shtml)
-- 2026-06-30 06:30 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/8360136.shtml)
-- 2026-06-30 06:44 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/727189254.shtml)
-- 2026-06-30 06:48 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/8143874032.shtml)
-- 2026-06-30 06:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/64594.shtml)
+- 2026-06-30 06:36 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/75376.shtml)
+- 2026-06-30 06:51 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/35253.shtml)
+- 2026-06-30 06:56 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/289652.shtml)
+- 2026-06-30 06:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/6156233742.shtml)
+- 2026-06-30 06:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/0407926.shtml)
+- 2026-06-30 06:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/5668282.shtml)
+- 2026-06-30 06:52 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/8467232.shtml)
+- 2026-06-30 06:53 - [《共患难》](https://www.blog.minike.top/Article/details/68637.shtml)
+- 2026-06-30 06:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/4874507054.shtml)
+- 2026-06-30 06:32 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/401393.shtml)
+- 2026-06-30 06:52 - [张凌赫 客串](https://www.blog.minike.top/Article/details/204168267830.shtml)
+- 2026-06-30 06:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/711160646047.shtml)
+- 2026-06-30 06:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/1008732.shtml)
+- 2026-06-30 06:37 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/0180187.shtml)
+- 2026-06-30 06:56 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/6106435390.shtml)

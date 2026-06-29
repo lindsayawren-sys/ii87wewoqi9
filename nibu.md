@@ -1,58 +1,56 @@
-# 2026年“1%工程”第一批开明足球学校共建签约暨授牌仪式在江西上饶举行
+# 蒂森克虏伯有望在通力-蒂升电梯交易中进账40亿美元
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-2026年“1%工程”第一批开明足球学校共建签约暨授牌仪式在上饶举行 在第23届国际足联世界杯正踢得如火如荼之际，为助推我省青少年足球发展，6月23日，2026年“1%工程”第一批开明足球学校共建签约暨授牌仪式在上饶市带湖小学举行。省政协副主席、民进省委会主委卢天锡，省委会副主委胡国良，上饶市副市长祝美清等出席。 仪式现场，卢天锡为2026年“1%工程”第一批开明足球学校——南
+在芬兰通力电梯公司提出以294亿欧元收购蒂升电梯后，德国工业集团蒂森克虏伯有望从中获得高达40亿美元的巨额收益。蒂森克虏伯目前持有蒂升电梯16.2%的股份，分析师认为这笔交易的财务回报相当于其当前市值的近三分之二。 根据交易条款，通力将以现金加新股的方式完成收购。蒂升电梯的原股东将获得50亿欧元现金分配，按持股比例计算，蒂森克虏伯将从中获得约8.1亿欧元。此外，蒂森克虏伯预计还
 
 ## 正文
 
-2026年“1%工程”第一批开明足球学校共建签约暨授牌仪式在上饶举行 在第23届国际足联世界杯正踢得如火如荼之际，为助推我省青少年足球发展，6月23日，2026年“1%工程”第一批开明足球学校共建签约暨授牌仪式在上饶市带湖小学举行。
+在芬兰通力电梯公司提出以294亿欧元收购蒂升电梯后，德国工业集团蒂森克虏伯有望从中获得高达40亿美元的巨额收益。
 
-省政协副主席、民进省委会主委卢天锡，省委会副主委胡国良，上饶市副市长祝美清等出席。
+蒂森克虏伯目前持有蒂升电梯16.2%的股份，分析师认为这笔交易的财务回报相当于其当前市值的近三分之二。
 
-仪式现场，卢天锡为2026年“1%工程”第一批开明足球学校——南昌市东湖区扬子洲学校、九江市濂溪区浔南小学、浮梁县新平中学、上饶市带湖小学、鹰潭市余江区第二中学、抚州市临川区第十六中学授牌，标志着这些学校正式成为“1%工程开明足球”共建学校。
+根据交易条款，通力将以现金加新股的方式完成收购。
 
-胡国良向共建学校赠送民进书法名家书写的寄语，鼓励青少年在足球运动中熟悉规则、遵守规则、运用规则，在球场上保持放松心态与高度专注，练好基本功，更重要的是在学习和生活中运用足球精神，学会团结、坚韧、永奋进。
+蒂升电梯的原股东将获得50亿欧元现金分配，按持股比例计算，蒂森克虏伯将从中获得约8.1亿欧元。
 
-省委会社会服务部部长尹春亮介绍了“1%工程·开明足球”公益项目的背景、目标和具体实施规划，并和6所学校现场签约。
+此外，蒂森克虏伯预计还将获得价值约24.6亿欧元的新发行通力股票，从而持有合并后新公司约5.5%的股份。
 
-省青少年发展基金会理事长毛鸿山代表“1%工程”向6所共学校举牌捐赠。
+杰富瑞与摩根大通的分析师指出，加上其在蒂升电梯的账面价值，这笔意外之财对于正处于重大重组中的蒂森克虏伯无疑是重大利好。
 
-此次公益活动为6所学校捐赠了足球运动专项经费、图书、足球等物资，总价值达30万元。
+蒂森克虏伯股价周三盘中应声大涨逾11%，反映了投资者对此交易的高度认可。
 
-活动由民进上饶市委会主委付春平主持，上饶市教育局局长刘平，民进南昌市委会、九江市委会、景德镇市委会、鹰潭市委会、抚州市工委及6所共建学校代表参加。
+蒂森克虏伯在声明中确认，正积极研究该交易对其持有的蒂升电梯16.2%股权的影响。
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 06:35 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 06:45 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 06:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 06:38 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 06:50 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 06:47 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 06:36 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 06:29 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 06:35 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 06:41 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 06:50 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 06:56 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 06:31 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 06:34 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 06:56 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 06:48 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 06:44 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 06:45 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 06:30 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 06:46 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 06:50 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/8050783.shtml)
-- 2026-06-30 06:49 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/011246.shtml)
-- 2026-06-30 06:44 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/71793.shtml)
-- 2026-06-30 06:52 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/642468270178.shtml)
-- 2026-06-30 06:50 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/20471.shtml)
-- 2026-06-30 06:51 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/899813695.shtml)
-- 2026-06-30 06:44 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/20076232169.shtml)
-- 2026-06-30 06:30 - [周生如故](http://www.share.minike.top/Article/details/221499.shtml)
-- 2026-06-30 06:26 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/7609091.shtml)
-- 2026-06-30 06:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/96945391030.shtml)
-- 2026-06-30 06:34 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/14172786784.shtml)
-- 2026-06-30 06:47 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/72031878.shtml)
-- 2026-06-30 06:33 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/788780018959.shtml)
-- 2026-06-30 06:29 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/1582363.shtml)
-- 2026-06-30 06:25 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/82595515562.shtml)
+- 2026-06-30 06:32 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/492127680489.shtml)
+- 2026-06-30 06:58 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/988988.shtml)
+- 2026-06-30 06:30 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/34134943002.shtml)
+- 2026-06-30 06:48 - [世界杯](https://www.blog.minike.top/Article/details/657587050.shtml)
+- 2026-06-30 06:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/919475103724.shtml)
+- 2026-06-30 06:55 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/59247.shtml)
+- 2026-06-30 06:37 - [美人鱼](http://www.share.minike.top/Article/details/5258037965.shtml)
+- 2026-06-30 06:53 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/4489792.shtml)
+- 2026-06-30 06:41 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/638266534812.shtml)
+- 2026-06-30 06:49 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/80695439.shtml)
+- 2026-06-30 06:53 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/645145870839.shtml)
+- 2026-06-30 06:53 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/10560.shtml)
+- 2026-06-30 06:34 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/548157.shtml)
+- 2026-06-30 06:39 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/634165718505.shtml)
+- 2026-06-30 06:56 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/529919.shtml)

@@ -1,57 +1,59 @@
-# 贝恩资本或将收购大众旗下船用发动机子公司Everllence
+# 习近平：在省部级主要领导干部学习贯彻党的二十届四中全会精神专题研讨班上的讲话
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，贝恩资本即将收购大众汽车旗下船用发动机部门Everllence的多数股权，击败了包括一家与大众汽车主要股东联手竞购的私募股权公司在内的其他竞购者。 这笔交易预计将成为今年欧洲工业界规模最大的业务剥离之一，因为大众汽车正寻求在集团汽车业务大幅裁员之际释放现金流。 据消息人士称，这笔交易对Everllence的估值80亿至90亿欧元之间。 贝恩资本在此次收购中与CV
+在省部级主要领导干部学习贯彻党的二十届四中全会精神专题研讨班上的讲话 (2026年1月20日) 习近平 党中央举办这次研讨班，主题是学习贯彻党的二十届四中全会精神。下面，我讲3个问题。 一、充分认识制定和实施五年规划是我们的重要政治优势 新中国成立以来，我国已经制定和实施了14个五年规划(计划)。我国从积贫积弱的农业国发展成为世界第二大经济体并向全面建成社会主义现代化强国目标迈
 
 ## 正文
 
-据知情人士透露，贝恩资本即将收购大众汽车旗下船用发动机部门Everllence的多数股权，击败了包括一家与大众汽车主要股东联手竞购的私募股权公司在内的其他竞购者。
+在省部级主要领导干部学习贯彻党的二十届四中全会精神专题研讨班上的讲话 (2026年1月20日) 习近平 党中央举办这次研讨班，主题是学习贯彻党的二十届四中全会精神。
 
-这笔交易预计将成为今年欧洲工业界规模最大的业务剥离之一，因为大众汽车正寻求在集团汽车业务大幅裁员之际释放现金流。
+下面，我讲3个问题。
 
-据消息人士称，这笔交易对Everllence的估值80亿至90亿欧元之间。
+一、充分认识制定和实施五年规划是我们的重要政治优势 新中国成立以来，我国已经制定和实施了14个五年规划(计划)。
 
-贝恩资本在此次收购中与CVC和EQT展开竞争，其中EQT是与保时捷股份公司和卡塔尔组成的财团的成员之一。
+我国从积贫积弱的农业国发展成为世界第二大经济体并向全面建成社会主义现代化强国目标迈进，这一系列五年规划在其中发挥了重要作用。
 
-保时捷持有大众汽车53.3%的投票权，而卡塔尔通过其主权财富基金持有17%的股份。
+实践证明，制定和实施五年规划，是我们党治国理政一条重要经验，是中国特色社会主义制度一个重要政治优势。
 
-Everllence的前身为MAN Energy Solutions，为航运业生产柴油发动机，但收购方也看到了该公司在人工智能领域的增长潜力，因为数据中心需要发电机来供电。
+这主要体现在4个方面。
 
-责任编辑：于健 SF069
+一是有利于实现党的领导。
+
+通过制定和实施五年规划，把党的主张转化为国家意志，凝聚全社会共识，激发全体人民奋斗力量，把党的领导落实到经济社会发展各方面全过程。
 
 ## 相关推荐
 
-- 2026-06-30 06:31 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 06:48 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 06:50 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 06:28 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 06:46 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 06:27 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 06:50 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 06:26 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 06:46 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 06:52 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-30 06:31 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 06:50 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 06:27 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 06:33 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 06:33 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 06:32 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 06:53 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 06:35 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 06:55 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 06:32 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 06:59 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 06:56 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 06:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 06:38 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 06:49 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 06:48 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:27 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/04529263.shtml)
-- 2026-06-30 06:30 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/463246.shtml)
-- 2026-06-30 06:26 - [急先锋](http://www.blog.kurohicncr.top/Article/details/8893910.shtml)
-- 2026-06-30 06:26 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/67515873.shtml)
-- 2026-06-30 06:28 - [巴西vs日本](http://www.blog.minike.top/Article/details/384737070.shtml)
-- 2026-06-30 06:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/57064649.shtml)
-- 2026-06-30 06:33 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/59466241.shtml)
-- 2026-06-30 06:26 - [金牌调解](http://www.blog.minike.top/Article/details/8843776574.shtml)
-- 2026-06-30 06:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/08444.shtml)
-- 2026-06-30 06:45 - [天道](https://www.blog.kurohicncr.top/Article/details/6595451.shtml)
-- 2026-06-30 06:52 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/749748.shtml)
-- 2026-06-30 06:44 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/77924904.shtml)
-- 2026-06-30 06:38 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/705326120.shtml)
-- 2026-06-30 06:34 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/32098189.shtml)
-- 2026-06-30 06:47 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/981106.shtml)
+- 2026-06-30 06:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/8047473.shtml)
+- 2026-06-30 06:43 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/187644.shtml)
+- 2026-06-30 06:46 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/388461.shtml)
+- 2026-06-30 06:50 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/2151347132.shtml)
+- 2026-06-30 06:51 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/83188.shtml)
+- 2026-06-30 06:49 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/685095663096.shtml)
+- 2026-06-30 06:36 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/3781137.shtml)
+- 2026-06-30 06:41 - [爱很美味](https://www.share.kurohicncr.top/Article/details/23538907295.shtml)
+- 2026-06-30 06:32 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/36408114.shtml)
+- 2026-06-30 06:30 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/112687.shtml)
+- 2026-06-30 06:36 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/85453110610.shtml)
+- 2026-06-30 06:35 - [巴西2比1日本](http://www.blog.minike.top/Article/details/36268040.shtml)
+- 2026-06-30 06:53 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/311874476.shtml)
+- 2026-06-30 06:54 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/687956709485.shtml)
+- 2026-06-30 06:44 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/543558.shtml)

@@ -1,44 +1,55 @@
-# 现场展示！民族团结进步促进法七个少数民族语言版本的审议草案
+# 解读地图背后历史变迁《北京中轴线古旧地图集》分享会举办
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 14:39 来源：中国新闻网 责任编辑：【王祎】
+中新网北京4月30日电 (记者 高凯)《北京中轴线古旧地图集》分享会日前在北京举办，意在让承载着中华文明基因的北京中轴线，通过古旧地图这一独特载体，走进更多人的阅读生活。 《北京中轴线古旧地图集》是国内首部系统整理北京中轴线历史变迁的古旧地图集。书中涉及的古旧地图以中国国家图书馆馆藏为主，正文选取从明代至1949年的近百幅中外古旧地图及相关图档，涵盖单幅绘本、刻本、专门地图集等
 
 ## 正文
 
-发布时间：2026年06月24日 14:39 来源：中国新闻网 责任编辑：【王祎】
+中新网北京4月30日电 (记者 高凯)《北京中轴线古旧地图集》分享会日前在北京举办，意在让承载着中华文明基因的北京中轴线，通过古旧地图这一独特载体，走进更多人的阅读生活。
+
+《北京中轴线古旧地图集》是国内首部系统整理北京中轴线历史变迁的古旧地图集。
+
+书中涉及的古旧地图以中国国家图书馆馆藏为主，正文选取从明代至1949年的近百幅中外古旧地图及相关图档，涵盖单幅绘本、刻本、专门地图集等多种形式，全面展现了北京中轴线从明朝到民国时期的历史变迁。
+
+该书入选2024年北京市优秀古籍整理出版扶持项目、2025年度北京市图书出版重点选题。
+
+活动中，《北京中轴线古旧地图集》的作者，国家图书馆研究馆员、古籍馆舆图组组长白鸿叶依托书中收录的《北京城宫殿之图》《首善全图》《北京名胜鸟瞰图》等珍贵地图，深入解读地图背后的历史故事，全方位拆解北京中轴线作为“政治之轴、文化之轴、生活之轴”的完整肌理，带领现场读者沉浸式感受古都中轴线的营建脉络与文化魅力。
+
+她表示，中轴线不仅是北京城的“脊梁”，更是中国古代都城建造智慧的集中体现，本书呈现了不同时期的北京中轴线及地图，解析了中轴线古旧地图的绘制技艺、历史背景及文化内涵。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:52 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 06:39 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 06:36 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 06:27 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 06:29 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 06:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 06:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 06:27 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 06:36 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 06:29 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-30 06:27 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 06:38 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 06:30 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 06:37 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 06:51 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 06:50 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 06:39 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 06:42 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 06:47 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 06:49 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 06:42 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 06:53 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 06:32 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/03307817531.shtml)
-- 2026-06-30 06:50 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/263244583.shtml)
-- 2026-06-30 06:53 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/56988309524.shtml)
-- 2026-06-30 06:48 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/96661456.shtml)
-- 2026-06-30 06:32 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/64718786722.shtml)
-- 2026-06-30 06:37 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/2248920365.shtml)
-- 2026-06-30 06:43 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/197743733606.shtml)
-- 2026-06-30 06:29 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/396434559623.shtml)
-- 2026-06-30 06:36 - [《贺子珍》](http://www.share.minike.top/Article/details/360925074.shtml)
-- 2026-06-30 06:43 - [绘画区你赢了](http://www.blog.minike.top/Article/details/7597693624.shtml)
-- 2026-06-30 06:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/0394746.shtml)
-- 2026-06-30 06:38 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/9853540.shtml)
-- 2026-06-30 06:28 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/5308246.shtml)
-- 2026-06-30 06:52 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/47971999427.shtml)
-- 2026-06-30 06:39 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/34805719601.shtml)
+- 2026-06-30 06:42 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/08664.shtml)
+- 2026-06-30 06:46 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/907395841.shtml)
+- 2026-06-30 06:47 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/633358504916.shtml)
+- 2026-06-30 06:42 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/768182958.shtml)
+- 2026-06-30 06:36 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/2975589352.shtml)
+- 2026-06-30 06:38 - [《贺子珍》](https://www.blog.minike.top/Article/details/87752.shtml)
+- 2026-06-30 06:37 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/1684118.shtml)
+- 2026-06-30 06:42 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/8344797.shtml)
+- 2026-06-30 06:31 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/94234336.shtml)
+- 2026-06-30 06:49 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/5672002352.shtml)
+- 2026-06-30 06:51 - [巴西绝杀日本](http://www.share.minike.top/Article/details/34269760.shtml)
+- 2026-06-30 06:53 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/0457558.shtml)
+- 2026-06-30 06:44 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/750177972026.shtml)
+- 2026-06-30 06:40 - [月亮](http://www.share.minike.top/Article/details/817986517571.shtml)
+- 2026-06-30 06:52 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/31794643796.shtml)

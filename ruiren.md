@@ -1,61 +1,52 @@
-# “全球最大连片荔枝种植基地”广东高州荔枝采摘收尾
+# 央行：一季度末本外币企事业单位贷款余额194.88万亿元 同比增长8.6%
 
-> 更新时间：2026-06-30 06:54:02 UTC+8
+> 更新时间：2026-06-30 07:00:02 UTC+8
 
 ## 摘要
 
-中新社广东茂名6月25日电 (梁盛 梁晶晶)记者25日从“中国荔乡”广东茂名高州市农业农村局获悉，目前该市荔枝采收已进入尾期，今年荔枝总产量约21万吨。 据了解，高州拥有全球规模最大的连片荔枝种植基地，也是中国荔枝生产第一大县，全市荔枝种植面积近60万亩。在今年荔枝采摘季，高州除了常态化开展城市推介、产地节庆、产销签约、古树荔枝定制等活动外，还举办了系列主题活动，荔枝全产业链热
+4月29日金融一线消息，中国人民银行统计，2026年一季度末，本外币企事业单位贷款余额194.88万亿元，同比增长8.6%，增速比上年末低0.3个百分点，一季度增加8.67万亿元。分期限看，短期贷款及票据融资余额67.26万亿元，同比增长10.8%，一季度增加3.1万亿元。中长期贷款余额123.81万亿元，同比增长7.4%，一季度增加5.42万亿元。分用途看，固定资产贷款余额7
 
 ## 正文
 
-中新社广东茂名6月25日电 (梁盛 梁晶晶)记者25日从“中国荔乡”广东茂名高州市农业农村局获悉，目前该市荔枝采收已进入尾期，今年荔枝总产量约21万吨。
+4月29日金融一线消息，中国人民银行统计，2026年一季度末，本外币企事业单位贷款余额194.88万亿元，同比增长8.6%，增速比上年末低0.3个百分点，一季度增加8.67万亿元。
 
-据了解，高州拥有全球规模最大的连片荔枝种植基地，也是中国荔枝生产第一大县，全市荔枝种植面积近60万亩。
+分期限看，短期贷款及票据融资余额67.26万亿元，同比增长10.8%，一季度增加3.1万亿元。
 
-在今年荔枝采摘季，高州除了常态化开展城市推介、产地节庆、产销签约、古树荔枝定制等活动外，还举办了系列主题活动，荔枝全产业链热度持续升温。
+中长期贷款余额123.81万亿元，同比增长7.4%，一季度增加5.42万亿元。
 
-茂名荔枝采购商吴国告诉记者，由于今年荔枝减产，自上市以来价格持续高企，即使遭遇上市高峰，价格也不降反升，整体荔枝的收购价比去年高出三成，同一品种的荔枝也按其果品质量、个头大小拉开明显的价格差距。
+分用途看，固定资产贷款余额79.96万亿元，同比增长5.3%，一季度增加2.69万亿元。
 
-据介绍，今年高州荔枝采收创新应用机器人采摘、无人机运输，大幅提升采收转运效率，全链条采用低温高湿雾化锁鲜技术，有效抑制荔枝失水褐变，并创新推行纳米保鲜袋、冰袋、铝箔袋三层隔热包装工艺，全程依托冷链特快物流，实现现摘现发、不浸泡保鲜剂，让荔枝最大程度保留枝头的“头啖鲜”。
+经营性贷款余额82.07万亿元，同比增长11.0%，一季度增加5.95万亿元。
 
-高州市农业农村局党组成员邬飞儒称，今年高州通过跨镇果园协作、海关通关便利化、外贸企业对接等举措，打通荔枝出口通道，让优质荔枝陆续销往美国、法国、瑞士、澳大利亚等国。
-
-截至6月初，全市荔枝出口约2600吨。
-
-(完)
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 06:39 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 06:47 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 06:45 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 06:25 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 06:29 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 06:32 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 06:48 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 06:51 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 06:35 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 06:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 06:24 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 06:47 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 06:39 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 06:28 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 06:34 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 06:43 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 06:35 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 06:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 06:54 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 06:51 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 06:41 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 06:33 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 06:48 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 06:58 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 06:34 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:51 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/108595.shtml)
-- 2026-06-30 06:36 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/784105343496.shtml)
-- 2026-06-30 06:52 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/9344904897.shtml)
-- 2026-06-30 06:32 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/955474149712.shtml)
-- 2026-06-30 06:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/465454.shtml)
-- 2026-06-30 06:39 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/7846082.shtml)
-- 2026-06-30 06:41 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/02023612.shtml)
-- 2026-06-30 06:41 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/2021547115.shtml)
-- 2026-06-30 06:53 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/94973382035.shtml)
-- 2026-06-30 06:32 - [起风了](https://www.blog.minike.top/Article/details/1220604176.shtml)
-- 2026-06-30 06:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/38825.shtml)
-- 2026-06-30 06:43 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/6753606.shtml)
-- 2026-06-30 06:27 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/777334855.shtml)
-- 2026-06-30 06:34 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/938241156.shtml)
-- 2026-06-30 06:53 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/947795.shtml)
+- 2026-06-30 06:54 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/26821.shtml)
+- 2026-06-30 06:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/295898594.shtml)
+- 2026-06-30 06:57 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/38094101.shtml)
+- 2026-06-30 06:30 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/58180103.shtml)
+- 2026-06-30 06:59 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/246919506.shtml)
+- 2026-06-30 06:53 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/8690129.shtml)
+- 2026-06-30 06:55 - [金刚川](http://www.share.kurohicncr.top/Article/details/23744277.shtml)
+- 2026-06-30 06:41 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/69450165.shtml)
+- 2026-06-30 06:30 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/8181685.shtml)
+- 2026-06-30 06:54 - [毒液2](http://www.blog.minike.top/Article/details/976818543.shtml)
+- 2026-06-30 06:37 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/18171153125.shtml)
+- 2026-06-30 06:30 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/41750.shtml)
+- 2026-06-30 06:39 - [爱很美味](https://www.blog.minike.top/Article/details/557438344.shtml)
+- 2026-06-30 06:34 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/987707890009.shtml)
+- 2026-06-30 06:46 - [毒液2](http://www.share.minike.top/Article/details/545240673.shtml)
