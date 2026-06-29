@@ -1,60 +1,58 @@
-# 中外学者聚首重庆 共商区域国别研究与东盟法学教育合作
+# 逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新网重庆5月9日电 (记者 刘相琳)“加强区域国别研究，提升国际传播效能”论坛暨中国—东盟法学教育与研究联盟理事会会议9日在西南政法大学举行。来自柬埔寨、印度尼西亚、泰国等东盟国家的法学专家、法律实务界代表与中国国内高校、研究机构的专家学者齐聚一堂，共商区域国别研究与东盟法学教育合作。 本次论坛由西南政法大学主办，中国—东盟法律研究中心、西南政法大学区域国别学院、西南政法大学
+原标题：“理响中国·一线探新”逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索 春风浩荡，绿意满城；花开盛世，丰宜福台。 春日的丰台，草木萌发，万象更新。永定河畔碧波荡漾，园博园内繁花似锦，南中轴上气象开阔，丽泽天际线舒展挺拔。一座城，向新而立；一片土，因绿而兴。 2026年1月，习近平总书记在中央城市工作会议上强调：“着力建设绿色低碳的美丽城市”“推进能源、管网、交通等基
 
 ## 正文
 
-中新网重庆5月9日电 (记者 刘相琳)“加强区域国别研究，提升国际传播效能”论坛暨中国—东盟法学教育与研究联盟理事会会议9日在西南政法大学举行。
+原标题：“理响中国·一线探新”逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索 春风浩荡，绿意满城；花开盛世，丰宜福台。
 
-来自柬埔寨、印度尼西亚、泰国等东盟国家的法学专家、法律实务界代表与中国国内高校、研究机构的专家学者齐聚一堂，共商区域国别研究与东盟法学教育合作。
+春日的丰台，草木萌发，万象更新。
 
-本次论坛由西南政法大学主办，中国—东盟法律研究中心、西南政法大学区域国别学院、西南政法大学国际法学院联合承办，旨在展示区域国别学在哲学社会科学领域的最新研究成果，推动中国区域国别学自主知识体系构建，促进中国与东盟法学教育与研究合作。
+永定河畔碧波荡漾，园博园内繁花似锦，南中轴上气象开阔，丽泽天际线舒展挺拔。
 
-重庆市人民政府外事办公室副主任冯子敏在致辞中指出，区域国别研究是服务对外开放、深化国际交流合作、提升国际传播效能的重要支撑。
+一座城，向新而立；一片土，因绿而兴。
 
-重庆作为西部陆海新通道运营组织中心和面向东盟开放合作的重要内陆门户，将持续深化与东盟国家的务实合作。
+2026年1月，习近平总书记在中央城市工作会议上强调：“着力建设绿色低碳的美丽城市”“推进能源、管网、交通等基础设施绿色低碳改造”。
 
-柬埔寨王国司法部副国务秘书王伟(Meas Sokeo)在致辞中表示，加强区域国别研究、增进跨文化理解与国际交流合作，对促进和平对话、化解误解分歧、推动共同发展具有重要意义。
+殷殷嘱托，字字千钧；擘画蓝图，指引方向。
 
-高校、研究机构、法律职业共同体和青年一代应在教育交流、政策研究、法治合作和人文互鉴中发挥积极作用。
+作为首都中心城区与功能拓展重要承载地，北京市丰台区锚定“双碳”目标，把绿色低碳融入城市更新、民生保障、产业发展全过程，走出一条民生有温度、发展有力度、生态有颜值的低碳转型之路。
 
-本次论坛为中国与东盟国家专家学者交流思想、凝聚共识、深化合作提供了重要平台。
+近日，人民日报社《国家治理》调研组走进丰台，从城中村安置房到丽泽金融商务区，实地探寻丰台“以民为本、以绿为底”的实践经验。
 
 ## 相关推荐
 
-- 2026-06-29 11:58 - [这个法国人，真让人刮目相看](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:39 - [“十五五”期间 武汉将亮相一批文旅新地标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:49 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:55 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:42 - [对话魏建军：长城汽车追求有质量的市场占有率，要坚持长期主义，不是看一招一式、短期的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:37 - [德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:45 - [伊朗媒体报道称：伊朗提议美30天内撤销对伊石油销售制裁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:44 - [直播海报：天舟十号货运飞船发射任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:53 - [澳大利亚学者呼吁反思AUKUS代价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:53 - [中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:41 - [北约国家为特朗普从欧洲撤出更多部队做准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:35 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:58 - [纳睿雷达完成董事会换届：包晓军当选董事长并任总裁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:39 - [人形机器人与上海创新创业青年对话“谈科创”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:05 - [今年“五一”假期小客车上高速继续免收通行费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:46 - [《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:46 - [姚高员辞去杭州市市长职务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:05 - [法学大先生·张晋藩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:57 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:40 - [绍兴越城：以“三抓实”落实统战工作责任制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:44 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:50 - [青春，就应该这样！——写在2026年五四青年节到来之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:40 - [人社部：一季度全国城镇新增就业299万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:43 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:39 - [青海西宁：文体商旅融合点燃五月高原消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:06 - [2026年3月广东省外贸进出口总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:54 - [上市公司买理财年内大降2500+亿 配置多元化趋势凸显](http://www.share.kurohicncr.top/Article/details/203257.shtml)
-- 2026-06-29 11:49 - [罕见不展示重型装备，严防乌克兰“突然袭击”，俄罗斯今天举行胜利日阅兵](http://www.share.minike.top/Article/details/0531431.shtml)
-- 2026-06-29 11:44 - [成都一中学举办科技节 硬核体验点燃科学梦](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [四川成都：列车穿行紫色花海](http://www.share.minike.top/Article/details/39916358285.shtml)
-- 2026-06-29 11:36 - [一站打卡万余种文创 首届中国新文创市集暨潮玩游园会将在北京举办](http://www.blog.kurohicncr.top/Article/details/944257.shtml)
-- 2026-06-29 11:43 - [新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [科学家为无人机安装“氢能心脏”破解续航难题](http://www.blog.minike.top/Article/details/150636430.shtml)
-- 2026-06-29 11:33 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](http://www.blog.kurohicncr.top/Article/details/8793048.shtml)
-- 2026-06-29 11:30 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](http://www.share.minike.top/Article/details/22176132.shtml)
-- 2026-06-29 11:51 - [2026中国田径街头巡回赛揭幕](http://www.share.kurohicncr.top/Article/details/20842.shtml)
-- 2026-06-29 11:52 - [5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）](http://www.share.minike.top/Article/details/918047330296.shtml)
-- 2026-06-29 11:35 - [恒瑞医药香港办公室正式启用](http://www.share.minike.top/Article/details/737170794.shtml)
-- 2026-06-29 11:32 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](http://www.share.kurohicncr.top/Article/details/818258.shtml)
-- 2026-06-29 11:49 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](http://www.blog.kurohicncr.top/Article/details/377890.shtml)
+- 2026-06-29 12:00 - [央行上海总部：一季度上海社会融资规模增加4743亿元 同比多增138亿元](http://www.blog.kurohicncr.top/Article/details/55175941651.shtml)
+- 2026-06-29 11:53 - [白宫晚宴枪击最新调查进展：被捕枪手为一名家教，曾留下字条](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [OEXN:黄金震荡观望央行信号](http://www.blog.kurohicncr.top/Article/details/21193032.shtml)
+- 2026-06-29 11:47 - [“五一”假日期间海南省天气总体较好 适宜出游](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [绿城的"体外"生意，撑不住了](http://www.share.kurohicncr.top/Article/details/44023431733.shtml)
+- 2026-06-29 11:54 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](http://www.blog.minike.top/Article/details/11877421.shtml)
+- 2026-06-29 12:04 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](http://www.share.minike.top/Article/details/3183549697.shtml)
+- 2026-06-29 11:53 - [五一假期注意出行安全 南方多地有大范围降雨](http://www.share.kurohicncr.top/Article/details/274301555.shtml)
+- 2026-06-29 11:55 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](http://www.share.kurohicncr.top/Article/details/8208894.shtml)
+- 2026-06-29 11:52 - [解决新旧海商法衔接适用问题 最高法出台司法解释](http://www.blog.kurohicncr.top/Article/details/8053888457.shtml)
+- 2026-06-29 11:39 - [中非银联体召开第二届高官会暨中非金融合作研讨会](http://www.blog.kurohicncr.top/Article/details/387514.shtml)
+- 2026-06-29 11:42 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](http://www.share.kurohicncr.top/Article/details/651565952085.shtml)
+- 2026-06-29 11:44 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](http://www.blog.kurohicncr.top/Article/details/789320376360.shtml)
+- 2026-06-29 11:44 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](http://www.blog.minike.top/Article/details/76560.shtml)
+- 2026-06-29 12:03 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](http://www.blog.kurohicncr.top/Article/details/4638232.shtml)

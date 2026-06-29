@@ -1,56 +1,58 @@
-# （乡村行·看振兴）方寸庭院生“金”记
+# 四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新网鄂尔多斯5月9日电 题：方寸庭院生“金”记 作者 李爱平 李笑 吴晓慧 乡村振兴，如何筑牢村民稳定增收根基？内蒙古自治区鄂尔多斯市杭锦旗跳出“依托大产业、大项目谋发展”的传统思路，聚焦农户房前屋后的方寸庭院，精准盘活零散小微资源，蹚出一条贴合乡村实际、惠及普通民众的增收新路径。 5月7日，杭锦旗锡尼镇阿日柴达木村人头攒动，村民们拎着袋子、提着笼子有序排队，免费领取鸡苗。此
+中新网达州4月28日电 (张卓)“大家用行动传递爱心、用善举帮助他人，用‘微力量’汇聚成‘大温暖’，或许没有惊天动地的壮举，但正是这些日复一日的坚守与付出，织就了中国基层治理中最质朴、最动人的故事！”四川省达州市渡市镇白腊坪村党委书记、村委会主任、“爱心帮帮团”团长潘永川27日表示。 在四川省大巴山深处、达州市达川区渡市镇，有一个由几十名社会爱心人士自发组建的“爱心帮帮团”，他
 
 ## 正文
 
-中新网鄂尔多斯5月9日电 题：方寸庭院生“金”记 作者 李爱平 李笑 吴晓慧 乡村振兴，如何筑牢村民稳定增收根基？
+中新网达州4月28日电 (张卓)“大家用行动传递爱心、用善举帮助他人，用‘微力量’汇聚成‘大温暖’，或许没有惊天动地的壮举，但正是这些日复一日的坚守与付出，织就了中国基层治理中最质朴、最动人的故事！
 
-内蒙古自治区鄂尔多斯市杭锦旗跳出“依托大产业、大项目谋发展”的传统思路，聚焦农户房前屋后的方寸庭院，精准盘活零散小微资源，蹚出一条贴合乡村实际、惠及普通民众的增收新路径。
+”四川省达州市渡市镇白腊坪村党委书记、村委会主任、“爱心帮帮团”团长潘永川27日表示。
 
-5月7日，杭锦旗锡尼镇阿日柴达木村人头攒动，村民们拎着袋子、提着笼子有序排队，免费领取鸡苗。
+在四川省大巴山深处、达州市达川区渡市镇，有一个由几十名社会爱心人士自发组建的“爱心帮帮团”，他们都是来自于各个行业，专门帮助关爱当地空巢老人和留守儿童，在当地传为一段感人至深的佳话。
 
-此次村里共计为240户农户发放3000只鸡苗。
+2013年12月，潘永川怀揣着建设家乡的梦想成为当地村委会副主任。
 
-依托庭院开展小规模家禽养殖，成为当地村民足不出村就能实现增收的便捷门路。
+为了尽快熟悉村情，他用脚步丈量了全村的每一寸土地，走访了在家的每户乡亲。
 
-“去年领了10只鸡，光卖鸡就挣了近2000元，今年又领了11只，算下来预计能增收2700元到2800元。
+真是不走不知道，一走吓一跳：全村在家412户乡亲，就有空巢老人107人、留守儿童45人，贫困户初始认定高达65户…… “我当时深知，基层工作事务多，面对诸多困难，仅仅依靠村两委班子几个人的力量是远远不够的，于是便想到了通过党建引领壮大爱心队伍力量，让爱的温暖传递到每家每户。
 
-”村民郭银晓细数着庭院养殖带来的收益，满心欢喜。
+”潘永川回忆说。
 
-杭锦旗总工会驻锡尼镇阿日柴达木村第一书记张波介绍，该村地处山区禁止开发区与文物保护区范围内，村民群体以老年人为主，平均年龄超65岁。
+2015年7月初，当地村两委召集了所有能联系到的人，把驻村干部、村里能人、在外发展的老乡以及爱心人士聚集在一起，商量是否可以建立一个爱心团队，在党支部的带领下帮助困难群众和弱势群体。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:33 - [德国3月对美出口大幅下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:46 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:53 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:53 - [“中国式安全感”为何圈粉世界（人民时评）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:45 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:38 - [酒价内参5月11日价格发布：飞天茅台下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:51 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:55 - [韩国产业部长与美方官员洽谈投资协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:33 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:03 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:53 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:54 - [珠江流域进一步强化节约用水管理工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:55 - [“五一”假期预计全国日均租车量将超70万辆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:46 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:02 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:50 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:01 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:46 - [长江“微笑天使”又添丁，见证江苏生态之变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:03 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:53 - [一季度浙江算力中心用电规模和增速创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:47 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](http://www.share.kurohicncr.top/Article/details/16646722.shtml)
-- 2026-06-29 11:42 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](http://www.share.minike.top/Article/details/502365.shtml)
-- 2026-06-29 11:57 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](http://www.blog.minike.top/Article/details/20346137.shtml)
-- 2026-06-29 11:42 - [这个法国人，真让人刮目相看](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [“十五五”期间 武汉将亮相一批文旅新地标](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](http://www.blog.minike.top/Article/details/903195262.shtml)
-- 2026-06-29 11:49 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](http://www.blog.minike.top/Article/details/11061.shtml)
-- 2026-06-29 11:44 - [对话魏建军：长城汽车追求有质量的市场占有率，要坚持长期主义，不是看一招一式、短期的行为](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [伊朗媒体报道称：伊朗提议美30天内撤销对伊石油销售制裁](http://www.blog.kurohicncr.top/Article/details/400939209044.shtml)
-- 2026-06-29 11:50 - [直播海报：天舟十号货运飞船发射任务](http://www.share.minike.top/Article/details/5635904.shtml)
-- 2026-06-29 11:44 - [澳大利亚学者呼吁反思AUKUS代价](http://www.share.minike.top/Article/details/109443314.shtml)
-- 2026-06-29 11:36 - [中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛](http://www.blog.minike.top/Article/details/2433081.shtml)
-- 2026-06-29 11:40 - [北约国家为特朗普从欧洲撤出更多部队做准备](http://www.share.kurohicncr.top/Article/details/149334.shtml)
-- 2026-06-29 11:53 - [习言道｜父母是孩子的第一任老师](http://www.blog.minike.top/Article/details/3013944669.shtml)
+- 2026-06-29 11:44 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](http://www.blog.kurohicncr.top/Article/details/6231866036.shtml)
+- 2026-06-29 11:50 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](http://www.share.kurohicncr.top/Article/details/4289176495.shtml)
+- 2026-06-29 11:55 - [日元回吐部分涨幅 此前日本央行行长未发出明确的加息信号](http://www.share.kurohicncr.top/Article/details/9391442982.shtml)
+- 2026-06-29 12:01 - [今年“五一”假期小客车上高速继续免收通行费](http://www.blog.kurohicncr.top/Article/details/036693.shtml)
+- 2026-06-29 11:56 - [《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”](http://www.blog.kurohicncr.top/Article/details/2425012108.shtml)
+- 2026-06-29 11:43 - [姚高员辞去杭州市市长职务](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [法学大先生·张晋藩](http://www.share.kurohicncr.top/Article/details/48798109860.shtml)
+- 2026-06-29 11:42 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](http://www.blog.kurohicncr.top/Article/details/7154107844.shtml)
+- 2026-06-29 11:54 - [绍兴越城：以“三抓实”落实统战工作责任制](http://www.blog.kurohicncr.top/Article/details/8376743392.shtml)
+- 2026-06-29 11:36 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](http://www.share.kurohicncr.top/Article/details/27237929.shtml)
+- 2026-06-29 11:44 - [青春，就应该这样！——写在2026年五四青年节到来之际](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [人社部：一季度全国城镇新增就业299万人](http://www.share.kurohicncr.top/Article/details/02988.shtml)
+- 2026-06-29 11:42 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](http://www.blog.minike.top/Article/details/130738542.shtml)
+- 2026-06-29 12:02 - [青海西宁：文体商旅融合点燃五月高原消费热潮](http://www.share.minike.top/Article/details/35723.shtml)
+- 2026-06-29 11:49 - [2026年3月广东省外贸进出口总值表（人民币值）](http://www.blog.kurohicncr.top/Article/details/9094403349.shtml)

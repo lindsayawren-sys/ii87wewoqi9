@@ -1,51 +1,56 @@
-# 【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活
+# 一季度浙江算力中心用电规模和增速创新高
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月10日 18:04 来源：中国新闻网 近日，记者探访安徽省首家机器人9N中心。这里汇聚了服务、医疗、教育、娱乐等百余种机器人产品，是一座集体验与展示于一体的机器人智能生活体验馆。 中心展示了多款人形机器人，这些机器人已投入商业场景、工厂作业等实际应用，在租赁市场也备受青睐。现场展出的多款机器狗，既可作为趣味十足的“电子宠物”供市民互动体验，也能在工商业
+中新社杭州4月27日电 (鲍梦妮 张悦)据中国国家电网浙江省电力有限公司27日消息，一季度浙江全省算力中心用电量达15.29亿千瓦时，同比(下同)增长26.43%，规模与增速均刷新历史纪录。 一季度，从用电结构来看，浙江大型与超大型算力项目成为增长“主力军”。大型算力中心用电量达7.24亿千瓦时，增长42.06%，对浙江算力用电增量的贡献率超六成；超大型算力中心用电量激增186
 
 ## 正文
 
-发布时间：2026年05月10日 18:04 来源：中国新闻网 近日，记者探访安徽省首家机器人9N中心。
+中新社杭州4月27日电 (鲍梦妮 张悦)据中国国家电网浙江省电力有限公司27日消息，一季度浙江全省算力中心用电量达15.29亿千瓦时，同比(下同)增长26.43%，规模与增速均刷新历史纪录。
 
-这里汇聚了服务、医疗、教育、娱乐等百余种机器人产品，是一座集体验与展示于一体的机器人智能生活体验馆。
+一季度，从用电结构来看，浙江大型与超大型算力项目成为增长“主力军”。
 
-中心展示了多款人形机器人，这些机器人已投入商业场景、工厂作业等实际应用，在租赁市场也备受青睐。
+大型算力中心用电量达7.24亿千瓦时，增长42.06%，对浙江算力用电增量的贡献率超六成；超大型算力中心用电量激增1863.15%，贡献率达20.20%；中小型算力中心平稳运行，增长5.85%。
 
-现场展出的多款机器狗，既可作为趣味十足的“电子宠物”供市民互动体验，也能在工商业场景中承担安保、消防、危险区域巡检等工作，替代人类完成高危作业。
+今年3月，浙江全省算力中心最大用电负荷达111.06万千瓦，平均负荷100.83万千瓦，同比均实现30%以上增长；日最小与最大负荷平均比值达92.72%，峰谷差极小。
 
-张俊 刘怡果 安徽合肥报道 责任编辑：【周驰】
+节假日算力中心日均负荷率达98.06%，略高于工作日，算力需求不受假期影响，全天候稳定运转。
+
+近年来浙江算力基础设施建设提速扩容。
+
+截至2025年底，该省已建成投用的总算力规模超156EFLOPS，算力构成高度向智算聚焦，其中智能算力达151EFLOPS，占比96.58%。
+
+预计到2026年底，该省算力规模有望实现翻番。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [突发！美联储，降息预期生变！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:35 - [美好生活，“体验”一下——“经济新活力”系列评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:55 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:34 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:40 - [OPPO母亲节文案引争议，中国广告协会：坚决抵制扭曲亲情等营销行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:57 - [涉疫邮轮20名英国公民回国接受隔离观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:59 - [福建推动闽台合作模式向“联合研发、共创品牌”升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:53 - [中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:49 - [文化观察：AI时代 “美商”如何守住人的感知力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:35 - [火箭公司业绩超预期，AI与收购加速扭亏为盈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:38 - [广州827项度夏项目全面投运 筑牢夏季供电“安全堤”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:03 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:44 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:45 - [伪满皇宫博物院举办吉林省首个海事文化科普展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:38 - [科创综指，历史新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:04 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:53 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:38 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:01 - [韩国总统府：谷歌将在韩国新建人工智能园区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:01 - [2026年芒市海关综合技术服务中心预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:45 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？](http://www.share.minike.top/Article/details/2034171.shtml)
-- 2026-06-29 11:46 - [中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开](http://www.share.minike.top/Article/details/89456527935.shtml)
-- 2026-06-29 11:39 - [2026虹桥国际咖啡文化节启动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [连续8周32场“村超”足球赛在黑龙江集贤火热开赛](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [重庆巴南贴“陆”出海：变过路“流量”为发展“留量”](http://www.blog.kurohicncr.top/Article/details/103900091.shtml)
-- 2026-06-29 11:40 - [把生姜当水果吃，1天1斤坚持多年？专家提醒](http://www.share.kurohicncr.top/Article/details/77381147.shtml)
-- 2026-06-29 11:36 - [文远知行-W于5月8日斥资133.11万美元回购54万股](http://www.share.minike.top/Article/details/35646.shtml)
-- 2026-06-29 11:57 - [伊朗驻华大使：我们不会忘记中国的帮助](http://www.blog.minike.top/Article/details/8839918.shtml)
-- 2026-06-29 11:35 - [三星未来退市后售后与售卖仍如常？线下探店解答！](http://www.share.minike.top/Article/details/4480374814.shtml)
-- 2026-06-29 11:46 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](http://www.share.minike.top/Article/details/4580961.shtml)
-- 2026-06-29 11:50 - [外贸从沿海“独唱”转向全域协同发力 跨境供应链韧性持续增强](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [“仰望布达拉”敬庭尧绘画艺术展在拉萨开幕](http://www.blog.minike.top/Article/details/3430824.shtml)
-- 2026-06-29 11:55 - [巴基斯坦拟首次发行熊猫债 规模至多为17.5亿元人民币](http://www.share.kurohicncr.top/Article/details/215092.shtml)
-- 2026-06-29 11:42 - [海辰储能叶蓁：储能需求不是“跑马圈地”，而是电网刚需的真实拉动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [福建武夷山迎来制茶繁忙季](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](http://www.blog.minike.top/Article/details/918417277700.shtml)
+- 2026-06-29 11:56 - [交通银行：400亿元二级资本债券（债券通）发行完毕](http://www.share.kurohicncr.top/Article/details/1818362635.shtml)
+- 2026-06-29 11:44 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](http://www.blog.minike.top/Article/details/281170721.shtml)
+- 2026-06-29 12:05 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](http://www.blog.minike.top/Article/details/07117671.shtml)
+- 2026-06-29 11:40 - [2026广东时装周（春季）以时尚之力赋能产业升级](http://www.share.kurohicncr.top/Article/details/680002565.shtml)
+- 2026-06-29 12:03 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](http://www.blog.kurohicncr.top/Article/details/93716.shtml)
+- 2026-06-29 11:43 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](http://www.blog.kurohicncr.top/Article/details/2114218476.shtml)
+- 2026-06-29 11:46 - [美国政府：白宫晚宴枪手意图刺杀特朗普](http://www.share.minike.top/Article/details/57641262302.shtml)
+- 2026-06-29 12:05 - [秦农银行国有持股占比首超50%](http://www.blog.kurohicncr.top/Article/details/910895.shtml)
+- 2026-06-29 11:56 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](http://www.share.kurohicncr.top/Article/details/06114.shtml)
+- 2026-06-29 11:48 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [2026年“汉语桥”比利时赛区决赛举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [张雪发视频回应力挺余承东，称“拒绝了半个亿的商务合作”](http://www.share.minike.top/Article/details/0545244.shtml)
+- 2026-06-29 11:37 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](http://www.blog.minike.top/Article/details/59427204.shtml)

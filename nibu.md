@@ -1,56 +1,60 @@
-# 河南洛阳：2000余株高山牡丹竞相绽放
+# 软银携手科技巨头，打造5000亿美元AI数据中心
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？曾经的“高端王者”，在中国为啥打不动了？母亲节催热“带妈游”，两代人怎么玩更融洽？“中式生活”何以出海：华裔朱溪瑞的“中国人守则”英国政坛地震，斯塔默“首相生涯面临终结”？价格腰斩！今年小龙虾为何这么便宜？她带着500万美元，义无反顾回国英伟达重金押注光连接，AI的下一战场或在光纤住进“全李酒店”“又庭酒店”，能索赔吗？岛内学者：
+软银集团正将其美国俄亥俄州巨型AI数据中心的构想变为现实，并吸引了众多科技巨头关注。据报道，谷歌和微软正在商谈入驻事项，英伟达、Meta和OpenAI等公司也对锁定这一关键算力容量表现出浓厚兴趣。 这个位于朴次茅斯场址的项目规模之巨大前所未有。该中心一旦建成，总用电容量可达10吉瓦，总投资可能高达5000亿美元，将一跃成为全球最大的人工智能数据中心之一，其规模超过了谷歌、亚马逊
 
 ## 正文
 
-一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？
+软银集团正将其美国俄亥俄州巨型AI数据中心的构想变为现实，并吸引了众多科技巨头关注。
 
-曾经的“高端王者”，在中国为啥打不动了？
+据报道，谷歌和微软正在商谈入驻事项，英伟达、Meta和OpenAI等公司也对锁定这一关键算力容量表现出浓厚兴趣。
 
-母亲节催热“带妈游”，两代人怎么玩更融洽？
+这个位于朴次茅斯场址的项目规模之巨大前所未有。
 
-“中式生活”何以出海：华裔朱溪瑞的“中国人守则”英国政坛地震，斯塔默“首相生涯面临终结”？
+该中心一旦建成，总用电容量可达10吉瓦，总投资可能高达5000亿美元，将一跃成为全球最大的人工智能数据中心之一，其规模超过了谷歌、亚马逊、微软等所有大型科技公司目前运营的AI数据中心总和。
 
-价格腰斩！
+为确保数据中心充足的能源供应，该项目还计划同步建设投资额逾330亿美元的天然气发电设施，总装机容量高达9.2吉瓦，预计在本年代末前完成安装。
 
-今年小龙虾为何这么便宜？
+该项目的投资采用了一种共享模式。
 
-她带着500万美元，义无反顾回国英伟达重金押注光连接，AI的下一战场或在光纤住进“全李酒店”“又庭酒店”，能索赔吗？
+软银主要通过大规模融资负责数据中心建筑和电力设施的建设，这部分投资约2000亿美元；而入驻的科技公司将承担服务器和AI芯片的采购费用，这部分约占总投资的60%-70%，即3000亿美元。
 
-岛内学者：赖清德媚日到无耻无骨无格，是台湾悲哀《目瑙纵歌》爆火，这位80后北京音乐人有更大的计划为何刘涛是妈祖文化全球推广大使？
+进入4月，软银已经开始就此进行初步招标。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [东西问丨杨惠姗：海峡两岸琉璃艺术如何共舞世界艺林？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:48 - [消息人士称目前霍尔木兹海峡周边地区局势平静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:32 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:45 - [微软在非洲的数据中心因付款问题陷入困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:58 - [武汉融入“三个丝绸之路” 打造内陆开放新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:42 - [“文化中国·水立方杯”中文歌曲大赛印尼总决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:34 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:50 - [宏微科技：公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:45 - [我国营商环境持续改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:45 - [训修实业将于6月8日派发末期股息每股0.027港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:42 - [姑苏城外瑞光塔 夜半灯火照客游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:00 - [1.8米杖头木偶亮相厦门“屿见闽南” 16米长绸翩舞引惊呼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:40 - [中天期货:商品指数板块分化小反弹 原油短线反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:47 - [重庆银行：一季度归母净利润17.93亿元 同比增长10.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:05 - [多部门协同发力 上海出台14项举措助力民营经济高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:49 - [德国据悉尝试为德国商业银行寻找白衣骑士 以应对裕信银行的收购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:50 - [上海家化一季度扣非净利润同比增长38.2%，四个聚焦战略加速兑现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:53 - [台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:40 - [GTC泽汇:尼日利亚炼化驱动转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:53 - [我国拟修改水法提升水安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:49 - [APEC中国年，中美互动预期几何？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:03 - [“探店”网红白冰偷税被查 追缴并罚款共计超1891万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:57 - [大美边疆看我家丨内蒙古锡林浩特：百鸟翔集绘春图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:47 - [陈旭：日方应恪守中日四个政治文件 勿因错误言论干扰APEC合作环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:52 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.blog.minike.top/Article/details/17747860.shtml)
-- 2026-06-29 11:41 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](http://www.blog.kurohicncr.top/Article/details/541371956.shtml)
-- 2026-06-29 11:53 - [德国3月对美出口大幅下滑](http://www.share.minike.top/Article/details/577033.shtml)
-- 2026-06-29 11:42 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](http://www.blog.minike.top/Article/details/370255079.shtml)
-- 2026-06-29 11:57 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](http://www.blog.minike.top/Article/details/20912862101.shtml)
-- 2026-06-29 11:30 - [“中国式安全感”为何圈粉世界（人民时评）](http://www.share.minike.top/Article/details/86129575.shtml)
-- 2026-06-29 11:47 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](http://www.share.kurohicncr.top/Article/details/59911593.shtml)
-- 2026-06-29 11:57 - [酒价内参5月11日价格发布：飞天茅台下跌2元](http://www.share.minike.top/Article/details/974139370286.shtml)
-- 2026-06-29 11:48 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](http://www.blog.kurohicncr.top/Article/details/92417.shtml)
-- 2026-06-29 11:54 - [韩国产业部长与美方官员洽谈投资协议](http://www.share.minike.top/Article/details/6893023712.shtml)
-- 2026-06-29 11:59 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](http://www.blog.kurohicncr.top/Article/details/8938934.shtml)
-- 2026-06-29 11:52 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](http://www.blog.kurohicncr.top/Article/details/47165547583.shtml)
-- 2026-06-29 11:44 - [保时捷关停三家子公司裁员500人 持续推进业务转型](http://www.share.kurohicncr.top/Article/details/8199750.shtml)
-- 2026-06-29 11:53 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](http://www.blog.kurohicncr.top/Article/details/38493223417.shtml)
-- 2026-06-29 11:50 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.share.kurohicncr.top/Article/details/618706.shtml)
+- 2026-06-29 12:04 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](http://www.blog.minike.top/Article/details/13379.shtml)
+- 2026-06-29 11:54 - [珠江流域进一步强化节约用水管理工作](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [“五一”假期预计全国日均租车量将超70万辆](http://www.blog.minike.top/Article/details/015462202552.shtml)
+- 2026-06-29 12:03 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](http://www.share.kurohicncr.top/Article/details/53979788206.shtml)
+- 2026-06-29 12:03 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](http://www.blog.minike.top/Article/details/224289060704.shtml)
+- 2026-06-29 11:40 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](http://www.share.minike.top/Article/details/23277073903.shtml)
+- 2026-06-29 11:44 - [长江“微笑天使”又添丁，见证江苏生态之变](http://www.blog.kurohicncr.top/Article/details/36453931881.shtml)
+- 2026-06-29 11:45 - [春到桑干河](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [一季度浙江算力中心用电规模和增速创新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](http://www.share.kurohicncr.top/Article/details/21373882529.shtml)
+- 2026-06-29 11:46 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](http://www.blog.kurohicncr.top/Article/details/203219307.shtml)
+- 2026-06-29 11:52 - [互联网广告要跳出“流量至上”误区](http://www.share.minike.top/Article/details/02609507851.shtml)

@@ -1,59 +1,60 @@
-# 中美元首即将北京会晤，两国关系再迎重要时刻
+# 《公开募捐平台服务管理办法》解读
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-应中国国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。这将是中美元首继去年韩国釜山会晤之后，时隔半年多又一次面对面，也是美国总统近9年来首次访华。 作为世界上最重要的双边关系，中美关系牵动各方、影响全球。如今，随着特朗普访华事宜的正式官宣，中美关系即将迎来的重要时刻迅速占据全球媒体头条。 元首外交是“定盘星” 元首外交始终是中美关系的“定盘星”，两国
+近日，民政部、工业和信息化部、广电总局、国家新闻出版署、国家网信办印发修订后的《公开募捐平台服务管理办法》，自2026年5月1日起施行。现解读如下： 一、修订背景 2016年，民政部、工业和信息化部、国家新闻出版广电总局、国家网信办联合制定了《公开募捐平台服务管理办法》(以下简称《办法》)，对广播、电视、报刊及网络服务提供者、电信运营商为慈善组织开展公开募捐活动或者发布公开募捐
 
 ## 正文
 
-应中国国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。
+近日，民政部、工业和信息化部、广电总局、国家新闻出版署、国家网信办印发修订后的《公开募捐平台服务管理办法》，自2026年5月1日起施行。
 
-这将是中美元首继去年韩国釜山会晤之后，时隔半年多又一次面对面，也是美国总统近9年来首次访华。
+现解读如下： 一、修订背景 2016年，民政部、工业和信息化部、国家新闻出版广电总局、国家网信办联合制定了《公开募捐平台服务管理办法》(以下简称《办法》)，对广播、电视、报刊及网络服务提供者、电信运营商为慈善组织开展公开募捐活动或者发布公开募捐信息提供平台服务的行为进行了规范。
 
-作为世界上最重要的双边关系，中美关系牵动各方、影响全球。
+2023年12月29日，第十四届全国人民代表大会常务委员会第七次会议通过《全国人民代表大会常务委员会关于修改〈中华人民共和国慈善法〉的决定》。
 
-如今，随着特朗普访华事宜的正式官宣，中美关系即将迎来的重要时刻迅速占据全球媒体头条。
+根据修改后的慈善法要求和实践发展需要，需要对《办法》进行修订。
 
-元首外交是“定盘星” 元首外交始终是中美关系的“定盘星”，两国元首之间的每一次会面、每一次深谈，都标注着双边关系的重要坐标。
+二、修订内容此次修订立足慈善法新要求，保持现行《办法》基本框架、体例不变，进行最必要调整。
 
-按照惯例，元首互动之前，双方团队通常会提前沟通，为会晤铺垫议题。
+修订内容主要涉及以下三个方面： 一是增加管理要求。
 
-4月30日，中共中央政治局委员、外交部长王毅同美国国务卿鲁比奥通电话。
+修订后的《办法》第二条要求提供公开募捐平台服务的广播、电视、报刊及网络服务提供者、电信运营商“应当符合《广播电视管理条例》、《出版管理条例》、《互联网信息服务管理办法》、《中华人民共和国电信条例》等规定的条件”，对于网络服务提供者，在符合上述一般性管理要求的基础上，还应当遵守新制定的《互联网公开募捐服务平台管理办法》。
 
-5月12日至13日，中共中央政治局委员、国务院副总理何立峰还将率团赴韩国与美方举行经贸磋商。
+第三条增加了“核实公开募捐方案在民政部门的备案情况”的要求，明确平台服务提供者除了查验慈善组织的登记证书和公开募捐资格证书外，还应当对其公开募捐方案备案情况进行核实。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [福建龙岩：“绿巨人”矿卡奔赴西藏高原“上岗”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:51 - [河南洛阳：2000余株高山牡丹竞相绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:47 - [深圳出海中心正式进入实体化运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:30 - [穗港澳青少年家书抒怀 共品年味同守根脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:53 - [董事长、总经理同日换帅，中泰资管进入“双姜”时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:57 - [Sound Transit在345亿美元资金缺口下重塑项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:51 - [张精科即将入主董事会，杭州银行2026年业绩目标曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:47 - [下周，两大龙头来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:38 - [东西问丨杨惠姗：海峡两岸琉璃艺术如何共舞世界艺林？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:48 - [消息人士称目前霍尔木兹海峡周边地区局势平静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:53 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:46 - [微软在非洲的数据中心因付款问题陷入困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:40 - [武汉融入“三个丝绸之路” 打造内陆开放新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:43 - [小新带你看亚沙：这个展馆为何吸引老外扎堆打卡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:02 - [软银携手科技巨头，打造5000亿美元AI数据中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:43 - [我国拟修订农业法 增加建立粮食安全监测预警制度等内容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:55 - [“全球AI光算力第一股”诞生 上海“芯片先锋队”再添新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:45 - [中国人民银行茂名市分行：普惠金改品牌影响力持续扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:42 - [深圳莲塘口岸单日出入境人次再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:03 - [原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:03 - [视频 | 理财亏716万元，金融街证券被判赔偿10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:58 - [姑苏城外瑞光塔 夜半灯火照客游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:44 - [1.8米杖头木偶亮相厦门“屿见闽南” 16米长绸翩舞引惊呼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:43 - [中天期货:商品指数板块分化小反弹 原油短线反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:05 - [重庆银行：一季度归母净利润17.93亿元 同比增长10.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:00 - [多部门协同发力 上海出台14项举措助力民营经济高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:56 - [德国据悉尝试为德国商业银行寻找白衣骑士 以应对裕信银行的收购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [台立法机构通过蓝白版“防务特别条例草案”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [（乡村行·看振兴）方寸庭院生“金”记](http://www.share.kurohicncr.top/Article/details/23210388205.shtml)
-- 2026-06-29 11:48 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](http://www.blog.kurohicncr.top/Article/details/441596.shtml)
-- 2026-06-29 11:49 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](http://www.share.kurohicncr.top/Article/details/0812384.shtml)
-- 2026-06-29 11:37 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](http://www.blog.kurohicncr.top/Article/details/90775042.shtml)
-- 2026-06-29 11:43 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](http://www.blog.minike.top/Article/details/324004654.shtml)
-- 2026-06-29 11:37 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [德国3月对美出口大幅下滑](http://www.share.kurohicncr.top/Article/details/06046713115.shtml)
-- 2026-06-29 11:46 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](http://www.share.minike.top/Article/details/29325045.shtml)
-- 2026-06-29 11:50 - [“中国式安全感”为何圈粉世界（人民时评）](http://www.blog.kurohicncr.top/Article/details/145153811.shtml)
-- 2026-06-29 11:52 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](http://www.blog.minike.top/Article/details/40543.shtml)
+- 2026-06-29 11:44 - [一季度高技术产业实际使用外资同比增长30.7%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](http://www.share.kurohicncr.top/Article/details/588743489.shtml)
+- 2026-06-29 12:04 - [现场下单！中国机器人“圈粉”爱尔兰老球员](http://www.share.minike.top/Article/details/796113.shtml)
+- 2026-06-29 12:02 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](http://www.share.kurohicncr.top/Article/details/334843.shtml)
+- 2026-06-29 11:51 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](http://www.share.minike.top/Article/details/674101649.shtml)
+- 2026-06-29 11:46 - [002779、603360，被证监会立案！](http://www.share.kurohicncr.top/Article/details/715589355.shtml)
+- 2026-06-29 12:05 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](http://www.share.kurohicncr.top/Article/details/95064667.shtml)
+- 2026-06-29 11:41 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.share.kurohicncr.top/Article/details/4827564254.shtml)
+- 2026-06-29 11:39 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [珠江流域进一步强化节约用水管理工作](http://www.share.minike.top/Article/details/83900289.shtml)
+- 2026-06-29 11:40 - [“五一”假期预计全国日均租车量将超70万辆](http://www.blog.minike.top/Article/details/8468889.shtml)
+- 2026-06-29 11:40 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](http://www.blog.minike.top/Article/details/74736.shtml)
+- 2026-06-29 11:57 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.blog.minike.top/Article/details/56923376.shtml)

@@ -1,53 +1,58 @@
-# 微软在非洲的数据中心因付款问题陷入困境
+# 重庆银行：一季度归母净利润17.93亿元 同比增长10.4%
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-知情人士表示，微软在东非的一个数据中心项目因该公司要求获得付款保障而与肯尼亚政府产生分歧，导致项目延期。 2024年，微软与总部位于阿联酋的人工智能公司G42合作，计划投资10亿美元在肯尼亚建设数据中心，作为其在东非拓展云计算服务的一部分。 据悉，微软和G42曾要求肯尼亚政府承诺每年购买一定容量的服务，但由于肯尼亚政府无法提供微软要求的保障水平，谈判最终破裂。责任编辑：李桐
+4月28日金融一线消息，重庆银行发布2026年一季度报告。数据显示，报告期内，重庆银行实现营业收入39.96亿元，同比增长11.57%；实现归母净利润17.93亿元，同比增长10.4%。 截至2026年3月31日，重庆银行资产总额1.11万亿元，较上年末增加744.04亿元，增幅7.20%。客户存款6149.01亿元，较上年末增加491.97亿元，增幅8.70%。客户贷款和垫款
 
 ## 正文
 
-知情人士表示，微软在东非的一个数据中心项目因该公司要求获得付款保障而与肯尼亚政府产生分歧，导致项目延期。
+4月28日金融一线消息，重庆银行发布2026年一季度报告。
 
-2024年，微软与总部位于阿联酋的人工智能公司G42合作，计划投资10亿美元在肯尼亚建设数据中心，作为其在东非拓展云计算服务的一部分。
+数据显示，报告期内，重庆银行实现营业收入39.96亿元，同比增长11.57%；实现归母净利润17.93亿元，同比增长10.4%。
 
-据悉，微软和G42曾要求肯尼亚政府承诺每年购买一定容量的服务，但由于肯尼亚政府无法提供微软要求的保障水平，谈判最终破裂。
+截至2026年3月31日，重庆银行资产总额1.11万亿元，较上年末增加744.04亿元，增幅7.20%。
 
-责任编辑：李桐
+客户存款6149.01亿元，较上年末增加491.97亿元，增幅8.70%。
+
+客户贷款和垫款总额5629.03亿元，较上年末增加316.18亿元，增幅5.95%。
+
+资产质量方面，重庆银行不良贷款余额62.59亿元，较上年末增加2.26亿元；不良贷款率1.12%，较上年末下降0.02个百分点；拨备覆盖率246.60%，较上年末上升1.02个百分点。
+
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 11:56 - [第三十六届澳门艺术节揭幕 开启多元艺术之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:33 - [保时捷关停三家子公司、裁员500人 持续推进战略重组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:48 - [俄国防部称乌军违反停火安排 对乌军实施对等打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:58 - [康菲石油获挪威批准重启大埃科菲斯克油田](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:59 - [三大指标领跑全球！中国船企加速布局绿色化智能化领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:45 - [广州欧美同学会、广州中华职教社非遗文化交流活动走进南沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:58 - [压缩试验成本 我国室内最大全季冰雪汽车试验基地开建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:43 - [伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:43 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:31 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:30 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:54 - [山东推进场景创新 2027年拟培育入库场景超500项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:34 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:34 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:00 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:51 - [APEC中国年，中美互动预期几何？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:56 - [“探店”网红白冰偷税被查 追缴并罚款共计超1891万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:58 - [大美边疆看我家丨内蒙古锡林浩特：百鸟翔集绘春图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:00 - [陈旭：日方应恪守中日四个政治文件 勿因错误言论干扰APEC合作环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:41 - [湖北：“五一”假期文旅融合主题产品焕新登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:40 - [生态环境部：一季度我国环境空气质量总体改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:00 - [收评：国内期货主力合约涨多跌少 多晶硅跌近7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:45 - [王兆星同志逝世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:53 - [江西省人大常委会原副主任洪礼和一审被判20年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:41 - [高盛：紫金矿业维持“买入”评级 目标价微降至51港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:52 - [2026年度大理海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:00 - [辽宁岫岩：翠绿山林间 夺目映山红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:03 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:38 - [天天学习｜书友习近平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:51 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](http://www.share.minike.top/Article/details/69041307.shtml)
-- 2026-06-29 11:43 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [保时捷关停三家子公司裁员500人 持续推进业务转型](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](http://www.blog.minike.top/Article/details/68360693.shtml)
-- 2026-06-29 11:46 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](http://www.blog.kurohicncr.top/Article/details/82016.shtml)
-- 2026-06-29 11:56 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](http://www.share.kurohicncr.top/Article/details/41467138.shtml)
-- 2026-06-29 11:52 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](http://www.share.kurohicncr.top/Article/details/626013869.shtml)
-- 2026-06-29 11:56 - [第23届世界乳腺健康大会在天津举行](http://www.share.minike.top/Article/details/54664526.shtml)
-- 2026-06-29 11:34 - [突发！美联储，降息预期生变！](http://www.blog.minike.top/Article/details/77240813041.shtml)
-- 2026-06-29 11:46 - [美好生活，“体验”一下——“经济新活力”系列评](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.share.minike.top/Article/details/109309613428.shtml)
-- 2026-06-29 11:31 - [OPPO母亲节文案引争议，中国广告协会：坚决抵制扭曲亲情等营销行为](http://www.blog.minike.top/Article/details/7016815.shtml)
-- 2026-06-29 11:46 - [涉疫邮轮20名英国公民回国接受隔离观察](http://www.share.minike.top/Article/details/820795506081.shtml)
-- 2026-06-29 11:52 - [福建推动闽台合作模式向“联合研发、共创品牌”升级](http://www.share.kurohicncr.top/Article/details/0892732601.shtml)
+- 2026-06-29 11:47 - [春到桑干河](http://www.share.kurohicncr.top/Article/details/863399973.shtml)
+- 2026-06-29 11:46 - [一季度浙江算力中心用电规模和增速创新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](http://www.share.minike.top/Article/details/04121926844.shtml)
+- 2026-06-29 12:04 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](http://www.blog.kurohicncr.top/Article/details/416233146873.shtml)
+- 2026-06-29 11:42 - [互联网广告要跳出“流量至上”误区](http://www.share.minike.top/Article/details/1849532.shtml)
+- 2026-06-29 11:49 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](http://www.share.minike.top/Article/details/14462228326.shtml)
+- 2026-06-29 11:57 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](http://www.share.kurohicncr.top/Article/details/6085054.shtml)
+- 2026-06-29 11:46 - [中国黄河流域137处国家级自然保护区优良率达99.27％](http://www.blog.kurohicncr.top/Article/details/948821.shtml)
+- 2026-06-29 11:57 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](http://www.blog.minike.top/Article/details/36035.shtml)
+- 2026-06-29 11:42 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.share.kurohicncr.top/Article/details/46493.shtml)
+- 2026-06-29 11:57 - [伪满皇宫博物院举办吉林省首个海事文化科普展](http://www.blog.kurohicncr.top/Article/details/745451279.shtml)
+- 2026-06-29 11:53 - [科创综指，历史新高！](http://www.blog.minike.top/Article/details/07416410.shtml)
+- 2026-06-29 11:58 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](http://www.blog.minike.top/Article/details/326704.shtml)
+- 2026-06-29 12:02 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](http://www.blog.minike.top/Article/details/003678.shtml)

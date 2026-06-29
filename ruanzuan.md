@@ -1,61 +1,59 @@
-# 原油基金风险“拉满”：多家银行上调至R5高风险，C4及以下客户被拒之门外
+# 南京苏州两巨头抢滩无人驾驶：T3出行招股书提及78次，曹操出行计划2027年量产
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-华夏时报记者 卢梦雪 北京报道 受油价高波动影响，近期多家银行公告上调代销原油类基金产品风险等级。 5月9日，记者查询多家银行渠道代销情况发现，银行渠道代销的直接跟踪油价的QDII-LOF商品基金，大多已调整为高风险等级（最高等级），当前仅C5 高风险承受能力客户可购买，C4 及以下无法交易。 相关分析人士指出，这一调整背后，既有市场波动倒逼的因素，也有监管要求收紧的考虑。一方
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：鱼禾财经 4月下旬，来自江苏两大网约车巨头，接连在Robotaxi（无人驾驶出租车）赛道投下重磅消息。 4月24日，在2026北京国际汽车展览会上，苏州曹操出行深度参与定义研发的中国首款原生开发Robotaxi原型车——Eva Cab正式亮相。就在两天前，南京T3出行向港交所递交招股书，宣布IPO募集
 
 ## 正文
 
-华夏时报记者 卢梦雪 北京报道 受油价高波动影响，近期多家银行公告上调代销原油类基金产品风险等级。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-5月9日，记者查询多家银行渠道代销情况发现，银行渠道代销的直接跟踪油价的QDII-LOF商品基金，大多已调整为高风险等级（最高等级），当前仅C5 高风险承受能力客户可购买，C4 及以下无法交易。
+来源：鱼禾财经 4月下旬，来自江苏两大网约车巨头，接连在Robotaxi（无人驾驶出租车）赛道投下重磅消息。
 
-相关分析人士指出，这一调整背后，既有市场波动倒逼的因素，也有监管要求收紧的考虑。
+4月24日，在2026北京国际汽车展览会上，苏州曹操出行深度参与定义研发的中国首款原生开发Robotaxi原型车——Eva Cab正式亮相。
 
-一方面，原油市场大幅波动引发风险敞口扩大，银行须进行风险“排雷”以确保客户资金安全；另一方面，2025年下半年以来多项监管新规密集落地，对产品适当性管理提出更明确、更严格的要求。
+就在两天前，南京T3出行向港交所递交招股书，宣布IPO募集资金将优先用于建设全栈Robotaxi能力。
 
-多家银行上调代销原油类基金风险等级 受地缘政治因素影响，原油价格剧烈波动以来，众多原油类基金净值出现高波动。
+“吉利Robotaxi最重要商业化载体” 曹操出行发布首款原生开发无人驾驶出租车 从硬件上看，曹操出行Eva Cab最抢眼的特征是没有方向盘，这正折射出其与市面上多数Robotaxi在开发逻辑上的不同。
 
-近期，已有多家银行调整其代销的原油类基金产品风险等级。
+图源：曹操出行 目前市面上的多数Robotaxi，都采用“后装改制”模式，即采购现成的量产车，通过追加自动驾驶设备，实现测试运营能力。
 
-其中，上海银行将其代销的易方达原油证券投资基金（QDII）A类、C类人民币份额的风险等级从中高风险（R4）调整至高风险（R5）。
+而Eva Cab从设计之初，就以L4级自动驾驶场景为参考，将智驾系统、感知硬件等内嵌到造车环节。
 
-宁波银行将“易方达原油人民币C”及“易方达原油人民币A”从中高风险调整为高风险。
+据曹操出行披露，这款定制化车型计划于2027年实现量产，长远目标是到2030年累计投放10万辆，逐步推进规模化运营。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [涉汉坦病毒疫情邮轮抵达西班牙特内里费岛水域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:35 - [看图学习·人民之心丨读懂“为谁创造业绩”的根本立场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:49 - [短道速滑世界冠军李佳军：每一滴拼搏的汗水都自有光芒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:39 - [估值高企业绩萎靡，国晟科技提示四大核心风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:59 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:58 - [中美元首即将北京会晤，两国关系再迎重要时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:48 - [昌九高铁全线无砟轨道浇筑完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:30 - [AI造假潜入“买家秀” 消费权益如何守护？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:50 - [非遗进茶馆 重庆市民品茗感受巴渝文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:50 - [江苏省水利厅原一级巡视员朱海生接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:53 - [余额宝收益率为何跌破“1”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:46 - [西班牙发现一例汉坦病毒疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:35 - [福建龙岩：“绿巨人”矿卡奔赴西藏高原“上岗”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:58 - [河南洛阳：2000余株高山牡丹竞相绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:54 - [深圳出海中心正式进入实体化运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:03 - [首都机场“五一”假期预计运送旅客102.3万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:51 - [美国库恩基金会主席人民日报撰文：制度优势成就中国发展的“接力跑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:01 - [北京银行去年净利润同比降逾23%，一季度净利润同比增逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:49 - [越来越多中国茶饮等品牌开启新一轮出海热潮 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:44 - [葛优调侃“与三元合作已过二十年”：我一直在想怎么不找我了，是不是等我长头发呢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:47 - [《公开募捐平台服务管理办法》解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:55 - [强脑科技为什么做假肢？韩璧丞：因为遇到一位残障大学生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:02 - [邦达亚洲:多重利空因素打压 美元指数小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:39 - [新教育完美教室班本课程研发专题研讨会在沪举办 聚焦卓越课程与幸福教育](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:36 - [“剪映”“猫箱”“即梦AI”因合成内容标识违法问题被依法查处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:51 - [迎来24项“国家红利”，综保区加速扩能提质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:53 - [中国再保险：中再寿险一季度净亏损2.51亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:36 - [小新带你看亚沙：这个展馆为何吸引老外扎堆打卡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](http://www.share.kurohicncr.top/Article/details/445954.shtml)
-- 2026-06-29 11:42 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](http://www.blog.minike.top/Article/details/359000491628.shtml)
-- 2026-06-29 11:33 - [山东推进场景创新 2027年拟培育入库场景超500项](http://www.share.minike.top/Article/details/703646016634.shtml)
-- 2026-06-29 11:30 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](http://www.share.minike.top/Article/details/63336.shtml)
-- 2026-06-29 11:56 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](http://www.blog.kurohicncr.top/Article/details/53153349.shtml)
-- 2026-06-29 11:51 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](http://www.blog.kurohicncr.top/Article/details/9823159.shtml)
-- 2026-06-29 11:52 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [赢家时尚附属透过中信证券认购5000万元基金份额](http://www.blog.minike.top/Article/details/6270147563.shtml)
-- 2026-06-29 11:56 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](http://www.share.minike.top/Article/details/9902967542.shtml)
-- 2026-06-29 11:36 - [杨涛：智能体技术推动银行业智能化转型](http://www.blog.kurohicncr.top/Article/details/8310108.shtml)
-- 2026-06-29 11:38 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](http://www.share.kurohicncr.top/Article/details/6884205744.shtml)
-- 2026-06-29 11:57 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.blog.minike.top/Article/details/383174981492.shtml)
-- 2026-06-29 11:41 - [（乡村行·看振兴）方寸庭院生“金”记](http://www.blog.minike.top/Article/details/067523603.shtml)
+- 2026-06-29 12:00 - [高盛：紫金矿业维持“买入”评级 目标价微降至51港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [2026年度大理海关部门预算公开](http://www.share.kurohicncr.top/Article/details/81059.shtml)
+- 2026-06-29 12:03 - [辽宁岫岩：翠绿山林间 夺目映山红](http://www.share.minike.top/Article/details/248749716.shtml)
+- 2026-06-29 11:59 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](http://www.blog.minike.top/Article/details/433981615376.shtml)
+- 2026-06-29 12:03 - [天天学习｜书友习近平](http://www.share.minike.top/Article/details/4069223.shtml)
+- 2026-06-29 11:37 - [“国产GPU第一股”摩尔线程，开盘666！](http://www.blog.kurohicncr.top/Article/details/3651875.shtml)
+- 2026-06-29 11:52 - [2026年3月广东省进口重点商品总值表（人民币值）](http://www.share.minike.top/Article/details/822479850944.shtml)
+- 2026-06-29 11:45 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](http://www.share.minike.top/Article/details/83607997524.shtml)
+- 2026-06-29 11:50 - [拉卡拉：“炒股”大赚，主业承压](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](http://www.blog.minike.top/Article/details/7432994.shtml)
+- 2026-06-29 11:51 - [时政微周刊丨总书记的一周（4月20日—4月26日）](http://www.share.kurohicncr.top/Article/details/011198.shtml)
+- 2026-06-29 11:55 - [从课堂到云端 自媒体重构海外华文教育生态](http://www.blog.minike.top/Article/details/3823362477.shtml)
+- 2026-06-29 12:00 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](http://www.share.kurohicncr.top/Article/details/81305.shtml)
+- 2026-06-29 11:44 - [一季度高技术产业实际使用外资同比增长30.7%](http://www.blog.minike.top/Article/details/166016871.shtml)
+- 2026-06-29 11:49 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](http://www.share.minike.top/Article/details/65455083.shtml)

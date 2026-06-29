@@ -1,57 +1,50 @@
-# 特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构
+# 法学大先生·张晋藩
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-白宫国家经济委员会主任凯文·哈塞特暗示Jeffrey Gundlach提出的对美国国债进行重组的设想实际上相当于违约，其明确表示，这种情况不可能出现。 哈塞特周五在接受采访时表示：“这届政府绝对不可能做出任何看起来像债务违约的事情，100万年内都不会发生。” DoubleLine Capital的首席执行官Gundlach周四在采访中表示，虽然可能性不大，但美国未来某个时候或许
+“人民教育家”、中国政法大学终身教授张晋藩，七十余载深耕中国法制史，是新中国中国法制史学科的主要创建者和杰出代表。 他坚守杏坛七十余载，潜心育人，培育百余名博士英才；伏案治学，笔耕不辍，撰写六十余部专著，二十余部教材；凝心聚力，久久为功，十九载编纂鸿篇巨制《中国法制通史》，引领中国法制史研究走向世界。观看《法学大先生》纪录片第一期，感悟张晋藩的家国情怀与法治初心。 联合出品丨中
 
 ## 正文
 
-白宫国家经济委员会主任凯文·哈塞特暗示Jeffrey Gundlach提出的对美国国债进行重组的设想实际上相当于违约，其明确表示，这种情况不可能出现。
+“人民教育家”、中国政法大学终身教授张晋藩，七十余载深耕中国法制史，是新中国中国法制史学科的主要创建者和杰出代表。
 
-哈塞特周五在接受采访时表示：“这届政府绝对不可能做出任何看起来像债务违约的事情，100万年内都不会发生。
+他坚守杏坛七十余载，潜心育人，培育百余名博士英才；伏案治学，笔耕不辍，撰写六十余部专著，二十余部教材；凝心聚力，久久为功，十九载编纂鸿篇巨制《中国法制通史》，引领中国法制史研究走向世界。
 
-” DoubleLine Capital的首席执行官Gundlach周四在采访中表示，虽然可能性不大，但美国未来某个时候或许会选择将债券投资者持有的持有较高票息国债置换为票息更低的债券，覆盖整个期限结构。
+观看《法学大先生》纪录片第一期，感悟张晋藩的家国情怀与法治初心。
 
-他还称已在其投资组合中作出调整，便于提前应对这种可能性。
-
-哈塞特还表示，特朗普政府致力于财政纪律，并以联邦政府员工数量减少为证。
-
-他补充称，美国经济增长正在加快，类似于上世纪90年代，这将有助于像当年一样降低政府债务负担。
-
-在被追问票息调整设想时，哈塞特表示：“我们不会做任何事情，除了保持财政负责任。
-
-我们相信强势美元，也相信一个财政稳健、负责任的政府。
+联合出品丨中国法学交流基金会 法治日报社法治网 出品人丨张所菲 万学忠 总制片人丨张所菲 余飞 总策划丨张所菲 赵颖 总顾问丨黄文艺 吴韬 总导演、总撰稿丨罗子建 本集制片人丨马亮 张冬梅 策划丨李青 胡建霞 孙剑 统筹丨李青 戎珊 导演丨刘东生 丁武胜 赵慧 撰稿丨魏瑞东 丁武胜 解说丨李立宏 鸣谢单位 中央政法委六局 中央政法委宣传教育局 中国法学会研究部 中国法学会机关党委(人事部)宣传处 中国法学会法学教育研究会 《民主与法制》社 中国政法大学党委宣传部/教师工作部 中国政法大学法律史学研究院 特别支持 中国法学交流基金会金融服务与法治建设专项基金 北京中宝国祐科技有限公司 制作单位 北京电广数科文化产业有限公司 来源：法治日报-法治网
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [北约国家为特朗普从欧洲撤出更多部队做准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:55 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:36 - [纳睿雷达完成董事会换届：包晓军当选董事长并任总裁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:47 - [人形机器人与上海创新创业青年对话“谈科创”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:32 - [一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:50 - [中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:53 - [2026虹桥国际咖啡文化节启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:33 - [连续8周32场“村超”足球赛在黑龙江集贤火热开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:56 - [重庆巴南贴“陆”出海：变过路“流量”为发展“留量”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:55 - [把生姜当水果吃，1天1斤坚持多年？专家提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:36 - [文远知行-W于5月8日斥资133.11万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:48 - [青海西宁：文体商旅融合点燃五月高原消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:51 - [2026年3月广东省外贸进出口总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:54 - [跨境电商架桥梁 让互利之花在中越边境绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:05 - [韩国上市公司总市值首次突破6000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:45 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:40 - [交通银行：400亿元二级资本债券（债券通）发行完毕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:03 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:04 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:40 - [2026广东时装周（春季）以时尚之力赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:00 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:59 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:46 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [2026中国田径街头巡回赛揭幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）](http://www.blog.kurohicncr.top/Article/details/30123303.shtml)
-- 2026-06-29 11:53 - [恒瑞医药香港办公室正式启用](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](http://www.share.kurohicncr.top/Article/details/598966156.shtml)
-- 2026-06-29 11:35 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](http://www.share.kurohicncr.top/Article/details/84624.shtml)
-- 2026-06-29 11:57 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [山西深挖气候资源潜力 释放气象数据价值](http://www.blog.minike.top/Article/details/089495135.shtml)
-- 2026-06-29 11:32 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](http://www.blog.kurohicncr.top/Article/details/8237162200.shtml)
-- 2026-06-29 11:50 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.blog.kurohicncr.top/Article/details/36961882.shtml)
-- 2026-06-29 11:34 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](http://www.blog.minike.top/Article/details/19878348223.shtml)
-- 2026-06-29 11:35 - [OpenAI的安全与治理受到严格审视](http://www.share.minike.top/Article/details/7254825.shtml)
-- 2026-06-29 11:51 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](http://www.blog.kurohicncr.top/Article/details/21733073.shtml)
-- 2026-06-29 11:44 - [证监会严肃查处清越科技财务造假案件](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](http://www.share.kurohicncr.top/Article/details/27783.shtml)
-- 2026-06-29 11:56 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](http://www.blog.kurohicncr.top/Article/details/835236257.shtml)
+- 2026-06-29 11:56 - [中非银联体召开第二届高官会暨中非金融合作研讨会](http://www.blog.minike.top/Article/details/5297880.shtml)
+- 2026-06-29 11:50 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](http://www.blog.minike.top/Article/details/50718.shtml)
+- 2026-06-29 11:38 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](http://www.blog.kurohicncr.top/Article/details/3104971.shtml)
+- 2026-06-29 11:41 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](http://www.share.minike.top/Article/details/520271.shtml)
+- 2026-06-29 11:36 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [受气象不佳影响 “两马”航线将双向停航](http://www.share.minike.top/Article/details/017017217.shtml)
+- 2026-06-29 11:45 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](http://www.share.kurohicncr.top/Article/details/642489.shtml)
+- 2026-06-29 11:52 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](http://www.blog.minike.top/Article/details/0913962772.shtml)
+- 2026-06-29 11:55 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](http://www.share.kurohicncr.top/Article/details/76490118343.shtml)
+- 2026-06-29 11:57 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](http://www.blog.minike.top/Article/details/36965089517.shtml)
+- 2026-06-29 11:44 - [“鸟中大熊猫”彩鹮首次现身云南云县](http://www.share.kurohicncr.top/Article/details/3258216.shtml)

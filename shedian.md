@@ -1,59 +1,48 @@
-# 男子加油逃单同行人对监控比耶
+# 星动纪元获2亿美元新融资，顺丰集团领投
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-近日，广东梅州丰顺县发生一起加油逃单事件。一辆轿车在加满价值640元的油后，司机未付款便强行逃离现场，同行人员还在逃窜过程中对着监控摄像头嚣张“比耶”。 事发地点位于丰顺县公安局建桥派出所辖区的一家加油站。该车加油后拒绝支付费用，工作人员上前提醒，但驾驶员置之不理，猛踩油门扬长而去。接到报警后，建桥派出所民警迅速展开侦查。调查过程中，警方发现副驾驶的同行人员在逃窜时对着监控摄像
+新浪科技讯 4月27日上午消息，继今年3月完成10亿元战略轮融资后，星动纪元再度完成超2亿美元新一轮融资。本轮融资由顺丰集团领投；红杉中国、IDG资本、中金资本、京铭资本、朝希资本、鲁信创投、聚合资本、隆启投资等知名财务机构联合注资；科捷智能、东风产投、工银资本、联通旗下基金等多家头部产业方共同参与；老股东清控天诚、鸿瑞达亦持续加码增持；市场投资意向远超原定募资目标。 据悉，目
 
 ## 正文
 
-近日，广东梅州丰顺县发生一起加油逃单事件。
+新浪科技讯 4月27日上午消息，继今年3月完成10亿元战略轮融资后，星动纪元再度完成超2亿美元新一轮融资。
 
-一辆轿车在加满价值640元的油后，司机未付款便强行逃离现场，同行人员还在逃窜过程中对着监控摄像头嚣张“比耶”。
+本轮融资由顺丰集团领投；红杉中国、IDG资本、中金资本、京铭资本、朝希资本、鲁信创投、聚合资本、隆启投资等知名财务机构联合注资；科捷智能、东风产投、工银资本、联通旗下基金等多家头部产业方共同参与；老股东清控天诚、鸿瑞达亦持续加码增持；市场投资意向远超原定募资目标。
 
-事发地点位于丰顺县公安局建桥派出所辖区的一家加油站。
+据悉，目前星动纪元已完成首个完成具身智能行业PMF——携手中国邮政、顺丰集团等落地10余个物流中心，在部分高温、潮湿等恶劣环境下，机器人性能接近人类水平，部分实现24小时不间断作业的常态化运营；并在2026Q2开启千台级机器人批量交付，增速高达300%。
 
-该车加油后拒绝支付费用，工作人员上前提醒，但驾驶员置之不理，猛踩油门扬长而去。
-
-接到报警后，建桥派出所民警迅速展开侦查。
-
-调查过程中，警方发现副驾驶的同行人员在逃窜时对着监控摄像头得意地比出胜利手势，态度极其狂妄。
-
-丰顺公安迅速锁定嫌疑人行踪并成功将其抓获。
-
-面对这名气焰嚣张的嫌疑人，办案民警也以同样的“比耶”手势回应，用风趣的方式化解其狂妄姿态。
+（文猛）责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-29 11:54 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:52 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:43 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:46 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:47 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:30 - [“续费刺客”如此“近视”，必撞南墻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:50 - [视频|李大霄：警惕美债务风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:55 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:47 - [索尼在PS5疲软情况下仍寻求利润增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:45 - [中国男队3:0击败日本 斩获伦敦世乒赛男团冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:34 - [【每周经济观察】“两新”成绩单里的民生温度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:54 - [Akamai斩获18亿美元AI云订单，盘前股价飙升27%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:53 - [中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:57 - [姐弟组队勇闯吃瓜比赛 为了赢姐姐拼命“刷刷刷”，弟弟秒变“西瓜粉碎机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:49 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:05 - [美国多地再发生枪击事件，致十余人伤亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:55 - [沃顿教授西格尔：围绕鲍威尔的美联储“大戏”远未落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:49 - [日本北部山火已连烧6天 过火面积超1600公顷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:58 - [重庆法院发布首例承认欧洲仲裁机构裁决案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:42 - [“广货行天下 文旅邀您来”相关活动推出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:45 - [中方禁止外资收购Manus项目，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:58 - [伊朗恢复飞往重要国际目的地航班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:51 - [印尼列车相撞事故已致14死84伤 总统要求彻查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:55 - [美银与高盛因通胀风险及就业数据，推迟下调美联储降息预期](http://www.blog.minike.top/Article/details/150324132.shtml)
-- 2026-06-29 11:37 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.blog.kurohicncr.top/Article/details/8751890.shtml)
-- 2026-06-29 11:39 - [湖北加速打造光电子信息产业世界级集群](http://www.share.minike.top/Article/details/75584618.shtml)
-- 2026-06-29 11:47 - [人工智能科技伦理审查与服务先导计划启动](http://www.share.minike.top/Article/details/31897942.shtml)
-- 2026-06-29 11:46 - [存储芯片股持续飙升：美光与闪迪的上涨动力何在](http://www.blog.kurohicncr.top/Article/details/47691941.shtml)
-- 2026-06-29 11:45 - [美军称执行对伊海上封锁已使58艘商船改变航向](http://www.share.kurohicncr.top/Article/details/22496.shtml)
-- 2026-06-29 11:45 - [“存款搬家”了吗？多家银行定期存款占比继续攀升，业内：最多不同银行之间迁移](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [张文宏复盘“探险邮轮”聚集感染并提出：多国追踪不意味像流感或新冠般易传播](http://www.blog.minike.top/Article/details/658172083726.shtml)
-- 2026-06-29 11:31 - [第十八届“香港杯”外交知识竞赛决赛在港举行 参赛规模创新高](http://www.share.minike.top/Article/details/619942723990.shtml)
-- 2026-06-29 11:43 - [母亲节催热“带妈游”，两代人怎么玩更融洽？](http://www.blog.minike.top/Article/details/38117221.shtml)
-- 2026-06-29 11:38 - [首家试点落地！金融数据跨境合规流通 赋能跨境金融业务](http://www.share.minike.top/Article/details/904676.shtml)
-- 2026-06-29 11:53 - [美元跌破98大关！黄金多头卷土重来？](http://www.share.kurohicncr.top/Article/details/71574.shtml)
-- 2026-06-29 11:57 - [银行自营基金配置“刹车”！2025年行业缩水万亿，股份行城商行领跌](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [原油：油价小幅上涨 海湾冲突威胁停火协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [重庆：桥下闲置空间变身运动场](http://www.share.kurohicncr.top/Article/details/21669604.shtml)
+- 2026-06-29 11:54 - [法治蓝皮书：中国体育反腐法治建设正处于转型关键时期](http://www.blog.kurohicncr.top/Article/details/472560105.shtml)
+- 2026-06-29 11:38 - [江河与共丨从卫星遥感到基因解码！致公党中央给皖江做了五年“全面体检”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [亚市早盘金价小幅走高，因投资者评估伊朗向美国提出的提议](http://www.blog.minike.top/Article/details/6761652991.shtml)
+- 2026-06-29 11:50 - [北京银行：聘任魏昱为首席合规官](http://www.blog.minike.top/Article/details/766649.shtml)
+- 2026-06-29 11:54 - [酒价内参4月28日价格发布：飞天茅台小幅上涨3元](http://www.share.kurohicncr.top/Article/details/306815580263.shtml)
+- 2026-06-29 11:46 - [特朗普：白宫周围很安全 英国国王会非常安全](http://www.blog.minike.top/Article/details/23226340780.shtml)
+- 2026-06-29 11:36 - [新疆伊犁：充电服务提质效 新能源汽车惠民生](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [药明康德一季报营收首破百亿！港股生物医药概念股集体走强](http://www.blog.kurohicncr.top/Article/details/174189801.shtml)
+- 2026-06-29 11:57 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](http://www.blog.minike.top/Article/details/769321254326.shtml)
+- 2026-06-29 11:55 - [美国官宣中东亚洲货币互换大布局，背后深层战略布局藏不住](http://www.share.minike.top/Article/details/9715409163.shtml)
+- 2026-06-29 11:46 - [从老建筑到古运河 扬州这样“有机”生长](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [全国妇联授予徐梦桃等4名女运动员全国三八红旗手称号](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [冀凯股份业绩预告“变脸”：总额法改净额法藏猫腻 投资者索赔窗口已开启](http://www.blog.kurohicncr.top/Article/details/185429154.shtml)
+- 2026-06-29 11:45 - [上海论坛分论坛“共治与协同：构建AI全球治理新秩序”举办](http://www.blog.minike.top/Article/details/7239801.shtml)

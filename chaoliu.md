@@ -1,53 +1,61 @@
-# 伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”
+# 王兆星同志逝世
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-当地时间8日下午，伊朗伊斯兰革命卫队发布消息称，伊朗武装部队当天早些时候在霍尔木兹海峡水域与美国军舰发生“零星冲突”。革命卫队方面没有透露冲突发生的具体地点。 稍早前，有消息称，靠近霍尔木兹海峡的伊朗锡里克地区8日发生爆炸，原因不明。(总台记者 李超)
+新华社北京4月27日电 原中国银行保险监督管理委员会副主席、党委委员王兆星同志，因病于2026年3月17日在北京逝世，享年67岁。 王兆星同志逝世后，中央有关领导同志以不同方式表示哀悼并向其亲属表示慰问。 王兆星，1959年2月生，吉林榆树人。1985年7月参加工作，1983年7月加入中国共产党。1999年3月至2005年6月先后任中国人民银行银行监管一司副司长，中国银行监管组
 
 ## 正文
 
-当地时间8日下午，伊朗伊斯兰革命卫队发布消息称，伊朗武装部队当天早些时候在霍尔木兹海峡水域与美国军舰发生“零星冲突”。
+新华社北京4月27日电 原中国银行保险监督管理委员会副主席、党委委员王兆星同志，因病于2026年3月17日在北京逝世，享年67岁。
 
-革命卫队方面没有透露冲突发生的具体地点。
+王兆星同志逝世后，中央有关领导同志以不同方式表示哀悼并向其亲属表示慰问。
 
-稍早前，有消息称，靠近霍尔木兹海峡的伊朗锡里克地区8日发生爆炸，原因不明。
+王兆星，1959年2月生，吉林榆树人。
 
-(总台记者 李超)
+1985年7月参加工作，1983年7月加入中国共产党。
+
+1999年3月至2005年6月先后任中国人民银行银行监管一司副司长，中国银行监管组组长，中国银行业监督管理委员会银行监管三部主任。
+
+2005年6月至2007年12月任中国银行业监督管理委员会主席助理、党委委员。
+
+2007年12月至2018年3月任中国银行业监督管理委员会副主席、党委委员。
+
+2018年3月至2019年9月任中国银行保险监督管理委员会副主席、党委委员。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:50 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:46 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:42 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:54 - [赢家时尚附属透过中信证券认购5000万元基金份额](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:40 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:45 - [杨涛：智能体技术推动银行业智能化转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:42 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:39 - [台立法机构通过蓝白版“防务特别条例草案”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:53 - [（乡村行·看振兴）方寸庭院生“金”记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:51 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:37 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:39 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:36 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:59 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:01 - [“国产GPU第一股”摩尔线程，开盘666！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:51 - [2026年3月广东省进口重点商品总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:39 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:02 - [拉卡拉：“炒股”大赚，主业承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:51 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:50 - [时政微周刊丨总书记的一周（4月20日—4月26日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:49 - [从课堂到云端 自媒体重构海外华文教育生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:52 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:54 - [一季度高技术产业实际使用外资同比增长30.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:46 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:51 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:43 - [现场下单！中国机器人“圈粉”爱尔兰老球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:05 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:51 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:51 - [002779、603360，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:52 - [福建推动闽台合作模式向“联合研发、共创品牌”升级](http://www.blog.minike.top/Article/details/051863.shtml)
-- 2026-06-29 11:47 - [中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [文化观察：AI时代 “美商”如何守住人的感知力？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [火箭公司业绩超预期，AI与收购加速扭亏为盈](http://www.blog.minike.top/Article/details/597073556536.shtml)
-- 2026-06-29 11:42 - [广州827项度夏项目全面投运 筑牢夏季供电“安全堤”](http://www.blog.minike.top/Article/details/51753.shtml)
-- 2026-06-29 11:34 - [兴化股份（002109）遭证监会立案调查，受损股民可索赔](http://www.share.kurohicncr.top/Article/details/642121.shtml)
-- 2026-06-29 11:43 - [Datadog受AI驱动业绩超预期并上调指引，股价飙升](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [摩根士丹利为何加码职业运动员与演艺人士的复杂财富需求](http://www.share.kurohicncr.top/Article/details/7623932.shtml)
-- 2026-06-29 11:45 - [【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [权威快报|增长14.9% 我国外贸延续良好增长态势](http://www.blog.kurohicncr.top/Article/details/18100122.shtml)
-- 2026-06-29 11:48 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](http://www.share.kurohicncr.top/Article/details/2967841.shtml)
-- 2026-06-29 11:35 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](http://www.blog.kurohicncr.top/Article/details/296117.shtml)
-- 2026-06-29 11:57 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [中国首条深水油气装备工艺管线智能生产线建设完成](http://www.share.kurohicncr.top/Article/details/829061.shtml)
+- 2026-06-29 11:48 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](http://www.blog.kurohicncr.top/Article/details/8113641.shtml)
+- 2026-06-29 11:50 - [韩国总统府：谷歌将在韩国新建人工智能园区](http://www.blog.kurohicncr.top/Article/details/670733286076.shtml)
+- 2026-06-29 12:04 - [2026年芒市海关综合技术服务中心预算公开](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](http://www.share.minike.top/Article/details/3652996.shtml)
+- 2026-06-29 11:42 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](http://www.blog.kurohicncr.top/Article/details/3697711.shtml)
+- 2026-06-29 11:45 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.share.minike.top/Article/details/765586086550.shtml)
+- 2026-06-29 12:00 - [宁夏闽宁镇：短袖订单迎旺季 服装企业赶工忙](http://www.blog.kurohicncr.top/Article/details/8511913502.shtml)
+- 2026-06-29 12:00 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](http://www.blog.kurohicncr.top/Article/details/27216.shtml)
+- 2026-06-29 11:50 - [能源高价推升通胀风险，英债收益率走高](http://www.blog.minike.top/Article/details/35034338.shtml)
+- 2026-06-29 11:55 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](http://www.share.kurohicncr.top/Article/details/12543900.shtml)
+- 2026-06-29 11:47 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](http://www.blog.minike.top/Article/details/326831695686.shtml)
+- 2026-06-29 11:51 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](http://www.share.minike.top/Article/details/84472333.shtml)
+- 2026-06-29 12:00 - [稳面积 提单产 夯实粮食稳产丰产基础](http://www.blog.minike.top/Article/details/42620267.shtml)
+- 2026-06-29 12:03 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](http://www.share.kurohicncr.top/Article/details/58027653.shtml)

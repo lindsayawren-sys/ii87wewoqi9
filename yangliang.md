@@ -1,53 +1,59 @@
-# 广州欧美同学会、广州中华职教社非遗文化交流活动走进南沙
+# 生态环境部：一季度我国环境空气质量总体改善
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-5月10日，时值母亲节之际，广州欧美同学会、广州中华职业教育社在南沙区举办“螺钿雅韵 匠心华彩——走进南沙”非遗文化交流活动。活动由广州市南华工贸技师学院协办，广州欧美同学会文体工委、社服工委及南沙分会联合承办，在穗归国留学人员及家属子女共30余人参加。活动现场，大家走进广州南华珠宝矿物科普基地，近距离观赏珍稀矿物原石，学习矿物知识及应用场景，了解珠宝艺术起源与文化内涵，品鉴匠
+中新网4月27日电 据生态环境部官方微博消息，4月27日，生态环境部召开4月例行新闻发布会，生态环境部新闻发言人裴晓菲介绍，今年第一季度，我国环境空气质量总体改善，部分区域污染有所反弹，地表水环境质量总体稳定。在环境空气质量方面，全国339个地级及以上城市PM2.5平均浓度为40.6微克/立方米，同比下降1.2%；PM10平均浓度为63微克/立方米，同比下降3.1%；平均空气质
 
 ## 正文
 
-5月10日，时值母亲节之际，广州欧美同学会、广州中华职业教育社在南沙区举办“螺钿雅韵 匠心华彩——走进南沙”非遗文化交流活动。
+中新网4月27日电 据生态环境部官方微博消息，4月27日，生态环境部召开4月例行新闻发布会，生态环境部新闻发言人裴晓菲介绍，今年第一季度，我国环境空气质量总体改善，部分区域污染有所反弹，地表水环境质量总体稳定。
 
-活动由广州市南华工贸技师学院协办，广州欧美同学会文体工委、社服工委及南沙分会联合承办，在穗归国留学人员及家属子女共30余人参加。
+在环境空气质量方面，全国339个地级及以上城市PM2.5平均浓度为40.6微克/立方米，同比下降1.2%；PM10平均浓度为63微克/立方米，同比下降3.1%；平均空气质量优良天数比例为76.4%，同比上升0.1个百分点；平均重度及以上污染天数比例为1.6%，同比下降0.2个百分点。
 
-活动现场，大家走进广州南华珠宝矿物科普基地，近距离观赏珍稀矿物原石，学习矿物知识及应用场景，了解珠宝艺术起源与文化内涵，品鉴匠心独运的艺术作品，感悟传统技艺的千年积淀与人文底蕴。
+从重点区域来看，京津冀及周边地区“2+36”城市PM2.5平均浓度为65.1微克/立方米，同比上升26.9%；平均优良天数比例为49.3%，同比下降11.6个百分点；平均重度及以上污染天数比例为2.6%，同比上升1.0个百分点。
 
-在非遗体验工坊，大家跟随专业老师学习螺钿镶嵌传统工艺，亲手制作专属螺钿饰物，在指尖创作中体悟匠人初心，沉浸式感受中华传统文化的独特魅力，以手作温情献礼母亲节。
+长三角地区31个城市PM2.5平均浓度为47.0微克/立方米，同比下降2.3%；平均优良天数比例为69.7%，同比下降0.5个百分点；平均重度及以上污染天数比例为0.4%，同比上升0.1个百分点。
 
-本次活动以非遗为纽带、以亲子交流为载体，既传承弘扬中华优秀传统文化，又增进会员联谊交融、凝聚人心力量。
+汾渭平原13个城市PM2.5平均浓度为55.2微克/立方米，同比上升9.7%；平均优良天数比例为56.9%，同比下降6.6个百分点；平均重度及以上污染天数比例为2.3%，同比下降2.0个百分点。
 
-下一步，广州欧美同学会、广州中华职业教育社将持续搭建文化交流平台，常态化开展特色主题活动，用心讲好大湾区故事、广州故事。
+在地表水环境质量方面，我们对国控断面进行了优化调整，新增了水质较差河流的国控断面。
+
+3030个地表水国控断面中，Ⅰ—Ⅲ类水质比例为89.5%，劣Ⅴ类比例为0.9%。
+
+其中，长江、黄河、珠江、松花江、淮河、海河、辽河等七大流域及西北诸河、西南诸河和浙闽片河流Ⅰ—Ⅲ类水质比例为90.3%，劣Ⅴ类断面比例为0.9%。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:51 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:55 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:37 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:59 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:41 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:41 - [赢家时尚附属透过中信证券认购5000万元基金份额](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:56 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:35 - [杨涛：智能体技术推动银行业智能化转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:35 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:36 - [台立法机构通过蓝白版“防务特别条例草案”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:47 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:54 - [天天学习｜书友习近平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:54 - [“国产GPU第一股”摩尔线程，开盘666！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:49 - [2026年3月广东省进口重点商品总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:43 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:53 - [拉卡拉：“炒股”大赚，主业承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:38 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:45 - [时政微周刊丨总书记的一周（4月20日—4月26日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:00 - [从课堂到云端 自媒体重构海外华文教育生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:03 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:53 - [一季度高技术产业实际使用外资同比增长30.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:38 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:01 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [OPPO母亲节文案引争议，中国广告协会：坚决抵制扭曲亲情等营销行为](http://www.blog.kurohicncr.top/Article/details/980294045465.shtml)
-- 2026-06-29 11:37 - [涉疫邮轮20名英国公民回国接受隔离观察](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [福建推动闽台合作模式向“联合研发、共创品牌”升级](http://www.share.kurohicncr.top/Article/details/66783713409.shtml)
-- 2026-06-29 11:41 - [中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片](http://www.blog.kurohicncr.top/Article/details/0731336.shtml)
-- 2026-06-29 11:46 - [文化观察：AI时代 “美商”如何守住人的感知力？](http://www.share.minike.top/Article/details/784245747176.shtml)
-- 2026-06-29 11:32 - [火箭公司业绩超预期，AI与收购加速扭亏为盈](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [广州827项度夏项目全面投运 筑牢夏季供电“安全堤”](http://www.blog.minike.top/Article/details/155499.shtml)
-- 2026-06-29 11:42 - [兴化股份（002109）遭证监会立案调查，受损股民可索赔](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [Datadog受AI驱动业绩超预期并上调指引，股价飙升](http://www.share.minike.top/Article/details/2392360498.shtml)
-- 2026-06-29 11:56 - [摩根士丹利为何加码职业运动员与演艺人士的复杂财富需求](http://www.share.kurohicncr.top/Article/details/18714.shtml)
-- 2026-06-29 11:41 - [【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？](http://www.blog.minike.top/Article/details/418973.shtml)
-- 2026-06-29 11:50 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](http://www.share.minike.top/Article/details/21045695215.shtml)
-- 2026-06-29 11:35 - [权威快报|增长14.9% 我国外贸延续良好增长态势](http://www.share.minike.top/Article/details/7617248048.shtml)
-- 2026-06-29 11:56 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](http://www.blog.kurohicncr.top/Article/details/6520658.shtml)
+- 2026-06-29 11:41 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](http://www.blog.kurohicncr.top/Article/details/7552000.shtml)
+- 2026-06-29 11:36 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [韩国总统府：谷歌将在韩国新建人工智能园区](http://www.blog.kurohicncr.top/Article/details/89429418.shtml)
+- 2026-06-29 11:54 - [2026年芒市海关综合技术服务中心预算公开](http://www.blog.minike.top/Article/details/3190100.shtml)
+- 2026-06-29 12:05 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](http://www.share.kurohicncr.top/Article/details/26183524.shtml)
+- 2026-06-29 12:03 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](http://www.share.kurohicncr.top/Article/details/5865473249.shtml)
+- 2026-06-29 11:49 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](http://www.share.kurohicncr.top/Article/details/881459.shtml)
+- 2026-06-29 12:03 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.share.minike.top/Article/details/332727810.shtml)
+- 2026-06-29 12:02 - [宁夏闽宁镇：短袖订单迎旺季 服装企业赶工忙](http://www.blog.minike.top/Article/details/3474540.shtml)
+- 2026-06-29 11:54 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](http://www.share.minike.top/Article/details/2395144150.shtml)
+- 2026-06-29 11:38 - [能源高价推升通胀风险，英债收益率走高](http://www.share.minike.top/Article/details/060764489690.shtml)
+- 2026-06-29 11:48 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](http://www.blog.kurohicncr.top/Article/details/842151724723.shtml)
+- 2026-06-29 11:40 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](http://www.blog.kurohicncr.top/Article/details/704530.shtml)

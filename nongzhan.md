@@ -1,61 +1,56 @@
-# 2026虹桥国际咖啡文化节启动
+# 华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新网上海5月9日电 (高志苗)作为闵行区春申美好生活乐购季重点活动的2026虹桥国际咖啡文化节9日在虹桥品汇开幕。本届活动以“咖啡+文商旅体展”深度融合为主线，依托虹桥国际中央商务区区位优势，旨在打造长三角地区集产业、人才与文化于一体的标志性咖啡文化节品牌。 虹桥国际咖啡文化节组委会办公室主任、新虹街道党工委副书记周行君介绍，本届咖啡文化节将以一杯咖啡为媒介，构建“文商旅体展
+来源：华泰期货 作者： 康远宁 市场要闻与重要数据 1、 截至当天收盘，纽约商品交易所6月交货的轻质原油期货价格上涨1.97美元，收于每桶96.37美元，涨幅为2.09%；6月交货的伦敦布伦特原油期货价格上涨2.90美元，收于每桶108.23美元，涨幅为2.75%。SC原油主力合约收涨1.10%，报655元/桶。（来源：Bloomberg） 2、 白宫新闻秘书莱维特向记者透露，
 
 ## 正文
 
-中新网上海5月9日电 (高志苗)作为闵行区春申美好生活乐购季重点活动的2026虹桥国际咖啡文化节9日在虹桥品汇开幕。
+来源：华泰期货 作者： 康远宁 市场要闻与重要数据 1、 截至当天收盘，纽约商品交易所6月交货的轻质原油期货价格上涨1.97美元，收于每桶96.37美元，涨幅为2.09%；6月交货的伦敦布伦特原油期货价格上涨2.90美元，收于每桶108.23美元，涨幅为2.75%。
 
-本届活动以“咖啡+文商旅体展”深度融合为主线，依托虹桥国际中央商务区区位优势，旨在打造长三角地区集产业、人才与文化于一体的标志性咖啡文化节品牌。
+SC原油主力合约收涨1.10%，报655元/桶。
 
-虹桥国际咖啡文化节组委会办公室主任、新虹街道党工委副书记周行君介绍，本届咖啡文化节将以一杯咖啡为媒介，构建“文商旅体展”全域联动模式。
+（来源：Bloomberg） 2、 白宫新闻秘书莱维特向记者透露，美国总统特朗普当天与他的高级国家安全顾问们讨论了一项由伊朗方面提出的、旨在解决战争问题的新提议。
 
-联动虹桥国际中央商务区核心区商业体及企业园区，共同呈现近30场“咖啡+”特色活动。
+根据该提议，霍尔木兹海峡将保持开放，而伊朗核计划的问题则留待日后讨论。
 
-一年一度的《中国城市咖啡发展报告》也正式发布2026版。
+在新闻发布会上回答提问时，莱维特并未就该提议发表具体看法。
 
-报告显示，2025年中国咖啡产业规模达3549亿元，同比增长13.3%，上海咖啡门店达到10336家，已正式跨越“万店”门槛。
+不过她表示，特朗普的底线要求依然如故。
 
-虹桥国际咖啡文化节组委会办公室主任、上海虹桥国际进口商品展销有限公司副总经理朱菁现场解读数据时指出，本届虹桥国际咖啡文化节依托虹桥国际咖啡港的产业特色，围绕产业引领、贸易深化、区域协同、消费创新四大方向，组织开展系列活动，着力将咖啡港打造为国际知名、国内顶尖的咖啡产业集聚及进出口贸易平台。
+特朗普要求霍尔木兹海峡这一石油运输水道必须保持畅通，并要求伊朗交出其浓缩铀。
 
-据悉，本届虹桥国际咖啡文化节联动虹桥国际中央商务区商圈多家商业体及楼宇园区资源，推出虹桥国际咖啡文化节线上消费地图，为市民提供丰富的消费体验。
+莱维特说：“我不会说他们正在‘考虑’这项提议。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:43 - [外贸从沿海“独唱”转向全域协同发力 跨境供应链韧性持续增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:59 - [“仰望布达拉”敬庭尧绘画艺术展在拉萨开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:56 - [巴基斯坦拟首次发行熊猫债 规模至多为17.5亿元人民币](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:30 - [海辰储能叶蓁：储能需求不是“跑马圈地”，而是电网刚需的真实拉动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:54 - [福建武夷山迎来制茶繁忙季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:57 - [飞行学员ICAO英语四级四次没考过 航司起诉要求支付近60万元培训费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:54 - [吉林东辽河源头梨花漫谷 百年古梨风姿依旧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:40 - [欧洲央行管委Kocher：能源形势若无大幅改善 欧洲央行加息不可避免](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:46 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:42 - [沪指开盘站上4200点 储存芯片概念股强势拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:54 - [从撒网到巡岸 四川泸州退捕渔民的“身份之变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:46 - [福州马尾至马祖“小三通”客运航线11日双向停航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:58 - [浙大“三剑客”县城创业：让中国芯用上“中国泵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:46 - [北京人形机器人唐剑：全面提升机器人的泛化能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:58 - [秦农银行国有持股占比首超50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:51 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:36 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:53 - [2026年“汉语桥”比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:02 - [张雪发视频回应力挺余承东，称“拒绝了半个亿的商务合作”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:42 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:01 - [OpenAI进军手机！“牵手”立讯精密！电子板块领涨两市，华宝基金电子ETF（515260）猛拉4.14%，续创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:48 - [上海家化发布2026年一季报：营业收入17.95亿同比增长5.4% 归母净利润2.22亿同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:49 - [德银：迅策目标价上调至351港元 维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:49 - [上海傅利叶董事长顾捷荣获全国五一劳动奖章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](http://www.share.minike.top/Article/details/18166120469.shtml)
-- 2026-06-29 11:32 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](http://www.share.kurohicncr.top/Article/details/511009685.shtml)
-- 2026-06-29 11:58 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](http://www.blog.kurohicncr.top/Article/details/637142340.shtml)
-- 2026-06-29 11:31 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [南京：钟山湖畔 鸭趣盎然](http://www.share.minike.top/Article/details/5621204.shtml)
-- 2026-06-29 11:56 - [中国银联与华为签署战略合作协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](http://www.blog.kurohicncr.top/Article/details/035171.shtml)
-- 2026-06-29 11:33 - [消息人士称巴基斯坦已将伊朗回应传达给美国](http://www.blog.kurohicncr.top/Article/details/47647066.shtml)
-- 2026-06-29 11:58 - [中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位](http://www.share.kurohicncr.top/Article/details/93984304038.shtml)
-- 2026-06-29 11:43 - [美军称向两艘“违反封锁”的伊朗油轮开火](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](http://www.share.kurohicncr.top/Article/details/53253.shtml)
-- 2026-06-29 11:32 - [云冈石窟8个晚期洞窟临时封闭 开展数字化采集](http://www.share.kurohicncr.top/Article/details/55847717431.shtml)
-- 2026-06-29 11:59 - [东博会秘书处携中国味道“出海”进东盟（印尼）专题展启幕](http://www.blog.kurohicncr.top/Article/details/90222173228.shtml)
+- 2026-06-29 11:43 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](http://www.blog.minike.top/Article/details/861729886009.shtml)
+- 2026-06-29 12:04 - [“鸟中大熊猫”彩鹮首次现身云南云县](http://www.share.kurohicncr.top/Article/details/60749.shtml)
+- 2026-06-29 11:48 - [东珠生态业绩预告更正不及时，受损股民可索赔](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](http://www.blog.kurohicncr.top/Article/details/595943.shtml)
+- 2026-06-29 12:04 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](http://www.share.kurohicncr.top/Article/details/674436.shtml)
+- 2026-06-29 11:51 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](http://www.share.minike.top/Article/details/713898.shtml)
+- 2026-06-29 11:38 - [5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究](http://www.share.minike.top/Article/details/607803687439.shtml)
+- 2026-06-29 11:52 - [OpenAI放宽合作限制，微软独占云时代终结](http://www.blog.minike.top/Article/details/1575709249.shtml)
+- 2026-06-29 11:43 - [韩国要求七大电商平台修改不公平条款以加强消费者保护](http://www.blog.minike.top/Article/details/7535995810.shtml)
+- 2026-06-29 11:49 - [阿联酋宣布自5月1日起退出欧佩克 退出后逐步上调石油产量](http://www.share.minike.top/Article/details/1981559.shtml)
+- 2026-06-29 11:59 - [从一座城的两座“灯塔”，看江苏制造业的转型升级之路](http://www.share.minike.top/Article/details/51094.shtml)
+- 2026-06-29 11:42 - [分析：霍尔木兹海峡命运未卜，欧洲央行和英国央行料按兵不动](http://www.blog.kurohicncr.top/Article/details/671198666.shtml)
+- 2026-06-29 11:53 - [2026年度瑞丽海关本级部门预算公开](http://www.blog.minike.top/Article/details/174883961.shtml)
+- 2026-06-29 12:00 - [伊朗暂停出口部分钢铁产品](http://www.blog.minike.top/Article/details/456706.shtml)
+- 2026-06-29 11:46 - [摩根士丹利认为沃什将带来长期机制变革风险 加剧美债市场波动](http://www.blog.minike.top/Article/details/68339717893.shtml)

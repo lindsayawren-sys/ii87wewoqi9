@@ -1,60 +1,48 @@
-# 605006，8天5板！600545，9天4板！A股多个板块爆发！
+# 姚高员辞去杭州市市长职务
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-5月11日，A股三大指数集体高开。盘面上，半导体、消费电子、玻璃玻纤、存储芯片、培育钻石、光通信概念等涨幅居前；贵金属、航空机场、航运港口、房地产服务等板块开盘走低。 港股方面，半导体板块爆发。澜起科技涨超14%，华虹半导体涨近8%，中芯国际涨逾4%。 存储芯片概念再次爆发 A股存储芯片板块高开，普冉股份20%涨停，同有科技、兴福电子、澜起科技、江波龙等多股涨超10%。 消息面
+中新社杭州4月27日电 4月27日，杭州市十四届人大常委会举行第三十四次会议。经审议表决，会议决定接受姚高员辞去杭州市人民政府市长职务，报杭州市人民代表大会备案。 公开资料显示，姚高员生于1968年，浙江慈溪人，曾任浙江省温州市市长、浙江省经济和信息化厅厅长等职，2022年任杭州市市长。(完)
 
 ## 正文
 
-5月11日，A股三大指数集体高开。
+中新社杭州4月27日电 4月27日，杭州市十四届人大常委会举行第三十四次会议。
 
-盘面上，半导体、消费电子、玻璃玻纤、存储芯片、培育钻石、光通信概念等涨幅居前；贵金属、航空机场、航运港口、房地产服务等板块开盘走低。
+经审议表决，会议决定接受姚高员辞去杭州市人民政府市长职务，报杭州市人民代表大会备案。
 
-港股方面，半导体板块爆发。
+公开资料显示，姚高员生于1968年，浙江慈溪人，曾任浙江省温州市市长、浙江省经济和信息化厅厅长等职，2022年任杭州市市长。
 
-澜起科技涨超14%，华虹半导体涨近8%，中芯国际涨逾4%。
-
-存储芯片概念再次爆发 A股存储芯片板块高开，普冉股份20%涨停，同有科技、兴福电子、澜起科技、江波龙等多股涨超10%。
-
-消息面上，周一早盘，SK海力士股价一度上涨逾12%，三星电子股价一度上涨超8%，双双刷新历史新高。
-
-机构研报指出，AI驱动的需求爆发与原厂扩产错位致使缺货常态化，预计供不应求至少持续至2027年，涨价贯穿2026年全年。
-
-看好存储产业趋势，行业有望维持高景气，原厂及相关存储设计公司有望更长时间维持高盈利。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:55 - [北约国家为特朗普从欧洲撤出更多部队做准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:36 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:39 - [纳睿雷达完成董事会换届：包晓军当选董事长并任总裁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:31 - [人形机器人与上海创新创业青年对话“谈科创”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:45 - [一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:55 - [中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:49 - [2026虹桥国际咖啡文化节启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:39 - [连续8周32场“村超”足球赛在黑龙江集贤火热开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:42 - [重庆巴南贴“陆”出海：变过路“流量”为发展“留量”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:57 - [把生姜当水果吃，1天1斤坚持多年？专家提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:51 - [文远知行-W于5月8日斥资133.11万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:44 - [伊朗驻华大使：我们不会忘记中国的帮助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:42 - [三星未来退市后售后与售卖仍如常？线下探店解答！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:53 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:51 - [青海西宁：文体商旅融合点燃五月高原消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:40 - [2026年3月广东省外贸进出口总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:43 - [跨境电商架桥梁 让互利之花在中越边境绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:39 - [韩国上市公司总市值首次突破6000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:01 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:45 - [交通银行：400亿元二级资本债券（债券通）发行完毕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:41 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:41 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:45 - [2026广东时装周（春季）以时尚之力赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](http://www.share.kurohicncr.top/Article/details/62041.shtml)
-- 2026-06-29 11:42 - [2026中国田径街头巡回赛揭幕](http://www.share.kurohicncr.top/Article/details/8500720.shtml)
-- 2026-06-29 11:45 - [5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）](http://www.blog.kurohicncr.top/Article/details/3424151.shtml)
-- 2026-06-29 11:41 - [恒瑞医药香港办公室正式启用](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](http://www.share.minike.top/Article/details/26189.shtml)
-- 2026-06-29 11:47 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](http://www.share.minike.top/Article/details/50591211643.shtml)
-- 2026-06-29 11:34 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](http://www.share.kurohicncr.top/Article/details/35782545719.shtml)
-- 2026-06-29 11:52 - [山西深挖气候资源潜力 释放气象数据价值](http://www.blog.minike.top/Article/details/10395.shtml)
-- 2026-06-29 11:46 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](http://www.blog.minike.top/Article/details/8872566.shtml)
-- 2026-06-29 11:44 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.blog.minike.top/Article/details/5827797.shtml)
-- 2026-06-29 11:58 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](http://www.blog.minike.top/Article/details/363210084657.shtml)
-- 2026-06-29 11:40 - [OpenAI的安全与治理受到严格审视](http://www.blog.kurohicncr.top/Article/details/389973257231.shtml)
-- 2026-06-29 11:30 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](http://www.share.minike.top/Article/details/4884308.shtml)
-- 2026-06-29 11:48 - [证监会严肃查处清越科技财务造假案件](http://www.blog.kurohicncr.top/Article/details/768248181761.shtml)
-- 2026-06-29 11:59 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](http://www.share.minike.top/Article/details/17816.shtml)
+- 2026-06-29 11:39 - [解决新旧海商法衔接适用问题 最高法出台司法解释](http://www.share.minike.top/Article/details/8890168360.shtml)
+- 2026-06-29 12:05 - [中非银联体召开第二届高官会暨中非金融合作研讨会](http://www.blog.kurohicncr.top/Article/details/7526202934.shtml)
+- 2026-06-29 11:42 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](http://www.blog.kurohicncr.top/Article/details/1006243.shtml)
+- 2026-06-29 12:05 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](http://www.share.minike.top/Article/details/03355414.shtml)
+- 2026-06-29 11:48 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](http://www.share.kurohicncr.top/Article/details/77616.shtml)
+- 2026-06-29 11:51 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](http://www.share.kurohicncr.top/Article/details/12093110.shtml)
+- 2026-06-29 11:57 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](http://www.blog.kurohicncr.top/Article/details/276617198967.shtml)
+- 2026-06-29 11:52 - [受气象不佳影响 “两马”航线将双向停航](http://www.share.minike.top/Article/details/5460808.shtml)
+- 2026-06-29 12:04 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](http://www.blog.minike.top/Article/details/5097827810.shtml)
+- 2026-06-29 11:44 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](http://www.share.kurohicncr.top/Article/details/55005.shtml)
+- 2026-06-29 11:41 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](http://www.share.kurohicncr.top/Article/details/126671.shtml)
+- 2026-06-29 11:46 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](http://www.share.minike.top/Article/details/196557683.shtml)
+- 2026-06-29 11:42 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](https://github.com/lisacumin64-arch)

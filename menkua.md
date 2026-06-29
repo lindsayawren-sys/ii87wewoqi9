@@ -1,60 +1,47 @@
-# 山东推进场景创新 2027年拟培育入库场景超500项
+# 辽宁岫岩：翠绿山林间 夺目映山红
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新网济南5月9日电 (陈宛婷)记者9日从山东省人民政府新闻办公室举行的政策例行吹风会上获悉，该省将以场景开放应用为纽带加速创新成果转化，搭建“齐鲁场景”服务平台，到2027年，培育入库场景500项以上，促进不少于200项新技术、新产品、新业态应用推广。 山东省人民政府办公厅近日印发了《关于支持场景培育开放应用推动新质生产力突破发展的行动方案》(以下简称《行动方案》)，聚焦20
+发布时间：2026年04月27日 09:47 来源：中国新闻网 在辽宁多地映山红因为花期提前而过早凋谢的四月末，鞍山市岫岩满族自治县仍有相当规模的映山红傲立山岭，耀眼夺目。(作者：孙成武) 责任编辑：【魏聪聪】
 
 ## 正文
 
-中新网济南5月9日电 (陈宛婷)记者9日从山东省人民政府新闻办公室举行的政策例行吹风会上获悉，该省将以场景开放应用为纽带加速创新成果转化，搭建“齐鲁场景”服务平台，到2027年，培育入库场景500项以上，促进不少于200项新技术、新产品、新业态应用推广。
+发布时间：2026年04月27日 09:47 来源：中国新闻网 在辽宁多地映山红因为花期提前而过早凋谢的四月末，鞍山市岫岩满族自治县仍有相当规模的映山红傲立山岭，耀眼夺目。
 
-山东省人民政府办公厅近日印发了《关于支持场景培育开放应用推动新质生产力突破发展的行动方案》(以下简称《行动方案》)，聚焦20个场景创新攻坚领域，围绕高质量发展、高效能治理、高品质生活三大方向，布局人工智能、低空经济、航空航天、装备制造、智慧水利、医疗健康等重点应用场景，赋能钢铁石化、装备制造等传统产业升级。
-
-山东省发展和改革委员会副主任滕双兴表示，该省将构建“培育—开放—应用—生态”全链条体系，今明两年建设具身智能机器人、智慧矿山等20个左右行业级实验室，推动前沿技术从“实验室”走向“生产线”。
-
-同时，创新“场景贷”、探索“场景入股”，对标杆场景给予激励，引导“耐心资本”注入，为场景落地提供要素保障。
-
-在加速场景推广方面，山东将打造“齐鲁场景”服务平台，省级每年发布场景机会清单、能力清单各50项以上，实现供需智能匹配。
-
-常态化开展“齐鲁场景会客厅——我帮企业找场景”对接活动，为新技术、新产品提供首试首用“社会性中试”平台，破解落地难、推广难问题。
-
-此外，人工智能与制造业深度融合成为重要发力点。
-
-山东省工业和信息化厅二级巡视员王楗夫透露，该省近期将印发《山东省“人工智能+制造”行动方案(2026－2028年)》，到2028年，推广100个左右高价值场景；力争2026年山东人工智能产业营收突破1600亿元(人民币，下同)、规上制造企业人工智能普及率超过40%。
+(作者：孙成武) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 11:59 - [赢家时尚附属透过中信证券认购5000万元基金份额](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:41 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:40 - [杨涛：智能体技术推动银行业智能化转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:49 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:52 - [台立法机构通过蓝白版“防务特别条例草案”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:51 - [（乡村行·看振兴）方寸庭院生“金”记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:40 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:44 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:57 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:52 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:38 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:51 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:32 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:31 - [德国3月对美出口大幅下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:46 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:38 - [时政微周刊丨总书记的一周（4月20日—4月26日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:47 - [从课堂到云端 自媒体重构海外华文教育生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:59 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:03 - [一季度高技术产业实际使用外资同比增长30.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:04 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:46 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:42 - [现场下单！中国机器人“圈粉”爱尔兰老球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:54 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:02 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:04 - [002779、603360，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:52 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:53 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [广州827项度夏项目全面投运 筑牢夏季供电“安全堤”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [兴化股份（002109）遭证监会立案调查，受损股民可索赔](http://www.blog.kurohicncr.top/Article/details/3581081587.shtml)
-- 2026-06-29 11:35 - [Datadog受AI驱动业绩超预期并上调指引，股价飙升](http://www.share.minike.top/Article/details/383804245375.shtml)
-- 2026-06-29 11:41 - [摩根士丹利为何加码职业运动员与演艺人士的复杂财富需求](http://www.blog.minike.top/Article/details/9703989.shtml)
-- 2026-06-29 11:55 - [【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？](http://www.blog.kurohicncr.top/Article/details/674972781.shtml)
-- 2026-06-29 11:36 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](http://www.share.minike.top/Article/details/82197788.shtml)
-- 2026-06-29 11:36 - [权威快报|增长14.9% 我国外贸延续良好增长态势](http://www.share.kurohicncr.top/Article/details/95854.shtml)
-- 2026-06-29 11:51 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](http://www.blog.minike.top/Article/details/771945648.shtml)
-- 2026-06-29 11:35 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](http://www.share.kurohicncr.top/Article/details/074044287176.shtml)
-- 2026-06-29 11:59 - [中国首条深水油气装备工艺管线智能生产线建设完成](http://www.blog.minike.top/Article/details/5770959167.shtml)
-- 2026-06-29 11:46 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](http://www.share.minike.top/Article/details/597728393.shtml)
-- 2026-06-29 11:59 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](http://www.blog.minike.top/Article/details/6853581.shtml)
-- 2026-06-29 11:58 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](http://www.share.minike.top/Article/details/37024282.shtml)
+- 2026-06-29 11:48 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](http://www.blog.minike.top/Article/details/909285772.shtml)
+- 2026-06-29 11:58 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](http://www.share.minike.top/Article/details/781516210.shtml)
+- 2026-06-29 12:05 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.kurohicncr.top/Article/details/86518.shtml)
+- 2026-06-29 11:57 - [宁夏闽宁镇：短袖订单迎旺季 服装企业赶工忙](http://www.blog.kurohicncr.top/Article/details/98552002136.shtml)
+- 2026-06-29 11:56 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [能源高价推升通胀风险，英债收益率走高](http://www.blog.kurohicncr.top/Article/details/24695792782.shtml)
+- 2026-06-29 11:40 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](http://www.share.minike.top/Article/details/40086.shtml)
+- 2026-06-29 12:04 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](http://www.share.minike.top/Article/details/74576471319.shtml)
+- 2026-06-29 11:58 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [稳面积 提单产 夯实粮食稳产丰产基础](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](http://www.blog.minike.top/Article/details/0979269851.shtml)
+- 2026-06-29 11:55 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](http://www.share.kurohicncr.top/Article/details/5826939835.shtml)
+- 2026-06-29 11:46 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](http://www.share.kurohicncr.top/Article/details/199639911.shtml)
+- 2026-06-29 11:41 - [日元回吐部分涨幅 此前日本央行行长未发出明确的加息信号](http://www.blog.kurohicncr.top/Article/details/56312073.shtml)

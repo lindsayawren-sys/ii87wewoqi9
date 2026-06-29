@@ -1,54 +1,60 @@
-# 2026世界杯美加墨三国将分别举办开幕式
+# 关税成本下降，通用汽车上调调整后利润预期
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-新华社华盛顿5月8日电(记者杨伶)国际足联8日宣布，2026年世界杯举办国墨西哥、加拿大和美国将分别举办开幕式。 国际足联主席因凡蒂诺表示：“从墨西哥城开始，接下来是多伦多和洛杉矶，这些开幕式将音乐、文化和足球融为一体，既体现了每个国家的独特性，也展现了本届赛事所代表的团结精神……这将是开启一场全球盛会的有力方式。” 美加墨世界杯将于6月11日开幕，揭幕战是墨西哥队对阵南非队，
+专题：聚焦美股2026年第一季度财报 美国最高法院驳回特朗普总统实施的紧急关税政策，车企关税成本得以降低，通用汽车（GM）随之上调全年调整后利润指引。 公司一季度净利润 27.1 亿美元，上年同期为 28.5 亿美元；每股收益从去年的 3.35 美元降至 2.82 美元。 调整后每股收益达 3.70 美元，高于 FactSet 调查分析师给出的 2.60 美元预期值。 一季度营
 
 ## 正文
 
-新华社华盛顿5月8日电(记者杨伶)国际足联8日宣布，2026年世界杯举办国墨西哥、加拿大和美国将分别举办开幕式。
+专题：聚焦美股2026年第一季度财报 美国最高法院驳回特朗普总统实施的紧急关税政策，车企关税成本得以降低，通用汽车（GM）随之上调全年调整后利润指引。
 
-国际足联主席因凡蒂诺表示：“从墨西哥城开始，接下来是多伦多和洛杉矶，这些开幕式将音乐、文化和足球融为一体，既体现了每个国家的独特性，也展现了本届赛事所代表的团结精神……这将是开启一场全球盛会的有力方式。
+公司一季度净利润 27.1 亿美元，上年同期为 28.5 亿美元；每股收益从去年的 3.35 美元降至 2.82 美元。
 
-” 美加墨世界杯将于6月11日开幕，揭幕战是墨西哥队对阵南非队，比赛将在墨西哥城举行。
+调整后每股收益达 3.70 美元，高于 FactSet 调查分析师给出的 2.60 美元预期值。
 
-国际足联在声明中说，比赛开始前90分钟，墨西哥将以一场“史无前例的开幕式拉开这场地球上最盛大演出的序幕”。
+一季度营收小幅下滑 0.9%，录得 436.2 亿美元，市场预期为 435.1 亿美元。
 
-加拿大将于6月12日在多伦多举办开幕式，之后加拿大队将迎战波黑队。
+通用汽车上调全年调整后每股收益预期：由原先 11–13 美元，提升至11.50–13.50 美元； 同时下调非调整后每股收益指引，从此前 11–13 美元，降至10.62–12.62 美元。
 
-美国将于6月12日在洛杉矶举行开幕式，之后美国队将迎来与巴拉圭队的小组赛。
+市场分析师普遍预测，其全年调整后每股收益为 12.20 美元。
 
-美加墨世界杯将于6月11日至7月19日在美国、
+今年 2 月，最高法院裁定废除特朗普依据《国际紧急经济权力法》征收的关税。
+
+受此利好，通用汽车将全年息税前利润预期上调 5 亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [来听人民子弟兵对妈妈的祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:45 - [陈文清在政法领导干部专题研讨班开班式上表示 树立和践行正确政绩观 建设德才兼备的高素质政法队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:42 - [涉汉坦病毒疫情邮轮抵达西班牙特内里费岛水域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:36 - [看图学习·人民之心丨读懂“为谁创造业绩”的根本立场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:45 - [短道速滑世界冠军李佳军：每一滴拼搏的汗水都自有光芒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:35 - [估值高企业绩萎靡，国晟科技提示四大核心风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:55 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:48 - [中美元首即将北京会晤，两国关系再迎重要时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:39 - [昌九高铁全线无砟轨道浇筑完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:32 - [AI造假潜入“买家秀” 消费权益如何守护？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:40 - [第139届广交会第二期收官 累计24.5万名境外采购商到会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:51 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:48 - [首都机场“五一”假期预计运送旅客102.3万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:36 - [美国库恩基金会主席人民日报撰文：制度优势成就中国发展的“接力跑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:41 - [北京银行去年净利润同比降逾23%，一季度净利润同比增逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:04 - [越来越多中国茶饮等品牌开启新一轮出海热潮 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:43 - [葛优调侃“与三元合作已过二十年”：我一直在想怎么不找我了，是不是等我长头发呢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:42 - [《公开募捐平台服务管理办法》解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:42 - [强脑科技为什么做假肢？韩璧丞：因为遇到一位残障大学生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:41 - [邦达亚洲:多重利空因素打压 美元指数小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:40 - [新教育完美教室班本课程研发专题研讨会在沪举办 聚焦卓越课程与幸福教育](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:38 - [“剪映”“猫箱”“即梦AI”因合成内容标识违法问题被依法查处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:38 - [迎来24项“国家红利”，综保区加速扩能提质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:59 - [中国再保险：中再寿险一季度净亏损2.51亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”](http://www.blog.kurohicncr.top/Article/details/23863569.shtml)
-- 2026-06-29 11:59 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](http://www.blog.minike.top/Article/details/0529861.shtml)
-- 2026-06-29 11:34 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](http://www.share.kurohicncr.top/Article/details/57982.shtml)
-- 2026-06-29 11:50 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](http://www.share.kurohicncr.top/Article/details/4780650.shtml)
-- 2026-06-29 11:54 - [山东推进场景创新 2027年拟培育入库场景超500项](http://www.share.kurohicncr.top/Article/details/588769301063.shtml)
-- 2026-06-29 11:42 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](http://www.share.minike.top/Article/details/98684.shtml)
-- 2026-06-29 11:55 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](http://www.share.minike.top/Article/details/90138.shtml)
-- 2026-06-29 11:54 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](http://www.share.kurohicncr.top/Article/details/9007159.shtml)
-- 2026-06-29 11:34 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](http://www.share.kurohicncr.top/Article/details/149889879474.shtml)
-- 2026-06-29 11:51 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](http://www.blog.kurohicncr.top/Article/details/74852.shtml)
-- 2026-06-29 11:46 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](http://www.share.minike.top/Article/details/228587.shtml)
-- 2026-06-29 11:56 - [赢家时尚附属透过中信证券认购5000万元基金份额](http://www.blog.kurohicncr.top/Article/details/26805489022.shtml)
-- 2026-06-29 11:46 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](http://www.share.kurohicncr.top/Article/details/524243699.shtml)
-- 2026-06-29 11:32 - [杨涛：智能体技术推动银行业智能化转型](http://www.share.minike.top/Article/details/40859539.shtml)
-- 2026-06-29 11:40 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](http://www.share.kurohicncr.top/Article/details/33465810.shtml)
+- 2026-06-29 11:46 - [王兆星同志逝世](http://www.share.kurohicncr.top/Article/details/91181113.shtml)
+- 2026-06-29 11:55 - [江西省人大常委会原副主任洪礼和一审被判20年](http://www.blog.kurohicncr.top/Article/details/9292519348.shtml)
+- 2026-06-29 11:37 - [高盛：紫金矿业维持“买入”评级 目标价微降至51港元](http://www.blog.minike.top/Article/details/65979.shtml)
+- 2026-06-29 11:46 - [2026年度大理海关部门预算公开](http://www.blog.kurohicncr.top/Article/details/387594613.shtml)
+- 2026-06-29 11:44 - [辽宁岫岩：翠绿山林间 夺目映山红](http://www.share.minike.top/Article/details/5875469.shtml)
+- 2026-06-29 11:59 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](http://www.share.kurohicncr.top/Article/details/6211507764.shtml)
+- 2026-06-29 11:41 - [天天学习｜书友习近平](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [“国产GPU第一股”摩尔线程，开盘666！](http://www.share.minike.top/Article/details/1672073667.shtml)
+- 2026-06-29 12:05 - [2026年3月广东省进口重点商品总值表（人民币值）](http://www.blog.kurohicncr.top/Article/details/18715944.shtml)
+- 2026-06-29 11:52 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](http://www.share.kurohicncr.top/Article/details/20367687.shtml)
+- 2026-06-29 12:03 - [拉卡拉：“炒股”大赚，主业承压](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](http://www.blog.kurohicncr.top/Article/details/79077308412.shtml)
+- 2026-06-29 12:05 - [时政微周刊丨总书记的一周（4月20日—4月26日）](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [从课堂到云端 自媒体重构海外华文教育生态](http://www.blog.minike.top/Article/details/59236208592.shtml)
+- 2026-06-29 11:41 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](https://github.com/lisacumin64-arch)

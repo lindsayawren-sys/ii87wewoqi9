@@ -1,60 +1,52 @@
-# 张精科即将入主董事会，杭州银行2026年业绩目标曝光
+# 原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-来源：银瑞社 上个月，以“浙里创新，智领未来”为主题的第十届万物生长大会举行，杭州银行行长张精科受邀为大会发布了祝福视频。 张精科自年初成为杭州银行行长以来，对外发声增多，备受市场瞩目。 最新的2025年年度股东会会议材料，透露了张精科即将进入杭州银行董事会，又会多一个职务。 该股东会议，将审议关于选举张精科为杭州银行第八届董事会董事的相关议案，任期至公司第八届董事会届满之日止
+中央纪委国家监委网站讯 据青海省纪委监委消息：经中共青海省委批准，青海省纪委监委对原省地方金融监督管理局一级巡视员吴春庆严重违纪违法问题进行了立案审查调查。 经查，吴春庆丧失理想信念，背弃初心使命，搞投机钻营，结交政治骗子，“买官”被骗；无视中央八项规定精神，违规收受礼品礼金，无偿接受管理和服务对象提供的“管家式”服务；把公权力当作谋取私利的工具，利用职务便利或职权地位形成的便
 
 ## 正文
 
-来源：银瑞社 上个月，以“浙里创新，智领未来”为主题的第十届万物生长大会举行，杭州银行行长张精科受邀为大会发布了祝福视频。
+中央纪委国家监委网站讯 据青海省纪委监委消息：经中共青海省委批准，青海省纪委监委对原省地方金融监督管理局一级巡视员吴春庆严重违纪违法问题进行了立案审查调查。
 
-张精科自年初成为杭州银行行长以来，对外发声增多，备受市场瞩目。
+经查，吴春庆丧失理想信念，背弃初心使命，搞投机钻营，结交政治骗子，“买官”被骗；无视中央八项规定精神，违规收受礼品礼金，无偿接受管理和服务对象提供的“管家式”服务；把公权力当作谋取私利的工具，利用职务便利或职权地位形成的便利条件为他人在工程项目承揽等方面谋利，并非法收受巨额财物。
 
-最新的2025年年度股东会会议材料，透露了张精科即将进入杭州银行董事会，又会多一个职务。
+吴春庆严重违反党的政治纪律和廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-该股东会议，将审议关于选举张精科为杭州银行第八届董事会董事的相关议案，任期至公司第八届董事会届满之日止。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中共青海省纪委常委会会议研究并报中共青海省委批准，决定给予吴春庆开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
-张精科担任公司董事的任职资格，尚待监管核准。
-
-市场对张精科关注实属正常。
-
-他是杭州银行行长职位空缺十个月之后选出的人才，而且2026年是该行成立30周年的关键节点，市场好奇新的领导会有哪些新的经营思路。
-
-从股东会议文件来看，2025年，杭州银行预算执行基本超额完成。
+（青海省纪委监委）责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [“文化中国·水立方杯”中文歌曲大赛印尼总决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:48 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:39 - [宏微科技：公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:46 - [我国营商环境持续改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:54 - [训修实业将于6月8日派发末期股息每股0.027港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:40 - [第三十六届澳门艺术节揭幕 开启多元艺术之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:39 - [保时捷关停三家子公司、裁员500人 持续推进战略重组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:48 - [俄国防部称乌军违反停火安排 对乌军实施对等打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:52 - [康菲石油获挪威批准重启大埃科菲斯克油田](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:49 - [三大指标领跑全球！中国船企加速布局绿色化智能化领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:44 - [广州欧美同学会、广州中华职教社非遗文化交流活动走进南沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:44 - [压缩试验成本 我国室内最大全季冰雪汽车试验基地开建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:55 - [伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:52 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:05 - [德国据悉尝试为德国商业银行寻找白衣骑士 以应对裕信银行的收购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:03 - [上海家化一季度扣非净利润同比增长38.2%，四个聚焦战略加速兑现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:55 - [台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:49 - [GTC泽汇:尼日利亚炼化驱动转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:03 - [我国拟修改水法提升水安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:50 - [APEC中国年，中美互动预期几何？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:59 - [“探店”网红白冰偷税被查 追缴并罚款共计超1891万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:58 - [大美边疆看我家丨内蒙古锡林浩特：百鸟翔集绘春图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:46 - [陈旭：日方应恪守中日四个政治文件 勿因错误言论干扰APEC合作环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:42 - [湖北：“五一”假期文旅融合主题产品焕新登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:00 - [生态环境部：一季度我国环境空气质量总体改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:44 - [收评：国内期货主力合约涨多跌少 多晶硅跌近7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [“中国式安全感”为何圈粉世界（人民时评）](http://www.share.minike.top/Article/details/4064673.shtml)
-- 2026-06-29 11:32 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [酒价内参5月11日价格发布：飞天茅台下跌2元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](http://www.share.minike.top/Article/details/2967516.shtml)
-- 2026-06-29 11:41 - [韩国产业部长与美方官员洽谈投资协议](http://www.blog.minike.top/Article/details/005621822600.shtml)
-- 2026-06-29 12:00 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](http://www.share.kurohicncr.top/Article/details/75806.shtml)
-- 2026-06-29 11:43 - [保时捷关停三家子公司裁员500人 持续推进业务转型](http://www.share.kurohicncr.top/Article/details/9190995.shtml)
-- 2026-06-29 11:56 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](http://www.share.kurohicncr.top/Article/details/864726.shtml)
-- 2026-06-29 11:52 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](http://www.blog.kurohicncr.top/Article/details/842984541.shtml)
-- 2026-06-29 11:38 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](http://www.blog.minike.top/Article/details/420349.shtml)
-- 2026-06-29 11:46 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [第23届世界乳腺健康大会在天津举行](http://www.blog.kurohicncr.top/Article/details/2896307.shtml)
-- 2026-06-29 11:43 - [突发！美联储，降息预期生变！](http://www.share.minike.top/Article/details/133133239.shtml)
-- 2026-06-29 11:33 - [美好生活，“体验”一下——“经济新活力”系列评](http://www.blog.minike.top/Article/details/91774.shtml)
+- 2026-06-29 12:00 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](http://www.share.minike.top/Article/details/08401.shtml)
+- 2026-06-29 11:51 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](http://www.share.kurohicncr.top/Article/details/332266143239.shtml)
+- 2026-06-29 11:51 - [长江“微笑天使”又添丁，见证江苏生态之变](http://www.share.minike.top/Article/details/17381051.shtml)
+- 2026-06-29 12:04 - [春到桑干河](http://www.blog.kurohicncr.top/Article/details/1928285194.shtml)
+- 2026-06-29 11:42 - [一季度浙江算力中心用电规模和增速创新高](http://www.share.minike.top/Article/details/7176144.shtml)
+- 2026-06-29 11:48 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](http://www.blog.minike.top/Article/details/94716480564.shtml)
+- 2026-06-29 11:48 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [互联网广告要跳出“流量至上”误区](http://www.share.minike.top/Article/details/970924937.shtml)
+- 2026-06-29 11:53 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](http://www.share.kurohicncr.top/Article/details/89936.shtml)
+- 2026-06-29 11:37 - [中国黄河流域137处国家级自然保护区优良率达99.27％](http://www.blog.kurohicncr.top/Article/details/71956168697.shtml)
+- 2026-06-29 11:58 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](http://www.share.kurohicncr.top/Article/details/669022.shtml)
+- 2026-06-29 11:55 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.share.kurohicncr.top/Article/details/2238561.shtml)

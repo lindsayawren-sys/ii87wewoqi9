@@ -1,59 +1,59 @@
-# 像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件
+# 东珠生态业绩预告更正不及时，受损股民可索赔
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。像素绽放PixelBloom（AiPPT.com）联合创始人蒲世林出席并以《重塑表达，完善企业AI基础设施的标准件》为题发表演讲。 以下为演讲实录： 大家好，我是像素绽放的联合创始人蒲世林。 可能在座很多朋友对像素绽放这家公司并不熟悉，但我相信，我们的产品一定有不少人正在
+登录新浪财经APP 搜索【信披】查看更多考评等级 根据最新消息，东珠生态（维权）环保股份有限公司（以下简称“东珠生态”）发布了2025年度业绩预告补充公告，并提示公司股票可能被实施退市风险警示。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年1月17日-2026年4月24日期间买入且有持仓，无论在2026年4月27日及之后是否卖出
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
+登录新浪财经APP 搜索【信披】查看更多考评等级 根据最新消息，东珠生态（维权）环保股份有限公司（以下简称“东珠生态”）发布了2025年度业绩预告补充公告，并提示公司股票可能被实施退市风险警示。
 
-像素绽放PixelBloom（AiPPT.com）联合创始人蒲世林出席并以《重塑表达，完善企业AI基础设施的标准件》为题发表演讲。
+上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年1月17日-2026年4月24日期间买入且有持仓，无论在2026年4月27日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿登记索赔。
 
-以下为演讲实录： 大家好，我是像素绽放的联合创始人蒲世林。
+（赵敬国律师专栏） 回顾本案， 2026年4月25日东珠生态发布了《关于2025年年度业绩预告补充暨 股票可能被实施退市风险警示的风险提示公告》。
 
-可能在座很多朋友对像素绽放这家公司并不熟悉，但我相信，我们的产品一定有不少人正在使用，它就是AiPPT.cn 。
+东珠生态此次补充公告，系因前期业绩预告未及时披露扣非后营收低于 3 亿元的关键信息，信息披露存在滞后。
 
-这款产品我们在三年前正式推向市场，截至目前，全球用户规模已突破3000万，数据稳居国内AI PPT赛道市场占有率第一，全球排名第二，也是全球增速最快的AI办公应用企业之一。
+信本股民索赔团队提醒，东珠生态业绩预告更正不及时，受损投资者可通过“新浪股民维权平台”自愿登记索赔。
 
-今天，我想和大家分享过去两三年，我们在这个赛道上的实践与思考。
+索赔条件： 东珠生态：于2026年1月17日-2026年4月24日期间买入且有持仓，无论在2026年4月27日及之后是否卖出（具体赔付范围由法院确定）（东珠生态维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
 
-我们的核心定位，始终聚焦在“表达”这件事上。
+赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
 
-PPT的本质，从来不是一份简单的演示文档，而是一套标准化的表达工具——无论是内部的述职汇报、战略规划、经营复盘，还是对外的品牌宣讲、业务推介、合作沟通，核心都是高效、清晰地传递信息与价值。
+2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [消息人士称巴基斯坦已将伊朗回应传达给美国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:51 - [中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:58 - [美军称向两艘“违反封锁”的伊朗油轮开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:33 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:49 - [云冈石窟8个晚期洞窟临时封闭 开展数字化采集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:47 - [东博会秘书处携中国味道“出海”进东盟（印尼）专题展启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:59 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:58 - [美国私营监狱运营商CoreCivic预计2026年调整后EBITDA达4.54-4.62亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:41 - [全球调解峰会在港首办 赋能全球治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:32 - [威高股份第一季度收入约33.5亿元 同比增长约5.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:33 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:35 - [私募信贷的火爆行情已然落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:47 - [美国全球保险公司与伦敦劳合社达成战略分保合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:54 - [阿联酋宣布自5月1日起退出欧佩克 退出后逐步上调石油产量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:01 - [从一座城的两座“灯塔”，看江苏制造业的转型升级之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:45 - [分析：霍尔木兹海峡命运未卜，欧洲央行和英国央行料按兵不动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:54 - [2026年度瑞丽海关本级部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:48 - [伊朗暂停出口部分钢铁产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:49 - [摩根士丹利认为沃什将带来长期机制变革风险 加剧美债市场波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:58 - [涨得越猛越危险，AI行情已现"上涨式崩盘"信号！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:51 - [外交部：坚决遏制日本“新型军国主义”的妄动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:46 - [富瑞：鹰普精密给予“买入”评级 目标价10.34港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:37 - [中国国家能源局：可保障各种情形下的油气安全保供能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:38 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:03 - [东睦股份：Q1增长势头放缓、回款承压，加码MIM商誉风险悬顶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:42 - [中国美术馆新展启幕：“文艺复兴三杰”珍贵原作亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [古特雷斯呼吁美伊保持克制 避免局势进一步升级](http://www.share.kurohicncr.top/Article/details/883751.shtml)
-- 2026-06-29 11:46 - [国际货币基金组织警告人工智能模型加剧金融系统网络风险](http://www.blog.minike.top/Article/details/75586809612.shtml)
-- 2026-06-29 11:46 - [2026青海国际民族传统射箭精英赛系列赛火热开赛](http://www.share.kurohicncr.top/Article/details/02932740.shtml)
-- 2026-06-29 11:47 - [美联储降息理由正逐渐消失？分析师：通胀压力或令政策立场更加鹰派](http://www.blog.minike.top/Article/details/93431.shtml)
-- 2026-06-29 11:55 - [美国“愚公”程高登：鼓岭家族跨越百年的中国情缘](http://www.blog.kurohicncr.top/Article/details/7994583701.shtml)
-- 2026-06-29 11:41 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](http://www.blog.kurohicncr.top/Article/details/45987.shtml)
-- 2026-06-29 11:41 - [外贸一线观察|江苏外贸实现“超预期”增长，这份底气从何而来？](http://www.blog.minike.top/Article/details/259214696.shtml)
-- 2026-06-29 11:48 - [“压力越大越胖”怎么破？ 专家开出“三层减重法”](http://www.blog.minike.top/Article/details/0301502214.shtml)
-- 2026-06-29 11:40 - [最高涨超875%！沪深两大龙头，来了](http://www.share.kurohicncr.top/Article/details/36173.shtml)
-- 2026-06-29 11:45 - [武汉大学就OPPO母亲节文案发声：极不认同文案的价值倾向](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [新华访谈｜外卖小哥、网约车司机的“新保障”来了](http://www.blog.kurohicncr.top/Article/details/49384201209.shtml)
-- 2026-06-29 11:30 - [南京门店欠租887万元？山姆回应：配合司法执行，不存在故意欠租](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [美联储高官：AI成了会加息，AI败了会滞胀！](http://www.blog.minike.top/Article/details/39457078461.shtml)
-- 2026-06-29 11:35 - [颐信科技洪晓彤：AI赋能、情报破局、金融服务新动力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [对冲基金人才截胡大战升温 明星交易员两度“鸽掉”Millennium](http://www.blog.kurohicncr.top/Article/details/16166.shtml)
+- 2026-06-29 11:47 - [《中国新时代文学蓝皮书（2025）》在京发布](http://www.blog.kurohicncr.top/Article/details/7412230490.shtml)
+- 2026-06-29 11:56 - [国家开放大学将推出劳模工匠主题直播](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [我国拟修订农业法加快建设农业强国](http://www.blog.kurohicncr.top/Article/details/921887561.shtml)
+- 2026-06-29 11:38 - [当广州“烟火气”遇见展会“国际范” “商旅+文化体验”点燃入境消费新热潮](http://www.blog.kurohicncr.top/Article/details/98169.shtml)
+- 2026-06-29 12:00 - [中东硝烟起，巴西“粮仓”承压：化肥暴涨或致下季作物减产](http://www.share.minike.top/Article/details/836833.shtml)
+- 2026-06-29 12:03 - [中东冲突下的地缘局势、能源格局与宏观影响](http://www.share.kurohicncr.top/Article/details/206800160.shtml)
+- 2026-06-29 11:47 - [中美科学家联手验证新型抗衰老药物，实现哺乳动物寿命延长三分之一](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [巴基斯坦总统来华访问 在湖南沉浸式体验中国茶文化](http://www.share.kurohicncr.top/Article/details/1468281.shtml)
+- 2026-06-29 11:49 - [中共中央政治局：抓好农业生产 稳定生猪等农产品价格](http://www.blog.minike.top/Article/details/3371702891.shtml)
+- 2026-06-29 11:36 - [静守景气，慢越周期，详解华夏行业景气混合业绩长青密码](http://www.share.minike.top/Article/details/635225932.shtml)
+- 2026-06-29 11:40 - [朱鹤新局长会见香港金管局总裁余伟文](http://www.blog.minike.top/Article/details/029402036012.shtml)
+- 2026-06-29 11:43 - [欧盟延长对缅甸制裁](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [新任CEO首个完整季度：威瑞森实现无线用户正增长](http://www.share.minike.top/Article/details/334853856.shtml)
+- 2026-06-29 11:57 - [强对流、暴雨预警齐发 这些地方需注意防范](http://www.blog.kurohicncr.top/Article/details/6297100.shtml)
+- 2026-06-29 12:05 - [“锂王”，一季度业绩大增近17倍！](http://www.share.minike.top/Article/details/66737573.shtml)

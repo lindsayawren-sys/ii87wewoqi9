@@ -1,58 +1,58 @@
-# 深圳出海中心正式进入实体化运营阶段
+# 我国拟修订农业法 增加建立粮食安全监测预警制度等内容
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新网深圳5月8日电 (记者 许青青)由多家微软生态合作伙伴联合共建的深圳出海中心8日正式启动，进入实体化运营阶段。该中心依托深圳市及罗湖区企业出海配套支持政策，系统构建覆盖“出海准备—合规咨询—海外增长”的一站式服务体系，为区域企业“走出去”提供全链条支撑。 罗湖区是深圳服务业高度集聚的中心城区，汇聚了6000多家货代物流企业，并吸引了德勤、普华永道、安永等国际专业服务机构以
+中新网北京4月27日电(记者 郭超凯 黄钰钦)农业法修订草案27日提请十四届全国人大常委会首次审议。为保障粮食安全和重要农产品供给，草案明确国家粮食安全战略，增加建立粮食安全监测预警制度、建立政府粮食储备体系、完善粮食应急管理体制等内容。全国人大农业与农村委员会主任委员杜家毫27日受委托对草案作说明。杜家毫表示，此次修订旨在进一步巩固和加强农业在国民经济中的基础地位，坚持大农业
 
 ## 正文
 
-中新网深圳5月8日电 (记者 许青青)由多家微软生态合作伙伴联合共建的深圳出海中心8日正式启动，进入实体化运营阶段。
+中新网北京4月27日电(记者 郭超凯 黄钰钦)农业法修订草案27日提请十四届全国人大常委会首次审议。
 
-该中心依托深圳市及罗湖区企业出海配套支持政策，系统构建覆盖“出海准备—合规咨询—海外增长”的一站式服务体系，为区域企业“走出去”提供全链条支撑。
+为保障粮食安全和重要农产品供给，草案明确国家粮食安全战略，增加建立粮食安全监测预警制度、建立政府粮食储备体系、完善粮食应急管理体制等内容。
 
-罗湖区是深圳服务业高度集聚的中心城区，汇聚了6000多家货代物流企业，并吸引了德勤、普华永道、安永等国际专业服务机构以及多家银行、证券、保险机构总部入驻。
+全国人大农业与农村委员会主任委员杜家毫27日受委托对草案作说明。
 
-深圳出海中心聚焦现代服务业、数字经济、人工智能、时尚设计、低空经济、生命健康等新兴产业，针对出海企业在全球化发展过程中面临的技术架构优化、市场准入、品牌建设、合规运营与跨境协同等关键挑战，提供整体解决方案。
+杜家毫表示，此次修订旨在进一步巩固和加强农业在国民经济中的基础地位，坚持大农业观、大食物观，推动农业高质量发展，推进乡村全面振兴，加快建设农业强国，为实现农业农村现代化提供有力法治保障。
 
-其中，微软将为深圳出海中心服务的企业提供品牌、技术、平台、服务和人才等方面的全球资源支持，易点天下作为运营与服务主体，依托全球化营销能力、渠道资源与本地化服务体系，为企业提供出海运营推广与增长支持。
+为保障粮食安全和重要农产品供给，草案明确国家粮食安全战略，健全粮食主产区利益补偿机制和粮食生产者收益保障机制，增加建立粮食安全监测预警制度、建立政府粮食储备体系、完善粮食应急管理体制等内容。
 
-启动仪式上，深圳出海中心与首批30家合作企业完成入驻签约，涵盖高新技术智能制造、营销传媒、商学院及重要研究机构等领域；同步迎来首批12家专业服务机构入驻，覆盖金融、税务、审计、咨询、云平台、国际物流及国际商事仲裁等领域，初步形成“合规+财税+融资+人力”专业服务矩阵。
+草案明确落实大食物观，构建多元化食物供给体系，将“林业”修改为“林草业”，增加发展粮食和棉、油、糖、蔬菜等农产品及饲草饲料生产，发展经济林和林下经济、保障畜禽养殖用地、发展草原畜牧业、发展食物产业等内容。
 
-深圳出海中心相关负责人表示，中心将立足深圳、辐射粤港澳大湾区、链接全球，持续完善“政策+服务+生态”一体化供给，打造区域出海企业“走向世界”的核心枢纽与系统性出海赋能平台。
+草案还规定强化农业气象综合监测、农业防灾减灾、动植物疫情监测预警等措施。
 
-(完)
+加强耕地保护和质量提升，加强高标准农田建设，保护黑土地，治理和利用盐碱地。
 
 ## 相关推荐
 
-- 2026-06-29 11:56 - [消息人士称目前霍尔木兹海峡周边地区局势平静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:39 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:50 - [微软在非洲的数据中心因付款问题陷入困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:36 - [武汉融入“三个丝绸之路” 打造内陆开放新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:31 - [“文化中国·水立方杯”中文歌曲大赛印尼总决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:43 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:38 - [宏微科技：公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:39 - [我国营商环境持续改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:43 - [训修实业将于6月8日派发末期股息每股0.027港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:57 - [第三十六届澳门艺术节揭幕 开启多元艺术之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:45 - [保时捷关停三家子公司、裁员500人 持续推进战略重组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:36 - [俄国防部称乌军违反停火安排 对乌军实施对等打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:01 - [1.8米杖头木偶亮相厦门“屿见闽南” 16米长绸翩舞引惊呼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:49 - [中天期货:商品指数板块分化小反弹 原油短线反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:02 - [重庆银行：一季度归母净利润17.93亿元 同比增长10.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:53 - [多部门协同发力 上海出台14项举措助力民营经济高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:59 - [德国据悉尝试为德国商业银行寻找白衣骑士 以应对裕信银行的收购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:59 - [上海家化一季度扣非净利润同比增长38.2%，四个聚焦战略加速兑现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:03 - [台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:44 - [GTC泽汇:尼日利亚炼化驱动转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:03 - [我国拟修改水法提升水安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:52 - [APEC中国年，中美互动预期几何？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:37 - [“探店”网红白冰偷税被查 追缴并罚款共计超1891万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:50 - [大美边疆看我家丨内蒙古锡林浩特：百鸟翔集绘春图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:58 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](http://www.blog.minike.top/Article/details/1370594735.shtml)
-- 2026-06-29 11:34 - [德国3月对美出口大幅下滑](http://www.share.minike.top/Article/details/58655731.shtml)
-- 2026-06-29 11:43 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](http://www.share.minike.top/Article/details/48468654910.shtml)
-- 2026-06-29 11:34 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](http://www.share.minike.top/Article/details/178503497.shtml)
-- 2026-06-29 11:44 - [“中国式安全感”为何圈粉世界（人民时评）](http://www.blog.minike.top/Article/details/70737564.shtml)
-- 2026-06-29 11:47 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](http://www.blog.kurohicncr.top/Article/details/46196747334.shtml)
-- 2026-06-29 11:57 - [酒价内参5月11日价格发布：飞天茅台下跌2元](http://www.share.minike.top/Article/details/177445.shtml)
-- 2026-06-29 11:47 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [韩国产业部长与美方官员洽谈投资协议](http://www.share.kurohicncr.top/Article/details/5236969.shtml)
-- 2026-06-29 11:45 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](http://www.blog.kurohicncr.top/Article/details/287406168498.shtml)
-- 2026-06-29 11:45 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](http://www.share.kurohicncr.top/Article/details/2729670554.shtml)
-- 2026-06-29 11:57 - [保时捷关停三家子公司裁员500人 持续推进业务转型](http://www.share.kurohicncr.top/Article/details/146322.shtml)
-- 2026-06-29 11:59 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](http://www.blog.kurohicncr.top/Article/details/7587581.shtml)
-- 2026-06-29 11:49 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](http://www.share.minike.top/Article/details/01241569.shtml)
-- 2026-06-29 11:56 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](http://www.blog.kurohicncr.top/Article/details/433172.shtml)
+- 2026-06-29 12:03 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.blog.minike.top/Article/details/68907069.shtml)
+- 2026-06-29 11:44 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](http://www.share.kurohicncr.top/Article/details/915124553167.shtml)
+- 2026-06-29 11:49 - [珠江流域进一步强化节约用水管理工作](http://www.blog.kurohicncr.top/Article/details/484502406.shtml)
+- 2026-06-29 11:42 - [“五一”假期预计全国日均租车量将超70万辆](http://www.share.kurohicncr.top/Article/details/053881.shtml)
+- 2026-06-29 11:47 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](http://www.blog.kurohicncr.top/Article/details/00157856740.shtml)
+- 2026-06-29 11:54 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.blog.kurohicncr.top/Article/details/005541260.shtml)
+- 2026-06-29 11:55 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](http://www.blog.minike.top/Article/details/08130845.shtml)
+- 2026-06-29 11:49 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](http://www.blog.minike.top/Article/details/820620.shtml)
+- 2026-06-29 11:43 - [长江“微笑天使”又添丁，见证江苏生态之变](http://www.blog.minike.top/Article/details/4022942.shtml)
+- 2026-06-29 11:38 - [春到桑干河](http://www.share.minike.top/Article/details/723429.shtml)
+- 2026-06-29 11:43 - [一季度浙江算力中心用电规模和增速创新高](http://www.share.minike.top/Article/details/550824.shtml)
+- 2026-06-29 11:45 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](http://www.blog.kurohicncr.top/Article/details/336380089291.shtml)
+- 2026-06-29 11:49 - [互联网广告要跳出“流量至上”误区](http://www.blog.kurohicncr.top/Article/details/4511216386.shtml)
+- 2026-06-29 11:44 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](http://www.share.minike.top/Article/details/6785310.shtml)

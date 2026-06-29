@@ -1,56 +1,56 @@
-# Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股
+# 春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-Seeking Alpha的量化系统每月对全球数千只股票进行评分，综合考量估值、增长、盈利能力和市场情绪等因素。对于寻求防御性配置和稳定现金流的投资者而言，公用事业板块始终是核心持仓选项。以下是目前评分最高的10只外资公用事业股票。 排名方法 Seeking Alpha的量化评分系统从五个维度对股票进行评级：估值、增长、盈利能力、每股收益修正和市场动量。每只股票获得0至5分的综
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：上市之家 随着“万达电影”时代彻底落幕，更名为儒意电影后的首份年度财报正式出炉。 4月26日，儒意电影娱乐股份有限公司披露2025年年度报告与2026年第一季度报告。 年报数据显示，公司2025年全年实现营业收入126.47亿元，同比增长2.30%，归属于上市公司股东的净利润5.14亿元，较上年同期亏
 
 ## 正文
 
-Seeking Alpha的量化系统每月对全球数千只股票进行评分，综合考量估值、增长、盈利能力和市场情绪等因素。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-对于寻求防御性配置和稳定现金流的投资者而言，公用事业板块始终是核心持仓选项。
+来源：上市之家 随着“万达电影”时代彻底落幕，更名为儒意电影后的首份年度财报正式出炉。
 
-以下是目前评分最高的10只外资公用事业股票。
+4月26日，儒意电影娱乐股份有限公司披露2025年年度报告与2026年第一季度报告。
 
-排名方法 Seeking Alpha的量化评分系统从五个维度对股票进行评级：估值、增长、盈利能力、每股收益修正和市场动量。
+年报数据显示，公司2025年全年实现营业收入126.47亿元，同比增长2.30%，归属于上市公司股东的净利润5.14亿元，较上年同期亏损9.4亿元实现扭亏为盈，扣非归母净利润3.11亿元。
 
-每只股票获得0至5分的综合量化评分，以及相应的量化评级（强买入、买入、持有、卖出、强卖出）。
+从营收规模看，公司位居影视院线行业榜首，显著领先横店影视等竞争对手，净利润同样位居行业首位，同时资产负债率67.58%低于行业平均的77.69%，偿债能力有所改善。
 
-所有股票均为在美国上市交易的外国公用事业公司。
+尽管全年成绩单可圈可点，但2026年一季报的数据却令市场愕然。
 
-第1名：Companhia de Saneamento Básico do Estado de São Paulo（SBS） SABESP是巴西圣保罗州的水务和污水处理公司，是该地区的水处理和污水收集服务的主要提供商。
+2026年第一季度，公司实现营业收入29.98亿元，同比下降36.33%；归母净利润仅8691.48万元，同比大幅下滑89.53%；扣非归母净利润6085.43万元，降幅达92.54%。
 
-该公司在该领域保持私有化状态，是拉丁美洲最大的水务公司。
+经营活动产生的现金流量净额约1.94亿元，同比下降84.81%。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:39 - [杨涛：智能体技术推动银行业智能化转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:44 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:53 - [台立法机构通过蓝白版“防务特别条例草案”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:51 - [（乡村行·看振兴）方寸庭院生“金”记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:36 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:39 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:35 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:53 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:31 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:40 - [时政微周刊丨总书记的一周（4月20日—4月26日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:36 - [从课堂到云端 自媒体重构海外华文教育生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:42 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:41 - [一季度高技术产业实际使用外资同比增长30.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:47 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:00 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:41 - [现场下单！中国机器人“圈粉”爱尔兰老球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:43 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:50 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:43 - [002779、603360，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [兴化股份（002109）遭证监会立案调查，受损股民可索赔](http://www.share.minike.top/Article/details/633311308178.shtml)
-- 2026-06-29 11:31 - [Datadog受AI驱动业绩超预期并上调指引，股价飙升](http://www.blog.kurohicncr.top/Article/details/285719062484.shtml)
-- 2026-06-29 11:53 - [摩根士丹利为何加码职业运动员与演艺人士的复杂财富需求](http://www.share.minike.top/Article/details/26213.shtml)
-- 2026-06-29 11:52 - [【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？](http://www.share.minike.top/Article/details/84099.shtml)
-- 2026-06-29 11:53 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](http://www.share.minike.top/Article/details/12511180585.shtml)
-- 2026-06-29 11:32 - [权威快报|增长14.9% 我国外贸延续良好增长态势](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](http://www.blog.minike.top/Article/details/57064.shtml)
-- 2026-06-29 11:37 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](http://www.blog.minike.top/Article/details/810135155.shtml)
-- 2026-06-29 11:56 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](http://www.share.kurohicncr.top/Article/details/3719400609.shtml)
-- 2026-06-29 11:49 - [中国首条深水油气装备工艺管线智能生产线建设完成](http://www.blog.minike.top/Article/details/4329338295.shtml)
-- 2026-06-29 11:50 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](http://www.blog.kurohicncr.top/Article/details/375555234.shtml)
-- 2026-06-29 11:40 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](http://www.share.kurohicncr.top/Article/details/93770382.shtml)
-- 2026-06-29 11:34 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [这个法国人，真让人刮目相看](http://www.blog.minike.top/Article/details/02675.shtml)
+- 2026-06-29 11:42 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](http://www.share.kurohicncr.top/Article/details/12864185.shtml)
+- 2026-06-29 11:49 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.minike.top/Article/details/46547.shtml)
+- 2026-06-29 12:00 - [宁夏闽宁镇：短袖订单迎旺季 服装企业赶工忙](http://www.blog.minike.top/Article/details/459793.shtml)
+- 2026-06-29 11:40 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](http://www.share.minike.top/Article/details/244716625866.shtml)
+- 2026-06-29 11:52 - [能源高价推升通胀风险，英债收益率走高](http://www.blog.minike.top/Article/details/44699492793.shtml)
+- 2026-06-29 11:45 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](http://www.blog.kurohicncr.top/Article/details/2874717.shtml)
+- 2026-06-29 11:40 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [稳面积 提单产 夯实粮食稳产丰产基础](http://www.share.kurohicncr.top/Article/details/39887380.shtml)
+- 2026-06-29 11:58 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](http://www.share.minike.top/Article/details/04305470.shtml)
+- 2026-06-29 11:43 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](http://www.blog.minike.top/Article/details/669176289382.shtml)
+- 2026-06-29 11:48 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](http://www.share.minike.top/Article/details/91183748782.shtml)
+- 2026-06-29 11:51 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](http://www.share.kurohicncr.top/Article/details/57540267127.shtml)
+- 2026-06-29 12:03 - [日元回吐部分涨幅 此前日本央行行长未发出明确的加息信号](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [今年“五一”假期小客车上高速继续免收通行费](http://www.share.kurohicncr.top/Article/details/10105.shtml)

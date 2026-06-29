@@ -1,58 +1,57 @@
-# 云创数据（920305）收到处罚告知书，投资者索赔继续推进
+# 粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-2026年4月29日，云创数据（920305）公告收到江苏证监局下发的《行政处罚事先告知书》，上海久诚律师事务所股票索赔律师许峰提示，至此，云创数据涉嫌的虚假陈述违法事实已基本清晰，如果投资者因此受损，还可继续发起索赔。 许峰律师代理的云创数据投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排。律师团队还在继续推进后续案件的立案工作，还在接受其他投资者的索赔委托。（
+中新网惠州4月27日电 (记者 张璐)“香港赛马会杯”粤港澳大湾区自行车骑行嘉年华(惠州博罗站)(简称“活动”)26日在罗浮山旅游文化广场鸣笛启程。本次活动汇聚近800名骑行爱好者参加。 活动路线规划匠心独运，全程60公里，巧妙融合罗浮山山林风光与显岗水库滨水生态，串联名山景致、湖岸风光、田园村落与生态绿廊，多元景观次第铺开。 活动现场内容丰富、秩序井然，同步设置嘉宾互动、骑行
 
 ## 正文
 
-2026年4月29日，云创数据（920305）公告收到江苏证监局下发的《行政处罚事先告知书》，上海久诚律师事务所股票索赔律师许峰提示，至此，云创数据涉嫌的虚假陈述违法事实已基本清晰，如果投资者因此受损，还可继续发起索赔。
+中新网惠州4月27日电 (记者 张璐)“香港赛马会杯”粤港澳大湾区自行车骑行嘉年华(惠州博罗站)(简称“活动”)26日在罗浮山旅游文化广场鸣笛启程。
 
-许峰律师代理的云创数据投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排。
+本次活动汇聚近800名骑行爱好者参加。
 
-律师团队还在继续推进后续案件的立案工作，还在接受其他投资者的索赔委托。
+活动路线规划匠心独运，全程60公里，巧妙融合罗浮山山林风光与显岗水库滨水生态，串联名山景致、湖岸风光、田园村落与生态绿廊，多元景观次第铺开。
 
-（许峰律师专栏） 上述《行政处罚事先告知书》公告信息显示，经查明，云创数据涉嫌存在以下违法事实： 一、云创数据2020年至2023年年度报告、2024年半年度报告涉嫌存在虚假记载 （一）2020年至2024年6月，公司在相关业务未实际执行或无商业实质的情况下确认收入，虚增收入和利润 2020年至2024年6月，云创数据及其子公司海南云创大数据科技有限公司与相关客户开展销售业务，前述业务未实际执行，或者相关业务的合同、资金流转形成异常闭环，无商业实质。
+活动现场内容丰富、秩序井然，同步设置嘉宾互动、骑行台挑战赛等，服务保障完善，吸引众多骑行爱好者驻足打卡、交流互动。
 
-云创数据通过前述方式虚增相关年度收入和利润。
+据了解，“香港赛马会杯”自行车骑行嘉年华已连续多年在大湾区多座城市巡回落地，持续串联区域优质文旅资源，推动体育与文旅、生态的深度交融，累计吸引粤港澳三地近4000名骑行爱好者参加。
 
-2020年至2024年上半年，云创数据分别虚增营业收入8，390.91万元、14，728.14万元、24，021.45万元、19，587.59万元、10，013.45万元，占当期报告记载营业收入金额的23.09%、30.90%、64.06%、66.25%、81.83%；分别虚增利润总额3，241.93万元、6，674.04万元、8，855.36万元、4，997.25万元、1，878.14万元，占当期报告记载利润总额（绝对值）的40.41%、91.57%、405.10%、63.31%、127.90%。
+博罗县地处粤港澳大湾区核心圈层，生态禀赋优越、文旅资源富集。
 
-上述行为导致云创数据2020年至2023年年度报告、2024年半年度报告存在虚假记载。
+依托优质生态基底，博罗县先后斩获多项国家级荣誉，紧扣“百县千镇万村高质量发展工程”部署，加快城乡融合建设，完善户外骑行配套设施，具备承办大型湾区骑行赛事的优良条件。
 
-（二）2022年，公司通过虚假处置在建工程的方式虚减利润 2022年12月，云创数据通过虚假处置在建工程的方式虚减利润总额522.71万元，占当期报告记载利润总额（绝对值）的23.91%，导致2022年年度报告存在虚假记载。
+据介绍，本次骑行嘉年华落地博罗，是湾区品牌赛事拓展运动场景的重要实践，有效赋能乡村振兴、深化文旅融合、厚植生态底色，加速推动博罗县从“生态福地”向“运动名城”转型跃升，以体育活力持续激活县域高质量发展新动能。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:47 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:58 - [证监会严肃查处清越科技财务造假案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:31 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:41 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:40 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:50 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:54 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:49 - [中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:44 - [南京：钟山湖畔 鸭趣盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:35 - [中国银联与华为签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:52 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:51 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:51 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:59 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:59 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:52 - [“鸟中大熊猫”彩鹮首次现身云南云县](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:41 - [东珠生态业绩预告更正不及时，受损股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:03 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:01 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:37 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:45 - [5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:36 - [OpenAI放宽合作限制，微软独占云时代终结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [“续费刺客”如此“近视”，必撞南墻](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [视频|李大霄：警惕美债务风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](http://www.share.kurohicncr.top/Article/details/330830275550.shtml)
-- 2026-06-29 11:46 - [索尼在PS5疲软情况下仍寻求利润增长](http://www.blog.kurohicncr.top/Article/details/429190.shtml)
-- 2026-06-29 11:43 - [中国男队3:0击败日本 斩获伦敦世乒赛男团冠军](http://www.blog.minike.top/Article/details/438573.shtml)
-- 2026-06-29 11:59 - [【每周经济观察】“两新”成绩单里的民生温度](http://www.share.kurohicncr.top/Article/details/385665.shtml)
-- 2026-06-29 11:53 - [Akamai斩获18亿美元AI云订单，盘前股价飙升27%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等](http://www.blog.minike.top/Article/details/982866965062.shtml)
-- 2026-06-29 11:30 - [建国250周年之际，美国人逃离美国](http://www.share.kurohicncr.top/Article/details/71579642999.shtml)
-- 2026-06-29 11:47 - [Canvas制造商报告重大数据泄露](http://www.blog.minike.top/Article/details/31726681.shtml)
-- 2026-06-29 11:47 - [银行组织架构优化观察：“瘦身”与“增肌”并举，后续系统支撑是成效关键](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [一季度我国黄金消费量同比增长4.41%](http://www.share.minike.top/Article/details/675564845325.shtml)
-- 2026-06-29 11:57 - [古特雷斯呼吁美伊保持克制 避免局势进一步升级](http://www.share.minike.top/Article/details/71809.shtml)
-- 2026-06-29 11:53 - [国际货币基金组织警告人工智能模型加剧金融系统网络风险](http://www.share.kurohicncr.top/Article/details/01737269487.shtml)
-- 2026-06-29 11:44 - [2026青海国际民族传统射箭精英赛系列赛火热开赛](http://www.share.kurohicncr.top/Article/details/08277.shtml)
+- 2026-06-29 11:57 - [重庆法院发布首例承认欧洲仲裁机构裁决案件](http://www.blog.minike.top/Article/details/275152038.shtml)
+- 2026-06-29 12:01 - [“广货行天下 文旅邀您来”相关活动推出](http://www.share.minike.top/Article/details/38170562.shtml)
+- 2026-06-29 11:49 - [中方禁止外资收购Manus项目，外交部回应](http://www.blog.kurohicncr.top/Article/details/28395661.shtml)
+- 2026-06-29 12:02 - [伊朗恢复飞往重要国际目的地航班](http://www.blog.minike.top/Article/details/32265025.shtml)
+- 2026-06-29 11:43 - [印尼列车相撞事故已致14死84伤 总统要求彻查](http://www.share.minike.top/Article/details/68121528.shtml)
+- 2026-06-29 11:59 - [京津冀三地人民银行组织开展2026年党委理论学习中心组联组学习](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [国证国际：滨海投资维持“买入”评级 目标价1.43港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [火箭超级工厂竣工投产 力箭二号运载火箭迈入批量化生产阶段](http://www.blog.kurohicncr.top/Article/details/687379.shtml)
+- 2026-06-29 11:53 - [参与OpenAI手机项目？002475市值一日爆增400亿元！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [北京银行：一季度实现归母净利润80.98亿元，同比增长5.55%](http://www.share.minike.top/Article/details/413497922.shtml)
+- 2026-06-29 11:46 - [快讯：恒指微跌 科指涨0.56% 芯片股活跃 AI应用股高开](http://www.share.kurohicncr.top/Article/details/144194255664.shtml)
+- 2026-06-29 11:44 - [酒价内参4月27日价格发布：青花汾20下跌4元跌幅居前](http://www.share.kurohicncr.top/Article/details/594264242.shtml)
+- 2026-06-29 11:47 - [《中国新时代文学蓝皮书（2025）》在京发布](http://www.blog.kurohicncr.top/Article/details/737211247426.shtml)
+- 2026-06-29 11:49 - [国家开放大学将推出劳模工匠主题直播](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [我国拟修订农业法加快建设农业强国](http://www.share.kurohicncr.top/Article/details/554732881411.shtml)

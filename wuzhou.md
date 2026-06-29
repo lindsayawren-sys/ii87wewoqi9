@@ -1,59 +1,58 @@
-# 科学家为无人机安装“氢能心脏”破解续航难题
+# 全国首批米粉“批次检验（检疫）”改革试点落地江西抚州
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-新华社大连5月10日电(记者蔡拥军、张博群)记者10日从中国科学院大连化学物理研究所获悉，当日，该所研发的“高比功率阴极闭合式风冷电堆”技术在大连通过科技成果鉴定。这款新型电堆是为工业级无人机量身打造的集轻量化、高功率、风冷散热等特点于一体的“氢能心脏”，可使工业级无人机续航时间提升2倍以上。随着低空经济快速发展，传统锂电池续航时间短、现有燃料电池系统较为笨重等问题成为制约无人
+中新网抚州4月27日电 (吴鹏泉 邹扬)南昌海关27日消息，一批重约20吨的米粉近日经南昌海关所属抚州海关检验检疫合格后，顺利发往中国香港。海关部门称，这是全国首批采用“批次检验(检疫)”创新模式监管出口的米粉。 据了解，出口农食产品“批次检验(检疫)”改革是海关优化营商环境、促进外贸保稳提质的一项重要举措。该模式通过设立“批次查检单元”，将原本以“出口批”为单位的检验检疫方式
 
 ## 正文
 
-新华社大连5月10日电(记者蔡拥军、张博群)记者10日从中国科学院大连化学物理研究所获悉，当日，该所研发的“高比功率阴极闭合式风冷电堆”技术在大连通过科技成果鉴定。
+中新网抚州4月27日电 (吴鹏泉 邹扬)南昌海关27日消息，一批重约20吨的米粉近日经南昌海关所属抚州海关检验检疫合格后，顺利发往中国香港。
 
-这款新型电堆是为工业级无人机量身打造的集轻量化、高功率、风冷散热等特点于一体的“氢能心脏”，可使工业级无人机续航时间提升2倍以上。
+海关部门称，这是全国首批采用“批次检验(检疫)”创新模式监管出口的米粉。
 
-随着低空经济快速发展，传统锂电池续航时间短、现有燃料电池系统较为笨重等问题成为制约无人机行业发展的瓶颈。
+据了解，出口农食产品“批次检验(检疫)”改革是海关优化营商环境、促进外贸保稳提质的一项重要举措。
 
-为此，经过多年攻关，大连化物所科研团队成功突破多项关键技术，为工业级无人机安装“氢能心脏”，有效破解续航难题。
+该模式通过设立“批次查检单元”，将原本以“出口批”为单位的检验检疫方式，转化为对“生产批”进行监管。
 
-当日，搭载该电堆的氢能无人机成功试飞，关键性能指标表现优异，风冷电堆比功率高达1970瓦/千克，面功率密度达1.15瓦/平方厘米。
+“以前我们的米粉出口批次多，有时遇到‘出口批’被系统抽中查检，会对货物装箱发运计划和物流时效造成一定影响。
 
-中国石油和化学工业联合会组织的科技成果鉴定委员会认为，该成果创新性强、技术指标先进，拥有自主知识产权，总体技术达到国际领先水平。
+现在只要‘生产批’监管过关，后续出货可以随报随走，非常方便。
 
-该项目技术负责人、大连化物所能源催化转化全国重点实验室主任陈忠伟介绍，该项目成功突破了3项关键技术，系统性解决了风冷燃料电池“保水”与“氧传质”的矛盾：一是催化层多尺度调控技术，如同在纳米至毫米尺度对电池反应区进行“立体精装修”，提升了催化活性；二是非对称水分传输技术，为电池内部装上了“单向导湿”的智能皮肤，消除了“干膜”与“水淹”的行业顽疾；三是微通道强化传热与水热耦合技术，将散热与水分管理有效结合，保障了电池在宽温域下的稳定运行。
+”江西抚州一家食品公司外贸负责人吴智说。
 
-目前，该项目已构建起全链条自主研发体系，建成自动化生产线，具备规模化交付能力，成果已成功应用于电力巡检、应急救援等场景中。
+抚州海关称，下一步，抚州海关将持续扩大“批次检验”模式的应用范围，推动更多地方特色农食产品搭乘改革“快车”。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:40 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:52 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:32 - [山西深挖气候资源潜力 释放气象数据价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:37 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:47 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:52 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:57 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:56 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:52 - [证监会严肃查处清越科技财务造假案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:50 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:42 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:46 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:02 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:57 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:51 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:51 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:42 - [受气象不佳影响 “两马”航线将双向停航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:44 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:54 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:39 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:45 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:40 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:51 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:05 - [“鸟中大熊猫”彩鹮首次现身云南云县](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [特斯拉与亚马逊有望领涨工业板块](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [普京谈与泽连斯基会面：不主动，不拒绝](http://www.share.kurohicncr.top/Article/details/6616038533.shtml)
-- 2026-06-29 11:38 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](http://www.share.minike.top/Article/details/96078597911.shtml)
-- 2026-06-29 11:31 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](http://www.blog.kurohicncr.top/Article/details/808763.shtml)
-- 2026-06-29 11:57 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](http://www.share.minike.top/Article/details/26143430.shtml)
-- 2026-06-29 11:48 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](http://www.blog.kurohicncr.top/Article/details/9592876.shtml)
-- 2026-06-29 11:32 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](http://www.share.kurohicncr.top/Article/details/630149799735.shtml)
-- 2026-06-29 11:41 - [“续费刺客”如此“近视”，必撞南墻](http://www.blog.kurohicncr.top/Article/details/02965025.shtml)
-- 2026-06-29 11:34 - [视频|李大霄：警惕美债务风险](http://www.blog.minike.top/Article/details/7844889.shtml)
-- 2026-06-29 11:41 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](http://www.blog.kurohicncr.top/Article/details/6928396.shtml)
-- 2026-06-29 11:57 - [索尼在PS5疲软情况下仍寻求利润增长](http://www.blog.minike.top/Article/details/77931183756.shtml)
-- 2026-06-29 11:42 - [中国男队3:0击败日本 斩获伦敦世乒赛男团冠军](http://www.share.minike.top/Article/details/778856.shtml)
-- 2026-06-29 11:55 - [【每周经济观察】“两新”成绩单里的民生温度](http://www.share.kurohicncr.top/Article/details/19509848170.shtml)
-- 2026-06-29 11:52 - [Akamai斩获18亿美元AI云订单，盘前股价飙升27%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等](http://www.blog.minike.top/Article/details/1342222.shtml)
+- 2026-06-29 11:37 - [安井食品将于7月2日派发末期股息每股1.44元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [跌停！近7倍机器人大牛股遭立案，故事讲完谁在买单](http://www.blog.minike.top/Article/details/18598614.shtml)
+- 2026-06-29 11:47 - [姐弟组队勇闯吃瓜比赛 为了赢姐姐拼命“刷刷刷”，弟弟秒变“西瓜粉碎机”](http://www.share.kurohicncr.top/Article/details/81899097.shtml)
+- 2026-06-29 11:39 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](http://www.blog.minike.top/Article/details/380669.shtml)
+- 2026-06-29 11:45 - [美国多地再发生枪击事件，致十余人伤亡](http://www.blog.minike.top/Article/details/5635072655.shtml)
+- 2026-06-29 11:45 - [沃顿教授西格尔：围绕鲍威尔的美联储“大戏”远未落幕](http://www.blog.minike.top/Article/details/18891.shtml)
+- 2026-06-29 12:01 - [日本北部山火已连烧6天 过火面积超1600公顷](http://www.share.minike.top/Article/details/456791.shtml)
+- 2026-06-29 11:54 - [重庆法院发布首例承认欧洲仲裁机构裁决案件](http://www.blog.kurohicncr.top/Article/details/613752634.shtml)
+- 2026-06-29 12:02 - [“广货行天下 文旅邀您来”相关活动推出](http://www.blog.kurohicncr.top/Article/details/709419.shtml)
+- 2026-06-29 12:01 - [中方禁止外资收购Manus项目，外交部回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [伊朗恢复飞往重要国际目的地航班](http://www.share.minike.top/Article/details/6973104.shtml)
+- 2026-06-29 11:40 - [印尼列车相撞事故已致14死84伤 总统要求彻查](http://www.share.kurohicncr.top/Article/details/860471140032.shtml)
+- 2026-06-29 11:55 - [京津冀三地人民银行组织开展2026年党委理论学习中心组联组学习](http://www.blog.minike.top/Article/details/1984773483.shtml)
+- 2026-06-29 11:54 - [国证国际：滨海投资维持“买入”评级 目标价1.43港元](http://www.share.minike.top/Article/details/0115086800.shtml)
+- 2026-06-29 11:36 - [火箭超级工厂竣工投产 力箭二号运载火箭迈入批量化生产阶段](http://www.blog.minike.top/Article/details/31652073080.shtml)

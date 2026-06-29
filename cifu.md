@@ -1,57 +1,61 @@
-# 德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度
+# 绍兴越城：以“三抓实”落实统战工作责任制
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-德国周日驳回了俄罗斯总统弗拉基米尔・普京的一项提议，该提议建议由德国前总理格哈德・施罗德牵头协调与欧盟的谈判，以促成乌克兰问题和平协议达成。 欧洲理事会主席安东尼奥・科斯塔近日表示，他认为欧盟有与俄罗斯展开谈判的可能性，并可就欧洲未来安全架构议题进行磋商。普京随即称，若此类谈判启动，施罗德是他心目中首选的调停人选。 一名德国官员表示，俄方这一提议缺乏可信度，原因是俄罗斯并未做出
+【市县热线】绍兴越城：以“三抓实”落实统战工作责任制 绍兴市越城区委统战部深入贯彻《中国共产党统一战线工作条例》，全面落实浙江省委统战部有关统战工作责任体系要求，坚持把落实统战工作责任制作为构建大统战工作格局的关键抓手，压紧压实各级党委(党组)主体责任，推动统战工作与中心工作深度融合、同向发力，为全区经济社会高质量发展汇聚统战力量。 抓实责任分工，织密责任体系 研究部署把方向。
 
 ## 正文
 
-德国周日驳回了俄罗斯总统弗拉基米尔・普京的一项提议，该提议建议由德国前总理格哈德・施罗德牵头协调与欧盟的谈判，以促成乌克兰问题和平协议达成。
+【市县热线】绍兴越城：以“三抓实”落实统战工作责任制 绍兴市越城区委统战部深入贯彻《中国共产党统一战线工作条例》，全面落实浙江省委统战部有关统战工作责任体系要求，坚持把落实统战工作责任制作为构建大统战工作格局的关键抓手，压紧压实各级党委(党组)主体责任，推动统战工作与中心工作深度融合、同向发力，为全区经济社会高质量发展汇聚统战力量。
 
-欧洲理事会主席安东尼奥・科斯塔近日表示，他认为欧盟有与俄罗斯展开谈判的可能性，并可就欧洲未来安全架构议题进行磋商。
+抓实责任分工，织密责任体系 研究部署把方向。
 
-普京随即称，若此类谈判启动，施罗德是他心目中首选的调停人选。
+坚持把统战工作责任制摆在重要位置，研究制定《区委统战工作责任清单》和《区委常委、有关区领导统战工作职责清单》，明确区级层面统战工作“两张清单”，构建区委统一领导、统战部牵头协调、各方共同参与的工作体系。
 
-一名德国官员表示，俄方这一提议缺乏可信度，原因是俄罗斯并未做出任何立场条件上的让步。
+基层延伸全覆盖。
 
-该官员还补充，首要试金石是莫斯科是否愿意延长为期三天的停火。
+坚持全区“一盘棋”，推动责任链条向镇街延伸，13个镇街均制定《党委(党工委)统战工作责任清单》和《领导班子成员统战工作职责清单》，实现清单制定、责任落实全覆盖，确保基层统战工作任务有人管、工作有人抓、环节有人盯。
 
-施罗德 2005 年卸任总理后，几乎立刻出任颇具争议的德俄天然气管道财团董事长。
+跟踪问效促履责。
 
-因其与普京关系过从甚密，他在德国国内饱受舆论批评。
+将“两张清单”执行情况纳入年度考核，实现统战工作责任制从有形覆盖向有效覆盖转变，推动清单内容落地见效，确保各项任务不折不扣落实到位。
 
-德国政府发言人周五表态，柏林方面未看到莫斯科有开展严肃谈判的意向，并强调欧盟若与俄罗斯进行任何谈判，都必须同欧盟成员国及乌克兰密切协调立场。
+抓实机制运行，完善工作格局 强化“一把手”引领作用。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [纳睿雷达完成董事会换届：包晓军当选董事长并任总裁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:37 - [人形机器人与上海创新创业青年对话“谈科创”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:39 - [一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:35 - [中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:47 - [2026虹桥国际咖啡文化节启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:57 - [连续8周32场“村超”足球赛在黑龙江集贤火热开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:45 - [重庆巴南贴“陆”出海：变过路“流量”为发展“留量”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:32 - [把生姜当水果吃，1天1斤坚持多年？专家提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:49 - [文远知行-W于5月8日斥资133.11万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:41 - [伊朗驻华大使：我们不会忘记中国的帮助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:34 - [三星未来退市后售后与售卖仍如常？线下探店解答！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:51 - [跨境电商架桥梁 让互利之花在中越边境绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:48 - [韩国上市公司总市值首次突破6000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:01 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:45 - [交通银行：400亿元二级资本债券（债券通）发行完毕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:39 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:40 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:44 - [2026广东时装周（春季）以时尚之力赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:48 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:55 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:37 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:44 - [美国政府：白宫晚宴枪手意图刺杀特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:42 - [秦农银行国有持股占比首超50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:41 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:58 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:43 - [2026年“汉语桥”比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [恒瑞医药香港办公室正式启用](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](http://www.blog.minike.top/Article/details/28265.shtml)
-- 2026-06-29 11:48 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](http://www.share.minike.top/Article/details/630542834.shtml)
-- 2026-06-29 11:59 - [山西深挖气候资源潜力 释放气象数据价值](http://www.share.minike.top/Article/details/17382696572.shtml)
-- 2026-06-29 11:59 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](http://www.share.kurohicncr.top/Article/details/971985.shtml)
-- 2026-06-29 11:53 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.share.minike.top/Article/details/9736500.shtml)
-- 2026-06-29 11:59 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](http://www.blog.minike.top/Article/details/29341565.shtml)
-- 2026-06-29 11:39 - [OpenAI的安全与治理受到严格审视](http://www.share.minike.top/Article/details/8515999684.shtml)
-- 2026-06-29 11:32 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](http://www.share.minike.top/Article/details/070566843729.shtml)
-- 2026-06-29 11:47 - [证监会严肃查处清越科技财务造假案件](http://www.share.minike.top/Article/details/366636082.shtml)
-- 2026-06-29 11:38 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](http://www.share.kurohicncr.top/Article/details/09673.shtml)
-- 2026-06-29 11:54 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](http://www.blog.kurohicncr.top/Article/details/571421.shtml)
-- 2026-06-29 11:58 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](http://www.blog.minike.top/Article/details/707954916.shtml)
-- 2026-06-29 11:38 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](http://www.share.kurohicncr.top/Article/details/06270.shtml)
+- 2026-06-29 12:03 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](http://www.blog.minike.top/Article/details/3694525.shtml)
+- 2026-06-29 12:00 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](http://www.share.kurohicncr.top/Article/details/6409139411.shtml)
+- 2026-06-29 11:40 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](http://www.share.kurohicncr.top/Article/details/97053416012.shtml)
+- 2026-06-29 11:57 - [受气象不佳影响 “两马”航线将双向停航](http://www.share.kurohicncr.top/Article/details/0592902.shtml)
+- 2026-06-29 11:57 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](http://www.share.minike.top/Article/details/660796.shtml)
+- 2026-06-29 12:00 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](http://www.share.kurohicncr.top/Article/details/810918.shtml)
+- 2026-06-29 11:58 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](http://www.share.kurohicncr.top/Article/details/7334561.shtml)
+- 2026-06-29 11:45 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](http://www.share.minike.top/Article/details/30337.shtml)
+- 2026-06-29 11:46 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](http://www.share.kurohicncr.top/Article/details/807297.shtml)
+- 2026-06-29 12:06 - [“鸟中大熊猫”彩鹮首次现身云南云县](http://www.blog.minike.top/Article/details/994686742.shtml)
+- 2026-06-29 11:45 - [东珠生态业绩预告更正不及时，受损股民可索赔](http://www.blog.minike.top/Article/details/94103.shtml)
+- 2026-06-29 12:04 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](http://www.share.minike.top/Article/details/1559964195.shtml)

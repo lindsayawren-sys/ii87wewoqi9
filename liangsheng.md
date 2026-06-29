@@ -1,58 +1,57 @@
-# 一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察
+# 江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-文 | 《硅谷观察》郑峻 新CEO上任先挥刀裁员，第一刀却砍向了昔日下金蛋的“老母鸡”——漫威。 其实，漫威的衰落不是一夜之间发生的。 最典型的就是盲目增产，杀鸡取卵。漫威曾一年推出四部院线电影加四部流媒体剧集，平均每隔几周就有新内容上线。这是一场灾难性的决策。剧集与电影之间相互缠绕的剧情要求观众强制完成所谓的作业，否则就会在下一部院线电影中迷失，这种强制性的观看负担直接导致了
+发布时间：2026年04月28日 07:03 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期五年的长江生态环境保护民主监督。从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。 九三学社中央主席武维华表示，自接受中共中央委托开展长江生态环境保护民主监督工作以来，九三学社中央始终将其视为重大的政
 
 ## 正文
 
-文 | 《硅谷观察》郑峻 新CEO上任先挥刀裁员，第一刀却砍向了昔日下金蛋的“老母鸡”——漫威。
+发布时间：2026年04月28日 07:03 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期五年的长江生态环境保护民主监督。
 
-其实，漫威的衰落不是一夜之间发生的。
+从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。
 
-最典型的就是盲目增产，杀鸡取卵。
+九三学社中央主席武维华表示，自接受中共中央委托开展长江生态环境保护民主监督工作以来，九三学社中央始终将其视为重大的政治责任和光荣使命。
 
-漫威曾一年推出四部院线电影加四部流媒体剧集，平均每隔几周就有新内容上线。
+工作中，九三学社带着问题深入调研，在调研中深挖症结、共商对策，尽可能“既找病灶又开药方”。
 
-这是一场灾难性的决策。
+从专业视角深入分析问题，努力提出科学可行的解决问题的方案。
 
-剧集与电影之间相互缠绕的剧情要求观众强制完成所谓的作业，否则就会在下一部院线电影中迷失，这种强制性的观看负担直接导致了大批普通观众的流失。
+通过本轮专项监督，九三学社亲身见证了中国生态文明建设取得的历史性成就，进一步激励其按照中共中央统一部署，立足人民群众对美好生活的向往，出实招、聚共识、谋发展，凝聚起助力美丽中国建设的九三力量。
 
-当然，这只是多重危机中的一环。
-
-在短短几年时间，漫威影业是怎么从迪士尼的明星摇钱树变成现在最令人失望的部门？
+责任编辑：【张令旗】
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:52 - [山西深挖气候资源潜力 释放气象数据价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:58 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:47 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:58 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:31 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:59 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:58 - [证监会严肃查处清越科技财务造假案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:43 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:52 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:30 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:46 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:01 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:44 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:51 - [受气象不佳影响 “两马”航线将双向停航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:02 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:49 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:42 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:02 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:42 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:46 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:38 - [“鸟中大熊猫”彩鹮首次现身云南云县](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:46 - [东珠生态业绩预告更正不及时，受损股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:54 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:41 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:51 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](http://www.share.kurohicncr.top/Article/details/1519810319.shtml)
-- 2026-06-29 11:58 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](http://www.share.kurohicncr.top/Article/details/004467340.shtml)
-- 2026-06-29 11:33 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](http://www.share.minike.top/Article/details/348114467440.shtml)
-- 2026-06-29 12:00 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](http://www.share.kurohicncr.top/Article/details/588730417704.shtml)
-- 2026-06-29 11:40 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](http://www.blog.kurohicncr.top/Article/details/19852683.shtml)
-- 2026-06-29 11:38 - [“续费刺客”如此“近视”，必撞南墻](http://www.share.kurohicncr.top/Article/details/14554387070.shtml)
-- 2026-06-29 11:36 - [视频|李大霄：警惕美债务风险](http://www.share.kurohicncr.top/Article/details/37467724292.shtml)
-- 2026-06-29 11:35 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](http://www.blog.minike.top/Article/details/4436183.shtml)
-- 2026-06-29 11:30 - [索尼在PS5疲软情况下仍寻求利润增长](http://www.blog.kurohicncr.top/Article/details/06871111704.shtml)
-- 2026-06-29 11:40 - [中国男队3:0击败日本 斩获伦敦世乒赛男团冠军](http://www.blog.minike.top/Article/details/996648473677.shtml)
-- 2026-06-29 11:38 - [【每周经济观察】“两新”成绩单里的民生温度](http://www.blog.minike.top/Article/details/407161663.shtml)
-- 2026-06-29 11:43 - [Akamai斩获18亿美元AI云订单，盘前股价飙升27%](http://www.share.kurohicncr.top/Article/details/434349124.shtml)
-- 2026-06-29 11:36 - [中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [建国250周年之际，美国人逃离美国](http://www.share.minike.top/Article/details/7924414393.shtml)
-- 2026-06-29 11:43 - [Canvas制造商报告重大数据泄露](http://www.blog.kurohicncr.top/Article/details/7841968230.shtml)
+- 2026-06-29 11:53 - [姐弟组队勇闯吃瓜比赛 为了赢姐姐拼命“刷刷刷”，弟弟秒变“西瓜粉碎机”](http://www.blog.kurohicncr.top/Article/details/399401935.shtml)
+- 2026-06-29 11:50 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](http://www.share.minike.top/Article/details/395568.shtml)
+- 2026-06-29 11:56 - [美国多地再发生枪击事件，致十余人伤亡](http://www.share.kurohicncr.top/Article/details/8250923426.shtml)
+- 2026-06-29 11:57 - [沃顿教授西格尔：围绕鲍威尔的美联储“大戏”远未落幕](http://www.blog.kurohicncr.top/Article/details/1524443.shtml)
+- 2026-06-29 11:48 - [日本北部山火已连烧6天 过火面积超1600公顷](http://www.blog.kurohicncr.top/Article/details/457583230.shtml)
+- 2026-06-29 11:48 - [重庆法院发布首例承认欧洲仲裁机构裁决案件](http://www.share.minike.top/Article/details/544456263.shtml)
+- 2026-06-29 11:42 - [“广货行天下 文旅邀您来”相关活动推出](http://www.blog.kurohicncr.top/Article/details/319115260542.shtml)
+- 2026-06-29 11:58 - [中方禁止外资收购Manus项目，外交部回应](http://www.blog.kurohicncr.top/Article/details/1218998801.shtml)
+- 2026-06-29 11:52 - [伊朗恢复飞往重要国际目的地航班](http://www.share.minike.top/Article/details/35675180.shtml)
+- 2026-06-29 12:04 - [印尼列车相撞事故已致14死84伤 总统要求彻查](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [京津冀三地人民银行组织开展2026年党委理论学习中心组联组学习](http://www.blog.kurohicncr.top/Article/details/25795.shtml)
+- 2026-06-29 12:05 - [国证国际：滨海投资维持“买入”评级 目标价1.43港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [火箭超级工厂竣工投产 力箭二号运载火箭迈入批量化生产阶段](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [参与OpenAI手机项目？002475市值一日爆增400亿元！](http://www.share.kurohicncr.top/Article/details/5374156643.shtml)
+- 2026-06-29 11:43 - [北京银行：一季度实现归母净利润80.98亿元，同比增长5.55%](http://www.share.minike.top/Article/details/323973284.shtml)

@@ -1,57 +1,56 @@
-# 澳大利亚学者呼吁反思AUKUS代价
+# 人社部：一季度全国城镇新增就业299万人
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新社悉尼5月10日电 (记者 薄雯雯)澳大利亚悉尼大学学者大卫·布罗菲(David Brophy)9日表示，公众应重新审视美英澳三边安全伙伴关系(AUKUS)给澳大利亚带来的战略影响。 2021年，美英澳三国宣布建立AUKUS，并开展核潜艇合作，引发国际社会对三国深化军事同盟、破坏地区安全稳定的担忧。澳媒称，AUKUS核潜艇计划是澳大利亚最昂贵的国防项目之一，未来数十年的总投
+中新网4月28日电 人力资源社会保障部28日举行例行新闻发布会，介绍2026年一季度人力资源和社会保障工作进展情况。人力资源社会保障部政策研究司司长崔鹏程在会上表示，就业形势保持总体稳定。1-3月，全国城镇新增就业299万人，城镇调查失业率平均值为5.3%。发放失业保险稳岗返还资金31亿元、一次性扩岗补助5亿元、技能提升补贴8亿元。截至3月底，全国基本养老保险、失业保险、工伤保
 
 ## 正文
 
-中新社悉尼5月10日电 (记者 薄雯雯)澳大利亚悉尼大学学者大卫·布罗菲(David Brophy)9日表示，公众应重新审视美英澳三边安全伙伴关系(AUKUS)给澳大利亚带来的战略影响。
+中新网4月28日电 人力资源社会保障部28日举行例行新闻发布会，介绍2026年一季度人力资源和社会保障工作进展情况。
 
-2021年，美英澳三国宣布建立AUKUS，并开展核潜艇合作，引发国际社会对三国深化军事同盟、破坏地区安全稳定的担忧。
+人力资源社会保障部政策研究司司长崔鹏程在会上表示，就业形势保持总体稳定。
 
-澳媒称，AUKUS核潜艇计划是澳大利亚最昂贵的国防项目之一，未来数十年的总投入预计高达约3680亿澳元。
+1-3月，全国城镇新增就业299万人，城镇调查失业率平均值为5.3%。
 
-当地时间9日晚，一场名为“AUKUS协定的代价是什么？
+发放失业保险稳岗返还资金31亿元、一次性扩岗补助5亿元、技能提升补贴8亿元。
 
-”的论坛在悉尼举行。
+截至3月底，全国基本养老保险、失业保险、工伤保险(含职业伤害保障)参保人数分别为10.73亿人、2.47亿人、3.19亿人，同比增加187万人、280万人、2152万人。
 
-布罗菲在发言中表示，他对AUKUS持反对态度。
+一季度三项社会保险基金总收入2.54万亿元、总支出2.06万亿元，3月底累计结余10.8万亿元，基金运行总体平稳。
 
-他认为，AUKUS不仅体现了澳大利亚对美国安全战略的高度依赖，也折射出澳大利亚长期以来试图在太平洋地区维持主导影响力的战略思维。
-
-布罗菲称，从历史上看，澳大利亚长期依赖外部大国支持，以维护其地区战略利益。
+截至3月底，全国社保卡持卡人数13.9亿人，其中领用电子社保卡11.07亿人。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:43 - [2026虹桥国际咖啡文化节启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:49 - [连续8周32场“村超”足球赛在黑龙江集贤火热开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:49 - [重庆巴南贴“陆”出海：变过路“流量”为发展“留量”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:56 - [把生姜当水果吃，1天1斤坚持多年？专家提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:52 - [文远知行-W于5月8日斥资133.11万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:38 - [伊朗驻华大使：我们不会忘记中国的帮助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:30 - [三星未来退市后售后与售卖仍如常？线下探店解答！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:53 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:31 - [外贸从沿海“独唱”转向全域协同发力 跨境供应链韧性持续增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:30 - [“仰望布达拉”敬庭尧绘画艺术展在拉萨开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:00 - [交通银行：400亿元二级资本债券（债券通）发行完毕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:36 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:46 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:38 - [2026广东时装周（春季）以时尚之力赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:43 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:55 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:03 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:46 - [美国政府：白宫晚宴枪手意图刺杀特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:56 - [秦农银行国有持股占比首超50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:43 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:02 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:00 - [2026年“汉语桥”比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](http://www.blog.kurohicncr.top/Article/details/13128617.shtml)
-- 2026-06-29 11:43 - [山西深挖气候资源潜力 释放气象数据价值](http://www.blog.kurohicncr.top/Article/details/627223.shtml)
-- 2026-06-29 11:53 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](http://www.blog.kurohicncr.top/Article/details/42110017758.shtml)
-- 2026-06-29 11:52 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.blog.minike.top/Article/details/5685365121.shtml)
-- 2026-06-29 11:39 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](http://www.share.minike.top/Article/details/54763051.shtml)
-- 2026-06-29 11:58 - [OpenAI的安全与治理受到严格审视](http://www.blog.kurohicncr.top/Article/details/0940019.shtml)
-- 2026-06-29 11:50 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [证监会严肃查处清越科技财务造假案件](http://www.share.kurohicncr.top/Article/details/2277249.shtml)
-- 2026-06-29 11:31 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](http://www.blog.minike.top/Article/details/313194449.shtml)
-- 2026-06-29 11:55 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](http://www.blog.minike.top/Article/details/844713916.shtml)
-- 2026-06-29 11:49 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](http://www.share.kurohicncr.top/Article/details/95733316910.shtml)
-- 2026-06-29 11:40 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [南京：钟山湖畔 鸭趣盎然](http://www.share.kurohicncr.top/Article/details/24543567.shtml)
+- 2026-06-29 11:49 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](http://www.share.kurohicncr.top/Article/details/02170.shtml)
+- 2026-06-29 11:48 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](http://www.blog.minike.top/Article/details/1445602.shtml)
+- 2026-06-29 11:38 - [受气象不佳影响 “两马”航线将双向停航](http://www.share.minike.top/Article/details/09242.shtml)
+- 2026-06-29 11:46 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](http://www.share.minike.top/Article/details/466204095.shtml)
+- 2026-06-29 11:47 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](http://www.share.kurohicncr.top/Article/details/33124.shtml)
+- 2026-06-29 12:03 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](http://www.share.minike.top/Article/details/1203492.shtml)
+- 2026-06-29 11:41 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](http://www.share.minike.top/Article/details/4075716195.shtml)
+- 2026-06-29 11:44 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](http://www.share.kurohicncr.top/Article/details/97991942503.shtml)
+- 2026-06-29 11:49 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](http://www.blog.kurohicncr.top/Article/details/6143570.shtml)
+- 2026-06-29 11:49 - [“鸟中大熊猫”彩鹮首次现身云南云县](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [东珠生态业绩预告更正不及时，受损股民可索赔](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](http://www.blog.minike.top/Article/details/80829376455.shtml)
+- 2026-06-29 11:37 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](http://www.blog.minike.top/Article/details/72618548635.shtml)
+- 2026-06-29 11:50 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究](https://github.com/lisacumin64-arch)

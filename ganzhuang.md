@@ -1,60 +1,45 @@
-# 下周，两大龙头来了！
+# 视频 | 理财亏716万元，金融街证券被判赔偿10%
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！根据目前的发行安排，下周有2只新股申购，深市主板、沪市主板各有1只。 日程安排上，两只新股均在周三（5月13日）申购，分别是深市主板新股惠康科技、沪市主板新股嘉德利。 惠康科技是制冰机龙头企业。 惠康科技本次公开发行股票数量为3708.79万股，网上发行申购上限为14500股，顶格申购需配深市市值14.5万
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：江苏经济报 责任编辑：宋雅芳
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-根据目前的发行安排，下周有2只新股申购，深市主板、沪市主板各有1只。
-
-日程安排上，两只新股均在周三（5月13日）申购，分别是深市主板新股惠康科技、沪市主板新股嘉德利。
-
-惠康科技是制冰机龙头企业。
-
-惠康科技本次公开发行股票数量为3708.79万股，网上发行申购上限为14500股，顶格申购需配深市市值14.5万元。
-
-惠康科技深耕制冷领域，是一家以制冷设备的研发、生产及销售为核心业务的国家级高新技术企业，主要产品包括制冰机、冰箱、冷柜、酒柜等，主要应用于民用及商用领域，公司在制冰机领域具备较强的市场竞争力及领先的行业地位。
-
-根据中国轻工机械协会的数据，2022年到2024年，公司制冰机产品的内销市场占有率排名第一、内销民用市场占有率排名第一；制冰机全球市场占有率排名前列，全球民用市场占有率排名第一。
-
-业绩方面，2023年、2024年、2025年，惠康科技营业收入分别为24.93亿元、32.04亿元、28.77亿元，净利润分别为3.38亿元、4.51亿元、3.91亿元。
+来源：江苏经济报 责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 11:57 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:30 - [宏微科技：公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:50 - [我国营商环境持续改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:52 - [训修实业将于6月8日派发末期股息每股0.027港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:30 - [第三十六届澳门艺术节揭幕 开启多元艺术之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:59 - [保时捷关停三家子公司、裁员500人 持续推进战略重组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:36 - [俄国防部称乌军违反停火安排 对乌军实施对等打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:54 - [康菲石油获挪威批准重启大埃科菲斯克油田](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:32 - [三大指标领跑全球！中国船企加速布局绿色化智能化领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:43 - [广州欧美同学会、广州中华职教社非遗文化交流活动走进南沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:33 - [压缩试验成本 我国室内最大全季冰雪汽车试验基地开建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:53 - [伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:38 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:43 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:58 - [上海家化一季度扣非净利润同比增长38.2%，四个聚焦战略加速兑现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:42 - [台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:50 - [GTC泽汇:尼日利亚炼化驱动转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:01 - [我国拟修改水法提升水安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:04 - [APEC中国年，中美互动预期几何？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:01 - [“探店”网红白冰偷税被查 追缴并罚款共计超1891万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:55 - [大美边疆看我家丨内蒙古锡林浩特：百鸟翔集绘春图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:48 - [陈旭：日方应恪守中日四个政治文件 勿因错误言论干扰APEC合作环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:02 - [湖北：“五一”假期文旅融合主题产品焕新登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:49 - [生态环境部：一季度我国环境空气质量总体改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:59 - [收评：国内期货主力合约涨多跌少 多晶硅跌近7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](http://www.share.minike.top/Article/details/0747915720.shtml)
-- 2026-06-29 12:00 - [酒价内参5月11日价格发布：飞天茅台下跌2元](http://www.share.minike.top/Article/details/88382.shtml)
-- 2026-06-29 11:56 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](http://www.blog.minike.top/Article/details/016661839.shtml)
-- 2026-06-29 11:50 - [韩国产业部长与美方官员洽谈投资协议](http://www.blog.minike.top/Article/details/9085862405.shtml)
-- 2026-06-29 11:39 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [保时捷关停三家子公司裁员500人 持续推进业务转型](http://www.share.minike.top/Article/details/407940539.shtml)
-- 2026-06-29 11:43 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](http://www.blog.kurohicncr.top/Article/details/424319162.shtml)
-- 2026-06-29 11:33 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](http://www.share.minike.top/Article/details/69775.shtml)
-- 2026-06-29 11:55 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](http://www.blog.kurohicncr.top/Article/details/198381.shtml)
-- 2026-06-29 11:59 - [第23届世界乳腺健康大会在天津举行](http://www.share.minike.top/Article/details/34093310.shtml)
-- 2026-06-29 11:57 - [突发！美联储，降息预期生变！](http://www.blog.minike.top/Article/details/69268639.shtml)
-- 2026-06-29 11:39 - [美好生活，“体验”一下——“经济新活力”系列评](http://www.share.minike.top/Article/details/36276671626.shtml)
-- 2026-06-29 11:48 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](http://www.share.minike.top/Article/details/666304102.shtml)
+- 2026-06-29 11:55 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.share.minike.top/Article/details/55661.shtml)
+- 2026-06-29 11:41 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](http://www.share.minike.top/Article/details/57525418.shtml)
+- 2026-06-29 11:42 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](http://www.blog.minike.top/Article/details/569051.shtml)
+- 2026-06-29 11:52 - [长江“微笑天使”又添丁，见证江苏生态之变](http://www.share.kurohicncr.top/Article/details/282353.shtml)
+- 2026-06-29 11:47 - [春到桑干河](http://www.share.minike.top/Article/details/66130649.shtml)
+- 2026-06-29 12:04 - [一季度浙江算力中心用电规模和增速创新高](http://www.blog.kurohicncr.top/Article/details/09116737.shtml)
+- 2026-06-29 11:53 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](http://www.share.kurohicncr.top/Article/details/6944376266.shtml)
+- 2026-06-29 11:41 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](http://www.blog.kurohicncr.top/Article/details/15894.shtml)
+- 2026-06-29 11:40 - [互联网广告要跳出“流量至上”误区](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](http://www.blog.minike.top/Article/details/695275371.shtml)
+- 2026-06-29 11:42 - [中国黄河流域137处国家级自然保护区优良率达99.27％](http://www.blog.minike.top/Article/details/08372596.shtml)
+- 2026-06-29 11:39 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](http://www.blog.kurohicncr.top/Article/details/428004293185.shtml)
+- 2026-06-29 12:02 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [伪满皇宫博物院举办吉林省首个海事文化科普展](https://github.com/lisacumin64-arch)

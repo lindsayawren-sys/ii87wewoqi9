@@ -1,61 +1,48 @@
-# 中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片
+# 韩国总统府：谷歌将在韩国新建人工智能园区
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新网北京5月10日电 以“世界家园·国际邻里”为主题的北京市朝阳区建外街道第八届社区邻里节10日在建外外交公寓启幕。本次活动以中外文化交融为主线，吸引了来自多国的驻华使馆代表、中外居民、非遗代表性传承人及辖区企业代表，通过非遗展示、亲子共创、文艺展演等丰富环节，共同打造了一场融汇中外文化、国际风采与儿童创意的社区睦邻盛会。 推介多等国文化特色 由建外街道办事处与DRC外交公寓
+韩国总统政策顾问金龙范于周一表示，韩国政府与谷歌达成协议，将在首尔共建一座人工智能园区，深化谷歌与韩国本土技术人才、初创企业的合作。 金龙范介绍，韩国总统李在明当日在首尔会见了谷歌深度思维（DeepMind）首席执行官德米斯・哈萨比斯。韩国科学技术部与谷歌就此人工智能园区项目签署了合作谅解备忘录。 本次会谈及园区规划核心要点如下： 责任编辑：郭明煜
 
 ## 正文
 
-中新网北京5月10日电 以“世界家园·国际邻里”为主题的北京市朝阳区建外街道第八届社区邻里节10日在建外外交公寓启幕。
+韩国总统政策顾问金龙范于周一表示，韩国政府与谷歌达成协议，将在首尔共建一座人工智能园区，深化谷歌与韩国本土技术人才、初创企业的合作。
 
-本次活动以中外文化交融为主线，吸引了来自多国的驻华使馆代表、中外居民、非遗代表性传承人及辖区企业代表，通过非遗展示、亲子共创、文艺展演等丰富环节，共同打造了一场融汇中外文化、国际风采与儿童创意的社区睦邻盛会。
+金龙范介绍，韩国总统李在明当日在首尔会见了谷歌深度思维（DeepMind）首席执行官德米斯・哈萨比斯。
 
-推介多等国文化特色 由建外街道办事处与DRC外交公寓联合举办的第八届社区邻里节，以文化为桥，搭建起了“家门口”的国际文化客厅。
+韩国科学技术部与谷歌就此人工智能园区项目签署了合作谅解备忘录。
 
-非遗展示、亲子共创、文艺展演等丰富环节依次开展，现场洋溢着友好、欢乐的温馨氛围。
-
-“非遗薪传·数智赋能”板块是本次邻里节的特色板块，展现传统文化与现代科技的巧妙结合。
-
-数字非遗体验区运用前沿技术打造沉浸式互动场景，让古老的非遗技艺在科技赋能下焕发新生机，吸引了众多中外友人驻足体验。
-
-戴上3D眼镜，抬头只见精美的非遗风筝在空中飘荡。
-
-这是利用元宇宙AR技术展示的精美非遗风筝，观众可通过Ymeta猿宇宙3D眼镜沉浸式360度“观看”非遗风筝在真实的天空中飞扬的场景。
+本次会谈及园区规划核心要点如下： 责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 11:54 - [【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:56 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:33 - [权威快报|增长14.9% 我国外贸延续良好增长态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:37 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:56 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:32 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:35 - [中国首条深水油气装备工艺管线智能生产线建设完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:37 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:50 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:44 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:50 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:37 - [这个法国人，真让人刮目相看](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:52 - [“十五五”期间 武汉将亮相一批文旅新地标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:49 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:31 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:45 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:58 - [能源高价推升通胀风险，英债收益率走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:38 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:55 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:04 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:38 - [稳面积 提单产 夯实粮食稳产丰产基础](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:00 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:53 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:43 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:02 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [福建武夷山迎来制茶繁忙季](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [飞行学员ICAO英语四级四次没考过 航司起诉要求支付近60万元培训费](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [吉林东辽河源头梨花漫谷 百年古梨风姿依旧](http://www.blog.minike.top/Article/details/8558474.shtml)
-- 2026-06-29 11:54 - [欧洲央行管委Kocher：能源形势若无大幅改善 欧洲央行加息不可避免](http://www.blog.kurohicncr.top/Article/details/415150.shtml)
-- 2026-06-29 11:42 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [沪指开盘站上4200点 储存芯片概念股强势拉升](http://www.blog.minike.top/Article/details/406156718717.shtml)
-- 2026-06-29 11:40 - [从撒网到巡岸 四川泸州退捕渔民的“身份之变”](http://www.share.minike.top/Article/details/82294525506.shtml)
-- 2026-06-29 11:36 - [福州马尾至马祖“小三通”客运航线11日双向停航](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [浙大“三剑客”县城创业：让中国芯用上“中国泵”](http://www.blog.kurohicncr.top/Article/details/1398190.shtml)
-- 2026-06-29 11:59 - [北京人形机器人唐剑：全面提升机器人的泛化能力](http://www.blog.minike.top/Article/details/890351697.shtml)
-- 2026-06-29 11:40 - [中指研究院：4月北上深租金环比继续上涨](http://www.share.minike.top/Article/details/50230618.shtml)
-- 2026-06-29 11:56 - [上市公司买理财年内大降2500+亿 配置多元化趋势凸显](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [罕见不展示重型装备，严防乌克兰“突然袭击”，俄罗斯今天举行胜利日阅兵](http://www.blog.minike.top/Article/details/089241129.shtml)
-- 2026-06-29 11:41 - [成都一中学举办科技节 硬核体验点燃科学梦](http://www.share.kurohicncr.top/Article/details/3329886982.shtml)
-- 2026-06-29 11:47 - [四川成都：列车穿行紫色花海](http://www.share.kurohicncr.top/Article/details/822171.shtml)
+- 2026-06-29 11:56 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](http://www.blog.kurohicncr.top/Article/details/972068891596.shtml)
+- 2026-06-29 11:48 - [OpenAI进军手机！“牵手”立讯精密！电子板块领涨两市，华宝基金电子ETF（515260）猛拉4.14%，续创历史新高](http://www.blog.kurohicncr.top/Article/details/63644475.shtml)
+- 2026-06-29 11:48 - [上海家化发布2026年一季报：营业收入17.95亿同比增长5.4% 归母净利润2.22亿同比增长2.3%](http://www.share.minike.top/Article/details/517806196.shtml)
+- 2026-06-29 11:39 - [德银：迅策目标价上调至351港元 维持“买入”评级](http://www.blog.minike.top/Article/details/30988.shtml)
+- 2026-06-29 12:02 - [上海傅利叶董事长顾捷荣获全国五一劳动奖章](http://www.share.kurohicncr.top/Article/details/40363729637.shtml)
+- 2026-06-29 12:03 - [一季度石家庄海关签发RCEP原产地证书2532份](http://www.share.minike.top/Article/details/1455267321.shtml)
+- 2026-06-29 11:39 - [2粒药错写成21粒，失误何以“一路绿灯”](http://www.share.minike.top/Article/details/2780454.shtml)
+- 2026-06-29 11:44 - [氧化铝：惊弓之鸟还是风雨欲来？](http://www.share.minike.top/Article/details/5588404067.shtml)
+- 2026-06-29 11:58 - [数智赋能民间文艺传承 2026“世界艺术和科技对话”上海活动举办](http://www.blog.kurohicncr.top/Article/details/0992769.shtml)
+- 2026-06-29 12:01 - [喀什至吉尔吉斯斯坦奥什国际客运航线成功首航](http://www.share.kurohicncr.top/Article/details/85667.shtml)
+- 2026-06-29 11:39 - [欧洲股市小幅攀升，传伊朗提出和平提议](http://www.share.kurohicncr.top/Article/details/7247410550.shtml)
+- 2026-06-29 11:43 - [央行上海总部：一季度上海社会融资规模增加4743亿元 同比多增138亿元](http://www.blog.kurohicncr.top/Article/details/63268615438.shtml)
+- 2026-06-29 11:51 - [白宫晚宴枪击最新调查进展：被捕枪手为一名家教，曾留下字条](http://www.blog.kurohicncr.top/Article/details/5967482045.shtml)
+- 2026-06-29 11:48 - [OEXN:黄金震荡观望央行信号](http://www.share.kurohicncr.top/Article/details/76024.shtml)
+- 2026-06-29 11:43 - [“五一”假日期间海南省天气总体较好 适宜出游](https://github.com/lisacumin64-arch)

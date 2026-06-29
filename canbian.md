@@ -1,57 +1,49 @@
-# “十五五”期间 武汉将亮相一批文旅新地标
+# 《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 20:55 来源：中国新闻网 5月8日，武汉市文化和旅游局党委书记、局长章建育在湖北省政府新闻办举行的“开局起步‘十五五’ 加力奋进建支点”系列新闻发布会武汉专场上表示，武汉将深入实施文化创新战略，加快把文化旅游业打造成为支柱产业，努力建设世界知名文化旅游目的地，绘就新时代的“江汉揽胜图”。 “十五五”期间，武汉将推出更多武汉原创、武汉制作、武
+中新网4月28日电 根据亦舒小说《独身女人》改编，张晓波执导，唐嫣、赵又廷领衔主演，杨采钰领衔主演，冯绍峰特邀出演，晏紫东、何蓝逗领衔主演，王菊、张超、陈昊森主演，倪虹洁、刘钧、沙宝亮特别出演的都市情感剧《爱情没有神话》正式开播。 《爱情没有神话》电视剧讲述了以林展翘(唐嫣 饰)、何韩(赵又廷 饰)为代表的都市男女们，在事业与情感的交织浪潮中，彼此形成深厚羁绊，他们不断探寻自我
 
 ## 正文
 
-发布时间：2026年05月08日 20:55 来源：中国新闻网 5月8日，武汉市文化和旅游局党委书记、局长章建育在湖北省政府新闻办举行的“开局起步‘十五五’ 加力奋进建支点”系列新闻发布会武汉专场上表示，武汉将深入实施文化创新战略，加快把文化旅游业打造成为支柱产业，努力建设世界知名文化旅游目的地，绘就新时代的“江汉揽胜图”。
+中新网4月28日电 根据亦舒小说《独身女人》改编，张晓波执导，唐嫣、赵又廷领衔主演，杨采钰领衔主演，冯绍峰特邀出演，晏紫东、何蓝逗领衔主演，王菊、张超、陈昊森主演，倪虹洁、刘钧、沙宝亮特别出演的都市情感剧《爱情没有神话》正式开播。
 
-“十五五”期间，武汉将推出更多武汉原创、武汉制作、武汉出品的精品力作和文旅品牌。
+《爱情没有神话》电视剧讲述了以林展翘(唐嫣 饰)、何韩(赵又廷 饰)为代表的都市男女们，在事业与情感的交织浪潮中，彼此形成深厚羁绊，他们不断探寻自我，最终与爱人、朋友一道绽放绚烂人生的故事。
 
-建好长江国家文化公园武汉段和长江博物馆，系统推进文物保护利用和文化遗产保护传承。
+值得一提的是，《爱情没有神话》导演张晓波曾执导《小舍得》《三十而已》等。
 
-加快建设武汉图书馆新馆、戏曲艺术中心、文学馆、文物考古保护展示中心等文化地标。
-
-串联黄鹤楼、古琴台、南岸嘴等核心资源，打造世界水准、武汉特色的“一桥两山”文旅新地标。
-
-(王梦媛） 责任编辑：【卢岩】
+在充斥着“完美爱情范本”的影视市场中，该剧并未试图定义一种“正确”的情感模式，而是将镜头对准都市男女的真实生存状态，无论是坚定追求自我价值的职场女性、在情感中保持理性的成熟男性，还是勇敢无畏的年轻一代、历经沧桑的“过来人”，每个角色都摆脱了扁平化设定，生动立体地剖析现代都市年轻男女内心深处不同的情感困境。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [澳大利亚学者呼吁反思AUKUS代价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:30 - [中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:50 - [北约国家为特朗普从欧洲撤出更多部队做准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:32 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:48 - [纳睿雷达完成董事会换届：包晓军当选董事长并任总裁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:35 - [人形机器人与上海创新创业青年对话“谈科创”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:57 - [一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:37 - [中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:45 - [2026虹桥国际咖啡文化节启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:36 - [连续8周32场“村超”足球赛在黑龙江集贤火热开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:30 - [重庆巴南贴“陆”出海：变过路“流量”为发展“留量”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:45 - [把生姜当水果吃，1天1斤坚持多年？专家提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:57 - [文远知行-W于5月8日斥资133.11万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:45 - [伊朗驻华大使：我们不会忘记中国的帮助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:49 - [三星未来退市后售后与售卖仍如常？线下探店解答！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:37 - [人社部：一季度全国城镇新增就业299万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:45 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:04 - [青海西宁：文体商旅融合点燃五月高原消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:59 - [2026年3月广东省外贸进出口总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:40 - [跨境电商架桥梁 让互利之花在中越边境绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:36 - [韩国上市公司总市值首次突破6000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:01 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:48 - [交通银行：400亿元二级资本债券（债券通）发行完毕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:36 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:54 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:36 - [2026广东时装周（春季）以时尚之力赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:45 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.blog.minike.top/Article/details/15813.shtml)
-- 2026-06-29 11:33 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [2026中国田径街头巡回赛揭幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）](http://www.share.minike.top/Article/details/5948851804.shtml)
-- 2026-06-29 11:41 - [恒瑞医药香港办公室正式启用](http://www.share.kurohicncr.top/Article/details/8871894.shtml)
-- 2026-06-29 11:58 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](http://www.share.kurohicncr.top/Article/details/1340960.shtml)
-- 2026-06-29 11:46 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](http://www.blog.kurohicncr.top/Article/details/24119909768.shtml)
-- 2026-06-29 11:35 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](http://www.blog.kurohicncr.top/Article/details/613981557158.shtml)
-- 2026-06-29 11:58 - [山西深挖气候资源潜力 释放气象数据价值](http://www.blog.minike.top/Article/details/8578982247.shtml)
-- 2026-06-29 11:39 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](http://www.share.minike.top/Article/details/522094779.shtml)
-- 2026-06-29 11:37 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](http://www.blog.kurohicncr.top/Article/details/43425.shtml)
-- 2026-06-29 11:56 - [OpenAI的安全与治理受到严格审视](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](http://www.blog.minike.top/Article/details/7706816.shtml)
-- 2026-06-29 11:56 - [证监会严肃查处清越科技财务造假案件](http://www.blog.minike.top/Article/details/38512863.shtml)
+- 2026-06-29 11:47 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](http://www.blog.minike.top/Article/details/8033168304.shtml)
+- 2026-06-29 11:43 - [解决新旧海商法衔接适用问题 最高法出台司法解释](http://www.blog.kurohicncr.top/Article/details/39105.shtml)
+- 2026-06-29 11:41 - [中非银联体召开第二届高官会暨中非金融合作研讨会](http://www.share.minike.top/Article/details/303547310.shtml)
+- 2026-06-29 11:41 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](http://www.blog.minike.top/Article/details/124061877280.shtml)
+- 2026-06-29 12:02 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](http://www.share.kurohicncr.top/Article/details/25117088.shtml)
+- 2026-06-29 11:41 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](http://www.blog.minike.top/Article/details/947174651.shtml)
+- 2026-06-29 11:40 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](http://www.share.kurohicncr.top/Article/details/40368510136.shtml)
+- 2026-06-29 11:50 - [受气象不佳影响 “两马”航线将双向停航](http://www.blog.kurohicncr.top/Article/details/38659704.shtml)
+- 2026-06-29 11:41 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](http://www.blog.kurohicncr.top/Article/details/17466.shtml)
+- 2026-06-29 11:51 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](http://www.blog.kurohicncr.top/Article/details/60571.shtml)
+- 2026-06-29 12:01 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](http://www.blog.minike.top/Article/details/03249.shtml)
+- 2026-06-29 12:05 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](https://github.com/lisacumin64-arch)

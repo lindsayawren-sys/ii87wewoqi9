@@ -1,59 +1,58 @@
-# 估值高企业绩萎靡，国晟科技提示四大核心风险
+# 越来越多中国茶饮等品牌开启新一轮出海热潮 外交部回应
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-今年以来股价大涨超53%、市净率远超行业均值，却深陷连续亏损、项目停滞、高比例股权质押多重困境。 5月8日晚间，国晟科技（维权）发布四大风险预警，直面估值泡沫、业绩承压、对外投资落地无望、控股股东高质押等核心问题。就在此前一日，公司股价高位跳水逼近跌停。 Wind数据显示，5月8日，国晟科技股价收报26.99元/股，涨幅为4.17%，总市值为178亿元。 提示四大核心风险 5月
+中新网北京4月28日电 (记者 黄钰钦 曾玥)中国外交部发言人林剑28日主持例行记者会。 有记者提问：近日多家外媒报道，越来越多中国茶饮、火锅、运动等品牌开启新一轮出海热潮。报道认为，中国企业不仅把产品销售到海外，而且以技术、设计、供应链效率、本地化服务等赢得外国民众青睐，致力于打造具有全球辨识度的品牌。发言人对此有何评论？ 林剑：近年来，中国品牌凭借卓越品质、创新科技和兼具文
 
 ## 正文
 
-今年以来股价大涨超53%、市净率远超行业均值，却深陷连续亏损、项目停滞、高比例股权质押多重困境。
+中新网北京4月28日电 (记者 黄钰钦 曾玥)中国外交部发言人林剑28日主持例行记者会。
 
-5月8日晚间，国晟科技（维权）发布四大风险预警，直面估值泡沫、业绩承压、对外投资落地无望、控股股东高质押等核心问题。
+有记者提问：近日多家外媒报道，越来越多中国茶饮、火锅、运动等品牌开启新一轮出海热潮。
 
-就在此前一日，公司股价高位跳水逼近跌停。
+报道认为，中国企业不仅把产品销售到海外，而且以技术、设计、供应链效率、本地化服务等赢得外国民众青睐，致力于打造具有全球辨识度的品牌。
 
-Wind数据显示，5月8日，国晟科技股价收报26.99元/股，涨幅为4.17%，总市值为178亿元。
+发言人对此有何评论？
 
-提示四大核心风险 5月8日晚间，国晟科技发布股票交易风险提示公告，集中提示公司生产经营风险、市场交易风险、对外投资事项风险及公司控股股东股份质押四大核心风险。
+林剑：近年来，中国品牌凭借卓越品质、创新科技和兼具文化温度的设计，在全球市场广获认可。
 
-公告显示，自2026年初至5月8日，公司股票累计涨幅达53.35%，短期波动幅度较大，二级市场交易风险显著。
+它们为各国消费者带来了更丰富、优质的选择，也成为各国民众观察中国、感知中国的鲜活载体。
 
-从估值水平看，公司所属电气机械和器材制造业最新市净率仅为3.59，而公司市净率高达60.58，远超行业平均水平，估值偏离基本面特征明显。
+从代工加工到自主研发，从规模扩张到价值深耕，从借鉴“洋元素”到弘扬“民族风”，中国以充沛的创新能力、市场活力与文化张力推动“中国制造”换挡升级，以开放合作拥抱全球市场。
 
-经公司自查，主营业务及基本面未发生重大变化，但业绩持续承压。
+中国品牌成为中国品质的代言人，是中国发展利好世界的生动注脚。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [余额宝收益率为何跌破“1”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:34 - [西班牙发现一例汉坦病毒疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:31 - [福建龙岩：“绿巨人”矿卡奔赴西藏高原“上岗”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:55 - [河南洛阳：2000余株高山牡丹竞相绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:52 - [深圳出海中心正式进入实体化运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:49 - [穗港澳青少年家书抒怀 共品年味同守根脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:36 - [董事长、总经理同日换帅，中泰资管进入“双姜”时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:36 - [Sound Transit在345亿美元资金缺口下重塑项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:30 - [张精科即将入主董事会，杭州银行2026年业绩目标曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:35 - [下周，两大龙头来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:48 - [东西问丨杨惠姗：海峡两岸琉璃艺术如何共舞世界艺林？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:55 - [消息人士称目前霍尔木兹海峡周边地区局势平静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:54 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:54 - [迎来24项“国家红利”，综保区加速扩能提质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:39 - [中国再保险：中再寿险一季度净亏损2.51亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:48 - [小新带你看亚沙：这个展馆为何吸引老外扎堆打卡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:06 - [软银携手科技巨头，打造5000亿美元AI数据中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:52 - [我国拟修订农业法 增加建立粮食安全监测预警制度等内容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:56 - [“全球AI光算力第一股”诞生 上海“芯片先锋队”再添新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:52 - [中国人民银行茂名市分行：普惠金改品牌影响力持续扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:41 - [深圳莲塘口岸单日出入境人次再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:59 - [原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:51 - [视频 | 理财亏716万元，金融街证券被判赔偿10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:49 - [姑苏城外瑞光塔 夜半灯火照客游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:36 - [1.8米杖头木偶亮相厦门“屿见闽南” 16米长绸翩舞引惊呼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](http://www.blog.kurohicncr.top/Article/details/42473.shtml)
-- 2026-06-29 11:41 - [杨涛：智能体技术推动银行业智能化转型](http://www.share.kurohicncr.top/Article/details/58250734127.shtml)
-- 2026-06-29 12:00 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](http://www.blog.minike.top/Article/details/11205164.shtml)
-- 2026-06-29 11:44 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.share.kurohicncr.top/Article/details/283730634.shtml)
-- 2026-06-29 11:41 - [（乡村行·看振兴）方寸庭院生“金”记](http://www.blog.minike.top/Article/details/0133086841.shtml)
-- 2026-06-29 11:50 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](http://www.blog.kurohicncr.top/Article/details/712578915686.shtml)
-- 2026-06-29 11:35 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](http://www.share.kurohicncr.top/Article/details/076228804.shtml)
-- 2026-06-29 11:48 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](http://www.blog.minike.top/Article/details/122321079.shtml)
-- 2026-06-29 11:44 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](http://www.blog.minike.top/Article/details/097734505903.shtml)
-- 2026-06-29 11:36 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](http://www.blog.kurohicncr.top/Article/details/278162983.shtml)
-- 2026-06-29 11:59 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.blog.kurohicncr.top/Article/details/71113.shtml)
-- 2026-06-29 11:55 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](http://www.blog.kurohicncr.top/Article/details/282700.shtml)
-- 2026-06-29 11:59 - [德国3月对美出口大幅下滑](http://www.share.kurohicncr.top/Article/details/457158.shtml)
-- 2026-06-29 11:49 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](http://www.share.kurohicncr.top/Article/details/46124.shtml)
-- 2026-06-29 11:30 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](http://www.blog.minike.top/Article/details/440079092400.shtml)
+- 2026-06-29 11:52 - [时政微周刊丨总书记的一周（4月20日—4月26日）](http://www.share.kurohicncr.top/Article/details/79477.shtml)
+- 2026-06-29 11:56 - [从课堂到云端 自媒体重构海外华文教育生态](http://www.blog.kurohicncr.top/Article/details/8962828624.shtml)
+- 2026-06-29 11:56 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [一季度高技术产业实际使用外资同比增长30.7%](http://www.blog.kurohicncr.top/Article/details/70789469999.shtml)
+- 2026-06-29 11:53 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](http://www.blog.minike.top/Article/details/881913533946.shtml)
+- 2026-06-29 11:49 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](http://www.share.minike.top/Article/details/14883824747.shtml)
+- 2026-06-29 11:51 - [现场下单！中国机器人“圈粉”爱尔兰老球员](http://www.share.kurohicncr.top/Article/details/3916071767.shtml)
+- 2026-06-29 11:51 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](http://www.share.minike.top/Article/details/84795204.shtml)
+- 2026-06-29 11:50 - [002779、603360，被证监会立案！](http://www.blog.minike.top/Article/details/6122916491.shtml)
+- 2026-06-29 12:05 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](http://www.blog.kurohicncr.top/Article/details/97848.shtml)
+- 2026-06-29 12:05 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.share.kurohicncr.top/Article/details/229897.shtml)
+- 2026-06-29 11:39 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](http://www.share.minike.top/Article/details/513012.shtml)
+- 2026-06-29 11:46 - [珠江流域进一步强化节约用水管理工作](http://www.blog.minike.top/Article/details/927226296890.shtml)
+- 2026-06-29 11:43 - [“五一”假期预计全国日均租车量将超70万辆](http://www.blog.minike.top/Article/details/3159868.shtml)

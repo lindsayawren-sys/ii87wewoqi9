@@ -1,55 +1,59 @@
-# 江西省政协原党组成员、副主席胡幼桃被提起公诉
+# 002779、603360，被证监会立案！
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新网5月9日电 据最高人民检察院微博消息，江西省政协原党组成员、副主席胡幼桃涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。最高人民检察院依法以涉嫌受贿罪对胡幼桃作出逮捕决定，并指定由浙江省温州市人民检察院审查起诉。近日，温州市人民检察院已向温州市中级人民法院提起公诉。 检察机关在审查起诉阶段，依法告知了被告人胡幼桃享有的诉讼权利，并讯问了被告人，听取了辩护人的
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月27日晚间，中坚科技（002779）、百傲化学（603360）均发布公告称，因涉嫌信息披露违法违规，公司被中国证监会立案。 中坚科技、百傲化学均表示，目前公司各项经营活动均正常开展。立案调查期间，将积极配合中国证监会的调查工作，并严格按照相关法律法规及监
 
 ## 正文
 
-中新网5月9日电 据最高人民检察院微博消息，江西省政协原党组成员、副主席胡幼桃涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-最高人民检察院依法以涉嫌受贿罪对胡幼桃作出逮捕决定，并指定由浙江省温州市人民检察院审查起诉。
+4月27日晚间，中坚科技（002779）、百傲化学（603360）均发布公告称，因涉嫌信息披露违法违规，公司被中国证监会立案。
 
-近日，温州市人民检察院已向温州市中级人民法院提起公诉。
+中坚科技、百傲化学均表示，目前公司各项经营活动均正常开展。
 
-检察机关在审查起诉阶段，依法告知了被告人胡幼桃享有的诉讼权利，并讯问了被告人，听取了辩护人的意见。
+立案调查期间，将积极配合中国证监会的调查工作，并严格按照相关法律法规及监管要求履行信息披露义务。
 
-检察机关起诉指控：被告人胡幼桃利用担任江西省发展计划委员会副主任，江西省财政厅党组书记、厅长，江西省地税局党组书记，江西省副省长，江西省政协副主席等职务上的便利，为他人谋取利益，非法收受他人财物，数额特别巨大，依法应当以受贿罪追究其刑事责任。
+对于本次立案调查所涉具体事项，两家公司并未在公告中明确。
+
+中坚科技被监管密集追责 证券时报·e公司记者关注到，中坚科技除被证监会立案外，还在4月27日同步收到了深交所监管函、浙江证监局警示函。
+
+前述函件内容显示，经查明，中坚科技存在未如实对外披露相关合作备忘录签署情况以及互动易答复不完整情况。
+
+中坚科技传统业务为园林机械的研发、设计、生产及销售。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:57 - [酒价内参5月11日价格发布：飞天茅台下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:31 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:56 - [韩国产业部长与美方官员洽谈投资协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:31 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:55 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:50 - [保时捷关停三家子公司裁员500人 持续推进业务转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:57 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:59 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:45 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:40 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:46 - [第23届世界乳腺健康大会在天津举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:40 - [突发！美联储，降息预期生变！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:33 - [美好生活，“体验”一下——“经济新活力”系列评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:48 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:50 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:52 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:51 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:54 - [长江“微笑天使”又添丁，见证江苏生态之变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:49 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:04 - [一季度浙江算力中心用电规模和增速创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:47 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:50 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:58 - [互联网广告要跳出“流量至上”误区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:47 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:58 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:55 - [中国黄河流域137处国家级自然保护区优良率达99.27％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:43 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:55 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](http://www.share.minike.top/Article/details/3253930375.shtml)
-- 2026-06-29 11:42 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [对话魏建军：长城汽车追求有质量的市场占有率，要坚持长期主义，不是看一招一式、短期的行为](http://www.blog.minike.top/Article/details/297371.shtml)
-- 2026-06-29 11:36 - [德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [伊朗媒体报道称：伊朗提议美30天内撤销对伊石油销售制裁](http://www.share.kurohicncr.top/Article/details/7032859947.shtml)
-- 2026-06-29 11:51 - [直播海报：天舟十号货运飞船发射任务](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [澳大利亚学者呼吁反思AUKUS代价](http://www.blog.minike.top/Article/details/758638.shtml)
-- 2026-06-29 11:58 - [中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [北约国家为特朗普从欧洲撤出更多部队做准备](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [习言道｜父母是孩子的第一任老师](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [纳睿雷达完成董事会换届：包晓军当选董事长并任总裁](http://www.blog.kurohicncr.top/Article/details/557164.shtml)
-- 2026-06-29 11:32 - [人形机器人与上海创新创业青年对话“谈科创”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？](http://www.blog.kurohicncr.top/Article/details/003218562.shtml)
-- 2026-06-29 11:52 - [中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [2026虹桥国际咖啡文化节启动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [姚高员辞去杭州市市长职务](http://www.blog.kurohicncr.top/Article/details/2662946434.shtml)
+- 2026-06-29 11:40 - [法学大先生·张晋藩](http://www.share.kurohicncr.top/Article/details/842130003342.shtml)
+- 2026-06-29 11:44 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](http://www.share.kurohicncr.top/Article/details/09844.shtml)
+- 2026-06-29 12:01 - [绍兴越城：以“三抓实”落实统战工作责任制](http://www.share.kurohicncr.top/Article/details/5147450.shtml)
+- 2026-06-29 12:02 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](http://www.blog.kurohicncr.top/Article/details/5735785.shtml)
+- 2026-06-29 11:55 - [青春，就应该这样！——写在2026年五四青年节到来之际](http://www.blog.minike.top/Article/details/55101.shtml)
+- 2026-06-29 11:40 - [人社部：一季度全国城镇新增就业299万人](http://www.share.kurohicncr.top/Article/details/92252795.shtml)
+- 2026-06-29 11:51 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](http://www.share.kurohicncr.top/Article/details/65751841.shtml)
+- 2026-06-29 12:04 - [青海西宁：文体商旅融合点燃五月高原消费热潮](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [2026年3月广东省外贸进出口总值表（人民币值）](http://www.blog.kurohicncr.top/Article/details/81086152.shtml)
+- 2026-06-29 12:01 - [跨境电商架桥梁 让互利之花在中越边境绽放](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [韩国上市公司总市值首次突破6000万亿韩元](http://www.blog.minike.top/Article/details/1469939645.shtml)
+- 2026-06-29 11:53 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](http://www.blog.kurohicncr.top/Article/details/552578743292.shtml)
+- 2026-06-29 11:41 - [交通银行：400亿元二级资本债券（债券通）发行完毕](http://www.blog.kurohicncr.top/Article/details/15291775793.shtml)
+- 2026-06-29 11:59 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](https://github.com/lisacumin64-arch)

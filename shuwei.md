@@ -1,52 +1,56 @@
-# 西班牙政府称接收涉疫邮轮工作“一切准备就绪”
+# 上海傅利叶董事长顾捷荣获全国五一劳动奖章
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-当地时间5月9日晚间，西班牙卫生大臣莫妮卡·加西亚、内政大臣马拉斯卡和世界卫生组织总干事谭德塞等多方共同在西班牙特内里费岛出席了新闻发布会。 加西亚在发布会上表示，西班牙接收涉及汉坦病毒疫情邮轮的工作“一切准备就绪”，此次撤离行动涉及23个国家，西班牙正在与国际卫生机构协调，以确保行动在最高保障下进行。 根据邮轮运营方的声明，该邮轮预计将在加那利群岛当地时间10日5时30分抵达
+4月28日，中华全国总工会发布《关于表彰2026年全国五一劳动奖的决定》。 2025年是“十四五”规划收官之年，全国广大职工为推进中国式现代化作出突出贡献，涌现出一大批先进集体和个人。他们在推动高质量发展中建功立业，在服务重大战略、重大工程、重大项目、重点产业中勇挑重担，在深化产业工人队伍建设改革中锐意进取，充分发挥了主力军作用。 为表彰激励先进典型，凝聚起团结奋进的强大力量，
 
 ## 正文
 
-当地时间5月9日晚间，西班牙卫生大臣莫妮卡·加西亚、内政大臣马拉斯卡和世界卫生组织总干事谭德塞等多方共同在西班牙特内里费岛出席了新闻发布会。
+4月28日，中华全国总工会发布《关于表彰2026年全国五一劳动奖的决定》。
 
-加西亚在发布会上表示，西班牙接收涉及汉坦病毒疫情邮轮的工作“一切准备就绪”，此次撤离行动涉及23个国家，西班牙正在与国际卫生机构协调，以确保行动在最高保障下进行。
+2025年是“十四五”规划收官之年，全国广大职工为推进中国式现代化作出突出贡献，涌现出一大批先进集体和个人。
 
-根据邮轮运营方的声明，该邮轮预计将在加那利群岛当地时间10日5时30分抵达特内里费岛的格拉纳迪拉港，乘客将于早上8时左右开始下船。
+他们在推动高质量发展中建功立业，在服务重大战略、重大工程、重大项目、重点产业中勇挑重担，在深化产业工人队伍建设改革中锐意进取，充分发挥了主力军作用。
 
-相关阅读当地时间6日，西班牙内政大臣马拉斯卡确认，西班牙将接收“洪迪厄斯”号邮轮。
+为表彰激励先进典型，凝聚起团结奋进的强大力量，中华全国总工会决定，授予北京北一机床有限责任公司等379个单位全国五一劳动奖状，授予吴勇等1462名职工全国五一劳动奖章，授予北京北斗星通导航技术股份有限公司地基云端算法团队等1183个集体全国工人先锋号，对受表彰的先进女职工个人和集体同时授予全国五一巾帼标兵和全国五一巾帼标兵岗。
 
-马拉斯卡在发布会上表示，是世界卫生组织要求该邮轮停靠在该国的加那利自治区。
+希望受到表彰的先进集体和个人，珍惜荣誉、保持本色，继续努力、再立新功。
 
-(总台记者 杨帆)
+中华全国总工会号召，全国广大职工要紧紧围绕党的中心任务，大力弘扬劳模精神、劳动精神、工匠精神，以受表彰的先进典型为榜样，立足岗位、创新创造、奋发进取、拼搏奉献，奋力实现“十五五”良好开局，在以中国式现代化全面推进强国建设、民族复兴伟业中作出新的更大贡献。
+
+上海傅利叶智能科技股份有限公司董事长、正高级工程师顾捷荣获全国五一劳动奖章。
+
+责任编辑：李昂
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [上市公司买理财年内大降2500+亿 配置多元化趋势凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:49 - [罕见不展示重型装备，严防乌克兰“突然袭击”，俄罗斯今天举行胜利日阅兵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:49 - [成都一中学举办科技节 硬核体验点燃科学梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:36 - [四川成都：列车穿行紫色花海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:30 - [一站打卡万余种文创 首届中国新文创市集暨潮玩游园会将在北京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:44 - [新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:52 - [科学家为无人机安装“氢能心脏”破解续航难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:47 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:35 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:38 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:41 - [央行上海总部：一季度上海社会融资规模增加4743亿元 同比多增138亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:52 - [白宫晚宴枪击最新调查进展：被捕枪手为一名家教，曾留下字条](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:52 - [OEXN:黄金震荡观望央行信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:55 - [“五一”假日期间海南省天气总体较好 适宜出游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:50 - [绿城的"体外"生意，撑不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:02 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:50 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:51 - [五一假期注意出行安全 南方多地有大范围降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:55 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:45 - [解决新旧海商法衔接适用问题 最高法出台司法解释](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [美国私营监狱运营商CoreCivic预计2026年调整后EBITDA达4.54-4.62亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [全球调解峰会在港首办 赋能全球治理](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [威高股份第一季度收入约33.5亿元 同比增长约5.3%](http://www.blog.minike.top/Article/details/5237127.shtml)
-- 2026-06-29 11:53 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [私募信贷的火爆行情已然落幕](http://www.blog.minike.top/Article/details/45679431.shtml)
-- 2026-06-29 11:43 - [美国全球保险公司与伦敦劳合社达成战略分保合作](http://www.blog.kurohicncr.top/Article/details/12898.shtml)
-- 2026-06-29 11:49 - [Molson Coors加拿大公司宣派每股0.65加元股息](http://www.share.minike.top/Article/details/023750783.shtml)
-- 2026-06-29 11:35 - [第十五届四川国际茶业博览会吸引民众参观](http://www.share.kurohicncr.top/Article/details/74132.shtml)
-- 2026-06-29 11:35 - [男子加油逃单同行人对监控比耶](http://www.share.minike.top/Article/details/951838.shtml)
-- 2026-06-29 11:59 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [酒价内参5月11日价格发布：青花郎上涨5元](http://www.share.kurohicncr.top/Article/details/143542563.shtml)
-- 2026-06-29 11:43 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [公安部公布无人机影响铁路安全典型案例](http://www.blog.kurohicncr.top/Article/details/14350044807.shtml)
-- 2026-06-29 11:47 - [特斯拉与亚马逊有望领涨工业板块](http://www.share.minike.top/Article/details/393768.shtml)
-- 2026-06-29 11:51 - [普京谈与泽连斯基会面：不主动，不拒绝](http://www.blog.minike.top/Article/details/6166936.shtml)
+- 2026-06-29 11:43 - [外交部：坚决遏制日本“新型军国主义”的妄动](http://www.blog.kurohicncr.top/Article/details/35978.shtml)
+- 2026-06-29 12:03 - [富瑞：鹰普精密给予“买入”评级 目标价10.34港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [中国国家能源局：可保障各种情形下的油气安全保供能力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [东睦股份：Q1增长势头放缓、回款承压，加码MIM商誉风险悬顶](http://www.blog.kurohicncr.top/Article/details/695560744.shtml)
+- 2026-06-29 12:02 - [中国美术馆新展启幕：“文艺复兴三杰”珍贵原作亮相](http://www.share.kurohicncr.top/Article/details/947059520.shtml)
+- 2026-06-29 11:39 - [人身险预定利率研究值环比上行4BP升至1.93%，业内预判年内触发再次调降概率较低](http://www.share.minike.top/Article/details/534149557595.shtml)
+- 2026-06-29 11:50 - [2025银行年报观察室｜江苏两大农商行的冷暖答卷：常熟“县域称王”，紫金“夹缝求生”](http://www.share.minike.top/Article/details/005624205.shtml)
+- 2026-06-29 11:39 - [星动纪元获2亿美元新融资，顺丰集团领投](http://www.blog.minike.top/Article/details/06550265.shtml)
+- 2026-06-29 11:54 - [国际龙舟联合会主席：推动龙舟运动加速“划向”奥运殿堂](http://www.share.minike.top/Article/details/375079.shtml)
+- 2026-06-29 11:43 - [英伟达收高4%，创历史新高](http://www.blog.minike.top/Article/details/8834819.shtml)
+- 2026-06-29 11:57 - [业绩大变脸触发退市红线！冀凯股份索赔正式开启](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [中国能源建设第一季度新签合同额2761.96亿元 同比减少28.98%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [安井食品将于7月2日派发末期股息每股1.44元](http://www.share.minike.top/Article/details/718613093040.shtml)
+- 2026-06-29 12:04 - [跌停！近7倍机器人大牛股遭立案，故事讲完谁在买单](https://github.com/lisacumin64-arch)

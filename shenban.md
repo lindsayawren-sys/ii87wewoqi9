@@ -1,52 +1,60 @@
-# 2.4万标准箱甲醇双燃料集装箱船将开展海上试航
+# 何小鹏重申8月全面超越特斯拉FSD目标
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 21:44 来源：中国新闻网 5月8日，2.4万标准箱甲醇双燃料集装箱船在江苏南通定名“东方智慧”轮，是目前全球最大级别甲醇双燃料集装箱船。 “东方智慧”轮总长399.99米，型宽61.3米，型深33.2米，最大载箱量约2.4万标准箱，载重22.5万吨，服务航速22.7节。船舶配备甲醇双燃料主机、副机与锅炉，可切换甲醇、燃油两种动力模式。据悉，
+小鹏汽车董事长兼CEO何小鹏近日在北京车展上重申了其雄心勃勃的目标：到今年8月，在中国实现自动驾驶能力超越特斯拉。 尽管特斯拉的全自动驾驶（FSD）系统尚未获得中国市场批准，难以进行直接比较，但何小鹏表示，小鹏汽车的视觉语言动作（VLA）系统在某些复杂的驾驶场景下已经超越了特斯拉。 “我们给自己设定了一个目标：到8月份，在中国市场全面超越特斯拉的FSD系统。”何小鹏在2026北
 
 ## 正文
 
-发布时间：2026年05月08日 21:44 来源：中国新闻网 5月8日，2.4万标准箱甲醇双燃料集装箱船在江苏南通定名“东方智慧”轮，是目前全球最大级别甲醇双燃料集装箱船。
+小鹏汽车董事长兼CEO何小鹏近日在北京车展上重申了其雄心勃勃的目标：到今年8月，在中国实现自动驾驶能力超越特斯拉。
 
-“东方智慧”轮总长399.99米，型宽61.3米，型深33.2米，最大载箱量约2.4万标准箱，载重22.5万吨，服务航速22.7节。
+尽管特斯拉的全自动驾驶（FSD）系统尚未获得中国市场批准，难以进行直接比较，但何小鹏表示，小鹏汽车的视觉语言动作（VLA）系统在某些复杂的驾驶场景下已经超越了特斯拉。
 
-船舶配备甲醇双燃料主机、副机与锅炉，可切换甲醇、燃油两种动力模式。
+“我们给自己设定了一个目标：到8月份，在中国市场全面超越特斯拉的FSD系统。
 
-据悉，该船使用绿色甲醇，每年可减少二氧化碳排放约15万吨。
+”何小鹏在2026北京国际汽车展期间的媒体发布会上表示。
 
-该轮后续将开展海上试航，适时投入航运使用。
+“中国的驾驶环境更加复杂。
 
-(彭常青 制作 葛勇） 责任编辑：【卢岩】
+如果我们能够在这里超越它，我们的整体实力将会更强，”他说。
+
+去年12月，何小鹏在社交媒体发帖称，他跟小鹏自驾团队打赌：如果到2026年8月30日，小鹏VLA在国内成功达到特斯拉FSD V14.2在硅谷的效果，那他就在硅谷建一家中国风味食堂。
+
+如果不能达到，小鹏自动驾驶中心负责人刘先明承诺将在金门大桥裸跑。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [陈文清在政法领导干部专题研讨班开班式上表示 树立和践行正确政绩观 建设德才兼备的高素质政法队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:42 - [涉汉坦病毒疫情邮轮抵达西班牙特内里费岛水域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:35 - [看图学习·人民之心丨读懂“为谁创造业绩”的根本立场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:39 - [短道速滑世界冠军李佳军：每一滴拼搏的汗水都自有光芒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:39 - [估值高企业绩萎靡，国晟科技提示四大核心风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:33 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:35 - [中美元首即将北京会晤，两国关系再迎重要时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:43 - [昌九高铁全线无砟轨道浇筑完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:43 - [AI造假潜入“买家秀” 消费权益如何守护？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:59 - [非遗进茶馆 重庆市民品茗感受巴渝文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:42 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:04 - [首都机场“五一”假期预计运送旅客102.3万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:46 - [美国库恩基金会主席人民日报撰文：制度优势成就中国发展的“接力跑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:53 - [北京银行去年净利润同比降逾23%，一季度净利润同比增逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:00 - [越来越多中国茶饮等品牌开启新一轮出海热潮 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:54 - [葛优调侃“与三元合作已过二十年”：我一直在想怎么不找我了，是不是等我长头发呢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:00 - [《公开募捐平台服务管理办法》解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:49 - [强脑科技为什么做假肢？韩璧丞：因为遇到一位残障大学生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:54 - [邦达亚洲:多重利空因素打压 美元指数小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:58 - [新教育完美教室班本课程研发专题研讨会在沪举办 聚焦卓越课程与幸福教育](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:58 - [“剪映”“猫箱”“即梦AI”因合成内容标识违法问题被依法查处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:57 - [迎来24项“国家红利”，综保区加速扩能提质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:36 - [中国再保险：中再寿险一季度净亏损2.51亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:43 - [小新带你看亚沙：这个展馆为何吸引老外扎堆打卡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](http://www.blog.minike.top/Article/details/877248215.shtml)
-- 2026-06-29 11:52 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](http://www.share.kurohicncr.top/Article/details/0661340.shtml)
-- 2026-06-29 11:56 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](http://www.share.kurohicncr.top/Article/details/81985.shtml)
-- 2026-06-29 11:35 - [山东推进场景创新 2027年拟培育入库场景超500项](http://www.share.minike.top/Article/details/8243143.shtml)
-- 2026-06-29 11:45 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](http://www.blog.kurohicncr.top/Article/details/01522753907.shtml)
-- 2026-06-29 11:34 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](http://www.blog.minike.top/Article/details/4347874.shtml)
-- 2026-06-29 11:36 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](http://www.share.minike.top/Article/details/47643.shtml)
-- 2026-06-29 11:47 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](http://www.blog.minike.top/Article/details/36974208.shtml)
-- 2026-06-29 11:48 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](http://www.share.kurohicncr.top/Article/details/2172102.shtml)
-- 2026-06-29 11:31 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](http://www.share.kurohicncr.top/Article/details/53855379.shtml)
-- 2026-06-29 11:33 - [赢家时尚附属透过中信证券认购5000万元基金份额](http://www.blog.minike.top/Article/details/532042582.shtml)
-- 2026-06-29 11:35 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](http://www.blog.minike.top/Article/details/092795484874.shtml)
-- 2026-06-29 11:44 - [杨涛：智能体技术推动银行业智能化转型](http://www.blog.kurohicncr.top/Article/details/61512903.shtml)
-- 2026-06-29 11:45 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](http://www.share.kurohicncr.top/Article/details/206440672.shtml)
-- 2026-06-29 11:45 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.blog.kurohicncr.top/Article/details/7883239.shtml)
+- 2026-06-29 11:55 - [江西省人大常委会原副主任洪礼和一审被判20年](http://www.blog.kurohicncr.top/Article/details/223015228.shtml)
+- 2026-06-29 11:47 - [高盛：紫金矿业维持“买入”评级 目标价微降至51港元](http://www.blog.minike.top/Article/details/1225030.shtml)
+- 2026-06-29 12:00 - [2026年度大理海关部门预算公开](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [辽宁岫岩：翠绿山林间 夺目映山红](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](http://www.share.kurohicncr.top/Article/details/4856751453.shtml)
+- 2026-06-29 12:00 - [天天学习｜书友习近平](http://www.share.kurohicncr.top/Article/details/628052.shtml)
+- 2026-06-29 11:36 - [“国产GPU第一股”摩尔线程，开盘666！](http://www.share.kurohicncr.top/Article/details/5657267.shtml)
+- 2026-06-29 11:46 - [2026年3月广东省进口重点商品总值表（人民币值）](http://www.blog.kurohicncr.top/Article/details/5225355877.shtml)
+- 2026-06-29 11:59 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](http://www.blog.kurohicncr.top/Article/details/8949221438.shtml)
+- 2026-06-29 12:05 - [拉卡拉：“炒股”大赚，主业承压](http://www.blog.minike.top/Article/details/2596755.shtml)
+- 2026-06-29 11:50 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](http://www.blog.minike.top/Article/details/761017.shtml)
+- 2026-06-29 11:58 - [时政微周刊丨总书记的一周（4月20日—4月26日）](http://www.share.kurohicncr.top/Article/details/00428471772.shtml)
+- 2026-06-29 11:54 - [从课堂到云端 自媒体重构海外华文教育生态](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](http://www.blog.minike.top/Article/details/502881389895.shtml)
+- 2026-06-29 11:47 - [一季度高技术产业实际使用外资同比增长30.7%](http://www.share.minike.top/Article/details/724453133.shtml)

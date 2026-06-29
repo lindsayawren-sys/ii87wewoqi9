@@ -1,57 +1,44 @@
-# 西班牙发现一例汉坦病毒疑似病例
+# 中国再保险：中再寿险一季度净亏损2.51亿元
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新社北京5月9日电 马德里消息：西班牙卫生官员8日表示，一名来自西班牙东南部阿利坎特省的32岁女子出现了与汉坦病毒感染相符的症状，目前正在对其进行检测。 据路透社报道，西班牙卫生国务秘书哈维尔·帕迪利亚说，该女子曾与在“洪迪厄斯”号邮轮上发病后于南非去世的患者乘坐同一航班，座位在那名患者后方两排，但双方“接触时间很短”。 目前，该女子“出现了轻微呼吸道症状”，正被转运至阿利坎
+4月28日金融一线消息，中国再保险在港交所发布公告称，该公司附属公司中国人寿再保险有限责任公司（中再寿险）截至2026年3月31日止三个月取得营业收入人民币24.79亿元，净亏损人民币2.51亿元。 责任编辑：王馨茹
 
 ## 正文
 
-中新社北京5月9日电 马德里消息：西班牙卫生官员8日表示，一名来自西班牙东南部阿利坎特省的32岁女子出现了与汉坦病毒感染相符的症状，目前正在对其进行检测。
+4月28日金融一线消息，中国再保险在港交所发布公告称，该公司附属公司中国人寿再保险有限责任公司（中再寿险）截至2026年3月31日止三个月取得营业收入人民币24.79亿元，净亏损人民币2.51亿元。
 
-据路透社报道，西班牙卫生国务秘书哈维尔·帕迪利亚说，该女子曾与在“洪迪厄斯”号邮轮上发病后于南非去世的患者乘坐同一航班，座位在那名患者后方两排，但双方“接触时间很短”。
-
-目前，该女子“出现了轻微呼吸道症状”，正被转运至阿利坎特市的一家医院接受检测，预计24小时至48小时内可得到结果。
-
-当地卫生部门正在追踪这名女子过去几天内接触过的人员。
-
-另据西班牙埃菲社、《国家报》报道，“洪迪厄斯”号预计10日中午抵达西班牙特内里费岛附近，当局正积极筹备应对工作。
-
-报道称，邮轮将抛锚停泊，不会靠岸，船上乘客坐接驳艇前往港口，随后再坐接驳车前往机场。
-
-西班牙当局正在协调希望接回本国公民(或联合接回)的外国飞机抵达事宜。
-
-如果任何国家未能为其公民提供运输服务，由于该船属于荷兰船籍，根据海事法规定，相关责任将由荷兰承担。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 11:57 - [张精科即将入主董事会，杭州银行2026年业绩目标曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:33 - [下周，两大龙头来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:33 - [东西问丨杨惠姗：海峡两岸琉璃艺术如何共舞世界艺林？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:56 - [消息人士称目前霍尔木兹海峡周边地区局势平静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:57 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:33 - [微软在非洲的数据中心因付款问题陷入困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:58 - [武汉融入“三个丝绸之路” 打造内陆开放新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:58 - [“文化中国·水立方杯”中文歌曲大赛印尼总决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:53 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:45 - [宏微科技：公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:34 - [我国营商环境持续改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:04 - [原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:46 - [视频 | 理财亏716万元，金融街证券被判赔偿10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:51 - [姑苏城外瑞光塔 夜半灯火照客游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:48 - [1.8米杖头木偶亮相厦门“屿见闽南” 16米长绸翩舞引惊呼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:44 - [中天期货:商品指数板块分化小反弹 原油短线反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:59 - [重庆银行：一季度归母净利润17.93亿元 同比增长10.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:02 - [多部门协同发力 上海出台14项举措助力民营经济高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:40 - [德国据悉尝试为德国商业银行寻找白衣骑士 以应对裕信银行的收购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:41 - [上海家化一季度扣非净利润同比增长38.2%，四个聚焦战略加速兑现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:03 - [台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](http://www.blog.minike.top/Article/details/8369281.shtml)
-- 2026-06-29 11:44 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.share.minike.top/Article/details/96246782542.shtml)
-- 2026-06-29 11:31 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](http://www.share.kurohicncr.top/Article/details/827005.shtml)
-- 2026-06-29 11:55 - [德国3月对美出口大幅下滑](http://www.blog.kurohicncr.top/Article/details/2466141.shtml)
-- 2026-06-29 11:51 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](http://www.blog.kurohicncr.top/Article/details/13009.shtml)
-- 2026-06-29 11:58 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](http://www.blog.minike.top/Article/details/39355972871.shtml)
-- 2026-06-29 11:44 - [“中国式安全感”为何圈粉世界（人民时评）](http://www.blog.minike.top/Article/details/443178879.shtml)
-- 2026-06-29 11:50 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](http://www.blog.kurohicncr.top/Article/details/549133888.shtml)
-- 2026-06-29 11:41 - [酒价内参5月11日价格发布：飞天茅台下跌2元](http://www.share.minike.top/Article/details/19548358607.shtml)
-- 2026-06-29 11:30 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](http://www.blog.kurohicncr.top/Article/details/03808639192.shtml)
-- 2026-06-29 11:40 - [韩国产业部长与美方官员洽谈投资协议](http://www.share.minike.top/Article/details/1387518.shtml)
-- 2026-06-29 11:47 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](http://www.share.kurohicncr.top/Article/details/41604.shtml)
-- 2026-06-29 11:34 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](http://www.blog.minike.top/Article/details/310875.shtml)
-- 2026-06-29 11:45 - [保时捷关停三家子公司裁员500人 持续推进业务转型](http://www.share.kurohicncr.top/Article/details/26535159655.shtml)
+- 2026-06-29 12:01 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](http://www.share.minike.top/Article/details/3363591.shtml)
+- 2026-06-29 11:50 - [002779、603360，被证监会立案！](http://www.share.kurohicncr.top/Article/details/048099565255.shtml)
+- 2026-06-29 11:39 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](http://www.blog.minike.top/Article/details/864231.shtml)
+- 2026-06-29 11:39 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.share.minike.top/Article/details/302893324.shtml)
+- 2026-06-29 11:51 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [珠江流域进一步强化节约用水管理工作](http://www.blog.minike.top/Article/details/44836.shtml)
+- 2026-06-29 11:59 - [“五一”假期预计全国日均租车量将超70万辆](http://www.blog.kurohicncr.top/Article/details/7291892504.shtml)
+- 2026-06-29 12:00 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](http://www.blog.kurohicncr.top/Article/details/48672002989.shtml)
+- 2026-06-29 11:39 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.share.kurohicncr.top/Article/details/138234671.shtml)
+- 2026-06-29 11:46 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](http://www.share.minike.top/Article/details/552209.shtml)
+- 2026-06-29 11:49 - [长江“微笑天使”又添丁，见证江苏生态之变](http://www.share.kurohicncr.top/Article/details/37454.shtml)
+- 2026-06-29 12:04 - [春到桑干河](http://www.blog.kurohicncr.top/Article/details/35091.shtml)
+- 2026-06-29 12:04 - [一季度浙江算力中心用电规模和增速创新高](http://www.share.kurohicncr.top/Article/details/57353.shtml)
+- 2026-06-29 11:40 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](https://github.com/lisacumin64-arch)

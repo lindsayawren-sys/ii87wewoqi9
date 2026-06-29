@@ -1,57 +1,58 @@
-# 证监会严肃查处清越科技财务造假案件
+# 壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据证监会网站消息，近日，证监会对苏州清越光电科技股份有限公司(简称清越科技)财务造假案件作出行政处罚事先告知。经查，清越科技2021年、2022年和2023年半年报虚增利润，涉嫌欺诈发行、定期报告信息披露违法违规等。证监会拟对上市公司罚款17,288万元，对4名责任人员合计罚款3,300万元并采取4-8年证券市场禁入措施。清越科技涉嫌触及重大违法强制退市情形，
+石油巨头壳牌公司周一宣布，已达成最终协议，以约164亿美元的企业价值收购加拿大能源公司ARC Resources Ltd．。这笔交易将显著扩大壳牌在北美天然气市场的影响力，并加速其液化天然气增长战略。 根据协议条款，ARC Resources的股东将获得每股8.20加元现金外加0.40247股壳牌普通股，合计对价约每股32.80加元。这一价格较ARC在4月24日的收盘价溢价27
 
 ## 正文
 
-中新网5月8日电 据证监会网站消息，近日，证监会对苏州清越光电科技股份有限公司(简称清越科技)财务造假案件作出行政处罚事先告知。
+石油巨头壳牌公司周一宣布，已达成最终协议，以约164亿美元的企业价值收购加拿大能源公司ARC Resources Ltd．。
 
-经查，清越科技2021年、2022年和2023年半年报虚增利润，涉嫌欺诈发行、定期报告信息披露违法违规等。
+这笔交易将显著扩大壳牌在北美天然气市场的影响力，并加速其液化天然气增长战略。
 
-证监会拟对上市公司罚款17,288万元，对4名责任人员合计罚款3,300万元并采取4-8年证券市场禁入措施。
+根据协议条款，ARC Resources的股东将获得每股8.20加元现金外加0.40247股壳牌普通股，合计对价约每股32.80加元。
 
-清越科技涉嫌触及重大违法强制退市情形，上交所将依法启动退市程序。
+这一价格较ARC在4月24日的收盘价溢价27%。
 
-证监会已冻结清越科技募集资金相关账户，目前正在对中介机构执业情况开展调查。
+此次交易的总企业价值约164亿美元，其中包括约136亿美元的股权价值和壳牌将承担的约28亿美元净债务与租赁。
 
-对于可能涉及的犯罪线索，证监会将坚持应移尽移工作原则，严格按照《刑法》《最高人民检察院 公安部关于公安机关管辖的刑事案件立案追诉标准的规定(二)》的规定移送公安机关。
+壳牌首席执行官表示：“ARC是一家高质量、低成本、碳强度处于行业前四分之一的优质生产商，在蒙特尼页岩盆地运营，这补充了我们现有的加拿大业务，并将在未来数十年加强我们的资源基础。
 
-目前广发证券、立信会计师事务所、清越科技实际控制人已公开声明将对遭受损失的适格投资者先行赔付，将委托投资者保护机构依法做好支持服务工作。
+这确立了加拿大作为壳牌核心产区的地位”。
 
-有关信息后续可通过中国证券投资者保护基金网站(www.sipf.com.cn)专栏等渠道查询，相关投资者可及时关注。
+ARC Resources专注于不列颠哥伦比亚省和阿尔伯塔省的蒙特尼页岩盆地，是北美最大的天然气资源区之一。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [南京：钟山湖畔 鸭趣盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:48 - [中国银联与华为签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:50 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:47 - [消息人士称巴基斯坦已将伊朗回应传达给美国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:51 - [中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:37 - [美军称向两艘“违反封锁”的伊朗油轮开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:41 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:53 - [云冈石窟8个晚期洞窟临时封闭 开展数字化采集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:42 - [东博会秘书处携中国味道“出海”进东盟（印尼）专题展启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:43 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:44 - [美国私营监狱运营商CoreCivic预计2026年调整后EBITDA达4.54-4.62亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:02 - [5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:59 - [OpenAI放宽合作限制，微软独占云时代终结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:43 - [韩国要求七大电商平台修改不公平条款以加强消费者保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:38 - [阿联酋宣布自5月1日起退出欧佩克 退出后逐步上调石油产量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:03 - [从一座城的两座“灯塔”，看江苏制造业的转型升级之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:55 - [分析：霍尔木兹海峡命运未卜，欧洲央行和英国央行料按兵不动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:00 - [2026年度瑞丽海关本级部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:59 - [伊朗暂停出口部分钢铁产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:04 - [摩根士丹利认为沃什将带来长期机制变革风险 加剧美债市场波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:44 - [涨得越猛越危险，AI行情已现"上涨式崩盘"信号！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:53 - [外交部：坚决遏制日本“新型军国主义”的妄动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:58 - [富瑞：鹰普精密给予“买入”评级 目标价10.34港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [Canvas制造商报告重大数据泄露](http://www.blog.kurohicncr.top/Article/details/9445304.shtml)
-- 2026-06-29 11:51 - [银行组织架构优化观察：“瘦身”与“增肌”并举，后续系统支撑是成效关键](http://www.blog.kurohicncr.top/Article/details/58786284528.shtml)
-- 2026-06-29 11:42 - [一季度我国黄金消费量同比增长4.41%](http://www.blog.kurohicncr.top/Article/details/844469339.shtml)
-- 2026-06-29 11:49 - [古特雷斯呼吁美伊保持克制 避免局势进一步升级](http://www.share.kurohicncr.top/Article/details/663059642.shtml)
-- 2026-06-29 11:59 - [国际货币基金组织警告人工智能模型加剧金融系统网络风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [2026青海国际民族传统射箭精英赛系列赛火热开赛](http://www.blog.kurohicncr.top/Article/details/415062292648.shtml)
-- 2026-06-29 11:35 - [美联储降息理由正逐渐消失？分析师：通胀压力或令政策立场更加鹰派](http://www.share.minike.top/Article/details/65231452712.shtml)
-- 2026-06-29 11:33 - [美国“愚公”程高登：鼓岭家族跨越百年的中国情缘](http://www.blog.minike.top/Article/details/16714151.shtml)
-- 2026-06-29 11:39 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](http://www.share.minike.top/Article/details/7267974.shtml)
-- 2026-06-29 11:53 - [外贸一线观察|江苏外贸实现“超预期”增长，这份底气从何而来？](http://www.blog.kurohicncr.top/Article/details/101087360.shtml)
-- 2026-06-29 11:43 - [“压力越大越胖”怎么破？ 专家开出“三层减重法”](http://www.blog.minike.top/Article/details/14446819789.shtml)
-- 2026-06-29 11:39 - [最高涨超875%！沪深两大龙头，来了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [武汉大学就OPPO母亲节文案发声：极不认同文案的价值倾向](http://www.share.kurohicncr.top/Article/details/09546813646.shtml)
-- 2026-06-29 11:56 - [新华访谈｜外卖小哥、网约车司机的“新保障”来了](http://www.blog.minike.top/Article/details/767744064325.shtml)
-- 2026-06-29 11:40 - [南京门店欠租887万元？山姆回应：配合司法执行，不存在故意欠租](http://www.blog.kurohicncr.top/Article/details/867058270.shtml)
+- 2026-06-29 11:51 - [北京银行：一季度实现归母净利润80.98亿元，同比增长5.55%](http://www.share.kurohicncr.top/Article/details/23231420973.shtml)
+- 2026-06-29 11:58 - [快讯：恒指微跌 科指涨0.56% 芯片股活跃 AI应用股高开](http://www.share.minike.top/Article/details/378990.shtml)
+- 2026-06-29 12:01 - [酒价内参4月27日价格发布：青花汾20下跌4元跌幅居前](http://www.blog.minike.top/Article/details/1084278846.shtml)
+- 2026-06-29 11:46 - [《中国新时代文学蓝皮书（2025）》在京发布](http://www.share.kurohicncr.top/Article/details/272506.shtml)
+- 2026-06-29 11:53 - [国家开放大学将推出劳模工匠主题直播](http://www.blog.minike.top/Article/details/60947702210.shtml)
+- 2026-06-29 11:51 - [我国拟修订农业法加快建设农业强国](http://www.share.minike.top/Article/details/44311195.shtml)
+- 2026-06-29 11:53 - [当广州“烟火气”遇见展会“国际范” “商旅+文化体验”点燃入境消费新热潮](http://www.blog.minike.top/Article/details/90144907.shtml)
+- 2026-06-29 11:44 - [中东硝烟起，巴西“粮仓”承压：化肥暴涨或致下季作物减产](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [中东冲突下的地缘局势、能源格局与宏观影响](http://www.blog.kurohicncr.top/Article/details/872164.shtml)
+- 2026-06-29 11:57 - [中美科学家联手验证新型抗衰老药物，实现哺乳动物寿命延长三分之一](http://www.share.minike.top/Article/details/78787.shtml)
+- 2026-06-29 11:43 - [巴基斯坦总统来华访问 在湖南沉浸式体验中国茶文化](http://www.blog.kurohicncr.top/Article/details/2698299.shtml)
+- 2026-06-29 11:45 - [中共中央政治局：抓好农业生产 稳定生猪等农产品价格](http://www.share.minike.top/Article/details/4816258.shtml)
+- 2026-06-29 11:51 - [静守景气，慢越周期，详解华夏行业景气混合业绩长青密码](http://www.share.kurohicncr.top/Article/details/8116282179.shtml)
+- 2026-06-29 11:38 - [朱鹤新局长会见香港金管局总裁余伟文](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [欧盟延长对缅甸制裁](http://www.blog.kurohicncr.top/Article/details/06175503219.shtml)

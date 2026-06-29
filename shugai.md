@@ -1,56 +1,59 @@
-# 从撒网到巡岸 四川泸州退捕渔民的“身份之变”
+# 2粒药错写成21粒，失误何以“一路绿灯”
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新网泸州5月8日电 (唐千越)5月8日，在四川省泸州市龙马潭区罗汉街道码头路长江沿线，护渔员王龙贵正沿着江岸缓缓巡查，他的目光不时眺望江面，又低头扫视岸边的芦苇丛、石缝等隐蔽角落，观察是否有非法垂钓、垃圾污染等情况。 “这段江堤我每天都要走好几遍，闭着眼睛都能说出哪里有礁石、哪里容易藏网具。”王龙贵停下脚步，弯腰拨开岸边的芦苇，查看是否有被人隐蔽放置的地笼或渔网，语气里满是熟
+据《人民日报》报道，近日，浙江绍兴一位老人因脚部受伤前往社区卫生服务中心就诊，院方在处方录入时出现严重失误，将口服药单次剂量2粒错录为21粒，老人按错方服药后，单日服药量严重超标。涉事机构后续发布通报，落实免费检查、对症诊疗、随访保障，与当事人达成补偿共识，同步开展内部自查整顿，对相关医护人员启动问责。个案纠纷得以及时化解，但这场离谱的用药失误，留下的警示值得深思。一桩看似偶然
 
 ## 正文
 
-中新网泸州5月8日电 (唐千越)5月8日，在四川省泸州市龙马潭区罗汉街道码头路长江沿线，护渔员王龙贵正沿着江岸缓缓巡查，他的目光不时眺望江面，又低头扫视岸边的芦苇丛、石缝等隐蔽角落，观察是否有非法垂钓、垃圾污染等情况。
+据《人民日报》报道，近日，浙江绍兴一位老人因脚部受伤前往社区卫生服务中心就诊，院方在处方录入时出现严重失误，将口服药单次剂量2粒错录为21粒，老人按错方服药后，单日服药量严重超标。
 
-“这段江堤我每天都要走好几遍，闭着眼睛都能说出哪里有礁石、哪里容易藏网具。
+涉事机构后续发布通报，落实免费检查、对症诊疗、随访保障，与当事人达成补偿共识，同步开展内部自查整顿，对相关医护人员启动问责。
 
-”王龙贵停下脚步，弯腰拨开岸边的芦苇，查看是否有被人隐蔽放置的地笼或渔网，语气里满是熟稔。
+个案纠纷得以及时化解，但这场离谱的用药失误，留下的警示值得深思。
 
-王龙贵负责的江段全长10公里，涵盖了浅滩、深湾、芦苇荡等多种地形，巡查难度不小。
+一桩看似偶然的录入失误，背后折射的是基层医疗机构用药安全管理的深层隐患。
 
-“每天清晨就出门，第一趟主要排查夜间可能遗留的非法渔具，发现违规垂钓人员就上前劝离，中午简单吃口饭，下午再巡查一遍，遇到节假日或者禁渔关键期，还要增加巡查频次，有时候忙到天黑才能回家。
+处方开具、药师审核、药房发药，构成医疗用药的三道关键防线，环环相扣、层层设防，是守护群众就医安全的重要屏障。
 
-”王龙贵说。
+《处方管理办法》清晰界定，药品用法用量须依照说明书常规标准执行，确需超剂量用药，必须标注缘由并二次签名；药师配药发药必须严守“四查十对”原则，凭借专业能力校验处方合理性、用药适配性、剂量规范性，用制度约束抵消人为失误，用流程管控化解执业风险。
 
-今年54岁的王龙贵，身上刻满了长江的印记——黝黑的皮肤、粗糙的手掌布满老茧，那是几十年与渔网、江水打交道留下的痕迹。
+严密的制度设计，本质上是为诊疗行为划定底线，以多重审核机制守住健康防护底线。
 
-他家三代打渔为生，9岁那年，他随着父辈上船打渔，一干就是30余年。
+令人警醒的是，此次明显违背医学常识、剂量严重超标问题处方，在全流程中未被发现、未被拦截，“一路绿灯”流转至患者手中，充分暴露出部分基层医疗机构流程管控松散、岗位职责虚化、安全监管缺位等突出问题。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [成都一中学举办科技节 硬核体验点燃科学梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:36 - [四川成都：列车穿行紫色花海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:38 - [一站打卡万余种文创 首届中国新文创市集暨潮玩游园会将在北京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:56 - [新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:48 - [科学家为无人机安装“氢能心脏”破解续航难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:48 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:58 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:45 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:43 - [2026中国田径街头巡回赛揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:31 - [5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:01 - [OEXN:黄金震荡观望央行信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:05 - [“五一”假日期间海南省天气总体较好 适宜出游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:00 - [绿城的"体外"生意，撑不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:52 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:04 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:46 - [五一假期注意出行安全 南方多地有大范围降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:52 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:54 - [解决新旧海商法衔接适用问题 最高法出台司法解释](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:49 - [中非银联体召开第二届高官会暨中非金融合作研讨会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:55 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:03 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:48 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:01 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [威高股份第一季度收入约33.5亿元 同比增长约5.3%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](http://www.share.minike.top/Article/details/7854326.shtml)
-- 2026-06-29 11:50 - [私募信贷的火爆行情已然落幕](http://www.share.minike.top/Article/details/14623.shtml)
-- 2026-06-29 11:53 - [美国全球保险公司与伦敦劳合社达成战略分保合作](http://www.blog.minike.top/Article/details/44553288528.shtml)
-- 2026-06-29 11:47 - [Molson Coors加拿大公司宣派每股0.65加元股息](http://www.share.kurohicncr.top/Article/details/42349787556.shtml)
-- 2026-06-29 11:49 - [第十五届四川国际茶业博览会吸引民众参观](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [男子加油逃单同行人对监控比耶](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [酒价内参5月11日价格发布：青花郎上涨5元](http://www.share.minike.top/Article/details/672145651794.shtml)
-- 2026-06-29 11:35 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [公安部公布无人机影响铁路安全典型案例](http://www.blog.kurohicncr.top/Article/details/746418870.shtml)
-- 2026-06-29 11:33 - [特斯拉与亚马逊有望领涨工业板块](http://www.blog.minike.top/Article/details/5159881.shtml)
-- 2026-06-29 11:42 - [普京谈与泽连斯基会面：不主动，不拒绝](http://www.share.kurohicncr.top/Article/details/920487.shtml)
-- 2026-06-29 11:51 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](http://www.blog.kurohicncr.top/Article/details/58890.shtml)
+- 2026-06-29 12:01 - [中国国家能源局：可保障各种情形下的油气安全保供能力](http://www.blog.kurohicncr.top/Article/details/585116.shtml)
+- 2026-06-29 11:37 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](http://www.blog.minike.top/Article/details/878265.shtml)
+- 2026-06-29 12:00 - [东睦股份：Q1增长势头放缓、回款承压，加码MIM商誉风险悬顶](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [中国美术馆新展启幕：“文艺复兴三杰”珍贵原作亮相](http://www.blog.kurohicncr.top/Article/details/975784830.shtml)
+- 2026-06-29 11:45 - [人身险预定利率研究值环比上行4BP升至1.93%，业内预判年内触发再次调降概率较低](http://www.share.minike.top/Article/details/6912349244.shtml)
+- 2026-06-29 11:36 - [2025银行年报观察室｜江苏两大农商行的冷暖答卷：常熟“县域称王”，紫金“夹缝求生”](http://www.share.kurohicncr.top/Article/details/9179699.shtml)
+- 2026-06-29 11:49 - [星动纪元获2亿美元新融资，顺丰集团领投](http://www.blog.minike.top/Article/details/75873.shtml)
+- 2026-06-29 11:59 - [国际龙舟联合会主席：推动龙舟运动加速“划向”奥运殿堂](http://www.blog.kurohicncr.top/Article/details/5022809.shtml)
+- 2026-06-29 11:42 - [英伟达收高4%，创历史新高](http://www.share.kurohicncr.top/Article/details/2284438.shtml)
+- 2026-06-29 11:51 - [业绩大变脸触发退市红线！冀凯股份索赔正式开启](http://www.blog.minike.top/Article/details/90684922346.shtml)
+- 2026-06-29 11:54 - [中国能源建设第一季度新签合同额2761.96亿元 同比减少28.98%](http://www.blog.minike.top/Article/details/5183791.shtml)
+- 2026-06-29 11:47 - [安井食品将于7月2日派发末期股息每股1.44元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [跌停！近7倍机器人大牛股遭立案，故事讲完谁在买单](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [姐弟组队勇闯吃瓜比赛 为了赢姐姐拼命“刷刷刷”，弟弟秒变“西瓜粉碎机”](http://www.blog.kurohicncr.top/Article/details/9472996854.shtml)
+- 2026-06-29 12:04 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](http://www.blog.kurohicncr.top/Article/details/05883.shtml)

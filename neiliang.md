@@ -1,60 +1,61 @@
-# 福州马尾至马祖“小三通”客运航线11日双向停航
+# 氧化铝：惊弓之鸟还是风雨欲来？
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新社福州5月10日电 (郑江洛)据福州港客运站10日通报，受潮汐影响，福州马尾至马祖“小三通”客运航线11日将双向停航。 据福建省气象台10日预报，11日，福建全省多云到阴，大部有阵雨或雷阵雨，中南部地区部分有中雨，局部大雨。 福建省气象台有关负责人介绍，未来一周福建省多降水并伴有局地强对流天气，部分地区累计雨量较大，提醒民众注意防范降水和强对流天气可能引发的次生灾害。 福州
+来源：广发期货研究 证监许可【2011】1292号 周敏波 Z0010559 | 2026年4月27日 星期一 行情点评：今日氧化铝期货盘中异动冲高，盘面一度涨超3%。截至4月27日下午15时，主力合约AO2609收报2899元/吨，减仓上涨2.57%。反弹驱动来自几内亚矿端政策预期的扰动。 一、几内亚出口政策传闻再掀波澜，消息真实性仍待验证 今日盘面脉冲式拉涨的直接催化剂来自
 
 ## 正文
 
-中新社福州5月10日电 (郑江洛)据福州港客运站10日通报，受潮汐影响，福州马尾至马祖“小三通”客运航线11日将双向停航。
+来源：广发期货研究 证监许可【2011】1292号 周敏波 Z0010559 | 2026年4月27日 星期一 行情点评：今日氧化铝期货盘中异动冲高，盘面一度涨超3%。
 
-据福建省气象台10日预报，11日，福建全省多云到阴，大部有阵雨或雷阵雨，中南部地区部分有中雨，局部大雨。
+截至4月27日下午15时，主力合约AO2609收报2899元/吨，减仓上涨2.57%。
 
-福建省气象台有关负责人介绍，未来一周福建省多降水并伴有局地强对流天气，部分地区累计雨量较大，提醒民众注意防范降水和强对流天气可能引发的次生灾害。
+反弹驱动来自几内亚矿端政策预期的扰动。
 
-福州港客运站称，福州马尾至马祖“小三通”客运航线“安麒6号”轮8日至10日受天气、潮汐等影响已连续三天停航。
+一、几内亚出口政策传闻再掀波澜，消息真实性仍待验证 今日盘面脉冲式拉涨的直接催化剂来自几内亚铝土矿供应政策的新一轮传闻。
 
-福州至马祖的另一条“小三通”客运航线——连江黄岐至马祖航线“安麒2号”轮8日至9日已连续停航两天。
+上周五晚间，市场消息称几内亚拟将2026年铝土矿出口量削减至1.5亿吨，较2025年的1.85亿吨减少近19%。
 
-此外，10日至14日，“安麒2号”轮因船舶检修将停航五天，“吉顺10号”轮则正常运营。
+这一力度显著超出此前市场普遍预期的以稳价为主要目的的温和政策框架，直接推动夜盘大幅拉涨。
 
-福州港客运站提醒旅客，应提前规划行程。
+然而，该消息的真实性仍存在较大疑问。
 
-福建现有福州马尾至马祖、福州连江黄岐至马祖、泉州至金门、厦门至金门四条“小三通”客运航线。
+截至最新，几内亚矿业与地质部官网尚未公布相关细则，消息仍处于传闻阶段。
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [四川成都：列车穿行紫色花海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:58 - [一站打卡万余种文创 首届中国新文创市集暨潮玩游园会将在北京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:56 - [新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:46 - [科学家为无人机安装“氢能心脏”破解续航难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:54 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:35 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:56 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:34 - [2026中国田径街头巡回赛揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:50 - [5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:42 - [恒瑞医药香港办公室正式启用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:37 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:46 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:49 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:35 - [山西深挖气候资源潜力 释放气象数据价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:04 - [“五一”假日期间海南省天气总体较好 适宜出游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:48 - [绿城的"体外"生意，撑不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:36 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:44 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:38 - [五一假期注意出行安全 南方多地有大范围降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:41 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:44 - [解决新旧海商法衔接适用问题 最高法出台司法解释](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:49 - [中非银联体召开第二届高官会暨中非金融合作研讨会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:47 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:38 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:01 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:00 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:50 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:36 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:02 - [受气象不佳影响 “两马”航线将双向停航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:50 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](http://www.blog.kurohicncr.top/Article/details/8872163830.shtml)
-- 2026-06-29 11:35 - [私募信贷的火爆行情已然落幕](http://www.share.minike.top/Article/details/92836.shtml)
-- 2026-06-29 11:59 - [美国全球保险公司与伦敦劳合社达成战略分保合作](http://www.share.minike.top/Article/details/41870789.shtml)
-- 2026-06-29 11:33 - [Molson Coors加拿大公司宣派每股0.65加元股息](http://www.blog.minike.top/Article/details/922339.shtml)
-- 2026-06-29 11:44 - [第十五届四川国际茶业博览会吸引民众参观](http://www.blog.kurohicncr.top/Article/details/14118288.shtml)
-- 2026-06-29 11:36 - [男子加油逃单同行人对监控比耶](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [酒价内参5月11日价格发布：青花郎上涨5元](http://www.blog.minike.top/Article/details/21446783.shtml)
-- 2026-06-29 11:38 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [公安部公布无人机影响铁路安全典型案例](http://www.blog.minike.top/Article/details/534199.shtml)
-- 2026-06-29 11:40 - [特斯拉与亚马逊有望领涨工业板块](http://www.share.kurohicncr.top/Article/details/003716183471.shtml)
-- 2026-06-29 11:53 - [普京谈与泽连斯基会面：不主动，不拒绝](http://www.share.minike.top/Article/details/46330672.shtml)
-- 2026-06-29 11:48 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](http://www.blog.minike.top/Article/details/3157093570.shtml)
-- 2026-06-29 11:57 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](http://www.share.minike.top/Article/details/793191501.shtml)
+- 2026-06-29 12:04 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](http://www.blog.kurohicncr.top/Article/details/742449.shtml)
+- 2026-06-29 11:46 - [东睦股份：Q1增长势头放缓、回款承压，加码MIM商誉风险悬顶](http://www.share.kurohicncr.top/Article/details/274227694.shtml)
+- 2026-06-29 12:03 - [中国美术馆新展启幕：“文艺复兴三杰”珍贵原作亮相](http://www.blog.minike.top/Article/details/5504558.shtml)
+- 2026-06-29 11:56 - [人身险预定利率研究值环比上行4BP升至1.93%，业内预判年内触发再次调降概率较低](http://www.blog.minike.top/Article/details/415208319.shtml)
+- 2026-06-29 12:02 - [2025银行年报观察室｜江苏两大农商行的冷暖答卷：常熟“县域称王”，紫金“夹缝求生”](http://www.blog.kurohicncr.top/Article/details/6520675074.shtml)
+- 2026-06-29 11:55 - [星动纪元获2亿美元新融资，顺丰集团领投](http://www.share.minike.top/Article/details/186446.shtml)
+- 2026-06-29 12:02 - [国际龙舟联合会主席：推动龙舟运动加速“划向”奥运殿堂](http://www.share.minike.top/Article/details/203940.shtml)
+- 2026-06-29 11:48 - [英伟达收高4%，创历史新高](http://www.share.kurohicncr.top/Article/details/89565461141.shtml)
+- 2026-06-29 11:57 - [业绩大变脸触发退市红线！冀凯股份索赔正式开启](http://www.share.kurohicncr.top/Article/details/60763913954.shtml)
+- 2026-06-29 12:00 - [中国能源建设第一季度新签合同额2761.96亿元 同比减少28.98%](http://www.blog.kurohicncr.top/Article/details/00073093897.shtml)
+- 2026-06-29 11:42 - [安井食品将于7月2日派发末期股息每股1.44元](http://www.share.minike.top/Article/details/502736.shtml)
+- 2026-06-29 11:55 - [跌停！近7倍机器人大牛股遭立案，故事讲完谁在买单](http://www.share.minike.top/Article/details/38209832.shtml)
+- 2026-06-29 12:00 - [姐弟组队勇闯吃瓜比赛 为了赢姐姐拼命“刷刷刷”，弟弟秒变“西瓜粉碎机”](http://www.share.minike.top/Article/details/9108570.shtml)
+- 2026-06-29 11:54 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](http://www.blog.minike.top/Article/details/032792.shtml)
+- 2026-06-29 11:38 - [美国多地再发生枪击事件，致十余人伤亡](http://www.share.minike.top/Article/details/09743.shtml)

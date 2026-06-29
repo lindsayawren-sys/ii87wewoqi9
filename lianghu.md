@@ -1,50 +1,59 @@
-# 威高股份第一季度收入约33.5亿元 同比增长约5.3%
+# 中国国家能源局：可保障各种情形下的油气安全保供能力
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-威高股份（01066）发布公告，截至2026年3月31日止3个月，公司取得未经审核的收入约人民币33.5亿元，较去年同期增长约5.3%。其中，通用医疗器械、药品包装等分部取得较快收入增长；骨科和介入分部小幅增长；血液管理板块则有所下滑。责任编辑：卢昱君
+中新社北京4月27日电 (记者 王梦瑶)中东战事引发的能源危机波及多国，中国国家能源局综合司副司长张星27日在北京表示，中国积极推进油气行业高质量发展，可以保障在各种情形下的安全保供能力。 在当天召开的国家能源局例行新闻发布会上，张星表示，中国大力提升油气勘探开发力度，稳步提升国内油气产量，原油产量持续保持年产2亿吨以上并创新高，天然气产量连续9年超百亿方增产。 加快推进油气基
 
 ## 正文
 
-威高股份（01066）发布公告，截至2026年3月31日止3个月，公司取得未经审核的收入约人民币33.5亿元，较去年同期增长约5.3%。
+中新社北京4月27日电 (记者 王梦瑶)中东战事引发的能源危机波及多国，中国国家能源局综合司副司长张星27日在北京表示，中国积极推进油气行业高质量发展，可以保障在各种情形下的安全保供能力。
 
-其中，通用医疗器械、药品包装等分部取得较快收入增长；骨科和介入分部小幅增长；血液管理板块则有所下滑。
+在当天召开的国家能源局例行新闻发布会上，张星表示，中国大力提升油气勘探开发力度，稳步提升国内油气产量，原油产量持续保持年产2亿吨以上并创新高，天然气产量连续9年超百亿方增产。
 
-责任编辑：卢昱君
+加快推进油气基础设施规划建设，长输油气管道里程突破20万公里，油气“全国一张网”进一步拓展，液化天然气(LNG)总接收能力超过1.2亿吨/年。
+
+持续巩固完善多元油气进口体系建设。
+
+目前已经与全球近50个国家开展油气贸易合作，进口来源涵盖全球主要油气出口国，始终保持油气资源进口稳定可靠。
+
+此外，还持续开展油气消费可靠有序替代。
+
+张星说，在上述工作的共同支撑促进下，中国油气行业产业韧性和灵活应对风险挑战能力不断增强。
+
+今年以来，中国国家发改委、国家能源局会同有关方面积极应对外部环境变化的挑战，全力做好油气保供工作，通过稳产、多元化进口、价格临时调控等多种方式确保油气供应平稳有序，有效保障了经济平稳运行和民生需求。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:36 - [酒价内参5月11日价格发布：青花郎上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:34 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:37 - [公安部公布无人机影响铁路安全典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:37 - [特斯拉与亚马逊有望领涨工业板块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:52 - [普京谈与泽连斯基会面：不主动，不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:39 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:53 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:49 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:42 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:48 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:42 - [“续费刺客”如此“近视”，必撞南墻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:53 - [视频|李大霄：警惕美债务风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:40 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:52 - [国际龙舟联合会主席：推动龙舟运动加速“划向”奥运殿堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:53 - [英伟达收高4%，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:58 - [业绩大变脸触发退市红线！冀凯股份索赔正式开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:01 - [中国能源建设第一季度新签合同额2761.96亿元 同比减少28.98%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:00 - [安井食品将于7月2日派发末期股息每股1.44元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:39 - [跌停！近7倍机器人大牛股遭立案，故事讲完谁在买单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:53 - [姐弟组队勇闯吃瓜比赛 为了赢姐姐拼命“刷刷刷”，弟弟秒变“西瓜粉碎机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:41 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:02 - [美国多地再发生枪击事件，致十余人伤亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:38 - [沃顿教授西格尔：围绕鲍威尔的美联储“大戏”远未落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:38 - [日本北部山火已连烧6天 过火面积超1600公顷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:46 - [重庆法院发布首例承认欧洲仲裁机构裁决案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:40 - [“广货行天下 文旅邀您来”相关活动推出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [无人机事件应对不力 拉脱维亚防长遭解职](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.share.minike.top/Article/details/5296105.shtml)
-- 2026-06-29 11:55 - [特朗普将访华 中国外交部介绍具体安排](http://www.share.kurohicncr.top/Article/details/75301695358.shtml)
-- 2026-06-29 11:45 - [国家统计局：4月份CPI温和回升，PPI涨幅扩大](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [重提审计美国最大金库！特朗普怀疑诺克斯堡金库中金条被偷](http://www.blog.minike.top/Article/details/29957337.shtml)
-- 2026-06-29 11:40 - [特朗普：俄乌停火可能持续超过3天](http://www.share.kurohicncr.top/Article/details/398300038818.shtml)
-- 2026-06-29 11:56 - [美银与高盛因通胀风险及就业数据，推迟下调美联储降息预期](http://www.blog.kurohicncr.top/Article/details/93231568.shtml)
-- 2026-06-29 11:50 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.share.kurohicncr.top/Article/details/918833.shtml)
-- 2026-06-29 11:35 - [湖北加速打造光电子信息产业世界级集群](http://www.share.minike.top/Article/details/70125200169.shtml)
-- 2026-06-29 11:31 - [人工智能科技伦理审查与服务先导计划启动](http://www.share.kurohicncr.top/Article/details/61572941512.shtml)
-- 2026-06-29 11:57 - [存储芯片股持续飙升：美光与闪迪的上涨动力何在](http://www.blog.kurohicncr.top/Article/details/668259.shtml)
-- 2026-06-29 11:49 - [美军称执行对伊海上封锁已使58艘商船改变航向](http://www.blog.kurohicncr.top/Article/details/099563.shtml)
-- 2026-06-29 11:36 - [“存款搬家”了吗？多家银行定期存款占比继续攀升，业内：最多不同银行之间迁移](http://www.share.kurohicncr.top/Article/details/38319774.shtml)
-- 2026-06-29 11:52 - [张文宏复盘“探险邮轮”聚集感染并提出：多国追踪不意味像流感或新冠般易传播](http://www.blog.minike.top/Article/details/88224.shtml)
-- 2026-06-29 11:59 - [第十八届“香港杯”外交知识竞赛决赛在港举行 参赛规模创新高](http://www.blog.kurohicncr.top/Article/details/531243997.shtml)
+- 2026-06-29 11:58 - [北京农商银行：2025年实现净利润81.49亿元，同比增长2.21%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [重庆：高铁乘务员开展服务礼仪培训 备战“五一”假期](http://www.blog.kurohicncr.top/Article/details/028492576879.shtml)
+- 2026-06-29 11:37 - [中国三三传媒股份拆细将于4月28日生效](http://www.share.minike.top/Article/details/0472832880.shtml)
+- 2026-06-29 11:39 - [TD Cowen首次覆盖DoorDash给予买入评级](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [原料供应收紧，4月下半月猪肉鲜品分割品价格止跌反弹](http://www.blog.minike.top/Article/details/37311.shtml)
+- 2026-06-29 11:38 - [平陆运河主题影像作品巡展在广西桂林开展](http://www.blog.kurohicncr.top/Article/details/341010.shtml)
+- 2026-06-29 11:39 - [法治蓝皮书：中国体育反腐法治建设正处于转型关键时期](http://www.blog.kurohicncr.top/Article/details/317705198468.shtml)
+- 2026-06-29 12:03 - [江河与共丨从卫星遥感到基因解码！致公党中央给皖江做了五年“全面体检”](http://www.blog.minike.top/Article/details/88240.shtml)
+- 2026-06-29 11:49 - [亚市早盘金价小幅走高，因投资者评估伊朗向美国提出的提议](http://www.share.kurohicncr.top/Article/details/721635438.shtml)
+- 2026-06-29 11:41 - [北京银行：聘任魏昱为首席合规官](http://www.share.kurohicncr.top/Article/details/5868442605.shtml)
+- 2026-06-29 11:46 - [酒价内参4月28日价格发布：飞天茅台小幅上涨3元](http://www.share.minike.top/Article/details/8550404230.shtml)
+- 2026-06-29 11:43 - [特朗普：白宫周围很安全 英国国王会非常安全](http://www.blog.minike.top/Article/details/3775785131.shtml)
+- 2026-06-29 11:50 - [新疆伊犁：充电服务提质效 新能源汽车惠民生](http://www.blog.minike.top/Article/details/683886.shtml)
+- 2026-06-29 12:00 - [药明康德一季报营收首破百亿！港股生物医药概念股集体走强](http://www.blog.kurohicncr.top/Article/details/0264108823.shtml)
+- 2026-06-29 11:40 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](http://www.share.kurohicncr.top/Article/details/9870469.shtml)

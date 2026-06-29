@@ -1,56 +1,55 @@
-# 险资连续第五个季度加仓！红利类策略人气ETF获资金流入
+# 南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-作为市场重要的长线资金，据最新披露的上市公司2026年一季报数据显示，保险资金权益配置延续加速进场态势，为资本市场带来了增量资金。截至2026年一季度末，险资合计持有约1059.54亿股上市公司股票，较2025年四季度环比加仓42.41亿股，实现自2025年一季度以来的连续第五个季度净增持。从增持结构来看，银行、交通运输、公用事业等具有高分红、低波动特征的板块，成为险资加仓的集
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。南华早报出版人 / 社长谭卫儿强调，媒体应秉持客观公正的原则，传递中美双方合作的积极信号。同时，她表示，中美两国的媒体应加强交流与合作，搭建沟通的桥梁，让双方民众更好地了解彼此的发展，增进相互理解和信任。 针对论坛核心议题，谭卫儿表示，科技、贸易、气候、健康
 
 ## 正文
 
-作为市场重要的长线资金，据最新披露的上市公司2026年一季报数据显示，保险资金权益配置延续加速进场态势，为资本市场带来了增量资金。
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
 
-截至2026年一季度末，险资合计持有约1059.54亿股上市公司股票，较2025年四季度环比加仓42.41亿股，实现自2025年一季度以来的连续第五个季度净增持。
+南华早报出版人 / 社长谭卫儿强调，媒体应秉持客观公正的原则，传递中美双方合作的积极信号。
 
-从增持结构来看，银行、交通运输、公用事业等具有高分红、低波动特征的板块，成为险资加仓的集中区域。
+同时，她表示，中美两国的媒体应加强交流与合作，搭建沟通的桥梁，让双方民众更好地了解彼此的发展，增进相互理解和信任。
 
-对于险资而言，在市场波动加大的背景下，投资较高股息率的股票意味着有望给权益投资打造了一个较厚的“缓冲垫”，这也较为契合险资一贯以来的追求稳健而非高收益的投资逻辑。
+针对论坛核心议题，谭卫儿表示，科技、贸易、气候、健康等领域的合作，是中美关系中的“亮色”，也是双方共同利益的体现，媒体应加大对这些领域合作成果的报道，引导公众看到中美合作的可能性和必要性。
 
-面对市场资金对高股息资产配置趋势的深化，红利策略人气ETF同样持续收获资金青睐。
+她呼吁，中美双方应重视媒体的作用，营造良好的舆论环境，为各领域合作创造有利条件。
 
-Wind数据显示，5月首周，华泰柏瑞“红利全家桶”中的红利ETF华泰柏瑞（510880）、红利低波ETF华泰柏瑞（512890）、央企红利ETF华泰柏瑞（561580）、港股通红利ETF华泰柏瑞（513530）周度资金净流入分别达10.33亿元、5.94亿元、1.21亿元与1.73亿元，均位居A股全市场红利类主题ETF前列。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-从标的指数股息率与当前市场无风险利率的利差看，根据Wind数据统计，伴随4月以来10年期国债收益率的持续下行，红利指数、红利低波指数、央企红利指数等部分主流红利类指数与其存在较为明显的股息率优势，二者利差分别高于近十年51.37%、52.45%、58.53%的时间，在“资产荒”格局短期或难以改变的背景下，高股息资产提供的较为确定性的现金流回报，或仍是当前市场中相对稀缺的存在，进一步为红利类资产打开了布局窗口。
-
-此外，A股分红生态也正在发生积极变化。
+责任编辑：李昂
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [证监会严肃查处清越科技财务造假案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:37 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:49 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:48 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:34 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:57 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:46 - [中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:57 - [南京：钟山湖畔 鸭趣盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:50 - [中国银联与华为签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:35 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:40 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:44 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:38 - [“鸟中大熊猫”彩鹮首次现身云南云县](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:39 - [东珠生态业绩预告更正不及时，受损股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:44 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:05 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:42 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:39 - [5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:04 - [OpenAI放宽合作限制，微软独占云时代终结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:39 - [韩国要求七大电商平台修改不公平条款以加强消费者保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:01 - [阿联酋宣布自5月1日起退出欧佩克 退出后逐步上调石油产量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [索尼在PS5疲软情况下仍寻求利润增长](http://www.share.minike.top/Article/details/2445171.shtml)
-- 2026-06-29 11:48 - [中国男队3:0击败日本 斩获伦敦世乒赛男团冠军](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [【每周经济观察】“两新”成绩单里的民生温度](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [Akamai斩获18亿美元AI云订单，盘前股价飙升27%](http://www.blog.minike.top/Article/details/49911142748.shtml)
-- 2026-06-29 11:37 - [中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [建国250周年之际，美国人逃离美国](http://www.blog.kurohicncr.top/Article/details/136959628079.shtml)
-- 2026-06-29 11:43 - [Canvas制造商报告重大数据泄露](http://www.blog.kurohicncr.top/Article/details/544286.shtml)
-- 2026-06-29 11:37 - [银行组织架构优化观察：“瘦身”与“增肌”并举，后续系统支撑是成效关键](http://www.share.kurohicncr.top/Article/details/224385024.shtml)
-- 2026-06-29 11:31 - [一季度我国黄金消费量同比增长4.41%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [古特雷斯呼吁美伊保持克制 避免局势进一步升级](http://www.blog.kurohicncr.top/Article/details/273832112.shtml)
-- 2026-06-29 11:58 - [国际货币基金组织警告人工智能模型加剧金融系统网络风险](http://www.share.kurohicncr.top/Article/details/38074093218.shtml)
-- 2026-06-29 11:54 - [2026青海国际民族传统射箭精英赛系列赛火热开赛](http://www.blog.kurohicncr.top/Article/details/431829.shtml)
-- 2026-06-29 11:49 - [美联储降息理由正逐渐消失？分析师：通胀压力或令政策立场更加鹰派](http://www.share.kurohicncr.top/Article/details/207547.shtml)
-- 2026-06-29 11:37 - [美国“愚公”程高登：鼓岭家族跨越百年的中国情缘](http://www.blog.minike.top/Article/details/7926445.shtml)
+- 2026-06-29 11:47 - [中方禁止外资收购Manus项目，外交部回应](http://www.share.kurohicncr.top/Article/details/570286131828.shtml)
+- 2026-06-29 11:53 - [伊朗恢复飞往重要国际目的地航班](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [印尼列车相撞事故已致14死84伤 总统要求彻查](http://www.share.minike.top/Article/details/760287845680.shtml)
+- 2026-06-29 11:49 - [京津冀三地人民银行组织开展2026年党委理论学习中心组联组学习](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [国证国际：滨海投资维持“买入”评级 目标价1.43港元](http://www.blog.minike.top/Article/details/554920979268.shtml)
+- 2026-06-29 12:02 - [火箭超级工厂竣工投产 力箭二号运载火箭迈入批量化生产阶段](http://www.blog.minike.top/Article/details/1174815.shtml)
+- 2026-06-29 12:01 - [参与OpenAI手机项目？002475市值一日爆增400亿元！](http://www.share.kurohicncr.top/Article/details/51561478.shtml)
+- 2026-06-29 11:42 - [北京银行：一季度实现归母净利润80.98亿元，同比增长5.55%](http://www.share.minike.top/Article/details/060243625726.shtml)
+- 2026-06-29 11:36 - [快讯：恒指微跌 科指涨0.56% 芯片股活跃 AI应用股高开](http://www.share.kurohicncr.top/Article/details/050007316858.shtml)
+- 2026-06-29 12:05 - [酒价内参4月27日价格发布：青花汾20下跌4元跌幅居前](http://www.blog.minike.top/Article/details/400902257704.shtml)
+- 2026-06-29 11:53 - [《中国新时代文学蓝皮书（2025）》在京发布](http://www.blog.kurohicncr.top/Article/details/771285.shtml)
+- 2026-06-29 12:03 - [国家开放大学将推出劳模工匠主题直播](http://www.share.kurohicncr.top/Article/details/3408280.shtml)
+- 2026-06-29 11:51 - [我国拟修订农业法加快建设农业强国](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [当广州“烟火气”遇见展会“国际范” “商旅+文化体验”点燃入境消费新热潮](http://www.share.minike.top/Article/details/70044924808.shtml)
+- 2026-06-29 11:39 - [中东硝烟起，巴西“粮仓”承压：化肥暴涨或致下季作物减产](http://www.share.minike.top/Article/details/57886421931.shtml)

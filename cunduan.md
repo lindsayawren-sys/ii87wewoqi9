@@ -1,50 +1,58 @@
-# 【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝
+# 稳面积 提单产 夯实粮食稳产丰产基础
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月10日 18:12 来源：中国新闻网 近期，中国国民党主席郑丽文访问大陆返台后，身着一袭女版中山装亮相，引发两岸关注。郑丽文介绍，中山装由广东中山的厂商定制而成，记者也到中山探访制作中山装的手艺人。 郑丽文所穿的同款女版中山装，中山市中山装制作技艺非遗代表性传承人陈福星也向记者介绍了其中的设计理念。 记者 王庆然 中山报道 责任编辑：【周驰】
+央视网消息(新闻联播)：当前，全国春耕生产进展顺利。各地抢抓农时，积极稳面积、提单产，为粮食稳产丰产奠定基础。 当前，冬小麦苗情转化持续向好，长势和生育进程基本赶上常年。黄淮海地区冬小麦正在抽穗扬花，是病虫害防治关键期。各地积极开展“一喷三防”作业，通过施用药肥达到防治病虫害、补充养分等效果。在山东宁津县，安装了北斗导航系统的植保无人机沿着预设航线均匀喷洒，提高作业效率。 农业
 
 ## 正文
 
-发布时间：2026年05月10日 18:12 来源：中国新闻网 近期，中国国民党主席郑丽文访问大陆返台后，身着一袭女版中山装亮相，引发两岸关注。
+央视网消息(新闻联播)：当前，全国春耕生产进展顺利。
 
-郑丽文介绍，中山装由广东中山的厂商定制而成，记者也到中山探访制作中山装的手艺人。
+各地抢抓农时，积极稳面积、提单产，为粮食稳产丰产奠定基础。
 
-郑丽文所穿的同款女版中山装，中山市中山装制作技艺非遗代表性传承人陈福星也向记者介绍了其中的设计理念。
+当前，冬小麦苗情转化持续向好，长势和生育进程基本赶上常年。
 
-记者 王庆然 中山报道 责任编辑：【周驰】
+黄淮海地区冬小麦正在抽穗扬花，是病虫害防治关键期。
+
+各地积极开展“一喷三防”作业，通过施用药肥达到防治病虫害、补充养分等效果。
+
+在山东宁津县，安装了北斗导航系统的植保无人机沿着预设航线均匀喷洒，提高作业效率。
+
+农业农村部最新农情调度显示，全国春播粮食进度已过两成，同比持平略快。
+
+其中，早稻播栽近九成，春玉米播种近两成，春大豆播种陆续展开。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [“十五五”期间 武汉将亮相一批文旅新地标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:49 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:38 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:45 - [对话魏建军：长城汽车追求有质量的市场占有率，要坚持长期主义，不是看一招一式、短期的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:52 - [德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:44 - [伊朗媒体报道称：伊朗提议美30天内撤销对伊石油销售制裁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:41 - [直播海报：天舟十号货运飞船发射任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:52 - [澳大利亚学者呼吁反思AUKUS代价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:30 - [中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:36 - [北约国家为特朗普从欧洲撤出更多部队做准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:51 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:50 - [纳睿雷达完成董事会换届：包晓军当选董事长并任总裁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:41 - [《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:39 - [姚高员辞去杭州市市长职务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:41 - [法学大先生·张晋藩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:03 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:44 - [绍兴越城：以“三抓实”落实统战工作责任制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:51 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:50 - [青春，就应该这样！——写在2026年五四青年节到来之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:46 - [人社部：一季度全国城镇新增就业299万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:42 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:44 - [青海西宁：文体商旅融合点燃五月高原消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:56 - [2026年3月广东省外贸进出口总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:54 - [跨境电商架桥梁 让互利之花在中越边境绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:56 - [罕见不展示重型装备，严防乌克兰“突然袭击”，俄罗斯今天举行胜利日阅兵](http://www.share.minike.top/Article/details/97841.shtml)
-- 2026-06-29 11:46 - [成都一中学举办科技节 硬核体验点燃科学梦](http://www.blog.kurohicncr.top/Article/details/04298684.shtml)
-- 2026-06-29 11:31 - [四川成都：列车穿行紫色花海](http://www.blog.minike.top/Article/details/16467497.shtml)
-- 2026-06-29 11:33 - [一站打卡万余种文创 首届中国新文创市集暨潮玩游园会将在北京举办](http://www.share.minike.top/Article/details/40801292285.shtml)
-- 2026-06-29 11:37 - [新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾](http://www.share.minike.top/Article/details/32408824.shtml)
-- 2026-06-29 11:58 - [科学家为无人机安装“氢能心脏”破解续航难题](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](http://www.share.kurohicncr.top/Article/details/79966980016.shtml)
-- 2026-06-29 11:48 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.blog.kurohicncr.top/Article/details/9136910.shtml)
-- 2026-06-29 11:32 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](http://www.share.kurohicncr.top/Article/details/59630.shtml)
-- 2026-06-29 11:34 - [2026中国田径街头巡回赛揭幕](http://www.share.kurohicncr.top/Article/details/22210588051.shtml)
-- 2026-06-29 11:37 - [5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）](http://www.blog.minike.top/Article/details/8293602302.shtml)
-- 2026-06-29 11:38 - [恒瑞医药香港办公室正式启用](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](http://www.share.kurohicncr.top/Article/details/292947.shtml)
-- 2026-06-29 11:34 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](http://www.blog.minike.top/Article/details/17915.shtml)
-- 2026-06-29 11:41 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](http://www.blog.kurohicncr.top/Article/details/449053.shtml)
+- 2026-06-29 11:41 - [白宫晚宴枪击最新调查进展：被捕枪手为一名家教，曾留下字条](http://www.share.minike.top/Article/details/58124730.shtml)
+- 2026-06-29 11:59 - [OEXN:黄金震荡观望央行信号](http://www.share.minike.top/Article/details/9899529.shtml)
+- 2026-06-29 11:55 - [“五一”假日期间海南省天气总体较好 适宜出游](http://www.share.minike.top/Article/details/18243696.shtml)
+- 2026-06-29 11:56 - [绿城的"体外"生意，撑不住了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](http://www.share.kurohicncr.top/Article/details/4550413.shtml)
+- 2026-06-29 11:47 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](http://www.blog.kurohicncr.top/Article/details/0286430.shtml)
+- 2026-06-29 11:53 - [五一假期注意出行安全 南方多地有大范围降雨](http://www.share.minike.top/Article/details/336229057.shtml)
+- 2026-06-29 12:04 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](http://www.share.minike.top/Article/details/953249449024.shtml)
+- 2026-06-29 11:40 - [解决新旧海商法衔接适用问题 最高法出台司法解释](http://www.blog.kurohicncr.top/Article/details/65272043154.shtml)
+- 2026-06-29 11:41 - [中非银联体召开第二届高官会暨中非金融合作研讨会](http://www.blog.kurohicncr.top/Article/details/5204828.shtml)
+- 2026-06-29 11:54 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](http://www.share.minike.top/Article/details/4548482524.shtml)
+- 2026-06-29 11:52 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](http://www.share.kurohicncr.top/Article/details/56115.shtml)
+- 2026-06-29 12:04 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](http://www.share.minike.top/Article/details/19165.shtml)
+- 2026-06-29 11:36 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](http://www.share.kurohicncr.top/Article/details/513688776.shtml)
+- 2026-06-29 11:42 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](http://www.blog.kurohicncr.top/Article/details/9484451.shtml)

@@ -1,47 +1,49 @@
-# 宏微科技：公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%
+# 台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-证券日报网5月8日讯，宏微科技（维权）在接受调研者提问时表示，公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%，以应对上游贵金属成本上涨。目前大部分客户接受度良好，公司计划通过涨价释放利润弹性，并视上游晶圆厂涨价情况决定是否进一步向下游传导。本回复不构成任何投资建议，具体信息请以公司披露的临时公告与定期报告为准。
+发布时间：2026年04月27日 18:40 来源：中国新闻网 4月27日，在两岸青年影人交流工作坊活动上，台湾制片人、导演林家亿接受中新网“燕新台”工作室采访时表示，AI短片“雪山救狐狸”之所以在台湾爆火，关键在于其使用的经典影视素材承载着“两岸共同记忆”，因此更容易引发共鸣。他认为，两岸青年可以借助AI等新技术，共同创作更多贴近生活、富有创意的内容，“这才是正面的互相激励。
 
 ## 正文
 
-证券日报网5月8日讯，宏微科技（维权）在接受调研者提问时表示，公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%，以应对上游贵金属成本上涨。
+发布时间：2026年04月27日 18:40 来源：中国新闻网 4月27日，在两岸青年影人交流工作坊活动上，台湾制片人、导演林家亿接受中新网“燕新台”工作室采访时表示，AI短片“雪山救狐狸”之所以在台湾爆火，关键在于其使用的经典影视素材承载着“两岸共同记忆”，因此更容易引发共鸣。
 
-目前大部分客户接受度良好，公司计划通过涨价释放利润弹性，并视上游晶圆厂涨价情况决定是否进一步向下游传导。
+他认为，两岸青年可以借助AI等新技术，共同创作更多贴近生活、富有创意的内容，“这才是正面的互相激励。
 
-本回复不构成任何投资建议，具体信息请以公司披露的临时公告与定期报告为准。
+”(策划/制作：李柏涛 姜雨薇 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 11:53 - [三大指标领跑全球！中国船企加速布局绿色化智能化领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:34 - [广州欧美同学会、广州中华职教社非遗文化交流活动走进南沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:45 - [压缩试验成本 我国室内最大全季冰雪汽车试验基地开建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:57 - [伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:59 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:51 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:30 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:59 - [山东推进场景创新 2027年拟培育入库场景超500项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:54 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:42 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:55 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:50 - [湖北：“五一”假期文旅融合主题产品焕新登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:05 - [生态环境部：一季度我国环境空气质量总体改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:50 - [收评：国内期货主力合约涨多跌少 多晶硅跌近7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:58 - [王兆星同志逝世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:03 - [江西省人大常委会原副主任洪礼和一审被判20年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:49 - [高盛：紫金矿业维持“买入”评级 目标价微降至51港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:50 - [2026年度大理海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:57 - [辽宁岫岩：翠绿山林间 夺目映山红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:56 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:55 - [天天学习｜书友习近平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:43 - [“国产GPU第一股”摩尔线程，开盘666！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:50 - [2026年3月广东省进口重点商品总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:03 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:56 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](http://www.share.minike.top/Article/details/325895449391.shtml)
-- 2026-06-29 11:49 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](http://www.blog.minike.top/Article/details/70468.shtml)
-- 2026-06-29 11:32 - [第23届世界乳腺健康大会在天津举行](http://www.share.kurohicncr.top/Article/details/65015625.shtml)
-- 2026-06-29 11:41 - [突发！美联储，降息预期生变！](http://www.share.minike.top/Article/details/130383603.shtml)
-- 2026-06-29 11:39 - [美好生活，“体验”一下——“经济新活力”系列评](http://www.blog.kurohicncr.top/Article/details/23785265.shtml)
-- 2026-06-29 11:40 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](http://www.blog.kurohicncr.top/Article/details/54162981.shtml)
-- 2026-06-29 11:54 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.minike.top/Article/details/11271789867.shtml)
-- 2026-06-29 11:48 - [OPPO母亲节文案引争议，中国广告协会：坚决抵制扭曲亲情等营销行为](http://www.blog.minike.top/Article/details/24036.shtml)
-- 2026-06-29 11:38 - [涉疫邮轮20名英国公民回国接受隔离观察](http://www.share.minike.top/Article/details/8860012134.shtml)
-- 2026-06-29 11:37 - [福建推动闽台合作模式向“联合研发、共创品牌”升级](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片](http://www.blog.kurohicncr.top/Article/details/2315463933.shtml)
-- 2026-06-29 11:42 - [文化观察：AI时代 “美商”如何守住人的感知力？](http://www.share.minike.top/Article/details/4000990413.shtml)
-- 2026-06-29 11:30 - [火箭公司业绩超预期，AI与收购加速扭亏为盈](http://www.blog.kurohicncr.top/Article/details/0305053739.shtml)
-- 2026-06-29 11:40 - [广州827项度夏项目全面投运 筑牢夏季供电“安全堤”](http://www.share.minike.top/Article/details/61853.shtml)
+- 2026-06-29 12:03 - [互联网广告要跳出“流量至上”误区](http://www.share.minike.top/Article/details/1364033.shtml)
+- 2026-06-29 11:55 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](http://www.blog.minike.top/Article/details/840985336623.shtml)
+- 2026-06-29 11:49 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](http://www.share.kurohicncr.top/Article/details/926284.shtml)
+- 2026-06-29 11:37 - [中国黄河流域137处国家级自然保护区优良率达99.27％](http://www.share.minike.top/Article/details/986048729091.shtml)
+- 2026-06-29 11:53 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.share.kurohicncr.top/Article/details/67313491.shtml)
+- 2026-06-29 11:52 - [伪满皇宫博物院举办吉林省首个海事文化科普展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [科创综指，历史新高！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](http://www.share.minike.top/Article/details/218270.shtml)
+- 2026-06-29 11:53 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](http://www.blog.kurohicncr.top/Article/details/184142.shtml)
+- 2026-06-29 11:46 - [韩国总统府：谷歌将在韩国新建人工智能园区](http://www.share.minike.top/Article/details/7939812106.shtml)
+- 2026-06-29 12:02 - [2026年芒市海关综合技术服务中心预算公开](http://www.blog.kurohicncr.top/Article/details/97564.shtml)
+- 2026-06-29 11:59 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](http://www.share.minike.top/Article/details/41310.shtml)

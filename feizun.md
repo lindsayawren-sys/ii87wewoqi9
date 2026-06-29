@@ -1,53 +1,58 @@
-# 浏阳烟花厂爆炸事故伤员病情向好 已有18人出院
+# “鸟中大熊猫”彩鹮首次现身云南云县
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-5月4日，湖南浏阳市一烟花厂发生爆炸事故。截至今天(10日)13时，事故在院伤员42人，已出院患者18人，原5名重症伤员中已有4人转为轻症，整体救治工作进展顺利。 当地已建立专业心理援助团队，正在浏阳市人民医院、浏阳市中医院和官渡镇中心卫生院等多个地点同步开展工作。此外，心理援助团队还建立了长期随访计划，全力帮助受灾群众早日走出创伤，回归正常生活。 (央视新闻客户端 总台记者
+中新网云南临沧4月27日电 (沈仕春 鲁维荟)近日，云南省临沧市云县摄影爱好者在爱华镇芦蒿箐意外发现并成功抓拍到两只国家一级重点保护野生动物——彩鹮，这是该物种首次在该县县域内被清晰记录。 彩鹮是典型的湿地鸟类，因数量稀少、野外罕见，被称为“鸟中大熊猫”。其体长约50至60厘米，羽毛在光线下可折射出铜绿、紫蓝等金属光泽，标志性的长喙细长而下弯。 此次发现地爱华镇芦蒿箐，水系充沛
 
 ## 正文
 
-5月4日，湖南浏阳市一烟花厂发生爆炸事故。
+中新网云南临沧4月27日电 (沈仕春 鲁维荟)近日，云南省临沧市云县摄影爱好者在爱华镇芦蒿箐意外发现并成功抓拍到两只国家一级重点保护野生动物——彩鹮，这是该物种首次在该县县域内被清晰记录。
 
-截至今天(10日)13时，事故在院伤员42人，已出院患者18人，原5名重症伤员中已有4人转为轻症，整体救治工作进展顺利。
+彩鹮是典型的湿地鸟类，因数量稀少、野外罕见，被称为“鸟中大熊猫”。
 
-当地已建立专业心理援助团队，正在浏阳市人民医院、浏阳市中医院和官渡镇中心卫生院等多个地点同步开展工作。
+其体长约50至60厘米，羽毛在光线下可折射出铜绿、紫蓝等金属光泽，标志性的长喙细长而下弯。
 
-此外，心理援助团队还建立了长期随访计划，全力帮助受灾群众早日走出创伤，回归正常生活。
+此次发现地爱华镇芦蒿箐，水系充沛、植被完好，湿地生境优越，为彩鹮提供了理想的觅食与栖息环境。
 
-(央视新闻客户端 总台记者 傅蕾 周恬早阳)
+拍摄画面显示，两只彩鹮与白鹭、牛背鹭友好相处，时而在浅水中缓步踱步，时而低头用长喙探觅水生昆虫、小鱼及软体动物，姿态从容警觉。
+
+近年来，云县持续推进湿地修复与生态保护，先后吸引钳嘴鹳、褐翅鸦鹃等多种珍稀鸟类栖息。
+
+彩鹮的现身，是对当地生态环境质量的高度认可。
+
+目前，云县林草部门已加强对芦蒿箐区域的巡护监测，并将加大宣传力度，引导公众共同守护珍稀物种的栖息家园。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:54 - [消息人士称巴基斯坦已将伊朗回应传达给美国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:52 - [中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:41 - [美军称向两艘“违反封锁”的伊朗油轮开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:34 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:58 - [云冈石窟8个晚期洞窟临时封闭 开展数字化采集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:44 - [东博会秘书处携中国味道“出海”进东盟（印尼）专题展启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:37 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:35 - [美国私营监狱运营商CoreCivic预计2026年调整后EBITDA达4.54-4.62亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:35 - [全球调解峰会在港首办 赋能全球治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:32 - [威高股份第一季度收入约33.5亿元 同比增长约5.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:46 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:46 - [私募信贷的火爆行情已然落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:00 - [韩国要求七大电商平台修改不公平条款以加强消费者保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:44 - [阿联酋宣布自5月1日起退出欧佩克 退出后逐步上调石油产量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:48 - [从一座城的两座“灯塔”，看江苏制造业的转型升级之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:52 - [分析：霍尔木兹海峡命运未卜，欧洲央行和英国央行料按兵不动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:47 - [2026年度瑞丽海关本级部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:55 - [伊朗暂停出口部分钢铁产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:00 - [摩根士丹利认为沃什将带来长期机制变革风险 加剧美债市场波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:38 - [涨得越猛越危险，AI行情已现"上涨式崩盘"信号！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:54 - [外交部：坚决遏制日本“新型军国主义”的妄动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:57 - [富瑞：鹰普精密给予“买入”评级 目标价10.34港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:55 - [中国国家能源局：可保障各种情形下的油气安全保供能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:40 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [一季度我国黄金消费量同比增长4.41%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [古特雷斯呼吁美伊保持克制 避免局势进一步升级](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [国际货币基金组织警告人工智能模型加剧金融系统网络风险](http://www.blog.minike.top/Article/details/5722170.shtml)
-- 2026-06-29 11:47 - [2026青海国际民族传统射箭精英赛系列赛火热开赛](http://www.blog.minike.top/Article/details/8077968913.shtml)
-- 2026-06-29 11:46 - [美联储降息理由正逐渐消失？分析师：通胀压力或令政策立场更加鹰派](http://www.blog.minike.top/Article/details/50621288350.shtml)
-- 2026-06-29 11:42 - [美国“愚公”程高登：鼓岭家族跨越百年的中国情缘](http://www.share.minike.top/Article/details/3560943.shtml)
-- 2026-06-29 11:58 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](http://www.blog.minike.top/Article/details/971702.shtml)
-- 2026-06-29 11:43 - [外贸一线观察|江苏外贸实现“超预期”增长，这份底气从何而来？](http://www.share.minike.top/Article/details/248143046772.shtml)
-- 2026-06-29 11:48 - [“压力越大越胖”怎么破？ 专家开出“三层减重法”](http://www.share.minike.top/Article/details/371762006.shtml)
-- 2026-06-29 11:31 - [最高涨超875%！沪深两大龙头，来了](http://www.blog.kurohicncr.top/Article/details/1577551.shtml)
-- 2026-06-29 11:43 - [武汉大学就OPPO母亲节文案发声：极不认同文案的价值倾向](http://www.share.kurohicncr.top/Article/details/81728528.shtml)
-- 2026-06-29 11:33 - [新华访谈｜外卖小哥、网约车司机的“新保障”来了](http://www.blog.kurohicncr.top/Article/details/850737582975.shtml)
-- 2026-06-29 11:40 - [南京门店欠租887万元？山姆回应：配合司法执行，不存在故意欠租](http://www.blog.minike.top/Article/details/1730824.shtml)
-- 2026-06-29 11:59 - [美联储高官：AI成了会加息，AI败了会滞胀！](http://www.blog.kurohicncr.top/Article/details/27205027.shtml)
-- 2026-06-29 11:53 - [颐信科技洪晓彤：AI赋能、情报破局、金融服务新动力](http://www.blog.minike.top/Article/details/7621112.shtml)
+- 2026-06-29 11:58 - [酒价内参4月27日价格发布：青花汾20下跌4元跌幅居前](http://www.blog.kurohicncr.top/Article/details/298477091446.shtml)
+- 2026-06-29 11:46 - [《中国新时代文学蓝皮书（2025）》在京发布](http://www.blog.kurohicncr.top/Article/details/16170.shtml)
+- 2026-06-29 11:41 - [国家开放大学将推出劳模工匠主题直播](http://www.share.kurohicncr.top/Article/details/33256.shtml)
+- 2026-06-29 11:48 - [我国拟修订农业法加快建设农业强国](http://www.share.kurohicncr.top/Article/details/0560724901.shtml)
+- 2026-06-29 11:47 - [当广州“烟火气”遇见展会“国际范” “商旅+文化体验”点燃入境消费新热潮](http://www.share.minike.top/Article/details/6491089643.shtml)
+- 2026-06-29 11:41 - [中东硝烟起，巴西“粮仓”承压：化肥暴涨或致下季作物减产](http://www.blog.kurohicncr.top/Article/details/16157.shtml)
+- 2026-06-29 11:47 - [中东冲突下的地缘局势、能源格局与宏观影响](http://www.share.kurohicncr.top/Article/details/82262316180.shtml)
+- 2026-06-29 11:49 - [中美科学家联手验证新型抗衰老药物，实现哺乳动物寿命延长三分之一](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [巴基斯坦总统来华访问 在湖南沉浸式体验中国茶文化](http://www.share.kurohicncr.top/Article/details/735364.shtml)
+- 2026-06-29 11:38 - [中共中央政治局：抓好农业生产 稳定生猪等农产品价格](http://www.share.minike.top/Article/details/1501819572.shtml)
+- 2026-06-29 11:56 - [静守景气，慢越周期，详解华夏行业景气混合业绩长青密码](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [朱鹤新局长会见香港金管局总裁余伟文](http://www.blog.kurohicncr.top/Article/details/2517718498.shtml)
+- 2026-06-29 11:36 - [欧盟延长对缅甸制裁](http://www.blog.kurohicncr.top/Article/details/24164137.shtml)
+- 2026-06-29 11:52 - [新任CEO首个完整季度：威瑞森实现无线用户正增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [强对流、暴雨预警齐发 这些地方需注意防范](http://www.share.minike.top/Article/details/97821.shtml)

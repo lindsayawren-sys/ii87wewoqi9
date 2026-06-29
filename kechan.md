@@ -1,60 +1,55 @@
-# 中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛
+# 江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新社伦敦5月8日电 (记者 欧阳开宇)当地时间5月8日，2026伦敦世乒赛男团1/4决赛焦点大战打响，中国男乒迎战老对手韩国队，全队气势如虹、沉着应战，以3:0横扫对手，成功“复仇”强势晋级半决赛。 在此前小组赛排位赛中，中韩两队交手，国乒1:3不敌韩国，遭遇球队罕见失利。此番交锋双方尽遣主力，全力争夺四强席位。 首场较量，王楚钦迎战韩国小将吴晙诚。世界第一先下两局后被对手顽
+中新网南昌4月28日电(卢梦梦 金鑫)近日，位于江西省南昌市新建区的江西鄱阳湖南矶湿地国家级自然保护区(以下简称“南矶湿地保护区”)管理局巡护员在日常鸟类监测工作中，成功记录到雄性蓝喉太阳鸟。这不仅刷新了南矶湿地保护区鸟类纪录，而且是江西境内首次以图片形式记录到该鸟种，实现鸟类观测新突破。 据了解，蓝喉太阳鸟雄鸟羽毛色彩鲜艳，主要栖息于海拔1000米至3500米的常绿阔叶林、沟
 
 ## 正文
 
-中新社伦敦5月8日电 (记者 欧阳开宇)当地时间5月8日，2026伦敦世乒赛男团1/4决赛焦点大战打响，中国男乒迎战老对手韩国队，全队气势如虹、沉着应战，以3:0横扫对手，成功“复仇”强势晋级半决赛。
+中新网南昌4月28日电(卢梦梦 金鑫)近日，位于江西省南昌市新建区的江西鄱阳湖南矶湿地国家级自然保护区(以下简称“南矶湿地保护区”)管理局巡护员在日常鸟类监测工作中，成功记录到雄性蓝喉太阳鸟。
 
-在此前小组赛排位赛中，中韩两队交手，国乒1:3不敌韩国，遭遇球队罕见失利。
+这不仅刷新了南矶湿地保护区鸟类纪录，而且是江西境内首次以图片形式记录到该鸟种，实现鸟类观测新突破。
 
-此番交锋双方尽遣主力，全力争夺四强席位。
+据了解，蓝喉太阳鸟雄鸟羽毛色彩鲜艳，主要栖息于海拔1000米至3500米的常绿阔叶林、沟谷季雨林和落叶混交林中，主要以花蜜为食，也吃昆虫等动物性食物。
 
-首场较量，王楚钦迎战韩国小将吴晙诚。
+作为全国唯一一个坐落在省会城市的国家级湿地保护区，南矶湿地保护区始终坚持常态化护鸟与系统性鸟类监测，不断优化湿地生态环境，为各种鸟类提供了稳定、适宜的栖息条件。
 
-世界第一先下两局后被对手顽强追平，决胜局王楚钦稳住心态，开局强势领跑，最终以11:7拿下关键一分。
+此次江西首次以图片形式记录到蓝喉太阳鸟，与当地持续改善生态环境、群众保护野生动物意识不断增强密不可分，进一步丰富了江西的鸟类本底资料，对加强区域鸟类分布研究及湿地生态保护等具有重要参考意义。
 
-至此他本届赛事豪取七战全胜，扛起队伍大旗。
-
-第二盘林诗栋对阵韩国主力张禹珍，彻底走出低迷。
-
-小将开局势如破竹，以悬殊比分速胜首局，后续鏖战顶住对手反扑，攻防兼备、出手果断，直落三局零封强敌，为国乒扩大领先优势。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:56 - [2026虹桥国际咖啡文化节启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:44 - [连续8周32场“村超”足球赛在黑龙江集贤火热开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:42 - [重庆巴南贴“陆”出海：变过路“流量”为发展“留量”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:37 - [把生姜当水果吃，1天1斤坚持多年？专家提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:40 - [文远知行-W于5月8日斥资133.11万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:52 - [伊朗驻华大使：我们不会忘记中国的帮助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:49 - [三星未来退市后售后与售卖仍如常？线下探店解答！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:54 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:44 - [外贸从沿海“独唱”转向全域协同发力 跨境供应链韧性持续增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:44 - [“仰望布达拉”敬庭尧绘画艺术展在拉萨开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:32 - [巴基斯坦拟首次发行熊猫债 规模至多为17.5亿元人民币](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:47 - [海辰储能叶蓁：储能需求不是“跑马圈地”，而是电网刚需的真实拉动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:39 - [福建武夷山迎来制茶繁忙季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:58 - [飞行学员ICAO英语四级四次没考过 航司起诉要求支付近60万元培训费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:45 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:01 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:41 - [2026广东时装周（春季）以时尚之力赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:37 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:42 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:51 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:59 - [美国政府：白宫晚宴枪手意图刺杀特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:51 - [秦农银行国有持股占比首超50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:44 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:49 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:43 - [2026年“汉语桥”比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:47 - [张雪发视频回应力挺余承东，称“拒绝了半个亿的商务合作”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:55 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:45 - [山西深挖气候资源潜力 释放气象数据价值](http://www.blog.minike.top/Article/details/701202.shtml)
-- 2026-06-29 11:41 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](http://www.share.kurohicncr.top/Article/details/52011138.shtml)
-- 2026-06-29 11:47 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.blog.kurohicncr.top/Article/details/88207.shtml)
-- 2026-06-29 11:53 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](http://www.share.minike.top/Article/details/43377670.shtml)
-- 2026-06-29 11:39 - [OpenAI的安全与治理受到严格审视](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](http://www.share.minike.top/Article/details/3308882391.shtml)
-- 2026-06-29 11:44 - [证监会严肃查处清越科技财务造假案件](http://www.share.minike.top/Article/details/4202483.shtml)
-- 2026-06-29 11:30 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](http://www.blog.minike.top/Article/details/134523527225.shtml)
-- 2026-06-29 11:31 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](http://www.blog.minike.top/Article/details/988582.shtml)
-- 2026-06-29 11:59 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](http://www.share.minike.top/Article/details/09270709831.shtml)
-- 2026-06-29 11:55 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [南京：钟山湖畔 鸭趣盎然](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [中国银联与华为签署战略合作协议](http://www.blog.minike.top/Article/details/644711136160.shtml)
+- 2026-06-29 11:50 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](http://www.blog.kurohicncr.top/Article/details/59000354.shtml)
+- 2026-06-29 11:47 - [受气象不佳影响 “两马”航线将双向停航](http://www.share.minike.top/Article/details/92447.shtml)
+- 2026-06-29 11:57 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](http://www.blog.kurohicncr.top/Article/details/58093088.shtml)
+- 2026-06-29 11:56 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](http://www.share.kurohicncr.top/Article/details/13748394.shtml)
+- 2026-06-29 11:47 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](http://www.share.minike.top/Article/details/85724.shtml)
+- 2026-06-29 12:01 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](http://www.blog.minike.top/Article/details/39523.shtml)
+- 2026-06-29 12:01 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](http://www.share.minike.top/Article/details/99841479287.shtml)
+- 2026-06-29 11:41 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [“鸟中大熊猫”彩鹮首次现身云南云县](http://www.share.kurohicncr.top/Article/details/792438.shtml)
+- 2026-06-29 11:50 - [东珠生态业绩预告更正不及时，受损股民可索赔](http://www.share.minike.top/Article/details/7783314.shtml)
+- 2026-06-29 11:41 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](http://www.blog.minike.top/Article/details/34137866.shtml)
+- 2026-06-29 11:44 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](http://www.share.minike.top/Article/details/662565846004.shtml)
+- 2026-06-29 11:57 - [5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究](http://www.share.kurohicncr.top/Article/details/85318473502.shtml)
+- 2026-06-29 11:57 - [OpenAI放宽合作限制，微软独占云时代终结](http://www.share.minike.top/Article/details/3659110.shtml)

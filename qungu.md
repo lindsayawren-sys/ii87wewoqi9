@@ -1,60 +1,57 @@
-# 上市公司买理财年内大降2500+亿 配置多元化趋势凸显
+# 央行上海总部：一季度上海社会融资规模增加4743亿元 同比多增138亿元
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-财联社5月9日讯（编辑 王蔚 实习生 张文骏） 5月8日，英科医疗科技股份有限公司（简称“英科医疗”）发布关于公司及子公司使用闲置自有资金进行委托理财的公告，称拟在授权期限内任一时点使用额度不超过（含）180亿元（或等值其他币种）的闲置自有资金进行委托理财，计划主要投资于风险较低、流动性较好、收益较稳定的金融产品。 此外，海达尔、秋乐种业、爱得科技等最近也先后披露了委托理财的进
+中新网上海4月28日电 (高志苗)中国人民银行上海总部28日召开2026年第二季度新闻发布会，介绍今年一季度上海金融运行情况。 中国人民银行上海总部货币信贷调研部副主任周鹏介绍，一季度，上海社会融资规模增加4743亿元，同比多增138亿元，较好满足了实体经济的融资需求。 从融资结构看，对实体经济发放的人民币贷款增加3495亿元。直接融资增加1550亿元，占社融增量的32.7%，
 
 ## 正文
 
-财联社5月9日讯（编辑 王蔚 实习生 张文骏） 5月8日，英科医疗科技股份有限公司（简称“英科医疗”）发布关于公司及子公司使用闲置自有资金进行委托理财的公告，称拟在授权期限内任一时点使用额度不超过（含）180亿元（或等值其他币种）的闲置自有资金进行委托理财，计划主要投资于风险较低、流动性较好、收益较稳定的金融产品。
+中新网上海4月28日电 (高志苗)中国人民银行上海总部28日召开2026年第二季度新闻发布会，介绍今年一季度上海金融运行情况。
 
-此外，海达尔、秋乐种业、爱得科技等最近也先后披露了委托理财的进展公告。
+中国人民银行上海总部货币信贷调研部副主任周鹏介绍，一季度，上海社会融资规模增加4743亿元，同比多增138亿元，较好满足了实体经济的融资需求。
 
-然而，与这些加快委托理财步伐的上市公司形成对比的是，今年以来上市公司认购理财产品的总规模却出现了显著收缩。
+从融资结构看，对实体经济发放的人民币贷款增加3495亿元。
 
-财联社据Wind数据统计，截至5月9日，上市公司今年的理财产品认购金额合计2496.04亿元，持有的理财产品总数为4144个。
+直接融资增加1550亿元，占社融增量的32.7%，同比上升17.7个百分点。
 
-与去年同期相比，认购金额同比减少2549.38亿元，降幅50.53%；理财产品同比减少3284个。
+其中，各类主体债券净融资1441亿元，同比多增781亿元；非金融企业股票净融资108亿元，同比多增79亿元。
 
-同时，资金配置的变化也表明，在存款利率持续探底的市场环境下，上市公司资金正从传统的存款类产品转向收益弹性更高、流动性更强的券商理财及逆回购等。
+委托贷款、信托贷款和未贴现银行承兑汇票等表外净融资减少533亿元，同比多减559亿元。
 
-认购规模“腰斩”2549亿，资金配置向多元化迁徙 数据显示，2025年1月1日至5月9日，共有1043家上市公司认购了7428只理财产品，认购金额合计为5045.42亿元。
+各项贷款结构优化，融资成本稳中有降。
 
-而到了2026年同期，仅有593家上市公司认购理财产品，产品总数减少至4144只，认购金额合计为2496.04亿元，认购规模缩减超过一半。
+3月末，全市本外币贷款余额13.46万亿元，同比增长6.1%，比全国高0.4个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:52 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:40 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:34 - [2026中国田径街头巡回赛揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:39 - [5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:38 - [恒瑞医药香港办公室正式启用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:55 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:32 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:32 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:41 - [山西深挖气候资源潜力 释放气象数据价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:39 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:39 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:38 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:34 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:02 - [五一假期注意出行安全 南方多地有大范围降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:04 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:03 - [解决新旧海商法衔接适用问题 最高法出台司法解释](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:56 - [中非银联体召开第二届高官会暨中非金融合作研讨会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:48 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:45 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:51 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:46 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:49 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:50 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:52 - [受气象不佳影响 “两马”航线将双向停航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [第十五届四川国际茶业博览会吸引民众参观](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [男子加油逃单同行人对监控比耶](http://www.blog.kurohicncr.top/Article/details/330808692347.shtml)
-- 2026-06-29 11:34 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](http://www.share.minike.top/Article/details/7118983.shtml)
-- 2026-06-29 11:39 - [酒价内参5月11日价格发布：青花郎上涨5元](http://www.blog.minike.top/Article/details/192875573339.shtml)
-- 2026-06-29 11:49 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](http://www.blog.minike.top/Article/details/168769786.shtml)
-- 2026-06-29 11:50 - [公安部公布无人机影响铁路安全典型案例](http://www.share.minike.top/Article/details/026821127.shtml)
-- 2026-06-29 11:34 - [特斯拉与亚马逊有望领涨工业板块](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [普京谈与泽连斯基会面：不主动，不拒绝](http://www.blog.kurohicncr.top/Article/details/300116.shtml)
-- 2026-06-29 11:35 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](http://www.blog.kurohicncr.top/Article/details/23128872140.shtml)
-- 2026-06-29 11:59 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](http://www.blog.minike.top/Article/details/585648898.shtml)
-- 2026-06-29 11:46 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](http://www.share.minike.top/Article/details/7023448225.shtml)
-- 2026-06-29 11:33 - [“续费刺客”如此“近视”，必撞南墻](http://www.blog.kurohicncr.top/Article/details/851175310.shtml)
-- 2026-06-29 11:45 - [视频|李大霄：警惕美债务风险](http://www.share.minike.top/Article/details/30245.shtml)
+- 2026-06-29 11:43 - [2025银行年报观察室｜江苏两大农商行的冷暖答卷：常熟“县域称王”，紫金“夹缝求生”](http://www.share.kurohicncr.top/Article/details/4543895.shtml)
+- 2026-06-29 11:37 - [星动纪元获2亿美元新融资，顺丰集团领投](http://www.blog.minike.top/Article/details/50144675772.shtml)
+- 2026-06-29 12:00 - [国际龙舟联合会主席：推动龙舟运动加速“划向”奥运殿堂](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [英伟达收高4%，创历史新高](http://www.blog.kurohicncr.top/Article/details/150397099.shtml)
+- 2026-06-29 11:40 - [业绩大变脸触发退市红线！冀凯股份索赔正式开启](http://www.blog.kurohicncr.top/Article/details/29436204320.shtml)
+- 2026-06-29 11:37 - [中国能源建设第一季度新签合同额2761.96亿元 同比减少28.98%](http://www.blog.minike.top/Article/details/402395806.shtml)
+- 2026-06-29 11:44 - [安井食品将于7月2日派发末期股息每股1.44元](http://www.blog.kurohicncr.top/Article/details/57720946.shtml)
+- 2026-06-29 11:41 - [跌停！近7倍机器人大牛股遭立案，故事讲完谁在买单](http://www.blog.kurohicncr.top/Article/details/35931325557.shtml)
+- 2026-06-29 11:43 - [姐弟组队勇闯吃瓜比赛 为了赢姐姐拼命“刷刷刷”，弟弟秒变“西瓜粉碎机”](http://www.blog.kurohicncr.top/Article/details/4908104.shtml)
+- 2026-06-29 11:37 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](http://www.blog.minike.top/Article/details/77920.shtml)
+- 2026-06-29 12:02 - [美国多地再发生枪击事件，致十余人伤亡](http://www.blog.kurohicncr.top/Article/details/7349067839.shtml)
+- 2026-06-29 11:49 - [沃顿教授西格尔：围绕鲍威尔的美联储“大戏”远未落幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [日本北部山火已连烧6天 过火面积超1600公顷](http://www.blog.kurohicncr.top/Article/details/143530499.shtml)
+- 2026-06-29 11:47 - [重庆法院发布首例承认欧洲仲裁机构裁决案件](http://www.blog.kurohicncr.top/Article/details/62902022.shtml)
+- 2026-06-29 11:49 - [“广货行天下 文旅邀您来”相关活动推出](http://www.share.minike.top/Article/details/74068.shtml)

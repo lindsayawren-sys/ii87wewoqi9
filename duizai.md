@@ -1,59 +1,57 @@
-# RBC Capital上调标普500年终目标至7900点，看好后市上涨空间
+# 富瑞：洛阳钼业维持“买入”评级 目标价25港元
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-RBC Capital Markets将标普500指数2026年底目标价从7200点上调至7900点，较当前水平隐含约7%的上行空间，理由是盈利增长预期改善和地缘政治风险缓解。 上调理由 以Lori Calvasina为首的分析师团队表示，此次上调主要基于三点：首先，一季度财报季表现强劲，超过80%的公司利润超预期，且AI相关资本支出指引持续上调。其次，油价回落和劳动力市场降温
+富瑞发布研报称，维持洛阳钼业（03993）“买入”评级，目标价25港元。该行对洛阳钼业（603993.SH）A股的目标价为26元人民币，评级同为“买入”。 报告指出，洛阳钼业2026年首季度税后纯利为78亿元人民币，同比增97%，按季增长28%，表现理想兼符合预期。期内铜产量为18.8万吨，同比增长10%，集团重申全年产量指引76至82万吨不变。钴产量维持每季约3万吨的正常水平
 
 ## 正文
 
-RBC Capital Markets将标普500指数2026年底目标价从7200点上调至7900点，较当前水平隐含约7%的上行空间，理由是盈利增长预期改善和地缘政治风险缓解。
+富瑞发布研报称，维持洛阳钼业（03993）“买入”评级，目标价25港元。
 
-上调理由 以Lori Calvasina为首的分析师团队表示，此次上调主要基于三点：首先，一季度财报季表现强劲，超过80%的公司利润超预期，且AI相关资本支出指引持续上调。
+该行对洛阳钼业（603993.SH）A股的目标价为26元人民币，评级同为“买入”。
 
-其次，油价回落和劳动力市场降温有望缓解通胀压力，为美联储在年底前降息创造条件。
+报告指出，洛阳钼业2026年首季度税后纯利为78亿元人民币，同比增97%，按季增长28%，表现理想兼符合预期。
 
-第三，美伊和平谈判的进展降低了石油供应中断的风险，缓解了市场对能源价格冲击的担忧。
+期内铜产量为18.8万吨，同比增长10%，集团重申全年产量指引76至82万吨不变。
 
-市场广度担忧 尽管上调了目标价，RBC也承认市场广度仍然偏窄，涨势高度集中在少数AI受益股。
+钴产量维持每季约3万吨的正常水平，但受出口程序细节不明确影响，首季销量仅为2，000吨。
 
-该行建议投资者考虑增持等权重标普500指数ETF，以分散风险。
+该行表示，管理层确认，旗下TFM矿场在硫酸方面自给自足，而KFM矿场则部分依赖外部供应。
 
-此外，该行预测，如果下半年通胀数据超出预期或中东冲突再度升级，市场可能面临5%至8%的回调，低点可能出现在第三季度末。
+公司目前的硫磺库存（包括在途货物）足以支持生产至2026年第三季，短期营运不受影响。
 
-分析师建议投资者在回调时增加周期性板块的配置。
+首季铜生产单位成本在同比及按季比较均录得下跌，主要受惠于电力成本下降。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [酒价内参5月11日价格发布：青花郎上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:42 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:57 - [公安部公布无人机影响铁路安全典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:51 - [特斯拉与亚马逊有望领涨工业板块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:36 - [普京谈与泽连斯基会面：不主动，不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:40 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:34 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:36 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:51 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:55 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:58 - [“续费刺客”如此“近视”，必撞南墻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:50 - [视频|李大霄：警惕美债务风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:41 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:39 - [英伟达收高4%，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:43 - [业绩大变脸触发退市红线！冀凯股份索赔正式开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:05 - [中国能源建设第一季度新签合同额2761.96亿元 同比减少28.98%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:55 - [安井食品将于7月2日派发末期股息每股1.44元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:40 - [跌停！近7倍机器人大牛股遭立案，故事讲完谁在买单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:52 - [姐弟组队勇闯吃瓜比赛 为了赢姐姐拼命“刷刷刷”，弟弟秒变“西瓜粉碎机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:59 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:36 - [美国多地再发生枪击事件，致十余人伤亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:54 - [沃顿教授西格尔：围绕鲍威尔的美联储“大戏”远未落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:46 - [日本北部山火已连烧6天 过火面积超1600公顷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:00 - [重庆法院发布首例承认欧洲仲裁机构裁决案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [特朗普将访华 中国外交部介绍具体安排](http://www.blog.kurohicncr.top/Article/details/6267489.shtml)
-- 2026-06-29 11:44 - [国家统计局：4月份CPI温和回升，PPI涨幅扩大](http://www.share.kurohicncr.top/Article/details/83960840323.shtml)
-- 2026-06-29 11:37 - [重提审计美国最大金库！特朗普怀疑诺克斯堡金库中金条被偷](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [特朗普：俄乌停火可能持续超过3天](http://www.share.minike.top/Article/details/261144239402.shtml)
-- 2026-06-29 11:47 - [美银与高盛因通胀风险及就业数据，推迟下调美联储降息预期](http://www.share.kurohicncr.top/Article/details/7615847435.shtml)
-- 2026-06-29 11:59 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.share.kurohicncr.top/Article/details/25769694.shtml)
-- 2026-06-29 11:30 - [湖北加速打造光电子信息产业世界级集群](http://www.share.kurohicncr.top/Article/details/01811314741.shtml)
-- 2026-06-29 11:41 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [存储芯片股持续飙升：美光与闪迪的上涨动力何在](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [美军称执行对伊海上封锁已使58艘商船改变航向](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [“存款搬家”了吗？多家银行定期存款占比继续攀升，业内：最多不同银行之间迁移](http://www.share.kurohicncr.top/Article/details/444505.shtml)
-- 2026-06-29 11:43 - [张文宏复盘“探险邮轮”聚集感染并提出：多国追踪不意味像流感或新冠般易传播](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [第十八届“香港杯”外交知识竞赛决赛在港举行 参赛规模创新高](http://www.blog.kurohicncr.top/Article/details/2252032993.shtml)
-- 2026-06-29 11:35 - [母亲节催热“带妈游”，两代人怎么玩更融洽？](http://www.blog.kurohicncr.top/Article/details/43472615010.shtml)
+- 2026-06-29 11:53 - [重庆：高铁乘务员开展服务礼仪培训 备战“五一”假期](http://www.blog.minike.top/Article/details/46170531.shtml)
+- 2026-06-29 11:46 - [中国三三传媒股份拆细将于4月28日生效](http://www.blog.minike.top/Article/details/0745441.shtml)
+- 2026-06-29 11:46 - [TD Cowen首次覆盖DoorDash给予买入评级](http://www.share.kurohicncr.top/Article/details/375868.shtml)
+- 2026-06-29 11:53 - [原料供应收紧，4月下半月猪肉鲜品分割品价格止跌反弹](http://www.share.minike.top/Article/details/00884.shtml)
+- 2026-06-29 11:55 - [平陆运河主题影像作品巡展在广西桂林开展](http://www.share.minike.top/Article/details/843356752751.shtml)
+- 2026-06-29 11:39 - [法治蓝皮书：中国体育反腐法治建设正处于转型关键时期](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [江河与共丨从卫星遥感到基因解码！致公党中央给皖江做了五年“全面体检”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [亚市早盘金价小幅走高，因投资者评估伊朗向美国提出的提议](http://www.blog.kurohicncr.top/Article/details/744613670.shtml)
+- 2026-06-29 11:53 - [北京银行：聘任魏昱为首席合规官](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [酒价内参4月28日价格发布：飞天茅台小幅上涨3元](http://www.share.minike.top/Article/details/881016527270.shtml)
+- 2026-06-29 11:42 - [特朗普：白宫周围很安全 英国国王会非常安全](http://www.blog.kurohicncr.top/Article/details/97425.shtml)
+- 2026-06-29 11:42 - [新疆伊犁：充电服务提质效 新能源汽车惠民生](http://www.share.kurohicncr.top/Article/details/28874847376.shtml)
+- 2026-06-29 12:02 - [药明康德一季报营收首破百亿！港股生物医药概念股集体走强](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](http://www.share.minike.top/Article/details/065210390.shtml)

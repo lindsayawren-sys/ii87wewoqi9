@@ -1,58 +1,56 @@
-# 广西防城港部署专项行动整治违规载客出海等问题
+# 别被“半自驾”“低价团”套路了 文化和旅游部整治强迫购物与层层转包
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-总台报道有反馈丨广西防城港部署专项行动整治违规载客出海等问题 今天(5月10日)，总台《每周质量报告》栏目报道了防城港东兴市万尾金滩存在船舶违规载客出海等问题。 防城港市委、市政府部署开展全市整治违规载客出海等问题专项行动，坚决保护群众生命安全、维护市场良好秩序，同时要求加大规范管理，引导群众依法依规开展相关经营活动。 节目播出后，防城港东兴市委、市政府作出整治部署，要求严格规
+文化和旅游部27日发布2026年第一批旅游市场秩序集中整治严重失信主体典型名单，15个严重失信主体的失信行为事实。假期将至，为保障游客权益，如何整治包含虚假宣传、以购养游、层层转包，甚至无证经营、强迫购物等问题？27日，文化和旅游部公开点名湖南张家界天门山—武陵源、云南丽江古城和玉龙雪山、黄河壶口瀑布等一批5A级旅游景区，并公布2026年第一批旅游市场秩序集中整治严重失信主体典
 
 ## 正文
 
-总台报道有反馈丨广西防城港部署专项行动整治违规载客出海等问题 今天(5月10日)，总台《每周质量报告》栏目报道了防城港东兴市万尾金滩存在船舶违规载客出海等问题。
+文化和旅游部27日发布2026年第一批旅游市场秩序集中整治严重失信主体典型名单，15个严重失信主体的失信行为事实。
 
-防城港市委、市政府部署开展全市整治违规载客出海等问题专项行动，坚决保护群众生命安全、维护市场良好秩序，同时要求加大规范管理，引导群众依法依规开展相关经营活动。
+假期将至，为保障游客权益，如何整治包含虚假宣传、以购养游、层层转包，甚至无证经营、强迫购物等问题？
 
-节目播出后，防城港东兴市委、市政府作出整治部署，要求严格规范船舶载客出海行为，切实加强船舶安全管理，并于当天下午到金滩一线召集海洋、交通、农水、应急管理等职能部门部署专项治理工作。
+27日，文化和旅游部公开点名湖南张家界天门山—武陵源、云南丽江古城和玉龙雪山、黄河壶口瀑布等一批5A级旅游景区，并公布2026年第一批旅游市场秩序集中整治严重失信主体典型名单。
 
-相关执法部门立即开展综合执法行动，依法依规查处船舶违规载客出海行为。
+根据这些失信主体的严重失信行为，记者发现，擅自变更行程、违反合同约定、履约不到位、不规范签订旅游合同的失信主体占比最大。
 
-同时，组建联合执法队伍，开展常态化巡检，严格执行出海船舶管理规范标准，实行集中统一管理，严禁船舶违规载客出海。
+比如，海南鑫享游旅行社有限公司安排工作人员通过网络渠道并委派授权“达人”“网红”在网络平台销售旅游产品。
 
-启动宣传引导工作，通过宣传车巡回宣讲、新媒体平台推送、悬挂宣传横幅等多方式广泛宣传船舶管理有关法律法规。
+对旅游者的不同需求，如“半自驾”“入住五星级酒店等”，均予以应允，进行虚假宣传，误导旅游者下单。
 
-加强金滩景区环境卫生、浴场安全、餐饮住宿等管理工作，统筹解决好旅游安全和群众利益问题。
+但在实际行程中，未按前期约定内容满足旅游者需求。
 
-(央视新闻客户端 总台央视记者 王婧 国鹏)
+线上引流、私域获客、线下成团，结果发现“货不对板”，怎么办？
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [看图学习·人民之心丨读懂“为谁创造业绩”的根本立场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:54 - [短道速滑世界冠军李佳军：每一滴拼搏的汗水都自有光芒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:51 - [估值高企业绩萎靡，国晟科技提示四大核心风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:48 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:34 - [中美元首即将北京会晤，两国关系再迎重要时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:58 - [昌九高铁全线无砟轨道浇筑完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:47 - [AI造假潜入“买家秀” 消费权益如何守护？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:36 - [非遗进茶馆 重庆市民品茗感受巴渝文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:59 - [江苏省水利厅原一级巡视员朱海生接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:35 - [余额宝收益率为何跌破“1”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:53 - [西班牙发现一例汉坦病毒疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:48 - [福建龙岩：“绿巨人”矿卡奔赴西藏高原“上岗”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:55 - [美国库恩基金会主席人民日报撰文：制度优势成就中国发展的“接力跑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:44 - [北京银行去年净利润同比降逾23%，一季度净利润同比增逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:51 - [越来越多中国茶饮等品牌开启新一轮出海热潮 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:52 - [葛优调侃“与三元合作已过二十年”：我一直在想怎么不找我了，是不是等我长头发呢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:51 - [《公开募捐平台服务管理办法》解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:41 - [强脑科技为什么做假肢？韩璧丞：因为遇到一位残障大学生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:05 - [邦达亚洲:多重利空因素打压 美元指数小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:44 - [新教育完美教室班本课程研发专题研讨会在沪举办 聚焦卓越课程与幸福教育](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:02 - [“剪映”“猫箱”“即梦AI”因合成内容标识违法问题被依法查处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:43 - [迎来24项“国家红利”，综保区加速扩能提质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [山东推进场景创新 2027年拟培育入库场景超500项](http://www.blog.kurohicncr.top/Article/details/755118094020.shtml)
-- 2026-06-29 11:50 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](http://www.share.kurohicncr.top/Article/details/97340421.shtml)
-- 2026-06-29 11:49 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](http://www.blog.kurohicncr.top/Article/details/74496.shtml)
-- 2026-06-29 11:59 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](http://www.share.kurohicncr.top/Article/details/6151421.shtml)
-- 2026-06-29 11:52 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](http://www.share.minike.top/Article/details/89409988238.shtml)
-- 2026-06-29 11:42 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [赢家时尚附属透过中信证券认购5000万元基金份额](http://www.blog.kurohicncr.top/Article/details/481564987119.shtml)
-- 2026-06-29 11:32 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](http://www.blog.kurohicncr.top/Article/details/44794106805.shtml)
-- 2026-06-29 11:50 - [杨涛：智能体技术推动银行业智能化转型](http://www.blog.minike.top/Article/details/88612660.shtml)
-- 2026-06-29 11:46 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](http://www.share.minike.top/Article/details/22176.shtml)
-- 2026-06-29 11:42 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.share.kurohicncr.top/Article/details/390484894062.shtml)
-- 2026-06-29 11:34 - [（乡村行·看振兴）方寸庭院生“金”记](http://www.share.kurohicncr.top/Article/details/437894.shtml)
-- 2026-06-29 11:59 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [2026年度大理海关部门预算公开](http://www.share.kurohicncr.top/Article/details/844872120267.shtml)
+- 2026-06-29 12:01 - [辽宁岫岩：翠绿山林间 夺目映山红](http://www.share.kurohicncr.top/Article/details/308053.shtml)
+- 2026-06-29 12:01 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](http://www.blog.kurohicncr.top/Article/details/4983874953.shtml)
+- 2026-06-29 11:56 - [天天学习｜书友习近平](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [“国产GPU第一股”摩尔线程，开盘666！](http://www.blog.minike.top/Article/details/735743113.shtml)
+- 2026-06-29 11:37 - [2026年3月广东省进口重点商品总值表（人民币值）](http://www.share.kurohicncr.top/Article/details/093813012575.shtml)
+- 2026-06-29 11:37 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](http://www.share.kurohicncr.top/Article/details/565566.shtml)
+- 2026-06-29 11:40 - [拉卡拉：“炒股”大赚，主业承压](http://www.blog.kurohicncr.top/Article/details/08795971.shtml)
+- 2026-06-29 11:49 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [时政微周刊丨总书记的一周（4月20日—4月26日）](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [从课堂到云端 自媒体重构海外华文教育生态](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](http://www.share.minike.top/Article/details/66589594852.shtml)
+- 2026-06-29 11:51 - [一季度高技术产业实际使用外资同比增长30.7%](http://www.share.minike.top/Article/details/097636374321.shtml)
+- 2026-06-29 11:50 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](http://www.share.kurohicncr.top/Article/details/955619.shtml)
+- 2026-06-29 11:38 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lisacumin64-arch)

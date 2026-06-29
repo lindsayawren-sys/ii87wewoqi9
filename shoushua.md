@@ -1,57 +1,61 @@
-# 中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位
+# 从一座城的两座“灯塔”，看江苏制造业的转型升级之路
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-来源：华尔街见闻 受霍尔木兹海峡货运近乎中断影响，中国4月原油进口量同比下降约20%至3847万吨；天然气进口量同比降约13%；成品油出口量跌约38%至近十年最低。与此形成对比，大豆进口量同比大涨近40%至848万吨，受美国及巴西季节性供应双重提振。 霍尔木兹海峡货运近乎中断，中国4月原油和天然气进口双双大幅下滑。美国大豆和巴西的季节性供应，4月大豆进口大幅上涨。铝等部分金属进
+【开局之年看中国·遇见不一样的江苏】从一座城的两座“灯塔”，看江苏制造业的转型升级之路 一座城市，两家企业，同登全球“灯塔工厂”榜单。这不是巧合，而是盐城智造实力的集中体现。4月23日和4月25日，20余家全国重点媒体嘉宾走进盐城经济技术开发区和盐都区，先后探访了佛吉亚(盐城)汽车部件系统有限公司和江苏悦达纺织集团有限公司，感受传统产业与新兴产业的“智造”风采。 佛吉亚：全球汽
 
 ## 正文
 
-来源：华尔街见闻 受霍尔木兹海峡货运近乎中断影响，中国4月原油进口量同比下降约20%至3847万吨；天然气进口量同比降约13%；成品油出口量跌约38%至近十年最低。
+【开局之年看中国·遇见不一样的江苏】从一座城的两座“灯塔”，看江苏制造业的转型升级之路 一座城市，两家企业，同登全球“灯塔工厂”榜单。
 
-与此形成对比，大豆进口量同比大涨近40%至848万吨，受美国及巴西季节性供应双重提振。
+这不是巧合，而是盐城智造实力的集中体现。
 
-霍尔木兹海峡货运近乎中断，中国4月原油和天然气进口双双大幅下滑。
+4月23日和4月25日，20余家全国重点媒体嘉宾走进盐城经济技术开发区和盐都区，先后探访了佛吉亚(盐城)汽车部件系统有限公司和江苏悦达纺织集团有限公司，感受传统产业与新兴产业的“智造”风采。
 
-美国大豆和巴西的季节性供应，4月大豆进口大幅上涨。
+佛吉亚：全球汽车座椅领域首家“灯塔工厂” “一根根汽车滑轨经过扫描后转至下一产线，漆面不匀的产品被系统精准锁定，迅速启动自动补漆工序。
 
-铝等部分金属进口亦逆势走强。
+”4月23日上午，在佛吉亚(盐城)汽车部件系统有限公司车间里，媒体嘉宾目睹了智能化生产的高效运转。
 
-5月9日，海关总署公布的数据显示，4月原油进口量同比下降约20%至3847万吨，为2022年7月以来最低水平；天然气进口量同比下降约13%至842万吨。
+2026年1月，佛吉亚(盐城)汽车部件系统有限公司成功入选全球“灯塔工厂”，成为全球汽车座椅领域首家、苏北首家“灯塔工厂”。
 
-霍尔木兹海峡货运近乎中断，是此轮能源进口骤降的直接导火索，冲击由上游原油供应延伸至下游炼化产品出口——4月成品油出口量同比暴跌约38%至312万吨，为近十年最低。
+企业自2011年落户盐城以来，深耕汽车座椅滑轨细分市场，中国市场份额达32%。
 
-与能源进口的全面萎缩形成对比，4月大豆进口量同比大涨近40%至848万吨，美国货物与巴西季节性供应共同提振了这一数字。
+2024年12月启动灯塔工厂创建项目后，仅用一年时间便通过世界经济论坛认证。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [全球调解峰会在港首办 赋能全球治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:33 - [威高股份第一季度收入约33.5亿元 同比增长约5.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:38 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:39 - [私募信贷的火爆行情已然落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:50 - [美国全球保险公司与伦敦劳合社达成战略分保合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:54 - [Molson Coors加拿大公司宣派每股0.65加元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:32 - [第十五届四川国际茶业博览会吸引民众参观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:46 - [男子加油逃单同行人对监控比耶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:38 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:58 - [酒价内参5月11日价格发布：青花郎上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:33 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:53 - [富瑞：鹰普精密给予“买入”评级 目标价10.34港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:36 - [中国国家能源局：可保障各种情形下的油气安全保供能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:03 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:04 - [东睦股份：Q1增长势头放缓、回款承压，加码MIM商誉风险悬顶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:36 - [中国美术馆新展启幕：“文艺复兴三杰”珍贵原作亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:37 - [人身险预定利率研究值环比上行4BP升至1.93%，业内预判年内触发再次调降概率较低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:03 - [2025银行年报观察室｜江苏两大农商行的冷暖答卷：常熟“县域称王”，紫金“夹缝求生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:37 - [星动纪元获2亿美元新融资，顺丰集团领投](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:41 - [国际龙舟联合会主席：推动龙舟运动加速“划向”奥运殿堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:53 - [英伟达收高4%，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:00 - [业绩大变脸触发退市红线！冀凯股份索赔正式开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:59 - [中国能源建设第一季度新签合同额2761.96亿元 同比减少28.98%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:46 - [安井食品将于7月2日派发末期股息每股1.44元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:42 - [跌停！近7倍机器人大牛股遭立案，故事讲完谁在买单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:52 - [姐弟组队勇闯吃瓜比赛 为了赢姐姐拼命“刷刷刷”，弟弟秒变“西瓜粉碎机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [最高涨超875%！沪深两大龙头，来了](http://www.share.kurohicncr.top/Article/details/635021.shtml)
-- 2026-06-29 11:57 - [武汉大学就OPPO母亲节文案发声：极不认同文案的价值倾向](http://www.blog.minike.top/Article/details/8397856.shtml)
-- 2026-06-29 11:37 - [新华访谈｜外卖小哥、网约车司机的“新保障”来了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [南京门店欠租887万元？山姆回应：配合司法执行，不存在故意欠租](http://www.blog.minike.top/Article/details/17455592780.shtml)
-- 2026-06-29 11:54 - [美联储高官：AI成了会加息，AI败了会滞胀！](http://www.blog.kurohicncr.top/Article/details/58642065034.shtml)
-- 2026-06-29 11:41 - [颐信科技洪晓彤：AI赋能、情报破局、金融服务新动力](http://www.blog.minike.top/Article/details/05160681.shtml)
-- 2026-06-29 11:58 - [对冲基金人才截胡大战升温 明星交易员两度“鸽掉”Millennium](http://www.share.minike.top/Article/details/737644699723.shtml)
-- 2026-06-29 11:38 - [新修订《婚姻登记条例》施行一年 全国建成户外颁证点1330个](http://www.share.kurohicncr.top/Article/details/352953754742.shtml)
-- 2026-06-29 11:43 - [无人机事件应对不力 拉脱维亚防长遭解职](http://www.share.minike.top/Article/details/5382518009.shtml)
-- 2026-06-29 11:56 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.share.kurohicncr.top/Article/details/7805526.shtml)
-- 2026-06-29 11:35 - [特朗普将访华 中国外交部介绍具体安排](http://www.blog.kurohicncr.top/Article/details/48694.shtml)
-- 2026-06-29 11:57 - [国家统计局：4月份CPI温和回升，PPI涨幅扩大](http://www.blog.kurohicncr.top/Article/details/88361519064.shtml)
-- 2026-06-29 11:38 - [重提审计美国最大金库！特朗普怀疑诺克斯堡金库中金条被偷](http://www.blog.kurohicncr.top/Article/details/68619090.shtml)
-- 2026-06-29 11:39 - [特朗普：俄乌停火可能持续超过3天](http://www.blog.kurohicncr.top/Article/details/8841331752.shtml)
-- 2026-06-29 11:47 - [美银与高盛因通胀风险及就业数据，推迟下调美联储降息预期](http://www.blog.minike.top/Article/details/2626107.shtml)
+- 2026-06-29 11:55 - [中共中央政治局：抓好农业生产 稳定生猪等农产品价格](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [静守景气，慢越周期，详解华夏行业景气混合业绩长青密码](http://www.blog.kurohicncr.top/Article/details/98844789550.shtml)
+- 2026-06-29 12:02 - [朱鹤新局长会见香港金管局总裁余伟文](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [欧盟延长对缅甸制裁](http://www.share.minike.top/Article/details/930762.shtml)
+- 2026-06-29 11:56 - [新任CEO首个完整季度：威瑞森实现无线用户正增长](http://www.blog.minike.top/Article/details/1371087765.shtml)
+- 2026-06-29 11:43 - [强对流、暴雨预警齐发 这些地方需注意防范](http://www.share.minike.top/Article/details/56392.shtml)
+- 2026-06-29 11:44 - [“锂王”，一季度业绩大增近17倍！](http://www.share.kurohicncr.top/Article/details/60890.shtml)
+- 2026-06-29 11:45 - [“中国重载第一路”大秦铁路春季集中修提前3天完成](http://www.share.kurohicncr.top/Article/details/49780032011.shtml)
+- 2026-06-29 12:06 - [北京农商银行：2025年实现净利润81.49亿元，同比增长2.21%](http://www.share.kurohicncr.top/Article/details/361947837400.shtml)
+- 2026-06-29 11:36 - [重庆：高铁乘务员开展服务礼仪培训 备战“五一”假期](http://www.share.kurohicncr.top/Article/details/153247320518.shtml)
+- 2026-06-29 11:39 - [中国三三传媒股份拆细将于4月28日生效](http://www.blog.minike.top/Article/details/1508711254.shtml)
+- 2026-06-29 11:44 - [TD Cowen首次覆盖DoorDash给予买入评级](http://www.blog.minike.top/Article/details/919276436903.shtml)
+- 2026-06-29 11:44 - [原料供应收紧，4月下半月猪肉鲜品分割品价格止跌反弹](http://www.share.kurohicncr.top/Article/details/940635.shtml)
+- 2026-06-29 11:56 - [平陆运河主题影像作品巡展在广西桂林开展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [法治蓝皮书：中国体育反腐法治建设正处于转型关键时期](http://www.blog.kurohicncr.top/Article/details/1672736.shtml)

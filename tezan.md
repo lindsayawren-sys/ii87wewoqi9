@@ -1,46 +1,57 @@
-# 5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）
+# 有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据统计，5月8日盘后，兴通股份、世纪华通（维权）、沪硅产业、富创精密、永臻股份等五家A股上市公司披露拟减持情况。当日暂无A股公司披露增持情况。
+来源：华夏时报 随着2025年上市公司年报陆续披露，支付机构经营数据也成为市场焦点。据记者梳理，截至4月23日，已有7家支付机构完成业绩披露，包括拉卡拉、连连数字、移卡、嘉联支付、海科融通、合利宝、随行付等机构。 博通咨询首席分析师王蓬博对《华夏时报》记者表示，整体来看，上述已披露业绩的支付机构呈现明显分化，传统收单业务普遍承压，而具备跨境能力或增值服务支撑的机构则实现收入与利
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：华夏时报 随着2025年上市公司年报陆续披露，支付机构经营数据也成为市场焦点。
 
-据统计，5月8日盘后，兴通股份、世纪华通（维权）、沪硅产业、富创精密、永臻股份等五家A股上市公司披露拟减持情况。
+据记者梳理，截至4月23日，已有7家支付机构完成业绩披露，包括拉卡拉、连连数字、移卡、嘉联支付、海科融通、合利宝、随行付等机构。
 
-当日暂无A股公司披露增持情况。
+博通咨询首席分析师王蓬博对《华夏时报》记者表示，整体来看，上述已披露业绩的支付机构呈现明显分化，传统收单业务普遍承压，而具备跨境能力或增值服务支撑的机构则实现收入与利润双升。
+
+行业增长逻辑已从依赖交易规模转向依赖业务结构优化与合规能力建设。
+
+素喜智研高级研究员苏筱芮亦对本报记者分析道，从支付机构的营收情况看，2025年整体业绩呈现营收分化、利润波动的复杂格局，部分支付机构依靠跨境出海、AI赋能或非经常性损益实现利润增长，但也有机构仍处于亏损泥潭，这种分化趋势主要由政策端、市场端的共同作用形成。
+
+分化加剧 具体来看，拉卡拉、连连数字、移卡业绩排名靠前。
+
+2025年，拉卡拉支付交易规模保持行业领先，跨境支付、外卡受理等业务实现增长。
+
+报告期内，拉卡拉实现营业收入55.47亿元；归属于母公司股东的净利润达11.71亿元，同比增长233.33%。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:52 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:54 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:59 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:34 - [证监会严肃查处清越科技财务造假案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:39 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:50 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:54 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:42 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:48 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:58 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:57 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:56 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:03 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:51 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:43 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:56 - [“鸟中大熊猫”彩鹮首次现身云南云县](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:55 - [东珠生态业绩预告更正不及时，受损股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:59 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:52 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:43 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](http://www.blog.minike.top/Article/details/55780702.shtml)
-- 2026-06-29 11:45 - [“续费刺客”如此“近视”，必撞南墻](http://www.share.minike.top/Article/details/01470913055.shtml)
-- 2026-06-29 11:33 - [视频|李大霄：警惕美债务风险](http://www.blog.kurohicncr.top/Article/details/854420343055.shtml)
-- 2026-06-29 11:30 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [索尼在PS5疲软情况下仍寻求利润增长](http://www.blog.minike.top/Article/details/557283.shtml)
-- 2026-06-29 11:39 - [中国男队3:0击败日本 斩获伦敦世乒赛男团冠军](http://www.share.minike.top/Article/details/54430368085.shtml)
-- 2026-06-29 11:53 - [【每周经济观察】“两新”成绩单里的民生温度](http://www.share.kurohicncr.top/Article/details/18318.shtml)
-- 2026-06-29 11:45 - [Akamai斩获18亿美元AI云订单，盘前股价飙升27%](http://www.share.kurohicncr.top/Article/details/219850972.shtml)
-- 2026-06-29 11:31 - [中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等](http://www.share.minike.top/Article/details/80003.shtml)
-- 2026-06-29 11:50 - [建国250周年之际，美国人逃离美国](http://www.blog.kurohicncr.top/Article/details/2363675.shtml)
-- 2026-06-29 11:59 - [Canvas制造商报告重大数据泄露](http://www.share.kurohicncr.top/Article/details/1347841.shtml)
-- 2026-06-29 11:38 - [银行组织架构优化观察：“瘦身”与“增肌”并举，后续系统支撑是成效关键](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [一季度我国黄金消费量同比增长4.41%](http://www.share.kurohicncr.top/Article/details/58262235792.shtml)
-- 2026-06-29 11:54 - [古特雷斯呼吁美伊保持克制 避免局势进一步升级](http://www.share.kurohicncr.top/Article/details/775922150.shtml)
+- 2026-06-29 11:40 - [沃顿教授西格尔：围绕鲍威尔的美联储“大戏”远未落幕](http://www.blog.minike.top/Article/details/238746431664.shtml)
+- 2026-06-29 11:50 - [日本北部山火已连烧6天 过火面积超1600公顷](http://www.share.kurohicncr.top/Article/details/37347.shtml)
+- 2026-06-29 11:41 - [重庆法院发布首例承认欧洲仲裁机构裁决案件](http://www.share.minike.top/Article/details/8974109954.shtml)
+- 2026-06-29 11:43 - [“广货行天下 文旅邀您来”相关活动推出](http://www.blog.kurohicncr.top/Article/details/4041203742.shtml)
+- 2026-06-29 11:56 - [中方禁止外资收购Manus项目，外交部回应](http://www.blog.kurohicncr.top/Article/details/408447073.shtml)
+- 2026-06-29 11:50 - [伊朗恢复飞往重要国际目的地航班](http://www.blog.minike.top/Article/details/15205.shtml)
+- 2026-06-29 11:46 - [印尼列车相撞事故已致14死84伤 总统要求彻查](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [京津冀三地人民银行组织开展2026年党委理论学习中心组联组学习](http://www.blog.minike.top/Article/details/50343202742.shtml)
+- 2026-06-29 11:53 - [国证国际：滨海投资维持“买入”评级 目标价1.43港元](http://www.share.minike.top/Article/details/55669633179.shtml)
+- 2026-06-29 11:59 - [火箭超级工厂竣工投产 力箭二号运载火箭迈入批量化生产阶段](http://www.share.kurohicncr.top/Article/details/8880372283.shtml)
+- 2026-06-29 12:00 - [参与OpenAI手机项目？002475市值一日爆增400亿元！](http://www.share.kurohicncr.top/Article/details/2999247583.shtml)
+- 2026-06-29 11:46 - [北京银行：一季度实现归母净利润80.98亿元，同比增长5.55%](http://www.share.minike.top/Article/details/527438777807.shtml)
+- 2026-06-29 12:01 - [快讯：恒指微跌 科指涨0.56% 芯片股活跃 AI应用股高开](http://www.blog.kurohicncr.top/Article/details/40919.shtml)
+- 2026-06-29 11:38 - [酒价内参4月27日价格发布：青花汾20下跌4元跌幅居前](http://www.blog.kurohicncr.top/Article/details/9778584.shtml)
+- 2026-06-29 12:00 - [《中国新时代文学蓝皮书（2025）》在京发布](http://www.blog.minike.top/Article/details/60181.shtml)

@@ -1,55 +1,53 @@
-# 纳睿雷达完成董事会换届：包晓军当选董事长并任总裁
+# 跨境电商架桥梁 让互利之花在中越边境绽放
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-纳睿雷达（688522）发布公告，公司于2026年5月8日召开了第三届董事会第一次会议，完成了董事会换届选举及高级管理人员的聘任。包晓军被选举为董事长，任期至第三届董事会任期届满之日止。在高级管理人员方面，公司聘任包晓军为总裁，刘素玲、龚雪华和黄辉为副总裁，龚雪华为董事会秘书，林静端为财务总监。上述高级管理人员的任期同样自董事会第一次会议审议通过之日起至第三届董事会任期届满之日
+发布时间：2026年04月27日 10:00 来源：中国新闻网 在广西边城凭祥，一家跨境电商平台依托实景拍摄与AI技术，快速制作商业宣传短片，同时通过培训越南本土主播开展直播带货，既让中国美妆、饰品等商品顺利销往越南市场，也为越南从业者提供了发展机遇，让互利之花在边境悄然绽放。 凭祥市官方提供的数据显示，2025年凭祥跨境电商进出口额逾218亿元人民币，稳居广西县域第一。位于中
 
 ## 正文
 
-纳睿雷达（688522）发布公告，公司于2026年5月8日召开了第三届董事会第一次会议，完成了董事会换届选举及高级管理人员的聘任。
+发布时间：2026年04月27日 10:00 来源：中国新闻网 在广西边城凭祥，一家跨境电商平台依托实景拍摄与AI技术，快速制作商业宣传短片，同时通过培训越南本土主播开展直播带货，既让中国美妆、饰品等商品顺利销往越南市场，也为越南从业者提供了发展机遇，让互利之花在边境悄然绽放。
 
-包晓军被选举为董事长，任期至第三届董事会任期届满之日止。
+凭祥市官方提供的数据显示，2025年凭祥跨境电商进出口额逾218亿元人民币，稳居广西县域第一。
 
-在高级管理人员方面，公司聘任包晓军为总裁，刘素玲、龚雪华和黄辉为副总裁，龚雪华为董事会秘书，林静端为财务总监。
+位于中越边境的凭祥市跨境电商产业孵化中心依托友谊关口岸独特优势，已打通中越跨境清关与物流专线通道，真正搭建起中越贸易的便捷桥梁，形成中国商品拓东盟、东盟优品入中国的双向跨境贸易格局。
 
-上述高级管理人员的任期同样自董事会第一次会议审议通过之日起至第三届董事会任期届满之日止。
-
-公司同时聘任孙中强为证券事务代表，任期与董事会任期一致。
-
-2026年一季度，纳睿雷达实现收入9892万元，归母净利润2642万元。
+(陈沿佑 俞靖 杨陈 广西凭祥报道) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [把生姜当水果吃，1天1斤坚持多年？专家提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:34 - [文远知行-W于5月8日斥资133.11万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:56 - [伊朗驻华大使：我们不会忘记中国的帮助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:44 - [三星未来退市后售后与售卖仍如常？线下探店解答！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:59 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:50 - [外贸从沿海“独唱”转向全域协同发力 跨境供应链韧性持续增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:53 - [“仰望布达拉”敬庭尧绘画艺术展在拉萨开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:57 - [巴基斯坦拟首次发行熊猫债 规模至多为17.5亿元人民币](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:33 - [海辰储能叶蓁：储能需求不是“跑马圈地”，而是电网刚需的真实拉动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:58 - [福建武夷山迎来制茶繁忙季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:51 - [飞行学员ICAO英语四级四次没考过 航司起诉要求支付近60万元培训费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:34 - [吉林东辽河源头梨花漫谷 百年古梨风姿依旧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:56 - [欧洲央行管委Kocher：能源形势若无大幅改善 欧洲央行加息不可避免](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:57 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:49 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:56 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:48 - [美国政府：白宫晚宴枪手意图刺杀特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:38 - [秦农银行国有持股占比首超50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:46 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:42 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:03 - [2026年“汉语桥”比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:56 - [张雪发视频回应力挺余承东，称“拒绝了半个亿的商务合作”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:03 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:46 - [OpenAI进军手机！“牵手”立讯精密！电子板块领涨两市，华宝基金电子ETF（515260）猛拉4.14%，续创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:40 - [上海家化发布2026年一季报：营业收入17.95亿同比增长5.4% 归母净利润2.22亿同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:50 - [德银：迅策目标价上调至351港元 维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:47 - [上海傅利叶董事长顾捷荣获全国五一劳动奖章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:44 - [一季度石家庄海关签发RCEP原产地证书2532份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:56 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](http://www.blog.kurohicncr.top/Article/details/276505903747.shtml)
-- 2026-06-29 11:49 - [OpenAI的安全与治理受到严格审视](http://www.blog.kurohicncr.top/Article/details/139832876.shtml)
-- 2026-06-29 11:36 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [证监会严肃查处清越科技财务造假案件](http://www.blog.minike.top/Article/details/21689014752.shtml)
-- 2026-06-29 11:35 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](http://www.blog.minike.top/Article/details/8275332455.shtml)
-- 2026-06-29 11:41 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](http://www.share.kurohicncr.top/Article/details/949470.shtml)
-- 2026-06-29 11:58 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](http://www.share.minike.top/Article/details/199218452.shtml)
-- 2026-06-29 11:59 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](http://www.blog.kurohicncr.top/Article/details/534573662723.shtml)
-- 2026-06-29 11:55 - [中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和](http://www.blog.minike.top/Article/details/671597.shtml)
-- 2026-06-29 11:48 - [南京：钟山湖畔 鸭趣盎然](http://www.blog.minike.top/Article/details/724643.shtml)
-- 2026-06-29 11:59 - [中国银联与华为签署战略合作协议](http://www.blog.kurohicncr.top/Article/details/7925635.shtml)
-- 2026-06-29 11:34 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](http://www.blog.kurohicncr.top/Article/details/02477934.shtml)
-- 2026-06-29 11:54 - [消息人士称巴基斯坦已将伊朗回应传达给美国](http://www.share.kurohicncr.top/Article/details/070030.shtml)
-- 2026-06-29 11:47 - [中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位](http://www.share.kurohicncr.top/Article/details/80868496.shtml)
+- 2026-06-29 11:51 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](http://www.share.minike.top/Article/details/550675430331.shtml)
+- 2026-06-29 12:04 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](http://www.share.minike.top/Article/details/79076397976.shtml)
+- 2026-06-29 11:53 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](http://www.blog.minike.top/Article/details/987132946.shtml)
+- 2026-06-29 11:52 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](http://www.share.minike.top/Article/details/005198.shtml)
+- 2026-06-29 11:52 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](http://www.share.minike.top/Article/details/89165441.shtml)
+- 2026-06-29 11:54 - [“鸟中大熊猫”彩鹮首次现身云南云县](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [东珠生态业绩预告更正不及时，受损股民可索赔](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](http://www.blog.minike.top/Article/details/81029773.shtml)
+- 2026-06-29 11:50 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](http://www.share.kurohicncr.top/Article/details/539169.shtml)
+- 2026-06-29 11:58 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](http://www.share.minike.top/Article/details/774874620336.shtml)
+- 2026-06-29 11:44 - [5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究](http://www.share.minike.top/Article/details/532260763.shtml)
+- 2026-06-29 11:41 - [OpenAI放宽合作限制，微软独占云时代终结](http://www.share.kurohicncr.top/Article/details/80791.shtml)
+- 2026-06-29 11:49 - [韩国要求七大电商平台修改不公平条款以加强消费者保护](http://www.blog.minike.top/Article/details/87216741.shtml)
+- 2026-06-29 11:43 - [阿联酋宣布自5月1日起退出欧佩克 退出后逐步上调石油产量](http://www.share.minike.top/Article/details/0746993.shtml)
+- 2026-06-29 11:41 - [从一座城的两座“灯塔”，看江苏制造业的转型升级之路](http://www.blog.minike.top/Article/details/10119970.shtml)

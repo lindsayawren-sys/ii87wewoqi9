@@ -1,58 +1,55 @@
-# 康菲石油获挪威批准重启大埃科菲斯克油田
+# 陈旭：日方应恪守中日四个政治文件 勿因错误言论干扰APEC合作环境
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-挪威能源部已批准大埃科菲斯克区域先前生产油田项目的开发和运营计划，为重新开发三个此前已投产的海上油田铺平了道路。 该项目由康菲石油担任作业者，涉及通过海底回接至北海现有埃科菲斯克综合设施，对Albuskjell、Vest Ekofisk和Tommeliten Gamma三个油田进行联合再开发。 该开发计划包括从四个海底模板钻探11口新井，通过共享管道系统连接，预计可采出9000
+发布时间：2026年04月27日 20:51 来源：中国新闻网 4月27日，在“聚焦APEC中国年，携手建设亚太共同体”主题“临甲7号沙龙”活动上，2026年APEC高官会主席陈旭就中日关系及APEC期间双边会晤可能性回答了记者提问。 陈旭表示，目前启动APEC领导人会议的具体邀请工作为时尚早，但作为东道主，中方将积极履行义务，确保领导人会议、系列部长级会议及高官会顺利举行，包
 
 ## 正文
 
-挪威能源部已批准大埃科菲斯克区域先前生产油田项目的开发和运营计划，为重新开发三个此前已投产的海上油田铺平了道路。
+发布时间：2026年04月27日 20:51 来源：中国新闻网 4月27日，在“聚焦APEC中国年，携手建设亚太共同体”主题“临甲7号沙龙”活动上，2026年APEC高官会主席陈旭就中日关系及APEC期间双边会晤可能性回答了记者提问。
 
-该项目由康菲石油担任作业者，涉及通过海底回接至北海现有埃科菲斯克综合设施，对Albuskjell、Vest Ekofisk和Tommeliten Gamma三个油田进行联合再开发。
+陈旭表示，目前启动APEC领导人会议的具体邀请工作为时尚早，但作为东道主，中方将积极履行义务，确保领导人会议、系列部长级会议及高官会顺利举行，包括保障各方顺利与会。
 
-该开发计划包括从四个海底模板钻探11口新井，通过共享管道系统连接，预计可采出9000万至1.2亿桶油当量的天然气和凝析油资源。
+针对记者关于APEC贸易部长会议期间中日双方是否会晤的提问，陈旭指出，当前中日关系面临严峻局面，其根源在于日本首相近期发表的错误涉台言论。
 
-首批生产计划于2028年第四季度实现。
+中方已多次阐明严正立场，希望日方恪守中日四个政治文件原则及自身承诺，以实际行动维护中日关系政治基础及战后国际秩序。
 
-该项目预计将有助于挪威增加对欧洲的天然气出口。
+他强调，所有经济体都应共同努力，为APEC中国年营造良好环境。
 
-康菲石油欧洲及北非总裁Steinar Våge表示，通过利用现有基础设施，可以低成本生产大量资源，这些批准是PPF项目及公司在埃科菲斯克区域长期承诺的重要里程碑，同时也能加强向欧洲的天然气出口。
-
-康菲石油斯堪的纳维亚公司在Albuskjell和Vest Ekofisk持有35.1%的权益，在Tommeliten Gamma持有28.3%的权益。
-
-Vår Energi在Albuskjell和Vest Ekofisk持有52.3%，在Tommeliten Gamma持有9.1%；Orlen Upstream Norway分别持有7.6%和62.6%。
+(记者 迟瀚宇） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:43 - [山东推进场景创新 2027年拟培育入库场景超500项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:40 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:45 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:36 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:30 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:50 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:55 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:34 - [赢家时尚附属透过中信证券认购5000万元基金份额](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:33 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:54 - [杨涛：智能体技术推动银行业智能化转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:50 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:05 - [2026年度大理海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:56 - [辽宁岫岩：翠绿山林间 夺目映山红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:52 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:47 - [天天学习｜书友习近平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:05 - [“国产GPU第一股”摩尔线程，开盘666！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:56 - [2026年3月广东省进口重点商品总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:49 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:03 - [拉卡拉：“炒股”大赚，主业承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:03 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:36 - [时政微周刊丨总书记的一周（4月20日—4月26日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:53 - [从课堂到云端 自媒体重构海外华文教育生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:48 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:03 - [一季度高技术产业实际使用外资同比增长30.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](http://www.share.kurohicncr.top/Article/details/12201270.shtml)
-- 2026-06-29 11:37 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.minike.top/Article/details/316127.shtml)
-- 2026-06-29 11:37 - [OPPO母亲节文案引争议，中国广告协会：坚决抵制扭曲亲情等营销行为](http://www.blog.minike.top/Article/details/226313.shtml)
-- 2026-06-29 11:33 - [涉疫邮轮20名英国公民回国接受隔离观察](http://www.blog.minike.top/Article/details/051471645321.shtml)
-- 2026-06-29 11:58 - [福建推动闽台合作模式向“联合研发、共创品牌”升级](http://www.share.minike.top/Article/details/360001973451.shtml)
-- 2026-06-29 11:34 - [中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片](http://www.blog.kurohicncr.top/Article/details/5642730536.shtml)
-- 2026-06-29 11:32 - [文化观察：AI时代 “美商”如何守住人的感知力？](http://www.blog.kurohicncr.top/Article/details/56903262050.shtml)
-- 2026-06-29 11:40 - [火箭公司业绩超预期，AI与收购加速扭亏为盈](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [广州827项度夏项目全面投运 筑牢夏季供电“安全堤”](http://www.share.minike.top/Article/details/2157575.shtml)
-- 2026-06-29 11:35 - [兴化股份（002109）遭证监会立案调查，受损股民可索赔](http://www.blog.minike.top/Article/details/6971681.shtml)
-- 2026-06-29 11:44 - [Datadog受AI驱动业绩超预期并上调指引，股价飙升](http://www.blog.kurohicncr.top/Article/details/732255.shtml)
-- 2026-06-29 11:56 - [摩根士丹利为何加码职业运动员与演艺人士的复杂财富需求](http://www.share.minike.top/Article/details/829508048.shtml)
-- 2026-06-29 11:30 - [【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？](http://www.blog.minike.top/Article/details/7341719.shtml)
-- 2026-06-29 11:43 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](http://www.share.minike.top/Article/details/030434821314.shtml)
-- 2026-06-29 11:43 - [权威快报|增长14.9% 我国外贸延续良好增长态势](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [伪满皇宫博物院举办吉林省首个海事文化科普展](http://www.blog.kurohicncr.top/Article/details/70521219139.shtml)
+- 2026-06-29 11:48 - [科创综指，历史新高！](http://www.share.kurohicncr.top/Article/details/52508696.shtml)
+- 2026-06-29 12:05 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](http://www.blog.kurohicncr.top/Article/details/7458400195.shtml)
+- 2026-06-29 12:03 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [韩国总统府：谷歌将在韩国新建人工智能园区](http://www.blog.minike.top/Article/details/3148993.shtml)
+- 2026-06-29 11:44 - [2026年芒市海关综合技术服务中心预算公开](http://www.blog.kurohicncr.top/Article/details/31574879968.shtml)
+- 2026-06-29 11:39 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](http://www.blog.minike.top/Article/details/777002253.shtml)
+- 2026-06-29 11:46 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](http://www.share.minike.top/Article/details/177261735686.shtml)
+- 2026-06-29 12:05 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.minike.top/Article/details/52803532.shtml)
+- 2026-06-29 12:04 - [宁夏闽宁镇：短袖订单迎旺季 服装企业赶工忙](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](http://www.share.minike.top/Article/details/20037574016.shtml)
+- 2026-06-29 12:06 - [能源高价推升通胀风险，英债收益率走高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](https://github.com/lisacumin64-arch)

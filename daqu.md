@@ -1,59 +1,54 @@
-# 中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和
+# 爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新社北京5月10日电 (刘梦青)2026赛季中超联赛10日结束第11轮较量。上海申花朱辰杰上演“梅开二度”，帮助球队2:2扳平重庆铜梁龙；北京国安与上海海港同样以2:2握手言和。 老牌劲旅上海申花坐镇主场迎战新军重庆铜梁龙，最终双方2:2战平。两队本赛季开局表现强势，但近期受密集赛程与主力球员伤病影响，成绩出现起伏。此役上半场迪马塔头球破门，肯帕努接迪马塔助攻抽射破门，助重庆
+发布时间：2026年04月27日 07:47 来源：中国新闻网 4月26日，爱尔兰都柏林大学足球队元老代表团时隔50年重访湖南韶山。1976年，该队曾访华进行友谊赛，并在韶山留下合影。50年后，这支成员平均年龄近70岁的代表团故地重游，复刻了当年的合照。成员们纷纷感叹，中国人的热情友好一如既往，昔日满街的自行车如今已被汽车取代，此行让他们真切感受到了中国的巨大变化。(李盈 邓霞
 
 ## 正文
 
-中新社北京5月10日电 (刘梦青)2026赛季中超联赛10日结束第11轮较量。
+发布时间：2026年04月27日 07:47 来源：中国新闻网 4月26日，爱尔兰都柏林大学足球队元老代表团时隔50年重访湖南韶山。
 
-上海申花朱辰杰上演“梅开二度”，帮助球队2:2扳平重庆铜梁龙；北京国安与上海海港同样以2:2握手言和。
+1976年，该队曾访华进行友谊赛，并在韶山留下合影。
 
-老牌劲旅上海申花坐镇主场迎战新军重庆铜梁龙，最终双方2:2战平。
+50年后，这支成员平均年龄近70岁的代表团故地重游，复刻了当年的合照。
 
-两队本赛季开局表现强势，但近期受密集赛程与主力球员伤病影响，成绩出现起伏。
+成员们纷纷感叹，中国人的热情友好一如既往，昔日满街的自行车如今已被汽车取代，此行让他们真切感受到了中国的巨大变化。
 
-此役上半场迪马塔头球破门，肯帕努接迪马塔助攻抽射破门，助重庆铜梁龙确立2:0领先优势。
-
-下半场申花反扑，第66分钟高天意主罚角球、朱辰杰冲顶破门，第74分钟谢鹏飞传中，朱辰杰再次抢点，完成头球“双响”，将比分扳平。
-
-值得一提的是，自2018年正式亮相上海申花一线队，朱辰杰完成了代表申花出战各项赛事的第200场比赛里程碑。
-
-此外，伤停补时阶段上海申花外援马纳法染红罚下，这对阵容缺损的申花来说，无疑是雪上加霜。
+(李盈 邓霞) 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:30 - [云冈石窟8个晚期洞窟临时封闭 开展数字化采集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:59 - [东博会秘书处携中国味道“出海”进东盟（印尼）专题展启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:57 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:40 - [美国私营监狱运营商CoreCivic预计2026年调整后EBITDA达4.54-4.62亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:55 - [全球调解峰会在港首办 赋能全球治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:38 - [威高股份第一季度收入约33.5亿元 同比增长约5.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:49 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:55 - [私募信贷的火爆行情已然落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:47 - [美国全球保险公司与伦敦劳合社达成战略分保合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:58 - [Molson Coors加拿大公司宣派每股0.65加元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:41 - [第十五届四川国际茶业博览会吸引民众参观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:45 - [男子加油逃单同行人对监控比耶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:54 - [2026年度瑞丽海关本级部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:04 - [伊朗暂停出口部分钢铁产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:48 - [摩根士丹利认为沃什将带来长期机制变革风险 加剧美债市场波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:51 - [涨得越猛越危险，AI行情已现"上涨式崩盘"信号！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:04 - [外交部：坚决遏制日本“新型军国主义”的妄动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:00 - [富瑞：鹰普精密给予“买入”评级 目标价10.34港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:36 - [中国国家能源局：可保障各种情形下的油气安全保供能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:46 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:03 - [东睦股份：Q1增长势头放缓、回款承压，加码MIM商誉风险悬顶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:56 - [中国美术馆新展启幕：“文艺复兴三杰”珍贵原作亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:00 - [人身险预定利率研究值环比上行4BP升至1.93%，业内预判年内触发再次调降概率较低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:05 - [2025银行年报观察室｜江苏两大农商行的冷暖答卷：常熟“县域称王”，紫金“夹缝求生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:05 - [星动纪元获2亿美元新融资，顺丰集团领投](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:37 - [国际龙舟联合会主席：推动龙舟运动加速“划向”奥运殿堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [美联储降息理由正逐渐消失？分析师：通胀压力或令政策立场更加鹰派](http://www.share.kurohicncr.top/Article/details/663128590868.shtml)
-- 2026-06-29 11:43 - [美国“愚公”程高登：鼓岭家族跨越百年的中国情缘](http://www.share.minike.top/Article/details/745972255429.shtml)
-- 2026-06-29 11:39 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [外贸一线观察|江苏外贸实现“超预期”增长，这份底气从何而来？](http://www.share.kurohicncr.top/Article/details/092127951852.shtml)
-- 2026-06-29 11:30 - [“压力越大越胖”怎么破？ 专家开出“三层减重法”](http://www.share.kurohicncr.top/Article/details/49073.shtml)
-- 2026-06-29 11:48 - [最高涨超875%！沪深两大龙头，来了](http://www.blog.minike.top/Article/details/32485079149.shtml)
-- 2026-06-29 11:30 - [武汉大学就OPPO母亲节文案发声：极不认同文案的价值倾向](http://www.share.kurohicncr.top/Article/details/32318239444.shtml)
-- 2026-06-29 11:58 - [新华访谈｜外卖小哥、网约车司机的“新保障”来了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [南京门店欠租887万元？山姆回应：配合司法执行，不存在故意欠租](http://www.share.kurohicncr.top/Article/details/34239.shtml)
-- 2026-06-29 11:54 - [美联储高官：AI成了会加息，AI败了会滞胀！](http://www.blog.minike.top/Article/details/373306.shtml)
-- 2026-06-29 11:43 - [颐信科技洪晓彤：AI赋能、情报破局、金融服务新动力](http://www.share.minike.top/Article/details/30703260.shtml)
-- 2026-06-29 11:49 - [对冲基金人才截胡大战升温 明星交易员两度“鸽掉”Millennium](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [新修订《婚姻登记条例》施行一年 全国建成户外颁证点1330个](http://www.share.kurohicncr.top/Article/details/2829002.shtml)
-- 2026-06-29 11:48 - [无人机事件应对不力 拉脱维亚防长遭解职](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.share.minike.top/Article/details/675060164108.shtml)
+- 2026-06-29 11:51 - [当广州“烟火气”遇见展会“国际范” “商旅+文化体验”点燃入境消费新热潮](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [中东硝烟起，巴西“粮仓”承压：化肥暴涨或致下季作物减产](http://www.blog.minike.top/Article/details/09701869.shtml)
+- 2026-06-29 12:02 - [中东冲突下的地缘局势、能源格局与宏观影响](http://www.share.minike.top/Article/details/6885375736.shtml)
+- 2026-06-29 11:54 - [中美科学家联手验证新型抗衰老药物，实现哺乳动物寿命延长三分之一](http://www.share.minike.top/Article/details/14983827.shtml)
+- 2026-06-29 11:50 - [巴基斯坦总统来华访问 在湖南沉浸式体验中国茶文化](http://www.share.kurohicncr.top/Article/details/368890.shtml)
+- 2026-06-29 11:48 - [中共中央政治局：抓好农业生产 稳定生猪等农产品价格](http://www.blog.minike.top/Article/details/089159.shtml)
+- 2026-06-29 11:50 - [静守景气，慢越周期，详解华夏行业景气混合业绩长青密码](http://www.blog.kurohicncr.top/Article/details/59616621.shtml)
+- 2026-06-29 11:37 - [朱鹤新局长会见香港金管局总裁余伟文](http://www.share.minike.top/Article/details/9891330.shtml)
+- 2026-06-29 11:36 - [欧盟延长对缅甸制裁](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [新任CEO首个完整季度：威瑞森实现无线用户正增长](http://www.blog.minike.top/Article/details/5036924915.shtml)
+- 2026-06-29 11:43 - [强对流、暴雨预警齐发 这些地方需注意防范](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [“锂王”，一季度业绩大增近17倍！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [“中国重载第一路”大秦铁路春季集中修提前3天完成](http://www.blog.minike.top/Article/details/4324211995.shtml)
+- 2026-06-29 11:48 - [北京农商银行：2025年实现净利润81.49亿元，同比增长2.21%](http://www.blog.kurohicncr.top/Article/details/659092.shtml)
+- 2026-06-29 11:53 - [重庆：高铁乘务员开展服务礼仪培训 备战“五一”假期](https://github.com/lisacumin64-arch)

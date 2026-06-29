@@ -1,44 +1,53 @@
-# Datadog受AI驱动业绩超预期并上调指引，股价飙升
+# 珠光控股：进一步延迟刊发2025年全年业绩
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-Datadog季度营收首次突破10亿美元，并上调业绩指引，得益于AI训练和可观测性采用加速，推动股价上涨约31%。责任编辑：张俊 SF065
+珠光控股（01176）发布公告，于本公告日期，公司独立估值师及核数师未能完成彼等各自于2025财政年度的估值及审计工作，包括但不限于以下方面：（1）投资物业、发展中物业及完成待售物业；（2）贸易应收款项及其他应收款项的预期信贷亏损评估；（3）集团综合财务报表所载若干重大项目的审计确认书。因此，年末财务报表结算过程及审计程序将须进一步延迟，而核数师可能无法于2026年四月底前完成
 
 ## 正文
 
-Datadog季度营收首次突破10亿美元，并上调业绩指引，得益于AI训练和可观测性采用加速，推动股价上涨约31%。
+珠光控股（01176）发布公告，于本公告日期，公司独立估值师及核数师未能完成彼等各自于2025财政年度的估值及审计工作，包括但不限于以下方面：（1）投资物业、发展中物业及完成待售物业；（2）贸易应收款项及其他应收款项的预期信贷亏损评估；（3）集团综合财务报表所载若干重大项目的审计确认书。
 
-责任编辑：张俊 SF065
+因此，年末财务报表结算过程及审计程序将须进一步延迟，而核数师可能无法于2026年四月底前完成审核2025年全年业绩，而2025年全年业绩的刊发将须进一步延迟。
+
+公司正与核数师紧密合作，务求尽快解决未决事宜及完成2025年全年业绩的审核。
+
+于本公告日期及考虑到目前状况，预期2025年全年业绩将于2026年5月15日前刊发，但须待与核数师协定的所有审核工作完成后，方可作实。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:41 - [中国首条深水油气装备工艺管线智能生产线建设完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:34 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:51 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:48 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:41 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:48 - [这个法国人，真让人刮目相看](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:55 - [“十五五”期间 武汉将亮相一批文旅新地标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:51 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:54 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:59 - [稳面积 提单产 夯实粮食稳产丰产基础](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:57 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:39 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:51 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:03 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:37 - [日元回吐部分涨幅 此前日本央行行长未发出明确的加息信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:43 - [今年“五一”假期小客车上高速继续免收通行费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:36 - [《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:58 - [姚高员辞去杭州市市长职务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:39 - [法学大先生·张晋藩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:55 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:54 - [绍兴越城：以“三抓实”落实统战工作责任制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:52 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [沪指开盘站上4200点 储存芯片概念股强势拉升](http://www.blog.minike.top/Article/details/472056837498.shtml)
-- 2026-06-29 11:38 - [从撒网到巡岸 四川泸州退捕渔民的“身份之变”](http://www.blog.kurohicncr.top/Article/details/82762.shtml)
-- 2026-06-29 11:48 - [福州马尾至马祖“小三通”客运航线11日双向停航](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [浙大“三剑客”县城创业：让中国芯用上“中国泵”](http://www.blog.kurohicncr.top/Article/details/6090113927.shtml)
-- 2026-06-29 11:34 - [北京人形机器人唐剑：全面提升机器人的泛化能力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [中指研究院：4月北上深租金环比继续上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [上市公司买理财年内大降2500+亿 配置多元化趋势凸显](http://www.blog.minike.top/Article/details/01158.shtml)
-- 2026-06-29 11:56 - [罕见不展示重型装备，严防乌克兰“突然袭击”，俄罗斯今天举行胜利日阅兵](http://www.share.kurohicncr.top/Article/details/3952511.shtml)
-- 2026-06-29 11:46 - [成都一中学举办科技节 硬核体验点燃科学梦](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [四川成都：列车穿行紫色花海](http://www.share.minike.top/Article/details/3143289612.shtml)
-- 2026-06-29 11:58 - [一站打卡万余种文创 首届中国新文创市集暨潮玩游园会将在北京举办](http://www.share.kurohicncr.top/Article/details/54843.shtml)
-- 2026-06-29 11:46 - [新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾](http://www.share.kurohicncr.top/Article/details/21831225733.shtml)
-- 2026-06-29 11:51 - [科学家为无人机安装“氢能心脏”破解续航难题](http://www.share.kurohicncr.top/Article/details/853578.shtml)
-- 2026-06-29 11:47 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](http://www.share.kurohicncr.top/Article/details/242422.shtml)
-- 2026-06-29 11:53 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.blog.kurohicncr.top/Article/details/4869220177.shtml)
+- 2026-06-29 11:53 - [一季度石家庄海关签发RCEP原产地证书2532份](http://www.share.kurohicncr.top/Article/details/968887787708.shtml)
+- 2026-06-29 12:03 - [2粒药错写成21粒，失误何以“一路绿灯”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [氧化铝：惊弓之鸟还是风雨欲来？](http://www.share.minike.top/Article/details/8379603977.shtml)
+- 2026-06-29 12:02 - [数智赋能民间文艺传承 2026“世界艺术和科技对话”上海活动举办](http://www.share.minike.top/Article/details/289272364739.shtml)
+- 2026-06-29 11:50 - [喀什至吉尔吉斯斯坦奥什国际客运航线成功首航](http://www.share.kurohicncr.top/Article/details/841214936.shtml)
+- 2026-06-29 12:00 - [欧洲股市小幅攀升，传伊朗提出和平提议](http://www.share.minike.top/Article/details/3169763356.shtml)
+- 2026-06-29 11:49 - [央行上海总部：一季度上海社会融资规模增加4743亿元 同比多增138亿元](http://www.blog.kurohicncr.top/Article/details/195822210589.shtml)
+- 2026-06-29 11:50 - [白宫晚宴枪击最新调查进展：被捕枪手为一名家教，曾留下字条](http://www.blog.minike.top/Article/details/83890.shtml)
+- 2026-06-29 11:57 - [OEXN:黄金震荡观望央行信号](http://www.share.kurohicncr.top/Article/details/550959.shtml)
+- 2026-06-29 12:00 - [“五一”假日期间海南省天气总体较好 适宜出游](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [绿城的"体外"生意，撑不住了](http://www.blog.minike.top/Article/details/4002019.shtml)
+- 2026-06-29 12:05 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](http://www.blog.kurohicncr.top/Article/details/16895934.shtml)
+- 2026-06-29 11:46 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](http://www.blog.kurohicncr.top/Article/details/6830197372.shtml)
+- 2026-06-29 11:54 - [五一假期注意出行安全 南方多地有大范围降雨](http://www.share.minike.top/Article/details/28990906.shtml)
+- 2026-06-29 11:55 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](http://www.share.kurohicncr.top/Article/details/852623409.shtml)

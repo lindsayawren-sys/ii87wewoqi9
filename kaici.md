@@ -1,57 +1,57 @@
-# 第11届法国中国电影节在巴黎拉开帷幕
+# 特朗普过去24小时都忙了什么？（2026-04-28）
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新社巴黎5月10日电 (记者 李洋)第11届法国中国电影节当地时间10日晚在巴黎拉开帷幕。 中国驻法国大使邓励和夫人张华，中国国家电影局副局长、中国电影资料馆馆长秦振贵，法国国家电影中心主任昂拉尔，法国百代电影公司总裁、法国中国电影节法方主席萨法伊，巴黎中国文化中心副主任、法国中国电影节中方执行主席朱晓云和中国导演贾樟柯、法国演员于佩尔等出席当晚的开幕式。 邓励在致辞中表示，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 1． 对伊朗最新提议存疑，但未断然拒绝——美国官员表示，特朗普对伊朗的最新提案表示不满，认为该方案未触及伊朗核计划这一核心问题。据悉虽然特朗普没有断然拒绝，但他表达了疑虑。 2． 与国安团队讨论伊朗问题，底线仍未动摇——白宫新闻秘书莱维特当地时间周一表示，特朗普当天与高级国家安全顾问们讨论了
 
 ## 正文
 
-中新社巴黎5月10日电 (记者 李洋)第11届法国中国电影节当地时间10日晚在巴黎拉开帷幕。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-中国驻法国大使邓励和夫人张华，中国国家电影局副局长、中国电影资料馆馆长秦振贵，法国国家电影中心主任昂拉尔，法国百代电影公司总裁、法国中国电影节法方主席萨法伊，巴黎中国文化中心副主任、法国中国电影节中方执行主席朱晓云和中国导演贾樟柯、法国演员于佩尔等出席当晚的开幕式。
+来源：金十数据 1． 对伊朗最新提议存疑，但未断然拒绝——美国官员表示，特朗普对伊朗的最新提案表示不满，认为该方案未触及伊朗核计划这一核心问题。
 
-邓励在致辞中表示，本届电影节既有《风云儿女》这样的里程碑式作品，也有体现当代思考的《浪浪山小妖怪》等创意新作，还有纪录片、虚拟现实影片等多种类型，体现了中国电影产业的多样性与创造力。
+据悉虽然特朗普没有断然拒绝，但他表达了疑虑。
 
-希望选映影片能为法国观众们带来美好的观影体验，同时加深对中国和中国人的理解。
+2． 与国安团队讨论伊朗问题，底线仍未动摇——白宫新闻秘书莱维特当地时间周一表示，特朗普当天与高级国家安全顾问们讨论了伊朗的最新提议。
 
-秦振贵在致辞中说，本届电影节展映的10部新片，代表了中国电影最新成就；4部经典修复影片，彰显出技术赋能电影艺术传承。
+她表示，特朗普的底线要求依然如故。
 
-这些影片有助于加深法国观众对中国文化的了解，促进民心相通。
+3． 支持移民和海关执法局改名，ICE将变“NICE”——特朗普支持将“移民和海关执法局”（ICE）更名为“国家移民和海关执法局（NICE）”的提议。
 
-每年互办电影节，已成为两国人文交流的一大亮点。
+特朗普表示：“绝妙的主意！
 
-迄今为止，法国中国电影节累计放映中国影片逾百部，覆盖法国观众超过25万人次。
+！
 
 ## 相关推荐
 
-- 2026-06-29 11:53 - [短道速滑世界冠军李佳军：每一滴拼搏的汗水都自有光芒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:42 - [估值高企业绩萎靡，国晟科技提示四大核心风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:54 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:48 - [中美元首即将北京会晤，两国关系再迎重要时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:58 - [昌九高铁全线无砟轨道浇筑完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:55 - [AI造假潜入“买家秀” 消费权益如何守护？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:59 - [非遗进茶馆 重庆市民品茗感受巴渝文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:54 - [江苏省水利厅原一级巡视员朱海生接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:50 - [余额宝收益率为何跌破“1”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:31 - [西班牙发现一例汉坦病毒疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:34 - [福建龙岩：“绿巨人”矿卡奔赴西藏高原“上岗”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:36 - [北京银行去年净利润同比降逾23%，一季度净利润同比增逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:39 - [越来越多中国茶饮等品牌开启新一轮出海热潮 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:37 - [葛优调侃“与三元合作已过二十年”：我一直在想怎么不找我了，是不是等我长头发呢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:52 - [《公开募捐平台服务管理办法》解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:44 - [强脑科技为什么做假肢？韩璧丞：因为遇到一位残障大学生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:54 - [邦达亚洲:多重利空因素打压 美元指数小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:04 - [新教育完美教室班本课程研发专题研讨会在沪举办 聚焦卓越课程与幸福教育](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:46 - [“剪映”“猫箱”“即梦AI”因合成内容标识违法问题被依法查处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:50 - [迎来24项“国家红利”，综保区加速扩能提质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:04 - [中国再保险：中再寿险一季度净亏损2.51亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:54 - [小新带你看亚沙：这个展馆为何吸引老外扎堆打卡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [山东推进场景创新 2027年拟培育入库场景超500项](http://www.share.minike.top/Article/details/173721876.shtml)
-- 2026-06-29 11:33 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](http://www.share.kurohicncr.top/Article/details/2895649.shtml)
-- 2026-06-29 11:40 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](http://www.share.kurohicncr.top/Article/details/958665.shtml)
-- 2026-06-29 11:46 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](http://www.share.kurohicncr.top/Article/details/391048.shtml)
-- 2026-06-29 11:36 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](http://www.blog.minike.top/Article/details/499192979.shtml)
-- 2026-06-29 11:49 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](http://www.share.kurohicncr.top/Article/details/8260719513.shtml)
-- 2026-06-29 11:33 - [赢家时尚附属透过中信证券认购5000万元基金份额](http://www.share.minike.top/Article/details/430544005.shtml)
-- 2026-06-29 11:39 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [杨涛：智能体技术推动银行业智能化转型](http://www.blog.kurohicncr.top/Article/details/82433.shtml)
-- 2026-06-29 11:55 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](http://www.blog.kurohicncr.top/Article/details/588763619.shtml)
-- 2026-06-29 11:53 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.blog.minike.top/Article/details/58054548031.shtml)
-- 2026-06-29 11:31 - [（乡村行·看振兴）方寸庭院生“金”记](http://www.share.kurohicncr.top/Article/details/56286564639.shtml)
-- 2026-06-29 11:35 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](http://www.blog.kurohicncr.top/Article/details/7411340.shtml)
-- 2026-06-29 11:50 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [辽宁岫岩：翠绿山林间 夺目映山红](http://www.share.kurohicncr.top/Article/details/60441578.shtml)
+- 2026-06-29 11:58 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](http://www.blog.minike.top/Article/details/718613551314.shtml)
+- 2026-06-29 12:00 - [天天学习｜书友习近平](http://www.share.minike.top/Article/details/26342924898.shtml)
+- 2026-06-29 12:01 - [“国产GPU第一股”摩尔线程，开盘666！](http://www.blog.minike.top/Article/details/6355392.shtml)
+- 2026-06-29 11:45 - [2026年3月广东省进口重点商品总值表（人民币值）](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](http://www.share.kurohicncr.top/Article/details/559001.shtml)
+- 2026-06-29 11:43 - [拉卡拉：“炒股”大赚，主业承压](http://www.share.minike.top/Article/details/291351635.shtml)
+- 2026-06-29 11:42 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [时政微周刊丨总书记的一周（4月20日—4月26日）](http://www.share.minike.top/Article/details/02936305788.shtml)
+- 2026-06-29 12:04 - [从课堂到云端 自媒体重构海外华文教育生态](http://www.share.kurohicncr.top/Article/details/26156097074.shtml)
+- 2026-06-29 11:54 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](http://www.share.minike.top/Article/details/8028577.shtml)
+- 2026-06-29 11:37 - [一季度高技术产业实际使用外资同比增长30.7%](http://www.share.kurohicncr.top/Article/details/899210523744.shtml)
+- 2026-06-29 12:02 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](http://www.blog.kurohicncr.top/Article/details/63680535.shtml)
+- 2026-06-29 11:53 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](http://www.blog.minike.top/Article/details/8018980.shtml)
+- 2026-06-29 11:53 - [现场下单！中国机器人“圈粉”爱尔兰老球员](http://www.share.minike.top/Article/details/9279529.shtml)

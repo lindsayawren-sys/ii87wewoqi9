@@ -1,57 +1,61 @@
-# “中国式安全感”为何圈粉世界（人民时评）
+# 2026粤超首轮东莞主场获胜 科学家+企业家携手开球
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-人民日报 常言道 “快递放门口不会丢”“凌晨3点敢独自在街头撸串”“笔记本电脑放咖啡馆桌子上也没人碰”……这些中国人习以为常的生活细节，近来被外国博主总结为“中国式安全感”，正在海外掀起一场“羡慕旋风”，也让我们再次审视这份安稳背后的深层逻辑。 这种安全感，照见平安中国建设的成就，彰显以人民为中心的价值取向。在中国，公共安全不是少数人的福利，而是以国家制度为依托、以全体人民为对
+中新网东莞4月27日电 (许青青 陈沛鸿)2026广东省城市足球超级联赛(粤超)首轮赛事26日晚在东莞市体育中心体育场开赛。东莞队坐镇主场以1:0绝杀汕尾队，吸引超过1.6万名球迷现场观战。当地科学家与企业家代表应邀共同为比赛开球。 当晚，主队球迷身着统一蓝色服饰，挥舞助威道具，整齐嘹亮的呐喊声此起彼伏，层层叠叠的蓝色人浪席卷看台，现场气氛热烈。 赛事突破传统流程，特邀11位来
 
 ## 正文
 
-人民日报 常言道 “快递放门口不会丢”“凌晨3点敢独自在街头撸串”“笔记本电脑放咖啡馆桌子上也没人碰”……这些中国人习以为常的生活细节，近来被外国博主总结为“中国式安全感”，正在海外掀起一场“羡慕旋风”，也让我们再次审视这份安稳背后的深层逻辑。
+中新网东莞4月27日电 (许青青 陈沛鸿)2026广东省城市足球超级联赛(粤超)首轮赛事26日晚在东莞市体育中心体育场开赛。
 
-这种安全感，照见平安中国建设的成就，彰显以人民为中心的价值取向。
+东莞队坐镇主场以1:0绝杀汕尾队，吸引超过1.6万名球迷现场观战。
 
-在中国，公共安全不是少数人的福利，而是以国家制度为依托、以全体人民为对象的普惠性安全。
+当地科学家与企业家代表应邀共同为比赛开球。
 
-遇到麻烦，碰到险情，“打了求助号码就会有人来”；邻里间的口角纠纷、走失老人儿童的紧急寻回，“有事找警察”给人以踏实的心理支撑……不论身在繁华城市还是偏远乡村，都能得到充分安全保障。
+当晚，主队球迷身着统一蓝色服饰，挥舞助威道具，整齐嘹亮的呐喊声此起彼伏，层层叠叠的蓝色人浪席卷看台，现场气氛热烈。
 
-无差别的安全供给，背后是鲜明的价值底色：人民至上。
+赛事突破传统流程，特邀11位来自中国散裂中子源、高端铜材联合工程中心、正业科技、生益电子的科学家代表，与玖龙集团、徐福记、加多宝、东莞水投、百味佳的企业家代表携手开球。
 
-徒法不足以自行，良法更需善治。
+入场仪式中，两队队员与外来务工人员子女球童一同登场。
 
-中国式安全感，扎根于基层治理的高效运转与持续发力。
+整场比赛节奏紧凑、对抗激烈、观赏性十足。
 
-从新时代“枫桥经验”引领矛盾纠纷有效化解，到人防与技防相结合实现网格化精细管理；从12345热线高效解决群众难题，到“朝阳群众”“红枫义警”等不断壮大群防群治力量……良好社会秩序是由千万个微小治理单元共同托举起来的。
+东莞队依托扎实的战术布局与默契的团队协作，下半场逐渐掌控节奏，多次制造有威胁的射门。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [保时捷关停三家子公司裁员500人 持续推进业务转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:42 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:43 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:51 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:48 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:56 - [第23届世界乳腺健康大会在天津举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:40 - [突发！美联储，降息预期生变！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:57 - [美好生活，“体验”一下——“经济新活力”系列评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:49 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:53 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:57 - [OPPO母亲节文案引争议，中国广告协会：坚决抵制扭曲亲情等营销行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:04 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:52 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:04 - [互联网广告要跳出“流量至上”误区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:44 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:50 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:49 - [中国黄河流域137处国家级自然保护区优良率达99.27％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:51 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:48 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:37 - [伪满皇宫博物院举办吉林省首个海事文化科普展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:51 - [科创综指，历史新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:03 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:44 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:01 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:48 - [韩国总统府：谷歌将在韩国新建人工智能园区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:01 - [2026年芒市海关综合技术服务中心预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:55 - [澳大利亚学者呼吁反思AUKUS代价](http://www.blog.minike.top/Article/details/629096.shtml)
-- 2026-06-29 11:48 - [中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛](http://www.blog.kurohicncr.top/Article/details/62340.shtml)
-- 2026-06-29 11:56 - [北约国家为特朗普从欧洲撤出更多部队做准备](http://www.share.kurohicncr.top/Article/details/969417488.shtml)
-- 2026-06-29 11:37 - [习言道｜父母是孩子的第一任老师](http://www.blog.minike.top/Article/details/73886952562.shtml)
-- 2026-06-29 11:30 - [纳睿雷达完成董事会换届：包晓军当选董事长并任总裁](http://www.blog.minike.top/Article/details/48991.shtml)
-- 2026-06-29 11:49 - [人形机器人与上海创新创业青年对话“谈科创”](http://www.share.minike.top/Article/details/0886534.shtml)
-- 2026-06-29 11:37 - [一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开](http://www.share.minike.top/Article/details/79880981540.shtml)
-- 2026-06-29 11:46 - [2026虹桥国际咖啡文化节启动](http://www.blog.minike.top/Article/details/8487304.shtml)
-- 2026-06-29 11:53 - [连续8周32场“村超”足球赛在黑龙江集贤火热开赛](http://www.blog.minike.top/Article/details/11340318.shtml)
-- 2026-06-29 11:34 - [重庆巴南贴“陆”出海：变过路“流量”为发展“留量”](http://www.share.kurohicncr.top/Article/details/150674625589.shtml)
-- 2026-06-29 11:39 - [把生姜当水果吃，1天1斤坚持多年？专家提醒](http://www.share.kurohicncr.top/Article/details/58797474.shtml)
-- 2026-06-29 11:35 - [文远知行-W于5月8日斥资133.11万美元回购54万股](http://www.share.kurohicncr.top/Article/details/875232377.shtml)
-- 2026-06-29 11:57 - [伊朗驻华大使：我们不会忘记中国的帮助](http://www.blog.minike.top/Article/details/313629488.shtml)
-- 2026-06-29 11:58 - [三星未来退市后售后与售卖仍如常？线下探店解答！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [人社部：一季度全国城镇新增就业299万人](http://www.blog.kurohicncr.top/Article/details/19118118023.shtml)
+- 2026-06-29 11:54 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](http://www.share.minike.top/Article/details/43679140.shtml)
+- 2026-06-29 11:36 - [青海西宁：文体商旅融合点燃五月高原消费热潮](http://www.blog.kurohicncr.top/Article/details/31465424.shtml)
+- 2026-06-29 12:01 - [2026年3月广东省外贸进出口总值表（人民币值）](http://www.share.minike.top/Article/details/127254.shtml)
+- 2026-06-29 11:53 - [跨境电商架桥梁 让互利之花在中越边境绽放](http://www.share.kurohicncr.top/Article/details/555420248.shtml)
+- 2026-06-29 11:41 - [韩国上市公司总市值首次突破6000万亿韩元](http://www.share.minike.top/Article/details/9529822.shtml)
+- 2026-06-29 11:51 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](http://www.blog.minike.top/Article/details/3843861.shtml)
+- 2026-06-29 12:04 - [交通银行：400亿元二级资本债券（债券通）发行完毕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](http://www.blog.minike.top/Article/details/762732676600.shtml)
+- 2026-06-29 11:59 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](http://www.blog.kurohicncr.top/Article/details/43881.shtml)
+- 2026-06-29 11:37 - [2026广东时装周（春季）以时尚之力赋能产业升级](http://www.share.kurohicncr.top/Article/details/57801921286.shtml)
+- 2026-06-29 11:44 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](http://www.share.kurohicncr.top/Article/details/9850715557.shtml)
+- 2026-06-29 11:47 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](http://www.blog.kurohicncr.top/Article/details/58364256892.shtml)
+- 2026-06-29 11:56 - [美国政府：白宫晚宴枪手意图刺杀特朗普](http://www.share.minike.top/Article/details/40646847.shtml)

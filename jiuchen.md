@@ -1,52 +1,45 @@
-# 特朗普：预计“很快”收到伊朗对美方最新和平方案的回应
+# 中天期货:商品指数板块分化小反弹 原油短线反弹
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-当地时间5月9日，央视记者获悉，美国总统特朗普表示，他预计“很快”会收到伊朗方面对美国最新和平方案的回应，并称伊朗“非常希望”达成一项持久和平协议。 据悉，特朗普当天在接受一个电话采访时作出上述表态。他表示，伊朗方面仍有意完成和平协议谈判。 特朗普9日在弗吉尼亚州高尔夫球场对媒体表示，美方“预计今晚会收到伊朗来信”，并称将观察事态进展。 当被问及伊朗是否在故意拖延谈判进程时，特
+热点品种分析 一、商品指数 二、股指 中国上证综指4月27日（周一）收盘上涨6.44点，涨幅0.16%，报4086.34点； 中国深证成指4月27日（周一）收盘上涨55.45点，涨幅0.37%，报14995.75点； 中国沪深300指4月27日（周一）收盘上涨1.58点，涨幅0.03%，报4770.95点； 中国创业板指4月27日（周一）收盘下跌19.00点，跌幅0.52%，报
 
 ## 正文
 
-当地时间5月9日，央视记者获悉，美国总统特朗普表示，他预计“很快”会收到伊朗方面对美国最新和平方案的回应，并称伊朗“非常希望”达成一项持久和平协议。
+热点品种分析 一、商品指数 二、股指 中国上证综指4月27日（周一）收盘上涨6.44点，涨幅0.16%，报4086.34点； 中国深证成指4月27日（周一）收盘上涨55.45点，涨幅0.37%，报14995.75点； 中国沪深300指4月27日（周一）收盘上涨1.58点，涨幅0.03%，报4770.95点； 中国创业板指4月27日（周一）收盘下跌19.00点，跌幅0.52%，报3648.79点； 中国科创50 4月27日（周一）收盘上涨54.70点，涨幅3.76%，报1508.38点。
 
-据悉，特朗普当天在接受一个电话采访时作出上述表态。
-
-他表示，伊朗方面仍有意完成和平协议谈判。
-
-特朗普9日在弗吉尼亚州高尔夫球场对媒体表示，美方“预计今晚会收到伊朗来信”，并称将观察事态进展。
-
-当被问及伊朗是否在故意拖延谈判进程时，特朗普回应称：“我不知道，我们很快就会知道。
-
-”(央视记者 曹健)
+三、原油2606 四、白银2606 五、碳酸锂 2609 六、螺纹 2610 七、焦煤2609 八、 PTA 2609 九、棉花2609 十、白糖 2609 十一、橡胶 2609 十二、PVC 2609 十三、棕榈2609 十四、纯碱2609 十五、玻璃2609 十六、豆粕2609 十七、生猪2609 十八、红枣2609 责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-29 11:33 - [训修实业将于6月8日派发末期股息每股0.027港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:41 - [第三十六届澳门艺术节揭幕 开启多元艺术之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:53 - [保时捷关停三家子公司、裁员500人 持续推进战略重组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:46 - [俄国防部称乌军违反停火安排 对乌军实施对等打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:36 - [康菲石油获挪威批准重启大埃科菲斯克油田](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:39 - [三大指标领跑全球！中国船企加速布局绿色化智能化领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:59 - [广州欧美同学会、广州中华职教社非遗文化交流活动走进南沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:37 - [压缩试验成本 我国室内最大全季冰雪汽车试验基地开建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:50 - [伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:38 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:00 - [我国拟修改水法提升水安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:53 - [APEC中国年，中美互动预期几何？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:57 - [“探店”网红白冰偷税被查 追缴并罚款共计超1891万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:45 - [大美边疆看我家丨内蒙古锡林浩特：百鸟翔集绘春图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:42 - [陈旭：日方应恪守中日四个政治文件 勿因错误言论干扰APEC合作环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:01 - [湖北：“五一”假期文旅融合主题产品焕新登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:00 - [生态环境部：一季度我国环境空气质量总体改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:00 - [收评：国内期货主力合约涨多跌少 多晶硅跌近7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:48 - [王兆星同志逝世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:40 - [江西省人大常委会原副主任洪礼和一审被判20年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:54 - [高盛：紫金矿业维持“买入”评级 目标价微降至51港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [韩国产业部长与美方官员洽谈投资协议](http://www.share.minike.top/Article/details/174895437146.shtml)
-- 2026-06-29 11:40 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](http://www.blog.minike.top/Article/details/58734737218.shtml)
-- 2026-06-29 11:41 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](http://www.blog.kurohicncr.top/Article/details/734537.shtml)
-- 2026-06-29 11:48 - [保时捷关停三家子公司裁员500人 持续推进业务转型](http://www.blog.kurohicncr.top/Article/details/37028.shtml)
-- 2026-06-29 11:53 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](http://www.share.minike.top/Article/details/899385.shtml)
-- 2026-06-29 11:45 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](http://www.blog.minike.top/Article/details/6111907708.shtml)
-- 2026-06-29 11:36 - [第23届世界乳腺健康大会在天津举行](http://www.share.minike.top/Article/details/854445.shtml)
-- 2026-06-29 11:42 - [突发！美联储，降息预期生变！](http://www.share.kurohicncr.top/Article/details/38851.shtml)
-- 2026-06-29 11:45 - [美好生活，“体验”一下——“经济新活力”系列评](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](http://www.blog.kurohicncr.top/Article/details/833456819.shtml)
-- 2026-06-29 11:57 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.minike.top/Article/details/90665826.shtml)
-- 2026-06-29 11:38 - [OPPO母亲节文案引争议，中国广告协会：坚决抵制扭曲亲情等营销行为](http://www.share.minike.top/Article/details/08297959492.shtml)
-- 2026-06-29 11:40 - [涉疫邮轮20名英国公民回国接受隔离观察](http://www.share.kurohicncr.top/Article/details/813596727.shtml)
+- 2026-06-29 12:02 - [长江“微笑天使”又添丁，见证江苏生态之变](http://www.blog.kurohicncr.top/Article/details/8594683.shtml)
+- 2026-06-29 11:47 - [春到桑干河](http://www.blog.kurohicncr.top/Article/details/944560156341.shtml)
+- 2026-06-29 12:04 - [一季度浙江算力中心用电规模和增速创新高](http://www.blog.minike.top/Article/details/00628464048.shtml)
+- 2026-06-29 11:37 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](http://www.blog.minike.top/Article/details/92145172538.shtml)
+- 2026-06-29 12:02 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](http://www.blog.minike.top/Article/details/735195832654.shtml)
+- 2026-06-29 11:55 - [互联网广告要跳出“流量至上”误区](http://www.share.minike.top/Article/details/587816.shtml)
+- 2026-06-29 11:40 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](http://www.blog.minike.top/Article/details/469661154626.shtml)
+- 2026-06-29 11:45 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](http://www.blog.kurohicncr.top/Article/details/39684187.shtml)
+- 2026-06-29 11:42 - [中国黄河流域137处国家级自然保护区优良率达99.27％](http://www.blog.minike.top/Article/details/8299620526.shtml)
+- 2026-06-29 11:53 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.share.kurohicncr.top/Article/details/140050065816.shtml)
+- 2026-06-29 11:56 - [伪满皇宫博物院举办吉林省首个海事文化科普展](http://www.share.minike.top/Article/details/3947347.shtml)
+- 2026-06-29 11:36 - [科创综指，历史新高！](http://www.share.kurohicncr.top/Article/details/978425.shtml)
+- 2026-06-29 12:03 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](http://www.blog.minike.top/Article/details/777038721.shtml)
+- 2026-06-29 11:38 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](http://www.share.minike.top/Article/details/221106568.shtml)

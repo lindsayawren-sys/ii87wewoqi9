@@ -1,53 +1,50 @@
-# 福建龙岩：“绿巨人”矿卡奔赴西藏高原“上岗”
+# 小新带你看亚沙：这个展馆为何吸引老外扎堆打卡？
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 22:04 来源：中国新闻网 5月9日，由福建龙净环保股份有限公司研发生产的4辆“绿巨人”矿卡从福建龙岩出发，准备横跨2500公里，到西藏高原海拔5300米的矿区去“上岗”。这批220吨级纯电动矿卡车身自重80吨，长13.25米，宽5.3米，高5.4米，零排放、低能耗，还能扛住高寒缺氧、陡坡连绵的极端环境，单日运量破2000吨，直接打破了国外高
+发布时间：2026年04月28日 10:04 来源：中国新闻网 4月22日至30日，第六届亚洲沙滩运动会在海南三亚举办。比赛之余，在赛场外的运动员村内，一个有趣又有文化味的展馆热闹非凡，吸引不少中外运动员前来打卡。请跟随小新的镜头一起走进展馆，探寻它独特的文化魅力。 林士杰 陈英清 海南三亚报道 责任编辑：【刘湃】
 
 ## 正文
 
-发布时间：2026年05月09日 22:04 来源：中国新闻网 5月9日，由福建龙净环保股份有限公司研发生产的4辆“绿巨人”矿卡从福建龙岩出发，准备横跨2500公里，到西藏高原海拔5300米的矿区去“上岗”。
+发布时间：2026年04月28日 10:04 来源：中国新闻网 4月22日至30日，第六届亚洲沙滩运动会在海南三亚举办。
 
-这批220吨级纯电动矿卡车身自重80吨，长13.25米，宽5.3米，高5.4米，零排放、低能耗，还能扛住高寒缺氧、陡坡连绵的极端环境，单日运量破2000吨，直接打破了国外高端矿卡的技术壁垒。
+比赛之余，在赛场外的运动员村内，一个有趣又有文化味的展馆热闹非凡，吸引不少中外运动员前来打卡。
 
-据了解，220吨级纯电动矿卡车它能在高海拔高寒环境下轻松重载爬坡，在复杂地形中稳步行进，并可通过智能“大脑”实现精准调度与安全守护，在“世界屋脊”上开创了大型电动矿卡成功应用的先河。
+请跟随小新的镜头一起走进展馆，探寻它独特的文化魅力。
 
-(记者 吴晟炜 视频来源 龙岩市融媒体中心) 责任编辑：【卢岩】
+林士杰 陈英清 海南三亚报道 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [下周，两大龙头来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:34 - [东西问丨杨惠姗：海峡两岸琉璃艺术如何共舞世界艺林？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:44 - [消息人士称目前霍尔木兹海峡周边地区局势平静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:41 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:39 - [微软在非洲的数据中心因付款问题陷入困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:31 - [武汉融入“三个丝绸之路” 打造内陆开放新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:37 - [“文化中国·水立方杯”中文歌曲大赛印尼总决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:30 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:53 - [宏微科技：公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:53 - [我国营商环境持续改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:45 - [训修实业将于6月8日派发末期股息每股0.027港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:54 - [第三十六届澳门艺术节揭幕 开启多元艺术之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:38 - [保时捷关停三家子公司、裁员500人 持续推进战略重组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:30 - [俄国防部称乌军违反停火安排 对乌军实施对等打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:45 - [康菲石油获挪威批准重启大埃科菲斯克油田](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:01 - [视频 | 理财亏716万元，金融街证券被判赔偿10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:43 - [姑苏城外瑞光塔 夜半灯火照客游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:59 - [1.8米杖头木偶亮相厦门“屿见闽南” 16米长绸翩舞引惊呼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:37 - [中天期货:商品指数板块分化小反弹 原油短线反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:38 - [重庆银行：一季度归母净利润17.93亿元 同比增长10.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:47 - [多部门协同发力 上海出台14项举措助力民营经济高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:02 - [德国据悉尝试为德国商业银行寻找白衣骑士 以应对裕信银行的收购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:49 - [上海家化一季度扣非净利润同比增长38.2%，四个聚焦战略加速兑现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:57 - [台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:45 - [GTC泽汇:尼日利亚炼化驱动转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:50 - [我国拟修改水法提升水安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:51 - [APEC中国年，中美互动预期几何？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](http://www.share.kurohicncr.top/Article/details/39288357748.shtml)
-- 2026-06-29 11:38 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.blog.kurohicncr.top/Article/details/191155700430.shtml)
-- 2026-06-29 11:49 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](http://www.blog.kurohicncr.top/Article/details/01904417.shtml)
-- 2026-06-29 11:33 - [德国3月对美出口大幅下滑](http://www.share.kurohicncr.top/Article/details/17311449948.shtml)
-- 2026-06-29 11:45 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](http://www.blog.minike.top/Article/details/8956976.shtml)
-- 2026-06-29 11:54 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](http://www.blog.minike.top/Article/details/96828.shtml)
-- 2026-06-29 11:48 - [“中国式安全感”为何圈粉世界（人民时评）](http://www.share.kurohicncr.top/Article/details/133247.shtml)
-- 2026-06-29 11:36 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](http://www.share.minike.top/Article/details/50641664258.shtml)
-- 2026-06-29 11:31 - [酒价内参5月11日价格发布：飞天茅台下跌2元](http://www.blog.minike.top/Article/details/760003.shtml)
-- 2026-06-29 11:41 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](http://www.blog.minike.top/Article/details/5779086.shtml)
-- 2026-06-29 11:58 - [韩国产业部长与美方官员洽谈投资协议](http://www.blog.kurohicncr.top/Article/details/245242416433.shtml)
-- 2026-06-29 11:54 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](http://www.blog.minike.top/Article/details/053764.shtml)
-- 2026-06-29 11:39 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](http://www.share.kurohicncr.top/Article/details/318688.shtml)
-- 2026-06-29 11:57 - [保时捷关停三家子公司裁员500人 持续推进业务转型](http://www.blog.kurohicncr.top/Article/details/53344731.shtml)
-- 2026-06-29 11:36 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](http://www.blog.minike.top/Article/details/892865961022.shtml)
+- 2026-06-29 12:01 - [002779、603360，被证监会立案！](http://www.blog.minike.top/Article/details/7529721.shtml)
+- 2026-06-29 11:45 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](http://www.blog.kurohicncr.top/Article/details/80688789539.shtml)
+- 2026-06-29 11:56 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.share.kurohicncr.top/Article/details/3308912554.shtml)
+- 2026-06-29 11:53 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](http://www.blog.minike.top/Article/details/76908.shtml)
+- 2026-06-29 11:46 - [珠江流域进一步强化节约用水管理工作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [“五一”假期预计全国日均租车量将超70万辆](http://www.share.kurohicncr.top/Article/details/80064014.shtml)
+- 2026-06-29 11:51 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](http://www.share.minike.top/Article/details/6661626981.shtml)
+- 2026-06-29 11:36 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](http://www.share.minike.top/Article/details/418863.shtml)
+- 2026-06-29 11:42 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](http://www.blog.minike.top/Article/details/704312712.shtml)
+- 2026-06-29 11:58 - [长江“微笑天使”又添丁，见证江苏生态之变](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [春到桑干河](http://www.blog.minike.top/Article/details/17541.shtml)
+- 2026-06-29 11:42 - [一季度浙江算力中心用电规模和增速创新高](http://www.share.kurohicncr.top/Article/details/472889638812.shtml)
+- 2026-06-29 12:03 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](http://www.blog.minike.top/Article/details/692639232530.shtml)
+- 2026-06-29 12:03 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](http://www.blog.kurohicncr.top/Article/details/390145845.shtml)

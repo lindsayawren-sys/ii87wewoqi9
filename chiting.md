@@ -1,57 +1,56 @@
-# 东博会秘书处携中国味道“出海”进东盟（印尼）专题展启幕
+# 摩根士丹利认为沃什将带来长期机制变革风险 加剧美债市场波动
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新网南宁5月9日电 (黄令妍 陈芳)中国—东盟博览会(下称东博会)秘书处9日介绍，2026年印尼国际食品和饮料贸易展近日在雅加达开幕。在广西农业农村厅、商务厅及工业与信息化厅的支持下，东博会秘书处组织了15家企业参展，设立专题展区集中展示优质的展品、完备的上下游产供链，吸引众多专业买家洽谈采购。中印尼两国嘉宾巡馆参观，与参展企业交流，共拓合作商机。 据悉，专题展区汇聚佛山市海
+摩根士丹利分析师表示，凯文·沃什出任美联储主席的提名有望获得确认，这将带来长期的机制变革风险，可能加剧美国国债市场波动。 以Matthew Hornbach为首的团队指出，在沃什领导下，美联储可能采用新的通胀指标、减少前瞻指引，推动缩小资产负债表规模，这些变化“可能会提高每次议息会议之间的波动性”。沃什本人上周在国会作证时预示央行“政策操作方式将发生机制变革”。 摩根士丹利团队
 
 ## 正文
 
-中新网南宁5月9日电 (黄令妍 陈芳)中国—东盟博览会(下称东博会)秘书处9日介绍，2026年印尼国际食品和饮料贸易展近日在雅加达开幕。
+摩根士丹利分析师表示，凯文·沃什出任美联储主席的提名有望获得确认，这将带来长期的机制变革风险，可能加剧美国国债市场波动。
 
-在广西农业农村厅、商务厅及工业与信息化厅的支持下，东博会秘书处组织了15家企业参展，设立专题展区集中展示优质的展品、完备的上下游产供链，吸引众多专业买家洽谈采购。
+以Matthew Hornbach为首的团队指出，在沃什领导下，美联储可能采用新的通胀指标、减少前瞻指引，推动缩小资产负债表规模，这些变化“可能会提高每次议息会议之间的波动性”。
 
-中印尼两国嘉宾巡馆参观，与参展企业交流，共拓合作商机。
+沃什本人上周在国会作证时预示央行“政策操作方式将发生机制变革”。
 
-据悉，专题展区汇聚佛山市海天(南宁)调味食品有限公司、广西螺霸王食品科技有限公司、广西金海盈食品有限公司等中华老字号、“桂字号”农业品牌，以及香料、淀粉、果蔬、饮料、生物科技等领域广西名特优产品企业。
+摩根士丹利团队强调，这属于长期变化，因此未因沃什的听证会提出新的交易建议。
 
-展品种类丰富，匹配印尼地区庞大消费市场与采购需求，助力中国企业稳步开拓印尼市场，持续放大东博会品牌影响力与辐射带动作用。
+这与当前市场状况一致：美国国债本月波动区间料创2020年末以来最窄，凸显市场处于相对平静期，促使投资者正在寻找新的催化因素。
 
-东博会秘书处设置特装展位，通过视频、图文等形式开展2026年第23届东博会宣传推介。
+“美联储主席提名人凯文·沃什的听证会显示联邦公开市场委员会（FOMC）决策将采取新机制，但尚不足以引发当下的仓位调整，”该团队在周一的报告中写道，“沃什明确表示，FOMC会议可能会出现更多辩论和分歧。
 
-本届东博会将于9月17日至21日举办，打造“市场开放”“商机先享”“数字赋能”“服务优化”四大亮点。
+” 其他银行也赞同摩根士丹利的观点，即沃什领导下的美联储可能放大市场波动。
 
-本次专题展展期为5月7日至10日，为期4天，为采购商与参展企业搭建供需互通、精准对接的专业平台，推动展会对接成效转化为实实在在的经贸合作成果，为助推中国—东盟自贸区3.0版落地见效贡献东博会力量。
+“Warsh并不看重前瞻性指引、FOMC官员的沟通程度，以及FOMC倾向一致决议的做法，”富国以Michael Schumacher为首的团队表示，“我们认为，总体而言，这意味着美联储对市场和利率波动的压制作用将减弱。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [美国全球保险公司与伦敦劳合社达成战略分保合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:43 - [Molson Coors加拿大公司宣派每股0.65加元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:59 - [第十五届四川国际茶业博览会吸引民众参观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:34 - [男子加油逃单同行人对监控比耶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:35 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:46 - [酒价内参5月11日价格发布：青花郎上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:33 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:49 - [公安部公布无人机影响铁路安全典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:49 - [特斯拉与亚马逊有望领涨工业板块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:57 - [普京谈与泽连斯基会面：不主动，不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:00 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:52 - [中国美术馆新展启幕：“文艺复兴三杰”珍贵原作亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:59 - [人身险预定利率研究值环比上行4BP升至1.93%，业内预判年内触发再次调降概率较低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:50 - [2025银行年报观察室｜江苏两大农商行的冷暖答卷：常熟“县域称王”，紫金“夹缝求生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:41 - [星动纪元获2亿美元新融资，顺丰集团领投](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:00 - [国际龙舟联合会主席：推动龙舟运动加速“划向”奥运殿堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:59 - [英伟达收高4%，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:43 - [业绩大变脸触发退市红线！冀凯股份索赔正式开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:03 - [中国能源建设第一季度新签合同额2761.96亿元 同比减少28.98%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:37 - [安井食品将于7月2日派发末期股息每股1.44元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:58 - [跌停！近7倍机器人大牛股遭立案，故事讲完谁在买单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:50 - [美联储高官：AI成了会加息，AI败了会滞胀！](http://www.blog.kurohicncr.top/Article/details/229233.shtml)
-- 2026-06-29 11:35 - [颐信科技洪晓彤：AI赋能、情报破局、金融服务新动力](http://www.blog.kurohicncr.top/Article/details/99077.shtml)
-- 2026-06-29 11:38 - [对冲基金人才截胡大战升温 明星交易员两度“鸽掉”Millennium](http://www.share.kurohicncr.top/Article/details/3150004.shtml)
-- 2026-06-29 11:31 - [新修订《婚姻登记条例》施行一年 全国建成户外颁证点1330个](http://www.share.kurohicncr.top/Article/details/779633.shtml)
-- 2026-06-29 11:39 - [无人机事件应对不力 拉脱维亚防长遭解职](http://www.blog.kurohicncr.top/Article/details/4840815.shtml)
-- 2026-06-29 11:31 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.blog.kurohicncr.top/Article/details/017056.shtml)
-- 2026-06-29 11:52 - [特朗普将访华 中国外交部介绍具体安排](http://www.blog.kurohicncr.top/Article/details/9231468.shtml)
-- 2026-06-29 11:32 - [国家统计局：4月份CPI温和回升，PPI涨幅扩大](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [重提审计美国最大金库！特朗普怀疑诺克斯堡金库中金条被偷](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [特朗普：俄乌停火可能持续超过3天](http://www.blog.minike.top/Article/details/694120936.shtml)
-- 2026-06-29 11:49 - [美银与高盛因通胀风险及就业数据，推迟下调美联储降息预期](http://www.share.kurohicncr.top/Article/details/773428.shtml)
-- 2026-06-29 11:36 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.share.kurohicncr.top/Article/details/817030024718.shtml)
-- 2026-06-29 11:54 - [湖北加速打造光电子信息产业世界级集群](http://www.blog.minike.top/Article/details/037232151.shtml)
-- 2026-06-29 11:53 - [人工智能科技伦理审查与服务先导计划启动](http://www.share.minike.top/Article/details/556449.shtml)
-- 2026-06-29 11:50 - [存储芯片股持续飙升：美光与闪迪的上涨动力何在](http://www.blog.kurohicncr.top/Article/details/19195517894.shtml)
+- 2026-06-29 12:03 - [新任CEO首个完整季度：威瑞森实现无线用户正增长](http://www.share.minike.top/Article/details/068316618.shtml)
+- 2026-06-29 11:43 - [强对流、暴雨预警齐发 这些地方需注意防范](http://www.share.kurohicncr.top/Article/details/73414506769.shtml)
+- 2026-06-29 11:44 - [“锂王”，一季度业绩大增近17倍！](http://www.blog.minike.top/Article/details/65111.shtml)
+- 2026-06-29 11:53 - [“中国重载第一路”大秦铁路春季集中修提前3天完成](http://www.share.minike.top/Article/details/232922.shtml)
+- 2026-06-29 11:39 - [北京农商银行：2025年实现净利润81.49亿元，同比增长2.21%](http://www.share.minike.top/Article/details/92449760.shtml)
+- 2026-06-29 11:57 - [重庆：高铁乘务员开展服务礼仪培训 备战“五一”假期](http://www.share.kurohicncr.top/Article/details/530416921.shtml)
+- 2026-06-29 11:50 - [中国三三传媒股份拆细将于4月28日生效](http://www.blog.kurohicncr.top/Article/details/298121530815.shtml)
+- 2026-06-29 12:01 - [TD Cowen首次覆盖DoorDash给予买入评级](http://www.share.kurohicncr.top/Article/details/87233004777.shtml)
+- 2026-06-29 12:01 - [原料供应收紧，4月下半月猪肉鲜品分割品价格止跌反弹](http://www.blog.kurohicncr.top/Article/details/3582377861.shtml)
+- 2026-06-29 11:45 - [平陆运河主题影像作品巡展在广西桂林开展](http://www.share.kurohicncr.top/Article/details/1313789.shtml)
+- 2026-06-29 11:54 - [法治蓝皮书：中国体育反腐法治建设正处于转型关键时期](http://www.blog.minike.top/Article/details/38433203820.shtml)
+- 2026-06-29 12:05 - [江河与共丨从卫星遥感到基因解码！致公党中央给皖江做了五年“全面体检”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [亚市早盘金价小幅走高，因投资者评估伊朗向美国提出的提议](http://www.blog.minike.top/Article/details/3172558626.shtml)
+- 2026-06-29 11:49 - [北京银行：聘任魏昱为首席合规官](http://www.blog.kurohicncr.top/Article/details/8300043.shtml)
+- 2026-06-29 11:56 - [酒价内参4月28日价格发布：飞天茅台小幅上涨3元](https://github.com/lisacumin64-arch)

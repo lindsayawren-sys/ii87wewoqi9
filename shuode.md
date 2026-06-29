@@ -1,61 +1,56 @@
-# 人形机器人与上海创新创业青年对话“谈科创”
+# 韩国上市公司总市值首次突破6000万亿韩元
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-中新社上海5月10日电 (范宇斌)“上海青年创新创业者的气质绝对是敢闯敢拼敢创新，和这座城市共同成长。”第七届上海创新创业青年50人论坛10日在上海举办，智元灵犀X2人形机器人“申小元”如此评价上海青年创业者的气质。 在圆桌对话环节，“申小元”与三位上海创新创业青年同题共答、互动交流。“申小元”表示，上海包容试错的创业氛围、高效的产学研转化通道以及对硬科技领域的长期扶持耐心，是
+周一公布的行业数据显示，受半导体行业前景的提振，韩国股市上市公司总市值周一首次突破6000万亿韩元（约合4.08万亿美元）。 韩国交易所（KRX）的数据显示，截至周一清晨，韩国三大证券交易所（韩国综合股价指数KOSPI、韩国创业板KOSDAQ和中小企业板KONEX）上市公司的总市值达到6047.9万亿韩元。 自4月初以来，受韩国芯片巨头公司前景看好的影响，韩国主要股指持续走强。
 
 ## 正文
 
-中新社上海5月10日电 (范宇斌)“上海青年创新创业者的气质绝对是敢闯敢拼敢创新，和这座城市共同成长。
+周一公布的行业数据显示，受半导体行业前景的提振，韩国股市上市公司总市值周一首次突破6000万亿韩元（约合4.08万亿美元）。
 
-”第七届上海创新创业青年50人论坛10日在上海举办，智元灵犀X2人形机器人“申小元”如此评价上海青年创业者的气质。
+韩国交易所（KRX）的数据显示，截至周一清晨，韩国三大证券交易所（韩国综合股价指数KOSPI、韩国创业板KOSDAQ和中小企业板KONEX）上市公司的总市值达到6047.9万亿韩元。
 
-在圆桌对话环节，“申小元”与三位上海创新创业青年同题共答、互动交流。
+自4月初以来，受韩国芯片巨头公司前景看好的影响，韩国主要股指持续走强。
 
-“申小元”表示，上海包容试错的创业氛围、高效的产学研转化通道以及对硬科技领域的长期扶持耐心，是科创发展最宝贵的软实力。
+韩国综合股价指数（KOSPI）从4月1日至上周五上涨超过28%，同期韩国创业板指数（KOSDAQ）上涨14.4%。
 
-论坛以“青年与城市共成长”为主题，聚焦青年科创发展，发布多项扶持政策与科创计划，搭建多元交流平台，全方位赋能青年创新创业。
+本月初，韩国两大半导体公司——三星电子和SK海力士——均公布了创纪录的第一季度财报，这主要得益于全球人工智能蓬勃发展带动半导体需求的强劲增长。
 
-论坛联动斯坦福大学、新加坡国立大学、香港大学三所高校的校友同步举办青年创新创业主题活动。
-
-论坛面向全球推出“上海青年创新创业研修营”，为不同赛道青年创客提供多层次实战课程，结合导师辅导与项目训练，搭建从“想创业”到“会创业”的能力阶梯。
-
-(完)
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 11:59 - [文远知行-W于5月8日斥资133.11万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:36 - [伊朗驻华大使：我们不会忘记中国的帮助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:55 - [三星未来退市后售后与售卖仍如常？线下探店解答！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:44 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:33 - [外贸从沿海“独唱”转向全域协同发力 跨境供应链韧性持续增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:43 - [“仰望布达拉”敬庭尧绘画艺术展在拉萨开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:50 - [巴基斯坦拟首次发行熊猫债 规模至多为17.5亿元人民币](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:54 - [海辰储能叶蓁：储能需求不是“跑马圈地”，而是电网刚需的真实拉动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:52 - [福建武夷山迎来制茶繁忙季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:40 - [飞行学员ICAO英语四级四次没考过 航司起诉要求支付近60万元培训费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:49 - [吉林东辽河源头梨花漫谷 百年古梨风姿依旧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:44 - [欧洲央行管委Kocher：能源形势若无大幅改善 欧洲央行加息不可避免](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:34 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:48 - [沪指开盘站上4200点 储存芯片概念股强势拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:37 - [从撒网到巡岸 四川泸州退捕渔民的“身份之变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:49 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:45 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:39 - [美国政府：白宫晚宴枪手意图刺杀特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:46 - [秦农银行国有持股占比首超50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:53 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:54 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:03 - [2026年“汉语桥”比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:37 - [张雪发视频回应力挺余承东，称“拒绝了半个亿的商务合作”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:37 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:37 - [OpenAI进军手机！“牵手”立讯精密！电子板块领涨两市，华宝基金电子ETF（515260）猛拉4.14%，续创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:42 - [上海家化发布2026年一季报：营业收入17.95亿同比增长5.4% 归母净利润2.22亿同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:42 - [德银：迅策目标价上调至351港元 维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:54 - [上海傅利叶董事长顾捷荣获全国五一劳动奖章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:58 - [一季度石家庄海关签发RCEP原产地证书2532份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [OpenAI的安全与治理受到严格审视](http://www.blog.minike.top/Article/details/616970342296.shtml)
-- 2026-06-29 11:49 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [证监会严肃查处清越科技财务造假案件](http://www.share.kurohicncr.top/Article/details/512432567403.shtml)
-- 2026-06-29 11:32 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](http://www.blog.kurohicncr.top/Article/details/91708.shtml)
-- 2026-06-29 11:55 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](http://www.share.kurohicncr.top/Article/details/5639726233.shtml)
-- 2026-06-29 11:36 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](http://www.share.kurohicncr.top/Article/details/697630041992.shtml)
-- 2026-06-29 11:47 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](http://www.blog.kurohicncr.top/Article/details/6612506690.shtml)
-- 2026-06-29 11:56 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [南京：钟山湖畔 鸭趣盎然](http://www.blog.kurohicncr.top/Article/details/68312.shtml)
-- 2026-06-29 11:34 - [中国银联与华为签署战略合作协议](http://www.share.kurohicncr.top/Article/details/8130658111.shtml)
-- 2026-06-29 11:57 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](http://www.share.minike.top/Article/details/863214.shtml)
-- 2026-06-29 11:54 - [消息人士称巴基斯坦已将伊朗回应传达给美国](http://www.share.minike.top/Article/details/268177.shtml)
-- 2026-06-29 11:38 - [中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位](http://www.share.minike.top/Article/details/38727136.shtml)
-- 2026-06-29 11:30 - [美军称向两艘“违反封锁”的伊朗油轮开火](http://www.blog.kurohicncr.top/Article/details/37159961.shtml)
+- 2026-06-29 12:04 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](http://www.share.kurohicncr.top/Article/details/95146.shtml)
+- 2026-06-29 11:47 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](http://www.share.kurohicncr.top/Article/details/110742.shtml)
+- 2026-06-29 11:40 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](http://www.share.minike.top/Article/details/83200345.shtml)
+- 2026-06-29 11:48 - [“鸟中大熊猫”彩鹮首次现身云南云县](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [东珠生态业绩预告更正不及时，受损股民可索赔](http://www.blog.minike.top/Article/details/67833947513.shtml)
+- 2026-06-29 11:58 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](http://www.share.kurohicncr.top/Article/details/695120374.shtml)
+- 2026-06-29 12:01 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](http://www.share.kurohicncr.top/Article/details/467883531.shtml)
+- 2026-06-29 11:40 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](http://www.share.kurohicncr.top/Article/details/193150858227.shtml)
+- 2026-06-29 11:53 - [5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [OpenAI放宽合作限制，微软独占云时代终结](http://www.share.minike.top/Article/details/808464161.shtml)
+- 2026-06-29 11:44 - [韩国要求七大电商平台修改不公平条款以加强消费者保护](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [阿联酋宣布自5月1日起退出欧佩克 退出后逐步上调石油产量](http://www.blog.kurohicncr.top/Article/details/454668499.shtml)
+- 2026-06-29 11:57 - [从一座城的两座“灯塔”，看江苏制造业的转型升级之路](http://www.blog.kurohicncr.top/Article/details/66249294833.shtml)
+- 2026-06-29 11:52 - [分析：霍尔木兹海峡命运未卜，欧洲央行和英国央行料按兵不动](http://www.share.kurohicncr.top/Article/details/21689.shtml)

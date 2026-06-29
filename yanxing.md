@@ -1,49 +1,50 @@
-# 工商银行晋中分行被罚30万元：违规发放个人经营性贷款
+# 秦农银行国有持股占比首超50%
 
-> 更新时间：2026-06-29 12:00:05 UTC+8
+> 更新时间：2026-06-29 12:06:05 UTC+8
 
 ## 摘要
 
-5月9日金融一线消息，国家金融监督管理总局晋中监管分局行政处罚信息公开表显示，中国工商银行股份有限公司晋中分行因违规发放个人经营性贷款，被罚款30万元。 因对上述违法违规行为负有责任，张志南（时任中国工商银行股份有限公司和顺支行行长）受到警告并被罚款6万元，刘铸（时任中国工商银行股份有限公司太谷支行行长）、张进军（时任中国工商银行股份有限公司晋中经纬支行行长）、江妍（时任中国工
+4月28日金融一线消息，秦农银行2025年年报显示，该行持续优化股权结构，国有持股占比首超50%。截至2025年末，该行总股本约88.26亿股，其中陕西金控集团持股9.9%，位列第一大股东。 年报数据显示，该行2025全年实现利润总额20.67亿元，同比减少0.73亿元，降幅3.42%；实现净利润19.12亿元，同比增加0.39亿元，增幅2.06%。实现营业收入65.16亿元，
 
 ## 正文
 
-5月9日金融一线消息，国家金融监督管理总局晋中监管分局行政处罚信息公开表显示，中国工商银行股份有限公司晋中分行因违规发放个人经营性贷款，被罚款30万元。
+4月28日金融一线消息，秦农银行2025年年报显示，该行持续优化股权结构，国有持股占比首超50%。
 
-因对上述违法违规行为负有责任，张志南（时任中国工商银行股份有限公司和顺支行行长）受到警告并被罚款6万元，刘铸（时任中国工商银行股份有限公司太谷支行行长）、张进军（时任中国工商银行股份有限公司晋中经纬支行行长）、江妍（时任中国工商银行股份有限公司晋中分行个贷部经理）三人被给予警告。
+截至2025年末，该行总股本约88.26亿股，其中陕西金控集团持股9.9%，位列第一大股东。
+
+年报数据显示，该行2025全年实现利润总额20.67亿元，同比减少0.73亿元，降幅3.42%；实现净利润19.12亿元，同比增加0.39亿元，增幅2.06%。
+
+实现营业收入65.16亿元，同比下降3.82%。
 
 责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 11:53 - [吉林东辽河源头梨花漫谷 百年古梨风姿依旧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:37 - [欧洲央行管委Kocher：能源形势若无大幅改善 欧洲央行加息不可避免](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:46 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:45 - [沪指开盘站上4200点 储存芯片概念股强势拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:30 - [从撒网到巡岸 四川泸州退捕渔民的“身份之变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:34 - [福州马尾至马祖“小三通”客运航线11日双向停航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:42 - [浙大“三剑客”县城创业：让中国芯用上“中国泵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:36 - [北京人形机器人唐剑：全面提升机器人的泛化能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:46 - [中指研究院：4月北上深租金环比继续上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:43 - [上市公司买理财年内大降2500+亿 配置多元化趋势凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:52 - [罕见不展示重型装备，严防乌克兰“突然袭击”，俄罗斯今天举行胜利日阅兵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:47 - [成都一中学举办科技节 硬核体验点燃科学梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:37 - [四川成都：列车穿行紫色花海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:51 - [上海家化发布2026年一季报：营业收入17.95亿同比增长5.4% 归母净利润2.22亿同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:37 - [德银：迅策目标价上调至351港元 维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:49 - [上海傅利叶董事长顾捷荣获全国五一劳动奖章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:48 - [一季度石家庄海关签发RCEP原产地证书2532份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:54 - [2粒药错写成21粒，失误何以“一路绿灯”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:38 - [氧化铝：惊弓之鸟还是风雨欲来？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:48 - [数智赋能民间文艺传承 2026“世界艺术和科技对话”上海活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:53 - [喀什至吉尔吉斯斯坦奥什国际客运航线成功首航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:57 - [欧洲股市小幅攀升，传伊朗提出和平提议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:38 - [央行上海总部：一季度上海社会融资规模增加4743亿元 同比多增138亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [中国银联与华为签署战略合作协议](http://www.blog.kurohicncr.top/Article/details/306279077400.shtml)
-- 2026-06-29 11:33 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](http://www.blog.minike.top/Article/details/8604557.shtml)
-- 2026-06-29 11:42 - [消息人士称巴基斯坦已将伊朗回应传达给美国](http://www.blog.minike.top/Article/details/6524454.shtml)
-- 2026-06-29 11:56 - [中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位](http://www.blog.kurohicncr.top/Article/details/89155553.shtml)
-- 2026-06-29 11:39 - [美军称向两艘“违反封锁”的伊朗油轮开火](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](http://www.share.minike.top/Article/details/7174237999.shtml)
-- 2026-06-29 11:50 - [云冈石窟8个晚期洞窟临时封闭 开展数字化采集](http://www.blog.minike.top/Article/details/652052719671.shtml)
-- 2026-06-29 11:52 - [东博会秘书处携中国味道“出海”进东盟（印尼）专题展启幕](http://www.share.kurohicncr.top/Article/details/6229998705.shtml)
-- 2026-06-29 11:52 - [保诚于5月7日斥资298.87万英镑回购25.26万股](http://www.blog.minike.top/Article/details/53463.shtml)
-- 2026-06-29 11:58 - [美国私营监狱运营商CoreCivic预计2026年调整后EBITDA达4.54-4.62亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [全球调解峰会在港首办 赋能全球治理](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [威高股份第一季度收入约33.5亿元 同比增长约5.3%](http://www.blog.kurohicncr.top/Article/details/800483.shtml)
-- 2026-06-29 11:33 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](http://www.blog.minike.top/Article/details/073025606219.shtml)
-- 2026-06-29 11:30 - [私募信贷的火爆行情已然落幕](http://www.share.minike.top/Article/details/994507355720.shtml)
-- 2026-06-29 11:59 - [美国全球保险公司与伦敦劳合社达成战略分保合作](http://www.blog.minike.top/Article/details/10225.shtml)
+- 2026-06-29 11:49 - [OpenAI放宽合作限制，微软独占云时代终结](http://www.blog.kurohicncr.top/Article/details/3082542.shtml)
+- 2026-06-29 11:56 - [韩国要求七大电商平台修改不公平条款以加强消费者保护](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [阿联酋宣布自5月1日起退出欧佩克 退出后逐步上调石油产量](http://www.share.minike.top/Article/details/86847.shtml)
+- 2026-06-29 12:04 - [从一座城的两座“灯塔”，看江苏制造业的转型升级之路](http://www.share.kurohicncr.top/Article/details/1250358.shtml)
+- 2026-06-29 11:36 - [分析：霍尔木兹海峡命运未卜，欧洲央行和英国央行料按兵不动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [2026年度瑞丽海关本级部门预算公开](http://www.share.minike.top/Article/details/1162483.shtml)
+- 2026-06-29 11:45 - [伊朗暂停出口部分钢铁产品](http://www.blog.minike.top/Article/details/744089125.shtml)
+- 2026-06-29 12:00 - [摩根士丹利认为沃什将带来长期机制变革风险 加剧美债市场波动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [涨得越猛越危险，AI行情已现"上涨式崩盘"信号！](http://www.share.kurohicncr.top/Article/details/51958573.shtml)
+- 2026-06-29 11:55 - [外交部：坚决遏制日本“新型军国主义”的妄动](http://www.blog.kurohicncr.top/Article/details/7806836497.shtml)
+- 2026-06-29 12:06 - [富瑞：鹰普精密给予“买入”评级 目标价10.34港元](http://www.share.kurohicncr.top/Article/details/32748.shtml)
+- 2026-06-29 11:50 - [中国国家能源局：可保障各种情形下的油气安全保供能力](http://www.blog.minike.top/Article/details/87053.shtml)
+- 2026-06-29 11:45 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](http://www.blog.minike.top/Article/details/13182182.shtml)
+- 2026-06-29 11:44 - [东睦股份：Q1增长势头放缓、回款承压，加码MIM商誉风险悬顶](http://www.share.kurohicncr.top/Article/details/1834537189.shtml)
+- 2026-06-29 11:42 - [中国美术馆新展启幕：“文艺复兴三杰”珍贵原作亮相](https://github.com/lisacumin64-arch)
