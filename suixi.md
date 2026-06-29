@@ -1,60 +1,61 @@
-# 基层卫生健康综合试验区见闻：家门口便捷智慧就医成常态
+# 西格玛医疗洽谈收购英国博姿药房
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网山东寿光5月8日电(记者 赵晓)近年来，国家卫生健康委员会不断加强基层医疗卫生服务体系和能力建设，推进基层卫生服务更加公平可及，创新探索基层卫生健康综合试验区建设，打造基层卫生健康工作样板，形成示范带动效应。 潍坊寿光是12个国家基层卫生健康综合试验区之一。5月8日，国家卫生健康委员会在当地召开“基层卫生健康综合试验区改革创新经验”主题新闻发布会，并组织记者深入基层医疗机
+西格玛医疗就收购英国博姿药房展开初步谈判 内容速览 澳大利亚西格玛医疗正就收购英国连锁药房博姿开展早期洽谈。 澳大利亚药企西格玛医疗（股价下跌 5.48%）发布公告称，公司正在推进初步磋商，拟收购英国连锁药房博姿，以此拓展海外市场版图。 这家药房集团于周三向澳大利亚证券交易所提交公告表示：“西格玛持续评估各类能为股东创造价值的投资机遇，目前已参与本次出售流程的初步谈判。” 公告
 
 ## 正文
 
-中新网山东寿光5月8日电(记者 赵晓)近年来，国家卫生健康委员会不断加强基层医疗卫生服务体系和能力建设，推进基层卫生服务更加公平可及，创新探索基层卫生健康综合试验区建设，打造基层卫生健康工作样板，形成示范带动效应。
+西格玛医疗就收购英国博姿药房展开初步谈判 内容速览 澳大利亚西格玛医疗正就收购英国连锁药房博姿开展早期洽谈。
 
-潍坊寿光是12个国家基层卫生健康综合试验区之一。
+澳大利亚药企西格玛医疗（股价下跌 5.48%）发布公告称，公司正在推进初步磋商，拟收购英国连锁药房博姿，以此拓展海外市场版图。
 
-5月8日，国家卫生健康委员会在当地召开“基层卫生健康综合试验区改革创新经验”主题新闻发布会，并组织记者深入基层医疗机构调研。
+这家药房集团于周三向澳大利亚证券交易所提交公告表示：“西格玛持续评估各类能为股东创造价值的投资机遇，目前已参与本次出售流程的初步谈判。
 
-“一张网”打通生命急救通道 走进寿光市洛城街道尧水村中心村卫生室，一间标有“胸痛驿站”的小屋，率先映入调研组一行的眼帘。
+” 公告同时提示，本次交易能否落地尚无确切保障。
 
-现场，一位外来务工的60岁老人刚刚做完心电图检查，数据随即通过卫生室医师的手机，传到寿光市人民医院心电诊断中心，院内专家在五六分钟内给出判读结果。
+受消息影响，西格玛医疗在悉尼交易所收盘股价下跌 5.5%。
 
-尧水村中心村卫生室所长王静介绍，“胸痛驿站”于2024年投用，日常主要为高血压、冠心病等慢性病患者提供检查。
+《金融时报》援引知情人士消息报道，博姿药房现东家、私募机构锡卡莫尔资本正与多方洽谈，计划以约 100 亿美元的价格出售这家零售企业，意向收购方包括西格玛医疗以及韦斯顿富豪家族。
 
-驿站内的心电设备与寿光市人民医院搭建的“心电一张网”系统相连，村民在村卫生室做检查，由市医院专家出诊断，对发现的红色预警病例立即展开抢救。
+报道称，锡卡莫尔集团于去年收购沃尔格林博姿联合公司，正式接管博姿；复活节前夕，该机构便已和多家潜在战略收购方开启对接。
 
-“去年9月份，一位有心脏病史的老人，因劳累过度突发心痛，在‘胸痛驿站’检查发现异常。
+锡卡莫尔与博姿双方发言人均拒绝对此事置评。
 
 ## 相关推荐
 
-- 2026-06-29 22:36 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 22:50 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 22:36 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 22:45 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 22:41 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 22:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 22:52 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 22:36 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 22:35 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 22:53 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 22:53 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 22:33 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 22:41 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 22:27 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 22:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 22:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 22:31 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 22:54 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 22:39 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 22:38 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 22:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 22:58 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 22:57 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 22:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 22:50 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 22:48 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 22:37 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 22:45 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 22:50 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:29 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/17799.shtml)
-- 2026-06-29 22:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/537826380176.shtml)
-- 2026-06-29 22:51 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/713632954160.shtml)
-- 2026-06-29 22:37 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/387660.shtml)
-- 2026-06-29 22:46 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/7900009.shtml)
-- 2026-06-29 22:53 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/3873537.shtml)
-- 2026-06-29 22:50 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/30803001.shtml)
-- 2026-06-29 22:29 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/500739894.shtml)
-- 2026-06-29 22:47 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/61468.shtml)
-- 2026-06-29 22:51 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/7993382887.shtml)
-- 2026-06-29 22:45 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/12862603.shtml)
-- 2026-06-29 22:41 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/130871160579.shtml)
-- 2026-06-29 22:27 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/2466079937.shtml)
-- 2026-06-29 22:24 - [明星大侦探第一季](http://www.share.minike.top/Article/details/524978.shtml)
-- 2026-06-29 22:43 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/20248240.shtml)
+- 2026-06-29 22:50 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/353015.shtml)
+- 2026-06-29 22:41 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/113662.shtml)
+- 2026-06-29 22:32 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.kurohicncr.top/Article/details/266048.shtml)
+- 2026-06-29 22:53 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/0793526.shtml)
+- 2026-06-29 22:54 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/46486.shtml)
+- 2026-06-29 22:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/1124343776.shtml)
+- 2026-06-29 22:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/358911.shtml)
+- 2026-06-29 22:57 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/110254.shtml)
+- 2026-06-29 22:46 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/16950593.shtml)
+- 2026-06-29 22:41 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/7758741214.shtml)
+- 2026-06-29 22:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/81811857995.shtml)
+- 2026-06-29 22:55 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/738481512.shtml)
+- 2026-06-29 22:59 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/4179344023.shtml)
+- 2026-06-29 22:55 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/9452647999.shtml)
+- 2026-06-29 22:45 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/93096.shtml)

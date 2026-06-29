@@ -1,61 +1,56 @@
-# 昌九高铁全线无砟轨道浇筑完成
+# （乡村行·看振兴）山西寿阳：打破村域界限“抱团”发展 小彩椒变身“黄金果”
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网南昌5月8日电 (刘力鑫 汪翰)8日，在位于江西南昌新建区的昌九高铁机场二号隧道施工现场，随着最后一模混凝土顺利浇筑完成，标志着昌九高铁无砟轨道浇筑全部结束，为后续钢轨铺设完成及联调联试奠定坚实基础。 昌九高铁是国家《中长期铁路网规划》“八纵八横”高速铁路主通道中京港通道的重要组成部分，北起九江，南至南昌，正线全长约138公里，设计时速350公里。 无砟轨道作为高铁核心基
+中新网晋中6月11日电 (高雨晴 张晓燕)芒种时节，走进山西省寿阳县的彩椒种植片区，一座座标准化大棚连片成景、整齐排列。种植户抢抓农时，有条不紊地开展薅椒、打杈、提绳等田间管护工作，棚内一派繁忙景象。 今年以来，寿阳县学习运用“千万工程”经验，以片区化模式推动乡村振兴。当地整合温家庄乡、宗艾镇、西洛镇三地资源，打破村域、镇域界限，建成总面积200亩的规模化彩椒种植集群。 寿阳县
 
 ## 正文
 
-中新网南昌5月8日电 (刘力鑫 汪翰)8日，在位于江西南昌新建区的昌九高铁机场二号隧道施工现场，随着最后一模混凝土顺利浇筑完成，标志着昌九高铁无砟轨道浇筑全部结束，为后续钢轨铺设完成及联调联试奠定坚实基础。
+中新网晋中6月11日电 (高雨晴 张晓燕)芒种时节，走进山西省寿阳县的彩椒种植片区，一座座标准化大棚连片成景、整齐排列。
 
-昌九高铁是国家《中长期铁路网规划》“八纵八横”高速铁路主通道中京港通道的重要组成部分，北起九江，南至南昌，正线全长约138公里，设计时速350公里。
+种植户抢抓农时，有条不紊地开展薅椒、打杈、提绳等田间管护工作，棚内一派繁忙景象。
 
-无砟轨道作为高铁核心基础工程，对施工精度有着极致要求。
+今年以来，寿阳县学习运用“千万工程”经验，以片区化模式推动乡村振兴。
 
-此次浇筑作业中，轨道位置与高低误差均严格控制在2毫米以内，同时施工环境的温度、湿度也需全程精准管控，以此保障轨道结构的高稳定性与高平顺性。
+当地整合温家庄乡、宗艾镇、西洛镇三地资源，打破村域、镇域界限，建成总面积200亩的规模化彩椒种植集群。
 
-针对隧道空间受限、施工物流组织难度大等痛点，项目团队创新采用分区同步施工模式，在保障施工进度的同时严控工程质量。
+寿阳县锦园春农业科技有限公司负责人朱全明介绍，片区把韩村的设施优势、富家沟的种苗技术、下洲的土地资源整合起来，统一对接农技专家和外销客商。
 
-“我们同步引入智能精调装备，减少人为操作干扰，实现施工数据自动采集与伺服系统精准调节，确保混凝土浇筑后轨道几何形位完全符合高速铁路运营标准。
+“抱团形成产业集群后，种植成本降低，还能拿到优质订单。
 
-”中铁十二局昌九4标项目部工程部部长艾旭说。
+” 片区全面推广智能温控、水肥一体化等现代农业技术，建立标准化管护体系。
 
-昌九城际铁路公司昌九指挥部副指挥长喻宇表示，昌九高铁全线无砟轨道浇筑的顺利完成，标志着昌九高铁铺轨通道已全面打通，为全线铺轨贯通和后续联调联试工作按下“快进键”。
+彩椒基地技术员刘洪阳说，连片大棚统一管理，采光、通风、施肥都按标准操作，彩椒果形圆润、色泽鲜亮，优品率提升三成以上，市场收购价稳定在高位。
 
 ## 相关推荐
 
-- 2026-06-29 22:48 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 22:38 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 22:24 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 22:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 22:28 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 22:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 22:48 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 22:53 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 22:39 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 22:38 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 22:37 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 22:42 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 22:51 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 22:30 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 22:26 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 22:57 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 22:30 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 22:57 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 22:57 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 22:59 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 22:36 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 22:34 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 22:30 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 23:00 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 22:42 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/273746335951.shtml)
-- 2026-06-29 22:45 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/357108588753.shtml)
-- 2026-06-29 22:35 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/9932476.shtml)
-- 2026-06-29 22:48 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/5572917.shtml)
-- 2026-06-29 22:53 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/254035284.shtml)
-- 2026-06-29 22:46 - [毒液2](http://www.share.minike.top/Article/details/64399.shtml)
-- 2026-06-29 22:40 - [女生学医适合选什么专业](http://www.blog.kurohicncr.top/Article/details/5390993.shtml)
-- 2026-06-29 22:36 - [回顾世界杯争议事件](http://www.blog.minike.top/Article/details/6840471105.shtml)
-- 2026-06-29 22:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/89005.shtml)
-- 2026-06-29 22:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/60401747.shtml)
-- 2026-06-29 22:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/6741769572.shtml)
-- 2026-06-29 22:38 - [金刚川](https://www.share.kurohicncr.top/Article/details/0190939557.shtml)
-- 2026-06-29 22:45 - [男子称在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/000058107961.shtml)
-- 2026-06-29 22:52 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/0259470.shtml)
-- 2026-06-29 22:39 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/876139505036.shtml)
+- 2026-06-29 22:49 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/1226373089.shtml)
+- 2026-06-29 22:41 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/41365218863.shtml)
+- 2026-06-29 22:47 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/7954253.shtml)
+- 2026-06-29 22:31 - [新官上任三把火](http://www.blog.minike.top/Article/details/51990313019.shtml)
+- 2026-06-29 22:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/9235093.shtml)
+- 2026-06-29 22:34 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/94193662.shtml)
+- 2026-06-29 22:49 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/0028085.shtml)
+- 2026-06-29 22:43 - [毒液2](http://www.share.minike.top/Article/details/272842233.shtml)
+- 2026-06-29 22:48 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/24433911.shtml)
+- 2026-06-29 22:32 - [沉睡花园](https://www.blog.minike.top/Article/details/74093362.shtml)
+- 2026-06-29 22:59 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/72293600119.shtml)
+- 2026-06-29 22:55 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/97412131053.shtml)
+- 2026-06-29 22:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/25540963.shtml)
+- 2026-06-29 22:49 - [逃狱兄弟](http://www.share.minike.top/Article/details/9398907.shtml)
+- 2026-06-29 22:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/097388175.shtml)

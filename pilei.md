@@ -1,57 +1,56 @@
-# 23支球队集结 成都“蓉超”将掀起“足球+”热潮
+# 中国埃及学者在杭州开展古都文明对话
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网成都5月7日电 (程兆)23支来自成都各区(市)县的足球队7日完成抽签落位，2026捷达幸福成都足球联赛(下称“蓉超”)正式进入开赛倒计时。与传统业余联赛不同，这场覆盖成都全城的草根足球赛事，正通过“票根经济”“第二现场”“主题线路”等方式，将足球热度从绿茵场延伸至商圈、景区、街巷与乡村。 当天下午举行的抽签仪式上，23支参赛队伍依次亮相。成都高新区“高新引擎队”、武侯区
+中新社杭州6月10日电 (记者 王逸飞)6月10日是“文明对话国际日”。2026古都文明对话(杭州—开罗)国际学术交流活动杭州场当日在浙江杭州举行，来自中国与埃及的专家学者围绕文明传承发展、城市智慧治理等议题进行深度交流。中国和埃及同为世界文明古国。位于杭州余杭的良渚古城遗址是中国五千多年文明史的实证。埃及首都开罗则全面呈现了古埃及文明的灿烂历史。 “中华文明与古埃及文明，尽管
 
 ## 正文
 
-中新网成都5月7日电 (程兆)23支来自成都各区(市)县的足球队7日完成抽签落位，2026捷达幸福成都足球联赛(下称“蓉超”)正式进入开赛倒计时。
+中新社杭州6月10日电 (记者 王逸飞)6月10日是“文明对话国际日”。
 
-与传统业余联赛不同，这场覆盖成都全城的草根足球赛事，正通过“票根经济”“第二现场”“主题线路”等方式，将足球热度从绿茵场延伸至商圈、景区、街巷与乡村。
+2026古都文明对话(杭州—开罗)国际学术交流活动杭州场当日在浙江杭州举行，来自中国与埃及的专家学者围绕文明传承发展、城市智慧治理等议题进行深度交流。
 
-当天下午举行的抽签仪式上，23支参赛队伍依次亮相。
+中国和埃及同为世界文明古国。
 
-成都高新区“高新引擎队”、武侯区“武侯蜀汉队”、都江堰市“都江堰伏龙队”、大邑县“大邑子龙队”……队名背后，串联起成都不同区域的产业地标、历史文脉与城市气质。
+位于杭州余杭的良渚古城遗址是中国五千多年文明史的实证。
 
-本届“蓉超”将从5月持续至7月，共进行78场比赛。
+埃及首都开罗则全面呈现了古埃及文明的灿烂历史。
 
-赛事采用主客场双循环赛制，覆盖成都23个区(市)县。
+“中华文明与古埃及文明，尽管相隔万里，却在治水营城、玉石崇拜、礼仪制度等方面展现出诸多智慧共鸣。
 
-参赛球员中，既有社区工作者、企业员工、教师、程序员，也有出租车司机和学生。
+”古都文明对话中方主席，中国传媒大学资深教授、文化发展与传播研究院院长熊澄宇认为，古代文明遗产如今对城市建设、精神传承、可持续发展仍具有启示作用，回望古老的智慧能够帮助当代人建立更长远的历史视野。
 
-赛事允许部分退役职业球员、外籍球员和年轻球员参赛，最小18岁、最大55岁的球员有望同场竞技。
+聚焦文化遗产管理，全球未来研究论坛秘书长拉尼娅·阿布勒海尔表示，埃中两国在最大化利用文化遗产、助力可持续发展方面有着共同愿景。
 
 ## 相关推荐
 
-- 2026-06-29 22:48 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 22:28 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 22:34 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 22:33 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 22:33 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 22:26 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 22:27 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 22:44 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 22:40 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 22:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 22:43 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 22:32 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 22:47 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 22:40 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 22:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 22:57 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 22:37 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 22:30 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 22:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 22:49 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 22:40 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:51 - [一生一世](http://www.blog.minike.top/Article/details/114556.shtml)
-- 2026-06-29 22:47 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/4291153.shtml)
-- 2026-06-29 22:27 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/253897328080.shtml)
-- 2026-06-29 22:42 - [青春环游记第三季](http://www.share.minike.top/Article/details/06477181538.shtml)
-- 2026-06-29 22:44 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/23774.shtml)
-- 2026-06-29 22:34 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/066011505967.shtml)
-- 2026-06-29 22:47 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/03592375.shtml)
-- 2026-06-29 22:42 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/81014850657.shtml)
-- 2026-06-29 22:41 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/81237021.shtml)
-- 2026-06-29 22:38 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/07602786.shtml)
-- 2026-06-29 22:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/142944.shtml)
-- 2026-06-29 22:27 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/50249.shtml)
-- 2026-06-29 22:34 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/9960944054.shtml)
-- 2026-06-29 22:33 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/29096.shtml)
-- 2026-06-29 22:46 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/7413036.shtml)
+- 2026-06-29 22:59 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/89696529216.shtml)
+- 2026-06-29 22:58 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/797819966226.shtml)
+- 2026-06-29 22:34 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/01558855.shtml)
+- 2026-06-29 22:36 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/993056593.shtml)
+- 2026-06-29 22:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/34031.shtml)
+- 2026-06-29 22:46 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/64168.shtml)
+- 2026-06-29 22:34 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/4925335.shtml)
+- 2026-06-29 22:53 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/291623522181.shtml)
+- 2026-06-29 22:56 - [半导体和股市为何没让韩国人起飞](http://www.share.minike.top/Article/details/22764462882.shtml)
+- 2026-06-29 22:44 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/767339.shtml)
+- 2026-06-29 22:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/84796698358.shtml)
+- 2026-06-29 22:34 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/33338665.shtml)
+- 2026-06-29 22:50 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/03611413.shtml)
+- 2026-06-29 22:44 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/06226231.shtml)
+- 2026-06-29 22:59 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/5417309706.shtml)

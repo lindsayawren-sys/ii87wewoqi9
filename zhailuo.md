@@ -1,61 +1,56 @@
-# 午盘：美股继续上扬 纳指上涨350点
+# 应对通胀风险 交易员预计年内欧洲央行共将加息三次
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-北京时间5月9日凌晨，美股周五午盘继续上扬，纳指上涨350点。标普500指数和纳斯达克综合再创历史新高。美国4月非农就业数据好于预期，同时交易员正关注美伊关系的最新进展。美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。 道指涨62.39点，涨幅为0.13%，报49659.36点；纳指涨346.89点，涨幅为1.34%，报26153.08点；标普500指数涨57.33
+面临中东冲突引发的通胀复苏压力，欧洲中央银行预计将于本周四（11日）举行的货币政策会议上宣布加息。目前，金融市场对欧洲央行本周加息的预期几近完全消化。伦敦证券交易所集团（LSEG）数据显示，交易员预测本周加息25个基点的概率高达97%，并预计年内共将加息三次。相较之下，美联储和英格兰银行在即将举行的政策会议中则普遍预计将维持利率不变。 本轮欧元区收紧货币政策的背景是地缘政治冲突
 
 ## 正文
 
-北京时间5月9日凌晨，美股周五午盘继续上扬，纳指上涨350点。
+面临中东冲突引发的通胀复苏压力，欧洲中央银行预计将于本周四（11日）举行的货币政策会议上宣布加息。
 
-标普500指数和纳斯达克综合再创历史新高。
+目前，金融市场对欧洲央行本周加息的预期几近完全消化。
 
-美国4月非农就业数据好于预期，同时交易员正关注美伊关系的最新进展。
+伦敦证券交易所集团（LSEG）数据显示，交易员预测本周加息25个基点的概率高达97%，并预计年内共将加息三次。
 
-美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。
+相较之下，美联储和英格兰银行在即将举行的政策会议中则普遍预计将维持利率不变。
 
-道指涨62.39点，涨幅为0.13%，报49659.36点；纳指涨346.89点，涨幅为1.34%，报26153.08点；标普500指数涨57.33点，涨幅为0.78%，报7394.44点。
+本轮欧元区收紧货币政策的背景是地缘政治冲突导致的能源供应冲击。
 
-标普500指数和纳斯达克综合指数周五双双反弹，并再创历史新高。
+随着伊朗局势恶化及霍尔木兹海峡持续关闭，国际油价再度飙升，直接推高了欧元区通胀水平。
 
-美国劳工统计局周五公布的数据显示，4月非农就业人数增加11.5万，高于道琼斯调查经济学家预期的5.5万。
+然而，欧元区宏观经济运行结构性走弱，2026年第一季度经济已萎缩0.2%，这使得欧洲央行在控通胀与稳增长之间面临严峻抉择。
 
-美国失业率持稳于4.3%，符合预期。
+针对欧洲央行的潜在鹰派举措，多位金融机构分析人士指出，央行决策层正试图引导市场预期。
 
 ## 相关推荐
 
-- 2026-06-29 22:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 22:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 22:32 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 22:34 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 22:36 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 22:52 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 22:34 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 22:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 22:38 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 22:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 22:39 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 22:28 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 22:37 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 22:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 22:32 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 22:54 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 22:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 22:47 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 22:33 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 22:59 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 22:54 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 22:42 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 22:42 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 22:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 22:51 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:25 - [恋与深空 巧合](https://www.share.minike.top/Article/details/161222848555.shtml)
-- 2026-06-29 22:47 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/77755.shtml)
-- 2026-06-29 22:39 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/06851.shtml)
-- 2026-06-29 22:48 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/736761716.shtml)
-- 2026-06-29 22:47 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/83029.shtml)
-- 2026-06-29 22:41 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/1847920.shtml)
-- 2026-06-29 22:44 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/6881399063.shtml)
-- 2026-06-29 22:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/84560514208.shtml)
-- 2026-06-29 22:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/36929512.shtml)
-- 2026-06-29 22:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/858417012602.shtml)
-- 2026-06-29 22:25 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/255676.shtml)
-- 2026-06-29 22:48 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/76128944315.shtml)
-- 2026-06-29 22:43 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/30726.shtml)
-- 2026-06-29 22:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/93814285213.shtml)
-- 2026-06-29 22:32 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/650500.shtml)
+- 2026-06-29 22:56 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/819471.shtml)
+- 2026-06-29 22:40 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/1164856688.shtml)
+- 2026-06-29 22:34 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/951171431.shtml)
+- 2026-06-29 22:52 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/8965669302.shtml)
+- 2026-06-29 22:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/4610985.shtml)
+- 2026-06-29 22:49 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/06143804365.shtml)
+- 2026-06-29 22:55 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.minike.top/Article/details/00152.shtml)
+- 2026-06-29 22:49 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/37894.shtml)
+- 2026-06-29 22:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/659992.shtml)
+- 2026-06-29 22:44 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/90097.shtml)
+- 2026-06-29 22:50 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/93244169.shtml)
+- 2026-06-29 22:45 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.kurohicncr.top/Article/details/10891156.shtml)
+- 2026-06-29 22:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/86628.shtml)
+- 2026-06-29 22:44 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/168935.shtml)
+- 2026-06-29 22:47 - [《贺子珍》](http://www.share.minike.top/Article/details/8475222176.shtml)

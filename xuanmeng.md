@@ -1,57 +1,59 @@
-# 人民论坛网评 | “八纵八横”，带你提囊归乡和奔赴山海
+# 追觅Eclix俞雷：即将推出一款没有APP的AI手机
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-每逢假日，归乡与远行是神州大地不变的底色。步履匆匆的行人、穿梭往来的列车，承载着万千家庭的期盼，勾勒出流动中国真切的模样。2026年“五一”假期，全国铁路累计发送旅客1.17亿人次，运输安全平稳有序。飞驰列车穿梭城乡，载着提囊归乡的游子、奔赴山海的旅人，盛满团圆期盼与山海向往，绘就流动中国暖意融融的生动图景。人享其行、物畅其流。这1.17亿人次的假日奔赴，正是“十五五”开局之年
+界面新闻记者 |李家琦 界面新闻编辑 |文姝琪 6月10日，界面新闻独家获悉，追觅生态品牌Eclix团队已与国内头部大模型厂商达成深度合作，预计将于2026年9月发布第一代AI手机，双十一前上市。该产品主打高端，定价5000元以上，目前核心团队研发已接近完成，即将进入整机测试阶段。 Eclix手机团队由前金立集团副总裁俞雷组建，俞雷于2026年3月正式入职MOVA，任手机和AI
 
 ## 正文
 
-每逢假日，归乡与远行是神州大地不变的底色。
+界面新闻记者 |李家琦 界面新闻编辑 |文姝琪 6月10日，界面新闻独家获悉，追觅生态品牌Eclix团队已与国内头部大模型厂商达成深度合作，预计将于2026年9月发布第一代AI手机，双十一前上市。
 
-步履匆匆的行人、穿梭往来的列车，承载着万千家庭的期盼，勾勒出流动中国真切的模样。
+该产品主打高端，定价5000元以上，目前核心团队研发已接近完成，即将进入整机测试阶段。
 
-2026年“五一”假期，全国铁路累计发送旅客1.17亿人次，运输安全平稳有序。
+Eclix手机团队由前金立集团副总裁俞雷组建，俞雷于2026年3月正式入职MOVA，任手机和AI硬件业务负责人。
 
-飞驰列车穿梭城乡，载着提囊归乡的游子、奔赴山海的旅人，盛满团圆期盼与山海向往，绘就流动中国暖意融融的生动图景。
+俞雷是手机行业资深从业者。
 
-人享其行、物畅其流。
+2015年，俞雷加入金立集团任全球副总裁，分管市场营销和渠道销售业务，期间主导了品牌转型。
 
-这1.17亿人次的假日奔赴，正是“十五五”开局之年，交通服务民生、温暖民心的生动实践，既是铁路事业稳步前行的丰硕成果，也为长远发展留下更多思考。
+值得注意的是，俞雷此前还创立过一个智能手机品牌，主攻海外市场。
 
-庞大客流平稳有序流转，映照出我国铁路综合运输体系日趋成熟完善。
+界面新闻从俞雷处独家获悉，Eclix后续将作为追觅生态品牌存在，不再隶属MOVA，团队约60人。
 
-“八纵八横”高速铁路网四通八达，不断缩短地域时空距离。
+核心成员大多具备AI或操作系统背景，预计2026年底，团队规模将达到300人左右。
 
 ## 相关推荐
 
-- 2026-06-29 22:53 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 22:44 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 22:27 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 22:47 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 22:28 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 22:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 22:27 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 22:26 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 22:43 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 22:30 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 22:41 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 22:48 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 22:32 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 22:32 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 22:37 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 22:40 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 22:58 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 22:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 22:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 22:47 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 22:30 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 22:48 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 22:41 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 22:51 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:26 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/245308.shtml)
-- 2026-06-29 22:48 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/26622571.shtml)
-- 2026-06-29 22:47 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/0148500109.shtml)
-- 2026-06-29 22:51 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/01511217.shtml)
-- 2026-06-29 22:53 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/380625098.shtml)
-- 2026-06-29 22:52 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/0710770580.shtml)
-- 2026-06-29 22:29 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/48072.shtml)
-- 2026-06-29 22:45 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/12869.shtml)
-- 2026-06-29 22:31 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/9090096.shtml)
-- 2026-06-29 22:52 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/864875067.shtml)
-- 2026-06-29 22:26 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/29529541531.shtml)
-- 2026-06-29 22:24 - [半导体和股市为何没让韩国人起飞](http://www.share.minike.top/Article/details/0861443.shtml)
-- 2026-06-29 22:35 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/78138559769.shtml)
-- 2026-06-29 22:47 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/9868303792.shtml)
-- 2026-06-29 22:33 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/182180453693.shtml)
+- 2026-06-29 22:30 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/03092.shtml)
+- 2026-06-29 22:58 - [炽夏](http://www.blog.kurohicncr.top/Article/details/325051126.shtml)
+- 2026-06-29 22:53 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/331401813571.shtml)
+- 2026-06-29 22:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/5464436678.shtml)
+- 2026-06-29 22:43 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/3323049358.shtml)
+- 2026-06-29 22:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/85079.shtml)
+- 2026-06-29 22:46 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/8744181.shtml)
+- 2026-06-29 22:46 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/98108120.shtml)
+- 2026-06-29 22:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/059887741.shtml)
+- 2026-06-29 22:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/927324805107.shtml)
+- 2026-06-29 22:30 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/16640982.shtml)
+- 2026-06-29 22:37 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/238309757325.shtml)
+- 2026-06-29 22:37 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/92966.shtml)
+- 2026-06-29 22:33 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/25348523.shtml)
+- 2026-06-29 22:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/1481709880.shtml)

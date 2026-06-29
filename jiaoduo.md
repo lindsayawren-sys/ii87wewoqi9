@@ -1,48 +1,60 @@
-# 专家解读：日本想借“肩并肩”联合军演兴起什么“风浪”
+# 海外华裔青少年“学中文·讲故事” 在桂体验中华文化魅力
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 14:21 来源：中国新闻网 近期，美日菲等国在菲律宾及南海周边投入1.7万兵力，举行史上最大规模的“肩并肩”联合军事演习，5月4日，美日菲演练两栖“夺岛”，5月6日，日本在演习中发射了88式岸基反舰导弹，引发外界对日本军事动向关注。日本为何要深度参与此次军演？相关专家对此进行了解读。(记者 卢晓娜 刘世炯） 责任编辑：【罗攀】
+中新网南宁6月10日电(韦佳秀 林浩)“中国的共享单车、共享充电宝和移动支付让出行更便捷，在这里生活很舒服，未来我想留在中国就业。”来自越南的留学生阮庆云10日在广西南宁受访时表示。 当日，第六届海外华裔青少年“学中文·讲故事”主题作品征集活动(以下简称“征集活动”)成果发布大会暨2026年海外华裔青少年“文化·寻根”中华文化体验营(以下简称“中华文化体验营”)开营仪式在南宁举
 
 ## 正文
 
-发布时间：2026年05月08日 14:21 来源：中国新闻网 近期，美日菲等国在菲律宾及南海周边投入1.7万兵力，举行史上最大规模的“肩并肩”联合军事演习，5月4日，美日菲演练两栖“夺岛”，5月6日，日本在演习中发射了88式岸基反舰导弹，引发外界对日本军事动向关注。
+中新网南宁6月10日电(韦佳秀 林浩)“中国的共享单车、共享充电宝和移动支付让出行更便捷，在这里生活很舒服，未来我想留在中国就业。
 
-日本为何要深度参与此次军演？
+”来自越南的留学生阮庆云10日在广西南宁受访时表示。
 
-相关专家对此进行了解读。
+当日，第六届海外华裔青少年“学中文·讲故事”主题作品征集活动(以下简称“征集活动”)成果发布大会暨2026年海外华裔青少年“文化·寻根”中华文化体验营(以下简称“中华文化体验营”)开营仪式在南宁举行。
 
-(记者 卢晓娜 刘世炯） 责任编辑：【罗攀】
+本次征集活动共收到来自泰国、菲律宾、柬埔寨等6个国家的910名学生及183名指导教师提交的1209件作品，涵盖作文、书法、绘画、朗诵四大类别。
+
+经专家甄选，80件优秀作品入选展览，25名表现优异的青少年获邀参加为期7天的中华文化体验营。
+
+广西华侨学校副校长覃志坚在致辞中表示，目前全球已有200多个国家和地区开展中文教育，学习中文人数超过2亿。
+
+她指出，中文是中华文明的基因密码，也是海外侨胞与祖国血脉相连的精神纽带，并寄语营员们珍惜机会，真切感受中国发展成就与中华文化底蕴，当好中外友谊的使者。
+
+阮庆云的作品在本次活动中荣获特等奖，她的汉语水平已达HSK五级。
 
 ## 相关推荐
 
-- 2026-06-29 22:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 22:39 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 22:33 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 22:40 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 22:32 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 22:33 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 22:33 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 22:47 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 22:43 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 22:43 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 22:47 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 22:31 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 22:49 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 22:56 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 22:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 22:39 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 22:47 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 22:58 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 22:39 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 22:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 22:41 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 22:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 22:56 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 22:55 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:36 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/44379.shtml)
-- 2026-06-29 22:29 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/20896.shtml)
-- 2026-06-29 22:29 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/606906335.shtml)
-- 2026-06-29 22:28 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/53110.shtml)
-- 2026-06-29 22:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/657894.shtml)
-- 2026-06-29 22:38 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/97731004.shtml)
-- 2026-06-29 22:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/883954544137.shtml)
-- 2026-06-29 22:26 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/8172080549.shtml)
-- 2026-06-29 22:40 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/174623659.shtml)
-- 2026-06-29 22:32 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/3660143.shtml)
-- 2026-06-29 22:50 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/857962090397.shtml)
-- 2026-06-29 22:25 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/31242.shtml)
-- 2026-06-29 22:46 - [85花告别古偶](http://www.share.minike.top/Article/details/4032166.shtml)
-- 2026-06-29 22:29 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/28286777.shtml)
-- 2026-06-29 22:28 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/78824.shtml)
+- 2026-06-29 22:46 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/84941310357.shtml)
+- 2026-06-29 22:38 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/0253754289.shtml)
+- 2026-06-29 22:55 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/68487.shtml)
+- 2026-06-29 22:50 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/1450871534.shtml)
+- 2026-06-29 22:58 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/81603.shtml)
+- 2026-06-29 22:37 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/77501735244.shtml)
+- 2026-06-29 22:47 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/71149545.shtml)
+- 2026-06-29 22:49 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/37754015.shtml)
+- 2026-06-29 22:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/36173709639.shtml)
+- 2026-06-29 22:40 - [新官上任三把火](http://www.share.minike.top/Article/details/28079009.shtml)
+- 2026-06-29 22:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/229239.shtml)
+- 2026-06-29 22:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/84879.shtml)
+- 2026-06-29 22:35 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/989979503582.shtml)
+- 2026-06-29 22:35 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/134770.shtml)
+- 2026-06-29 22:48 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/22199331.shtml)

@@ -1,56 +1,59 @@
-# 外交部：中美双方就特朗普总统访华事保持着沟通
+# 滴普科技再融资4亿港元：上市七月启动首轮再融资 IPO 资金尚未完全动用 股价较高点大幅回撤
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。 有记者提问：美国总统特朗普日前表示，中美元首会谈将按计划进行。请问中方将何时发布消息？对此访有何期待？将重点讨论哪些议题？ 林剑：中美双方就特朗普总统访华事保持着沟通，我目前没有可以进一步提供的信息。(完)
+上市仅个7个多月，顶着“港股超购王”光环的AI数据智能企业滴普科技（1384.HK），在IPO募资尚未用完的情况下，即启动闪电配售，引发了市场对其经营策略与资金真实需求的广泛讨论。 滴普科技于2026年5月28日宣布，其根据一般授权进行的配售已完成交割。公司以每股50.58港元的价格，成功配售约794万股新H股，募资总额约4.02亿港元，所得款项净额约为3.95亿港元。这是自2
 
 ## 正文
 
-中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。
+上市仅个7个多月，顶着“港股超购王”光环的AI数据智能企业滴普科技（1384.HK），在IPO募资尚未用完的情况下，即启动闪电配售，引发了市场对其经营策略与资金真实需求的广泛讨论。
 
-有记者提问：美国总统特朗普日前表示，中美元首会谈将按计划进行。
+滴普科技于2026年5月28日宣布，其根据一般授权进行的配售已完成交割。
 
-请问中方将何时发布消息？
+公司以每股50.58港元的价格，成功配售约794万股新H股，募资总额约4.02亿港元，所得款项净额约为3.95亿港元。
 
-对此访有何期待？
+这是自2025年10月上市以来，公司首次进行闪电配售。
 
-将重点讨论哪些议题？
+超七成IPO资金尚未动用 公司即启动配售 此次再融资的背景，让市场对公司资金的真实流向打上了问号。
 
-林剑：中美双方就特朗普总统访华事保持着沟通，我目前没有可以进一步提供的信息。
+根据公告披露，截至2026年4月30日，公司于2025年10月全球发售所得款项净额约人民币6.0亿元（约6.57亿港元）中，仍有高达人民币4.42亿元（约73.7%）的资金尚未动用。
 
-(完)
+其中，用于核心业务发展的资金——如“提升研发能力”与“扩大在中国的销售网络及客户群”的计划，使用率分别仅为23.5%和25.8%。
+
+在此背景下，公司却以“海外市场拓展及本地化能力建设”为由，再次向市场融资近4亿港元。
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 22:26 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 22:46 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 22:31 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 22:29 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 22:25 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 22:31 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 22:37 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 22:39 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 22:37 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 22:40 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 22:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 22:47 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 22:41 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 22:57 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 22:35 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 22:31 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 22:30 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 22:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 22:46 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 22:33 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 22:31 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 22:34 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 22:59 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 22:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:37 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/05333.shtml)
-- 2026-06-29 22:34 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/656024471.shtml)
-- 2026-06-29 22:48 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/69427.shtml)
-- 2026-06-29 22:30 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/04398152946.shtml)
-- 2026-06-29 22:27 - [毒液2](https://www.share.minike.top/Article/details/4956037450.shtml)
-- 2026-06-29 22:32 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/10067.shtml)
-- 2026-06-29 22:34 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/5530640.shtml)
-- 2026-06-29 22:34 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/390876728482.shtml)
-- 2026-06-29 22:31 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/851479.shtml)
-- 2026-06-29 22:27 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/88250648143.shtml)
-- 2026-06-29 22:50 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/10240496994.shtml)
-- 2026-06-29 22:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/9073254.shtml)
-- 2026-06-29 22:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/032726350.shtml)
-- 2026-06-29 22:26 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/52110599817.shtml)
-- 2026-06-29 22:50 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/247220081.shtml)
+- 2026-06-29 22:36 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/54785876059.shtml)
+- 2026-06-29 22:47 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/6056279.shtml)
+- 2026-06-29 22:45 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/5701034755.shtml)
+- 2026-06-29 22:40 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/4151798.shtml)
+- 2026-06-29 22:51 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/312712676169.shtml)
+- 2026-06-29 22:38 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/38842068124.shtml)
+- 2026-06-29 22:31 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/04553.shtml)
+- 2026-06-29 22:50 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/36209916585.shtml)
+- 2026-06-29 22:33 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/5765963175.shtml)
+- 2026-06-29 22:58 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/504063.shtml)
+- 2026-06-29 22:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/69892219.shtml)
+- 2026-06-29 22:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/4012858.shtml)
+- 2026-06-29 22:55 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/17370967562.shtml)
+- 2026-06-29 22:37 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/9758395611.shtml)
+- 2026-06-29 22:33 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/565145.shtml)

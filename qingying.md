@@ -1,57 +1,58 @@
-# 光模块年报&一季报：天孚通信存在大客户依赖毛利率下滑 流动性“两头堵”净现比达到近五年最低点
+# 午盘：美股跌幅扩大 特朗普加大对伊朗威胁力度
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：光心 随着A股上市公司财报季收官，作为算力“底座”的光通信行业也交出优异的成绩单。这主要是2025年国内外AI基建资本开支大跨步上行，光模块需求迎来全面爆发。 从出货结构来看，2025年800G产品成为主导市场的绝对主力，同时1.6T高速产品进入导入期，预计2026年开始出货放量，其商用化节奏或将成为下一阶段的竞争分水岭。 在需求放量和技术切
+北京时间6月11日凌晨，美股周三午盘跌幅扩大。芯片股延续近期跌势。美国总统特朗普暗示伊朗谈判耗时“过长”并威胁采取更多行动后，原油价格走高。美国5月份CPI同比上涨4.2%创三年新高。 道指跌569.10点，跌幅为1.12%，报50303.01点；纳指跌263.04点，跌幅为1.02%，报25415.79点；标普500指数跌58.20点，跌幅为0.79%，报7328.45点。
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：光心 随着A股上市公司财报季收官，作为算力“底座”的光通信行业也交出优异的成绩单。
+北京时间6月11日凌晨，美股周三午盘跌幅扩大。
 
-这主要是2025年国内外AI基建资本开支大跨步上行，光模块需求迎来全面爆发。
+芯片股延续近期跌势。
 
-从出货结构来看，2025年800G产品成为主导市场的绝对主力，同时1.6T高速产品进入导入期，预计2026年开始出货放量，其商用化节奏或将成为下一阶段的竞争分水岭。
+美国总统特朗普暗示伊朗谈判耗时“过长”并威胁采取更多行动后，原油价格走高。
 
-在需求放量和技术切换的双重驱动下，光模块头部企业迎来业绩高增。
+美国5月份CPI同比上涨4.2%创三年新高。
 
-2025年，中际旭创、新易盛、天孚通信营收分别同比增长60.25%、187.29%、58.79%。
+道指跌569.10点，跌幅为1.12%，报50303.01点；纳指跌263.04点，跌幅为1.02%，报25415.79点；标普500指数跌58.20点，跌幅为0.79%，报7328.45点。
 
-2026年一季度，三家营收分别同比增长192.12%、105.76%、40.82%，其中中际旭创2026年一季度收入已超越2025年上半年。
+美国总统唐纳德-特朗普周三（10日）早间暗示与伊朗的谈判耗时“过长”并威胁采取更多行动后，美国股市周三下跌。
 
-值得注意的是，天孚通信的业务底色与其他两家有所不同。
+他在社交媒体发文说，伊朗“花了太长时间去谈判一项本应对他们极为有利的协议，现在他们必须付出代价！
 
-中际旭创、新易盛产品主要是光模块整机，下游对接云厂商和IDC客户，而天孚通信产品主要是光器件、光芯片等零组件，更偏上游。
+！
 
 ## 相关推荐
 
-- 2026-06-29 22:34 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 22:33 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 22:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 22:35 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 22:48 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 22:38 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 22:25 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 22:34 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 22:25 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 22:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 22:53 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 22:34 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 22:43 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 22:33 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 22:53 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 22:56 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 22:51 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 22:44 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 22:38 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 22:42 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 22:36 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 22:47 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 22:45 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/3168478463.shtml)
-- 2026-06-29 22:43 - [沙丘](https://www.share.kurohicncr.top/Article/details/690259.shtml)
-- 2026-06-29 22:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/423501666.shtml)
-- 2026-06-29 22:43 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/62396612.shtml)
-- 2026-06-29 22:36 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/94410272.shtml)
-- 2026-06-29 22:27 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/481322771509.shtml)
-- 2026-06-29 22:38 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/30790623.shtml)
-- 2026-06-29 22:26 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/238920759.shtml)
-- 2026-06-29 22:50 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/1501756.shtml)
-- 2026-06-29 22:50 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/00516.shtml)
-- 2026-06-29 22:28 - [锐评T1零封KC](https://www.share.minike.top/Article/details/83196.shtml)
-- 2026-06-29 22:25 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/1646890.shtml)
-- 2026-06-29 22:53 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/15724210284.shtml)
-- 2026-06-29 22:38 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/94685953990.shtml)
-- 2026-06-29 22:48 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/148001447454.shtml)
+- 2026-06-29 22:37 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/136043720241.shtml)
+- 2026-06-29 22:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/63574774231.shtml)
+- 2026-06-29 22:48 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/7775936.shtml)
+- 2026-06-29 22:42 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/616335.shtml)
+- 2026-06-29 22:35 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/7993951.shtml)
+- 2026-06-29 22:43 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/95083.shtml)
+- 2026-06-29 22:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/00650271.shtml)
+- 2026-06-29 22:45 - [温网](https://www.blog.kurohicncr.top/Article/details/61084.shtml)
+- 2026-06-29 22:37 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/55285332.shtml)
+- 2026-06-29 22:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/762851866.shtml)
+- 2026-06-29 22:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/2570231.shtml)
+- 2026-06-29 22:34 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/10939888.shtml)
+- 2026-06-29 22:51 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/724321454.shtml)
+- 2026-06-29 22:45 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/4361081410.shtml)
+- 2026-06-29 22:32 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/423718873043.shtml)

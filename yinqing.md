@@ -1,58 +1,60 @@
-# 剑指虚假宣传，市场监管部门开展网售食品专项整治
+# 创业板指半日跌2.29%，兵装重组概念逆市上涨
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-平台决不能当“甩手掌柜”，直播间不是“法外之地” 剑指虚假宣传，市场监管部门开展网售食品专项整治 本报讯 (记者蒋菡)记者从市场监管总局举行的食品安全专题新闻发布会上获悉，近日，市场监管总局正式印发《关于开展网络食品销售虚假宣传专项整治行动的通知》，在全国范围内开展为期半年的专项整治行动。 近年来，网络食品销量快速增长。根据国家统计局公布的数据，2025年，全国吃类商品网上零售
+中新经纬6月10日电 10日上午，A股三大指数震荡下行。 截至午间收盘，上证指数报3986.66点，跌幅0.58%；深证成指报14972.75点，跌幅1.94%；创业板指报3870.83点，跌幅2.29%；科创综指报2012.31点，跌幅0.87%；科创50报1662.81点，跌幅0.02%；北证50报1307.90点，跌幅2.24%。 板块方面，兵装重组概念、环氧丙烷板块涨幅
 
 ## 正文
 
-平台决不能当“甩手掌柜”，直播间不是“法外之地” 剑指虚假宣传，市场监管部门开展网售食品专项整治 本报讯 (记者蒋菡)记者从市场监管总局举行的食品安全专题新闻发布会上获悉，近日，市场监管总局正式印发《关于开展网络食品销售虚假宣传专项整治行动的通知》，在全国范围内开展为期半年的专项整治行动。
+中新经纬6月10日电 10日上午，A股三大指数震荡下行。
 
-近年来，网络食品销量快速增长。
+截至午间收盘，上证指数报3986.66点，跌幅0.58%；深证成指报14972.75点，跌幅1.94%；创业板指报3870.83点，跌幅2.29%；科创综指报2012.31点，跌幅0.87%；科创50报1662.81点，跌幅0.02%；北证50报1307.90点，跌幅2.24%。
 
-根据国家统计局公布的数据，2025年，全国吃类商品网上零售额同比增长14.5%。
+板块方面，兵装重组概念、环氧丙烷板块涨幅居前，均上涨3.70%；保险板块上涨3.27%。
 
-与此同时，网售食品虚假宣传、违法广告等突出问题屡禁不止，消费者对此反映强烈、叫苦不迭。
+跌幅方面，铜缆高速连接板块下跌4.39%，其他电源设备板块下跌4.19%，电网设备板块下跌3.77%。
 
-比如，涉嫌原产地造假、虚假宣传的“优思益”保健品；虚假标注相关成分、打品牌“擦边球”的同仁堂南极磷虾油等，都是近期翻车的“网红产品”，让老百姓“舌尖上的期待”变成了“舌尖上的上当”。
+中原证券认为，市场短期仍处调整期，外部扰动密集释放，指数可能延续震荡格局。
 
-“这些产品的共同点就是，针对公众减肥、降压、保健等需求，用营销话术和虚假宣传大肆‘收割’消费者。
+中期来看，AI产业趋势未变，二季度上市公司盈利在PPI上行支撑下有望持续改善，市场经过震荡蓄力后，中期向上运行趋势依然稳固。
 
-”市场监管总局食品安全总监孙会川表示，明明是普通食品，却把功效吹得如同神药；明明是国内生产，却摇身一变成了“海外直邮”；明明是掺杂使假，却吹嘘为“纯天然、零添加”；明明是“三无”作坊，却靠刷单成了“金牌店铺”。
+预计上证指数维持震荡整理的可能性较大，密切关注宏观经济数据、海外流动性变化以及政策动向。
 
-这次专项整治，市场监管部门将实施精准锁定、靶向打击。
+短线建议关注通信设备、半导体、元件以及玻璃玻纤等行业的投资机会。
 
 ## 相关推荐
 
-- 2026-06-29 22:29 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 22:28 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 22:29 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 22:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 22:38 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 22:50 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 22:51 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 22:36 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 22:46 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 22:43 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 22:39 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 22:28 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 22:39 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 22:39 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 22:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 22:47 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 22:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 22:43 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 22:35 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 22:46 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 22:57 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 22:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 22:30 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 22:56 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 22:32 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 22:41 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:40 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/770685151.shtml)
-- 2026-06-29 22:47 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/38263833071.shtml)
-- 2026-06-29 22:36 - [记者乘坐无人驾驶汽车去采访](https://www.share.kurohicncr.top/Article/details/2543340214.shtml)
-- 2026-06-29 22:46 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/409137.shtml)
-- 2026-06-29 22:34 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/39068052007.shtml)
-- 2026-06-29 22:38 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/80059040.shtml)
-- 2026-06-29 22:28 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/1948856130.shtml)
-- 2026-06-29 22:36 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/46605.shtml)
-- 2026-06-29 22:51 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/0063539024.shtml)
-- 2026-06-29 22:30 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/42252.shtml)
-- 2026-06-29 22:39 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/8507998.shtml)
-- 2026-06-29 22:46 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/4621162170.shtml)
-- 2026-06-29 22:29 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.minike.top/Article/details/7210037447.shtml)
-- 2026-06-29 22:27 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/5948908355.shtml)
-- 2026-06-29 22:49 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/19895917515.shtml)
+- 2026-06-29 22:40 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/811458.shtml)
+- 2026-06-29 22:41 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/16663305.shtml)
+- 2026-06-29 22:58 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.kurohicncr.top/Article/details/699152.shtml)
+- 2026-06-29 22:42 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/2652299661.shtml)
+- 2026-06-29 22:41 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/77764313878.shtml)
+- 2026-06-29 22:31 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/2400828.shtml)
+- 2026-06-29 22:57 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/751810547983.shtml)
+- 2026-06-29 22:38 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/9593073080.shtml)
+- 2026-06-29 22:38 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/52078982.shtml)
+- 2026-06-29 22:46 - [扫黑风暴](http://www.share.minike.top/Article/details/630988863274.shtml)
+- 2026-06-29 22:53 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/45675113447.shtml)
+- 2026-06-29 22:43 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/2966632293.shtml)
+- 2026-06-29 22:40 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/1762434737.shtml)
+- 2026-06-29 22:39 - [女心理师](http://www.blog.kurohicncr.top/Article/details/1371280401.shtml)
+- 2026-06-29 22:30 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/608589621684.shtml)

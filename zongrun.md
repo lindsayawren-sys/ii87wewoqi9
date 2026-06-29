@@ -1,43 +1,57 @@
-# 伊朗和巴基斯坦两国外长通话
+# 浙江教育观察：如何加强复合型数字经济外语人才培养？
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-新华社德黑兰5月7日电 伊朗外长阿拉格齐7日在社交媒体上说，他与巴基斯坦外长达尔当天进行电话会谈，强调将继续推进对话，防止中东地区紧张局势升级。
+中新网杭州6月10日电(林波)当人工智能深度渗透千行百业，数字经济加速向智能经济迭代，一个现实问题浮出水面：谁来打通技术落地、国际交流与品牌出海的“最后一公里”，复合型数字经济外语人才如何炼成？ 浙江的回答是：培养“外语+数字技术+行业知识”的复合型人才。6月10日，浙江省数字经济发展中心与浙江工商大学外国语学院的一场联学共建活动，揭开了这一人才培养新模式的探索路径。 数字经济
 
 ## 正文
 
-新华社德黑兰5月7日电 伊朗外长阿拉格齐7日在社交媒体上说，他与巴基斯坦外长达尔当天进行电话会谈，强调将继续推进对话，防止中东地区紧张局势升级。
+中新网杭州6月10日电(林波)当人工智能深度渗透千行百业，数字经济加速向智能经济迭代，一个现实问题浮出水面：谁来打通技术落地、国际交流与品牌出海的“最后一公里”，复合型数字经济外语人才如何炼成？
+
+浙江的回答是：培养“外语+数字技术+行业知识”的复合型人才。
+
+6月10日，浙江省数字经济发展中心与浙江工商大学外国语学院的一场联学共建活动，揭开了这一人才培养新模式的探索路径。
+
+数字经济正迈入智能经济这一更高阶阶段。
+
+在浙江省数字经济发展中心主任徐招玺看来，人工智能已成为经济高质量发展的关键变量，产业发展不再局限于单一技术或单一语言能力。
+
+在数字经济发展中，浙江的智能算力、大模型、产业数智化转型均走在全国前列，制造业、数字产业、外贸产业呈现融合发展态势。
+
+然而，一个现实问题摆在眼前：大量精通外语、熟稔数字技术、懂行业、通跨境的复合型人才严重不足。
+
+“这就需要政校携手、同向发力，补齐复合型人才供给短板。
 
 ## 相关推荐
 
-- 2026-06-29 22:51 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 22:38 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 22:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 22:46 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 22:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 22:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 22:46 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 22:29 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 22:37 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 22:34 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 22:45 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 22:57 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 22:33 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 22:55 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 22:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 22:45 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 22:46 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 22:58 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 22:42 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 22:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 22:40 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 22:37 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:53 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/781746.shtml)
-- 2026-06-29 22:31 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/473431.shtml)
-- 2026-06-29 22:51 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/631155.shtml)
-- 2026-06-29 22:26 - [毒液2](http://www.share.kurohicncr.top/Article/details/75040038115.shtml)
-- 2026-06-29 22:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/3474136688.shtml)
-- 2026-06-29 22:52 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/302412662.shtml)
-- 2026-06-29 22:39 - [速度与激情9](https://www.share.minike.top/Article/details/38144728867.shtml)
-- 2026-06-29 22:30 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/2115724806.shtml)
-- 2026-06-29 22:37 - [沙丘](https://www.blog.minike.top/Article/details/61335.shtml)
-- 2026-06-29 22:27 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/6671967.shtml)
-- 2026-06-29 22:35 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/22367345063.shtml)
-- 2026-06-29 22:45 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/99362400.shtml)
-- 2026-06-29 22:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/37968782878.shtml)
-- 2026-06-29 22:28 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/86649317655.shtml)
-- 2026-06-29 22:52 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/13252593152.shtml)
+- 2026-06-29 22:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/503798750.shtml)
+- 2026-06-29 22:53 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/4543462.shtml)
+- 2026-06-29 22:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/368242636386.shtml)
+- 2026-06-29 22:41 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/398580153.shtml)
+- 2026-06-29 22:35 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/13329.shtml)
+- 2026-06-29 22:47 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/36765211.shtml)
+- 2026-06-29 22:31 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/769787.shtml)
+- 2026-06-29 22:33 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/24677083633.shtml)
+- 2026-06-29 22:46 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/2356076684.shtml)
+- 2026-06-29 22:41 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/828565225125.shtml)
+- 2026-06-29 22:49 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/242268.shtml)
+- 2026-06-29 22:39 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/049006041.shtml)
+- 2026-06-29 22:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/829690.shtml)
+- 2026-06-29 22:42 - [世界杯高票价为何没劝退球迷](http://www.share.kurohicncr.top/Article/details/7683507.shtml)
+- 2026-06-29 22:56 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/436674582865.shtml)

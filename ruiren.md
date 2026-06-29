@@ -1,49 +1,58 @@
-# 伪满皇宫博物院古丁香盛放 古韵花香漫溢庭院
+# 赖清德吹嘘“突访”斯威士兰 国台办回应
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 21:08 来源：中国新闻网 5月7日，吉林长春，伪满皇宫博物院内古丁香次第盛放，紫白缀枝、馥郁飘香。院内多株栽植年代久远的古丁香迎来盛花期，花枝繁茂舒展、花簇如云似雪。清雅花香萦绕红墙古建，繁花与百年历史院落相映相融，古风气韵与春日芳华浑然一体。(记者 张瑶 制作 王嘉怡） 责任编辑：【卢岩】
+6月10日，国务院台办举行例行新闻发布会。有记者问，近日，赖清德接受专访吹嘘其“顶住中国压力”“突访”斯威士兰，并称台湾人不愿意接受“中国统治”，希望继续过着“自由、民主、有人权”的生活。请问对此有何评论？发言人张晗答问表示，赖清德挥霍台湾民众的血汗钱，大搞“金元外交”，斥巨资买“偷渡”，成为国际社会和岛内的笑柄，却不以为耻、反以为荣，充分暴露其“台独”本性和偏执卑劣。民进党当
 
 ## 正文
 
-发布时间：2026年05月07日 21:08 来源：中国新闻网 5月7日，吉林长春，伪满皇宫博物院内古丁香次第盛放，紫白缀枝、馥郁飘香。
+6月10日，国务院台办举行例行新闻发布会。
 
-院内多株栽植年代久远的古丁香迎来盛花期，花枝繁茂舒展、花簇如云似雪。
+有记者问，近日，赖清德接受专访吹嘘其“顶住中国压力”“突访”斯威士兰，并称台湾人不愿意接受“中国统治”，希望继续过着“自由、民主、有人权”的生活。
 
-清雅花香萦绕红墙古建，繁花与百年历史院落相映相融，古风气韵与春日芳华浑然一体。
+请问对此有何评论？
 
-(记者 张瑶 制作 王嘉怡） 责任编辑：【卢岩】
+发言人张晗答问表示，赖清德挥霍台湾民众的血汗钱，大搞“金元外交”，斥巨资买“偷渡”，成为国际社会和岛内的笑柄，却不以为耻、反以为荣，充分暴露其“台独”本性和偏执卑劣。
+
+民进党当局在岛内一直高喊自由，却长期操控媒体，豢养网军，钳制舆论，阻挠禁限两岸人员往来和各领域交流合作，标榜民主却大搞“绿色恐怖”，滥用司法、行政等手段打压迫害政治异己，不断操纵挑起政治恶斗。
+
+大谈人权却罔顾岛内民众利益福祉，一再歧视刁难陆配群体，给岛内有关人士贴标签、扣帽子，人心尽失。
+
+张晗指出，社会制度不同不是搞分裂的借口，只要认同一个中国原则、推进祖国统一，有话好好说，有事好商量，就没有化解不了的矛盾分歧。
+
+希望广大台湾同胞正确认识大陆社会制度和发展道路，看清民进党当局打着民主的幌子谋“独”的真实面目和险恶用心，与“台独”分裂势力及其活动划清界限，同我们一道维护台海和平稳定。
 
 ## 相关推荐
 
-- 2026-06-29 22:36 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 22:50 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 22:31 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 22:33 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 22:47 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 22:53 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 22:37 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 22:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 22:35 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 22:31 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 22:49 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 22:57 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 22:42 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 22:37 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 22:30 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 22:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 22:44 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 22:49 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 22:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 22:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 22:46 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 22:34 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 22:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:38 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/137747828540.shtml)
-- 2026-06-29 22:40 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/22931050.shtml)
-- 2026-06-29 22:26 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/520263.shtml)
-- 2026-06-29 22:47 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/59921.shtml)
-- 2026-06-29 22:29 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/51610086.shtml)
-- 2026-06-29 22:42 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/21488.shtml)
-- 2026-06-29 22:45 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/1420916136.shtml)
-- 2026-06-29 22:49 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/8677119.shtml)
-- 2026-06-29 22:52 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/062875.shtml)
-- 2026-06-29 22:35 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/15700193873.shtml)
-- 2026-06-29 22:31 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/4465109010.shtml)
-- 2026-06-29 22:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/500180797.shtml)
-- 2026-06-29 22:50 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/734451406723.shtml)
-- 2026-06-29 22:51 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/56125472926.shtml)
-- 2026-06-29 22:29 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/47194519.shtml)
+- 2026-06-29 22:50 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/95123911937.shtml)
+- 2026-06-29 22:49 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/39250675.shtml)
+- 2026-06-29 22:43 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/9611665.shtml)
+- 2026-06-29 22:35 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/21561.shtml)
+- 2026-06-29 22:49 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/9309796959.shtml)
+- 2026-06-29 22:48 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/9881981480.shtml)
+- 2026-06-29 22:42 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/87898.shtml)
+- 2026-06-29 22:30 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/3931855236.shtml)
+- 2026-06-29 22:42 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/19017260.shtml)
+- 2026-06-29 22:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/54956845333.shtml)
+- 2026-06-29 22:57 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/4789994.shtml)
+- 2026-06-29 22:48 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/2773373065.shtml)
+- 2026-06-29 22:57 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.minike.top/Article/details/708547160.shtml)
+- 2026-06-29 22:49 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/94863735.shtml)
+- 2026-06-29 22:49 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/468420154920.shtml)

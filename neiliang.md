@@ -1,58 +1,57 @@
-# 西北地区苜蓿生产技术交流会在新疆和田县举办
+# 系统呈现京剧大家沈福存的艺术人生 纪录片《大青衣》将播出
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网新疆和田5月8日电 (胡嘉琛 阿卜力克木·依卜拉依木)西北地区苜蓿生产技术暨头茬收获与产销交流会7日在新疆和田县召开。百余名企业、科研机构和种植户代表参加会议，围绕苜蓿生产技术、机械化收割和产销对接等共话产业发展。 会议由新疆优质饲草产业技术体系主办。在主题报告环节，9位专家学者围绕盐碱地改良、苜蓿高效种植、病虫害绿色防控、全程机械化和金融支持等议题进行技术分享，并针对新
+中新网重庆6月10日电 (记者 钟旖)“沈福存和他的朋友们——纪录片《大青衣》首映分享会”10日在重庆举行。记者获悉，以著名京剧表演艺术家沈福存艺术人生为主线制作的纪录片《大青衣》，近期将在中央电视台纪录频道、重庆卫视正式播出。 沈福存(1935-2021)是京剧“男旦”表演艺术家。他从戏班学徒一路走上专业舞台，融通诸派技艺，自成一派大青衣风骨，又因长期扎根西南，在戏曲爱好者中
 
 ## 正文
 
-中新网新疆和田5月8日电 (胡嘉琛 阿卜力克木·依卜拉依木)西北地区苜蓿生产技术暨头茬收获与产销交流会7日在新疆和田县召开。
+中新网重庆6月10日电 (记者 钟旖)“沈福存和他的朋友们——纪录片《大青衣》首映分享会”10日在重庆举行。
 
-百余名企业、科研机构和种植户代表参加会议，围绕苜蓿生产技术、机械化收割和产销对接等共话产业发展。
+记者获悉，以著名京剧表演艺术家沈福存艺术人生为主线制作的纪录片《大青衣》，近期将在中央电视台纪录频道、重庆卫视正式播出。
 
-会议由新疆优质饲草产业技术体系主办。
+沈福存(1935-2021)是京剧“男旦”表演艺术家。
 
-在主题报告环节，9位专家学者围绕盐碱地改良、苜蓿高效种植、病虫害绿色防控、全程机械化和金融支持等议题进行技术分享，并针对新疆和田地区盐碱地提出适配方案。
+他从戏班学徒一路走上专业舞台，融通诸派技艺，自成一派大青衣风骨，又因长期扎根西南，在戏曲爱好者中有“山城张君秋”“四川梅兰芳”的美誉。
 
-和田地区土地广阔、光热资源充足、降雨少、灌溉技术日趋成熟，具有发展苜蓿产业的自然条件和技术基础。
+经过近三年的创作，纪录片《大青衣》以人物命运为主线，分《三级跳》《三出半》《三朵梅》三集，分别从“人生历程”“艺术成就”“薪火传承”三个维度展开叙事。
 
-与会专家建议继续推广示范技术，强化上下游协作，推动标准化基地建设和市场对接，促进苜蓿产业向规模化、可持续方向发展，为畜牧业发展提供稳定保障。
+影片以戏曲传承为核心，通过珍贵历史影像、口述访谈、舞台资料、家庭记忆和教学现场等多重叙事线索，系统呈现了沈福存从少年入行、拜师学艺、登台成长，到艺术成熟、薪火相传的完整生命轨迹，也深入展现了中国戏曲艺术的传承机制、审美精神和时代价值。
 
-新疆农业农村厅饲料饲草处副处长佟光来称，随着畜牧业规模化、标准化推进，市场对优质苜蓿需求持续增长。
+作为第四届重庆都市艺术节的重要活动之一，当天的首映分享会通过“影像呈现+人物讲述+现场交流”的方式，带领观众们走近沈福存的人生历程与艺术世界。
 
-要加快提升产能、完善产销衔接，通过良种推广、节水灌溉、绿色防控和机械化装备，提高供给能力和产品质量。
+“透过纪录片，我们看到了一个艺术家的美感，作为一个演员身上一以贯之的君子之风。
 
 ## 相关推荐
 
-- 2026-06-29 22:48 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 22:31 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 22:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 22:28 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 22:49 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 22:33 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 22:43 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 22:43 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 22:47 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 22:31 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 22:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 22:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 22:39 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 22:41 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 22:52 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 22:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 22:58 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 22:49 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 22:49 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 22:54 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 22:58 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 22:50 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 22:46 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:40 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/786998301.shtml)
-- 2026-06-29 22:27 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/02887881547.shtml)
-- 2026-06-29 22:48 - [一见倾心](https://www.share.kurohicncr.top/Article/details/46890945841.shtml)
-- 2026-06-29 22:52 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/89137250708.shtml)
-- 2026-06-29 22:35 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/112535230.shtml)
-- 2026-06-29 22:47 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/69723860999.shtml)
-- 2026-06-29 22:37 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/82287.shtml)
-- 2026-06-29 22:45 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/4779339350.shtml)
-- 2026-06-29 22:49 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/177796221501.shtml)
-- 2026-06-29 22:40 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/63501486673.shtml)
-- 2026-06-29 22:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/585996.shtml)
-- 2026-06-29 22:49 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.minike.top/Article/details/84457614599.shtml)
-- 2026-06-29 22:53 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/335537.shtml)
-- 2026-06-29 22:47 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/925199819.shtml)
-- 2026-06-29 22:40 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/875882495.shtml)
+- 2026-06-29 22:32 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/239778.shtml)
+- 2026-06-29 22:58 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/532781417.shtml)
+- 2026-06-29 22:41 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/9411709.shtml)
+- 2026-06-29 22:54 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/309645.shtml)
+- 2026-06-29 22:57 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/346517314.shtml)
+- 2026-06-29 22:34 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/63299.shtml)
+- 2026-06-29 22:56 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/055278955.shtml)
+- 2026-06-29 22:48 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/3189119789.shtml)
+- 2026-06-29 22:30 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/45626530501.shtml)
+- 2026-06-29 22:35 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/76001896688.shtml)
+- 2026-06-29 22:31 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/936352970.shtml)
+- 2026-06-29 22:37 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/99252.shtml)
+- 2026-06-29 22:41 - [乌克兰发广告全球征兵](https://www.blog.minike.top/Article/details/551788.shtml)
+- 2026-06-29 22:44 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/61594240454.shtml)
+- 2026-06-29 22:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/5967017114.shtml)

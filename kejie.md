@@ -1,49 +1,56 @@
-# 塔斯尼姆通讯社：伊朗声称向三艘美国驱逐舰发射导弹
+# 妖股直击：中船特气暴涨7倍成市场最强龙头，海外断供引爆六氟化钨，中巨芯、和远气体、昊华科技集体井喷
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-伊朗半官方的塔斯尼姆通讯社援引知情人士报道称，伊朗海军在霍尔木兹海峡附近向三艘美国驱逐舰发射导弹。 报道指出，伊朗此次行动使用了“导弹和自杀式无人机”。责任编辑：陈钰嘉
+来源：金融界网站 6月11日，近期最热门个股中船特气继续上攻，早盘最高探至332.88元，涨幅达14%，市值超过1700亿元。不过随后股价剧烈震荡，一度跳水翻绿，后又快速拉起，目前涨幅约9%，成交额超过40亿元。 从近期的市场走势来看，中船特气是整个市场的最强龙头之一，2个月时间，股价从40元左右飙升至约333元，涨幅接近7倍。 市场炒作中船特气的核心逻辑，聚焦于六氟化钨这一半
 
 ## 正文
 
-伊朗半官方的塔斯尼姆通讯社援引知情人士报道称，伊朗海军在霍尔木兹海峡附近向三艘美国驱逐舰发射导弹。
+来源：金融界网站 6月11日，近期最热门个股中船特气继续上攻，早盘最高探至332.88元，涨幅达14%，市值超过1700亿元。
 
-报道指出，伊朗此次行动使用了“导弹和自杀式无人机”。
+不过随后股价剧烈震荡，一度跳水翻绿，后又快速拉起，目前涨幅约9%，成交额超过40亿元。
 
-责任编辑：陈钰嘉
+从近期的市场走势来看，中船特气是整个市场的最强龙头之一，2个月时间，股价从40元左右飙升至约333元，涨幅接近7倍。
+
+市场炒作中船特气的核心逻辑，聚焦于六氟化钨这一半导体（核心股）关键材料的供需错配。
+
+六氟化钨是芯片先进制程和存储芯片生产不可或缺的核心材料，当前海外供应链持续承压，上游钨原料供给收紧带动高纯六氟化钨价格持续飙升。
+
+中船特气作为国内头部企业，具备产能与技术双重优势，正处于国产替代加速落地的关键窗口期。
+
+消息面上，中船特气相关负责人近日透露，公司适配半导体（核心股）应用场景的6N级高纯六氟化钨当前市场实时报价约为2000至2500元每千克，公司整体产能订单处于饱和状态，同步承接海外订单需求。
+
+在中船特气超预期强劲走势带动下，六氟化钨概念股全线崛起，中巨芯今日大涨18%，股价一周实现翻倍；和远气体3连板，昊华科技2连板。
 
 ## 相关推荐
 
-- 2026-06-29 22:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 22:25 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 22:51 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 22:28 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 22:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 22:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 22:37 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 22:28 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 22:29 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 22:46 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 22:32 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 22:50 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 22:47 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 22:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 22:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 22:47 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 22:53 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 22:43 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 22:31 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 22:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 22:59 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 22:36 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 22:33 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/87128.shtml)
-- 2026-06-29 22:35 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/552116200506.shtml)
-- 2026-06-29 22:26 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/62509191.shtml)
-- 2026-06-29 22:37 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/40683.shtml)
-- 2026-06-29 22:28 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/93819217.shtml)
-- 2026-06-29 22:27 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/598240787332.shtml)
-- 2026-06-29 22:29 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/629145.shtml)
-- 2026-06-29 22:36 - [我和我的家乡](https://www.blog.minike.top/Article/details/879278329.shtml)
-- 2026-06-29 22:50 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/096034123.shtml)
-- 2026-06-29 22:44 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/673641212.shtml)
-- 2026-06-29 22:40 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/907148558.shtml)
-- 2026-06-29 22:30 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/7749367.shtml)
-- 2026-06-29 22:29 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/206620272.shtml)
-- 2026-06-29 22:34 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/69554.shtml)
-- 2026-06-29 22:52 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/85603314.shtml)
+- 2026-06-29 22:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/7516130.shtml)
+- 2026-06-29 22:58 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/34795968269.shtml)
+- 2026-06-29 22:38 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/72320439.shtml)
+- 2026-06-29 22:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/2330003347.shtml)
+- 2026-06-29 22:41 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/090022527192.shtml)
+- 2026-06-29 22:30 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/278083970.shtml)
+- 2026-06-29 22:31 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/293728518.shtml)
+- 2026-06-29 22:54 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/312722436.shtml)
+- 2026-06-29 22:42 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/3912498460.shtml)
+- 2026-06-29 22:57 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/78586.shtml)
+- 2026-06-29 22:32 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/3347778679.shtml)
+- 2026-06-29 22:30 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/4179587.shtml)
+- 2026-06-29 22:54 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/41693197.shtml)
+- 2026-06-29 22:59 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/19742707459.shtml)
+- 2026-06-29 22:57 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/377576829.shtml)

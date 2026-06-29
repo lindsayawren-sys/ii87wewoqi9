@@ -1,56 +1,58 @@
-# 重庆市委原常委、政法委原书记陆克华一审被判死缓
+# 摩根资管Kelly认为通胀或已见顶 美联储下周料按兵不动
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 (记者 张素)记者从中国最高人民法院获悉，5月8日，四川省泸州市中级人民法院一审公开宣判重庆市委原常委、政法委原书记陆克华受贿案。 法院对被告人陆克华以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的陆克华受贿所得财物及孳息依法上缴国库，不足部分继续追缴。 公开资料显示，陆克华生于1964年10月，安徽枞阳人。2024年1
+摩根资产管理的David Kelly预计，最新的通胀数据不足以促使美联储决策者在下周采取维持利率不变以外的行动。 受伊朗战争推高能源价格影响，美国5月消费者价格指数创逾三年来最大涨幅，超过美国民众的薪资增长。不过，剔除食品和能源价格后的核心通胀指标升幅低于预期。摩根资管首席全球策略师Kelly表示，尽管美联储会对此感到“有些不安”，但这些数据或许意味着通胀已达峰。 “基本上，我
 
 ## 正文
 
-中新社北京5月8日电 (记者 张素)记者从中国最高人民法院获悉，5月8日，四川省泸州市中级人民法院一审公开宣判重庆市委原常委、政法委原书记陆克华受贿案。
+摩根资产管理的David Kelly预计，最新的通胀数据不足以促使美联储决策者在下周采取维持利率不变以外的行动。
 
-法院对被告人陆克华以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的陆克华受贿所得财物及孳息依法上缴国库，不足部分继续追缴。
+受伊朗战争推高能源价格影响，美国5月消费者价格指数创逾三年来最大涨幅，超过美国民众的薪资增长。
 
-公开资料显示，陆克华生于1964年10月，安徽枞阳人。
+不过，剔除食品和能源价格后的核心通胀指标升幅低于预期。
 
-2024年11月，官方通报其被查。
+摩根资管首席全球策略师Kelly表示，尽管美联储会对此感到“有些不安”，但这些数据或许意味着通胀已达峰。
 
-2025年4月，官方通报其被开除党籍和公职。
+“基本上，我们将看到12票一致决定按兵不动，”Kelly周三在节目Surveillance上表示。
 
-他被指“结交政治骗子”“推动违规举债融资兴建楼堂馆所”“搞权色、钱色交易”“违规干预插手执法活动”“长期痴迷赌博”等。
+“通胀高于他们希望看到的水平。
 
-经审理查明，1997年至2024年，被告人陆克华利用担任原建设部房地产业司市场管理处处长、住宅产业化促进中心主任，住房和城乡建设部城市建设司司长、副部长，重庆市政府副市长，重庆市委常委、市政府副市长，重庆市委常委、政法委书记等职务上的便利以及职权、地位形成的便利条件，为他人在工程承揽、项目评审、资质审查等事项上提供帮助，非法收受财物共计折合人民币1.89亿余元。
+但我认为，本轮周期的通胀高点可能就出现在该月，也就是5月。
 
-法院认为，被告人陆克华的行为构成受贿罪。
+” Kelly提到美国汽油价格下降——较5月20日的高点下跌9%——这表明成本压力在减弱。
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 22:53 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 22:28 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 22:39 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 22:36 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 22:47 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 22:48 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 22:40 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 22:34 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 22:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 22:41 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 22:53 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 22:38 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 22:31 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 22:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 22:50 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 22:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 22:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 22:33 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 22:53 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 22:52 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 22:38 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:32 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/6633232251.shtml)
-- 2026-06-29 22:32 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/0521259987.shtml)
-- 2026-06-29 22:48 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/25938486.shtml)
-- 2026-06-29 22:44 - [第一炉香](http://www.blog.minike.top/Article/details/89649687972.shtml)
-- 2026-06-29 22:39 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/89542.shtml)
-- 2026-06-29 22:26 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/98085332.shtml)
-- 2026-06-29 22:28 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/850407728712.shtml)
-- 2026-06-29 22:37 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/410796578746.shtml)
-- 2026-06-29 22:43 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/334662618.shtml)
-- 2026-06-29 22:31 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/70930338012.shtml)
-- 2026-06-29 22:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/2536855.shtml)
-- 2026-06-29 22:32 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/74809.shtml)
-- 2026-06-29 22:25 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/1318260.shtml)
-- 2026-06-29 22:51 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/0262924.shtml)
-- 2026-06-29 22:40 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/65872618.shtml)
+- 2026-06-29 22:33 - [世界杯](http://www.blog.minike.top/Article/details/6427118080.shtml)
+- 2026-06-29 22:54 - [送你一朵小红花](https://www.share.minike.top/Article/details/7013432.shtml)
+- 2026-06-29 22:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/637467726878.shtml)
+- 2026-06-29 22:33 - [天道](https://www.share.kurohicncr.top/Article/details/45071598683.shtml)
+- 2026-06-29 22:49 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.kurohicncr.top/Article/details/918417.shtml)
+- 2026-06-29 22:44 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/63576.shtml)
+- 2026-06-29 22:35 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/083328.shtml)
+- 2026-06-29 22:39 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/037635848585.shtml)
+- 2026-06-29 22:48 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/245384.shtml)
+- 2026-06-29 22:34 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/4158396786.shtml)
+- 2026-06-29 22:32 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/6584344.shtml)
+- 2026-06-29 22:38 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/37117868557.shtml)
+- 2026-06-29 22:47 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/89797017.shtml)
+- 2026-06-29 22:53 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/865992.shtml)
+- 2026-06-29 22:44 - [田曦薇没招了](https://www.share.minike.top/Article/details/579976751981.shtml)

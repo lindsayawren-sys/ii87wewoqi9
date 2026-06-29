@@ -1,60 +1,60 @@
-# 天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳
+# 海通国际：华勤技术首予“优于大市”评级 目标价104.14港元
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-5月8日午后，航空航天逆市发力，航天环宇暴涨14%，广联航空涨超8%，航天南湖涨超6%。一键布局商业航天+卫星导航+低空经济+大飞机的通用航空ETF华宝（159231）场内上涨2.09%，有望冲击5连阳。 消息面上，据央视新闻报道，天舟十号货运飞船与长征七号遥十一运载火箭组合体垂直转运至发射区。目前，文昌航天发射场设施设备状态良好，后续将按计划开展发射前的各项功能检查、联合测试
+海通国际发布研报称，首予华勤技术（03296）“优于大市”评级，目标价104.14港元。该行指出，在AI行业趋势推动下，华勤技术的AI服务器产品均具备明确的增长动力，带动计算及数据中心业务维持高速增长态势。盈利能力亦呈现改善趋势。 该利预计华勤技术2026至28年纯利分别达50.3亿、63.4亿及79.2亿元人民币（下同），每股盈测分别为4.53元、5.71元及7.14元，同比
 
 ## 正文
 
-5月8日午后，航空航天逆市发力，航天环宇暴涨14%，广联航空涨超8%，航天南湖涨超6%。
+海通国际发布研报称，首予华勤技术（03296）“优于大市”评级，目标价104.14港元。
 
-一键布局商业航天+卫星导航+低空经济+大飞机的通用航空ETF华宝（159231）场内上涨2.09%，有望冲击5连阳。
+该行指出，在AI行业趋势推动下，华勤技术的AI服务器产品均具备明确的增长动力，带动计算及数据中心业务维持高速增长态势。
 
-消息面上，据央视新闻报道，天舟十号货运飞船与长征七号遥十一运载火箭组合体垂直转运至发射区。
+盈利能力亦呈现改善趋势。
 
-目前，文昌航天发射场设施设备状态良好，后续将按计划开展发射前的各项功能检查、联合测试等工作，计划于近日择机实施发射。
+该利预计华勤技术2026至28年纯利分别达50.3亿、63.4亿及79.2亿元人民币（下同），每股盈测分别为4.53元、5.71元及7.14元，同比增长24%、26%及25%。
 
-5-6月商业航天板块利好不断，长征十号乙预计于5月进行首飞并开展海上网系回收试验，朱雀三号预计将于5月中下旬进行一子级垂直回收试验。
+该行又预计公司2026至28年的净利润率水平分别达2.47%、2.68%及2.92%，推动净利润增速胜于收入端。
 
-此外，SpaceX拟6月IPO，有望带动全球航天产业链景气提升。
+该行测算，公司数据中心业务2024年收入逾200亿元，去年翻倍至400亿元以上，预计今年可望达到600亿元。
 
-国海证券指出，商业航天产业已进入战略布局期，火箭、卫星、通信三大领域并行推进。
+该行预期，在2025至28年期间，整体运算及数据中心业务收入年复合增长率或超过25%。
 
-2026-2030年我国卫星部署量预计超2万颗，带动整星、载荷、太阳翼等环节需求。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 22:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 22:41 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 22:51 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 22:25 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 22:40 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 22:51 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 22:36 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 22:38 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 22:32 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 22:27 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 22:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 22:51 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 22:41 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 22:31 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 22:54 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 22:48 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 22:40 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 22:50 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 22:52 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 22:48 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 22:45 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 22:45 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 22:45 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 22:30 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 22:37 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 22:57 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 22:55 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/29354718078.shtml)
-- 2026-06-29 22:32 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/09134033095.shtml)
-- 2026-06-29 22:45 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/508900028.shtml)
-- 2026-06-29 22:28 - [美人鱼](https://www.blog.minike.top/Article/details/075360763.shtml)
-- 2026-06-29 22:30 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/681797735841.shtml)
-- 2026-06-29 22:27 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/29426657548.shtml)
-- 2026-06-29 22:40 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/6078588431.shtml)
-- 2026-06-29 22:48 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/78693781962.shtml)
-- 2026-06-29 22:43 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/715879885.shtml)
-- 2026-06-29 22:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/176023528942.shtml)
-- 2026-06-29 22:53 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/23320661.shtml)
-- 2026-06-29 22:44 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/5245456.shtml)
-- 2026-06-29 22:40 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/3504015.shtml)
-- 2026-06-29 22:47 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/6752429.shtml)
-- 2026-06-29 22:27 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/41523063.shtml)
+- 2026-06-29 22:48 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/317637868.shtml)
+- 2026-06-29 22:37 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/6105994058.shtml)
+- 2026-06-29 22:34 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/56441.shtml)
+- 2026-06-29 22:47 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/78562324772.shtml)
+- 2026-06-29 22:40 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/9532796818.shtml)
+- 2026-06-29 22:51 - [扬名立万](https://www.share.minike.top/Article/details/281446215.shtml)
+- 2026-06-29 22:44 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/578524669.shtml)
+- 2026-06-29 22:41 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/51151.shtml)
+- 2026-06-29 22:30 - [千与千寻](http://www.share.minike.top/Article/details/70453836837.shtml)
+- 2026-06-29 22:50 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/791304746.shtml)
+- 2026-06-29 22:35 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/526903345848.shtml)
+- 2026-06-29 22:34 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/116024722308.shtml)
+- 2026-06-29 22:58 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/72224693.shtml)
+- 2026-06-29 22:48 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/68367.shtml)
+- 2026-06-29 22:39 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/0199508.shtml)

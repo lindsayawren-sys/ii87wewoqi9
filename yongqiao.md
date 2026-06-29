@@ -1,58 +1,58 @@
-# 证监会严肃查处清越科技财务造假案件
+# 北京金融监管局部署保险机构切实做好汛期相关灾害应对和保险理赔服务工作
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据证监会网站消息，近日，证监会对苏州清越光电科技股份有限公司(简称清越科技)财务造假案件作出行政处罚事先告知。经查，清越科技2021年、2022年和2023年半年报虚增利润，涉嫌欺诈发行、定期报告信息披露违法违规等。证监会拟对上市公司罚款17,288万元，对4名责任人员合计罚款3,300万元并采取4-8年证券市场禁入措施。清越科技涉嫌触及重大违法强制退市情形，
+6月10日金融一线消息，北京金融监管局发布《关于用好保险保障实现平稳度汛的消费者风险提示》表示，近日，北京市已进入汛期，北京金融监管局部署保险机构切实做好汛期相关灾害应对和保险理赔服务工作，现提示广大市民朋友科学避风险、安心用保险、平稳度汛期。 北京金融监管局提示： 一、预防为先，守护自身人身安全 1．掌握避险常识。广大市民可利用国家应急管理部门、保险机构官方渠道等，学习掌握暴
 
 ## 正文
 
-中新网5月8日电 据证监会网站消息，近日，证监会对苏州清越光电科技股份有限公司(简称清越科技)财务造假案件作出行政处罚事先告知。
+6月10日金融一线消息，北京金融监管局发布《关于用好保险保障实现平稳度汛的消费者风险提示》表示，近日，北京市已进入汛期，北京金融监管局部署保险机构切实做好汛期相关灾害应对和保险理赔服务工作，现提示广大市民朋友科学避风险、安心用保险、平稳度汛期。
 
-经查，清越科技2021年、2022年和2023年半年报虚增利润，涉嫌欺诈发行、定期报告信息披露违法违规等。
+北京金融监管局提示： 一、预防为先，守护自身人身安全 1．掌握避险常识。
 
-证监会拟对上市公司罚款17,288万元，对4名责任人员合计罚款3,300万元并采取4-8年证券市场禁入措施。
+广大市民可利用国家应急管理部门、保险机构官方渠道等，学习掌握暴雨内涝、雷雨大风等极端天气的防灾要点与自救互救知识，持续提升个人及家庭防灾减灾、应急处置能力。
 
-清越科技涉嫌触及重大违法强制退市情形，上交所将依法启动退市程序。
+2．关注预警信息。
 
-证监会已冻结清越科技募集资金相关账户，目前正在对中介机构执业情况开展调查。
+请市民密切关注气象部门汛期预报、极端天气预警提示及保险机构发布的汛期风险提醒。
 
-对于可能涉及的犯罪线索，证监会将坚持应移尽移工作原则，严格按照《刑法》《最高人民检察院 公安部关于公安机关管辖的刑事案件立案追诉标准的规定(二)》的规定移送公安机关。
+恶劣天气时段尽量减少非必要外出，如确需出行，应提前研判路况隐患、科学规划路线，主动避让高危区域路段。
 
-目前广发证券、立信会计师事务所、清越科技实际控制人已公开声明将对遭受损失的适格投资者先行赔付，将委托投资者保护机构依法做好支持服务工作。
+3．科学应对险情。
 
-有关信息后续可通过中国证券投资者保护基金网站(www.sipf.com.cn)专栏等渠道查询，相关投资者可及时关注。
+如遇城市内涝，步行请勿盲目涉水，主动避让井盖、下水口、水流漩涡等风险点位，防范坠落、溺水事故。
 
 ## 相关推荐
 
-- 2026-06-29 22:32 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 22:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 22:45 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 22:45 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 22:48 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 22:41 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 22:40 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 22:36 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 22:30 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 22:51 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 22:30 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 22:51 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 22:51 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 22:57 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 22:50 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 22:31 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 22:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 22:32 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 22:58 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 22:48 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 22:35 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 22:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 22:56 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 22:52 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [流金岁月](http://www.blog.minike.top/Article/details/691216640.shtml)
-- 2026-06-29 22:50 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/209673308.shtml)
-- 2026-06-29 22:26 - [巴西10号球衣是天才传承史](http://www.blog.minike.top/Article/details/083608975.shtml)
-- 2026-06-29 22:38 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/923402.shtml)
-- 2026-06-29 22:44 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/3544550146.shtml)
-- 2026-06-29 22:46 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/025908907108.shtml)
-- 2026-06-29 22:41 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/5298237.shtml)
-- 2026-06-29 22:39 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/91039197.shtml)
-- 2026-06-29 22:28 - [曼城官宣马雷斯卡出任主教练](https://www.share.minike.top/Article/details/3730018.shtml)
-- 2026-06-29 22:36 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/4403494665.shtml)
-- 2026-06-29 22:38 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/47679010374.shtml)
-- 2026-06-29 22:36 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/700779400482.shtml)
-- 2026-06-29 22:31 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/1772897.shtml)
-- 2026-06-29 22:50 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/682661.shtml)
-- 2026-06-29 22:44 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/465083194394.shtml)
+- 2026-06-29 22:41 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/52182772.shtml)
+- 2026-06-29 22:43 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/91924.shtml)
+- 2026-06-29 22:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/41672324276.shtml)
+- 2026-06-29 22:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/425333.shtml)
+- 2026-06-29 22:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/0534459531.shtml)
+- 2026-06-29 22:32 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/39301.shtml)
+- 2026-06-29 22:53 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/56754.shtml)
+- 2026-06-29 22:50 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/0690584166.shtml)
+- 2026-06-29 22:33 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/950457963.shtml)
+- 2026-06-29 22:50 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/091228344.shtml)
+- 2026-06-29 22:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/674282877.shtml)
+- 2026-06-29 22:56 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/009328086.shtml)
+- 2026-06-29 22:33 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/36727649091.shtml)
+- 2026-06-29 22:42 - [沉睡花园](https://www.blog.minike.top/Article/details/087838243.shtml)
+- 2026-06-29 22:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/59059905480.shtml)

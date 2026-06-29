@@ -1,60 +1,57 @@
-# 中国秦发附属与浙江能源亚太订立供煤协议
+# “摘镜手术”勿盲从 医生提醒：手术并非人人适合，也不是一劳永逸
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中国秦发（00866）发布公告，SDE（公司的非全资附属公司PT Sumber Daya Energi）与浙江能源亚太订立供煤协议，内容有关浙江能源亚太向SDE购买煤炭。 SDE同意出售，而浙江能源亚太同意购买7万公吨的印度尼西亚燃料煤（基础份量）。根据供煤协议，订约方可共同协定将基础份量向上或向下调整10%。按煤炭最新价格计算，根据供煤协议购买煤炭的估计交易金额预期不超过人民
+高考后接受近视矫正成不少学生的“成人礼”，医生提醒手术并非人人适合，也不是一劳永逸 “摘镜手术”须理性规划勿盲从 这种快速的恢复节奏，恰好契合部分考生争分夺秒的需求。“根据往年规律，还有一波高考后摘镜高峰在路上。”张志华同时提醒，尽管手术恢复迅速，但考生仍需根据体检日期尽早规划，留足术前检查和术后恢复时间，避免因临时扎堆而影响报考进程。 低龄就诊者逐年增多临床上，医生有一个明显
 
 ## 正文
 
-中国秦发（00866）发布公告，SDE（公司的非全资附属公司PT Sumber Daya Energi）与浙江能源亚太订立供煤协议，内容有关浙江能源亚太向SDE购买煤炭。
+高考后接受近视矫正成不少学生的“成人礼”，医生提醒手术并非人人适合，也不是一劳永逸 “摘镜手术”须理性规划勿盲从 这种快速的恢复节奏，恰好契合部分考生争分夺秒的需求。
 
-SDE同意出售，而浙江能源亚太同意购买7万公吨的印度尼西亚燃料煤（基础份量）。
+“根据往年规律，还有一波高考后摘镜高峰在路上。
 
-根据供煤协议，订约方可共同协定将基础份量向上或向下调整10%。
+”张志华同时提醒，尽管手术恢复迅速，但考生仍需根据体检日期尽早规划，留足术前检查和术后恢复时间，避免因临时扎堆而影响报考进程。
 
-按煤炭最新价格计算，根据供煤协议购买煤炭的估计交易金额预期不超过人民币4700万元。
+低龄就诊者逐年增多临床上，医生有一个明显的感受，家长们对近视矫正手术的包容度和接受度越来越高，甚至有父母主动把“摘镜”定义为孩子的“成人礼”，带着孩子提前预约咨询，低龄就诊者逐年增多。
 
-原预期浙江能源将与SDE订立供煤协议，为期20年。
+在上海市第一人民医院屈光二科主任张妍看来，这份信任感并非凭空而来：国内激光近视矫正手术历经三十余年发展，技术已相当成熟，加上如今术前检查设备越来越精密，可筛查数十项眼部细节数据，确实让人更加安心。
 
-然而，订约方于承诺订立长期协议前需要更多时间评估其年度产能。
+但心态上的松弛，也催生了新的误区。
 
-因此，订约方于现阶段决定订立较短年期的供煤协议。
+“有些家长一味求早，却忽略了孩子的眼部发育节奏。
 
-透过订立供煤协议，集团将因浙江能源的控股公司国有发电厂的持续需求而拥有稳定的收入来源。
+”张妍说。
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 22:44 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 22:51 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 22:28 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 22:29 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 22:33 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 22:31 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 22:30 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 22:43 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 22:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 22:29 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 22:26 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 22:26 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 22:45 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 22:54 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 22:42 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 22:53 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 22:48 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 22:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 22:32 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 22:44 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 22:47 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 22:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 22:49 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 22:42 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:53 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/494018759.shtml)
-- 2026-06-29 22:28 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/56894586.shtml)
-- 2026-06-29 22:45 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/02691747064.shtml)
-- 2026-06-29 22:32 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/70714726957.shtml)
-- 2026-06-29 22:38 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/58083235016.shtml)
-- 2026-06-29 22:50 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/2353749699.shtml)
-- 2026-06-29 22:46 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/09636755885.shtml)
-- 2026-06-29 22:48 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/802236153.shtml)
-- 2026-06-29 22:25 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/316822043.shtml)
-- 2026-06-29 22:24 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/233333770601.shtml)
-- 2026-06-29 22:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/5802207072.shtml)
-- 2026-06-29 22:46 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/154363330.shtml)
-- 2026-06-29 22:46 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/37455.shtml)
-- 2026-06-29 22:31 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/711035.shtml)
-- 2026-06-29 22:32 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/53958106047.shtml)
+- 2026-06-29 22:48 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/877361350.shtml)
+- 2026-06-29 22:56 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/34477937744.shtml)
+- 2026-06-29 22:45 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/03721.shtml)
+- 2026-06-29 22:50 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/195117371.shtml)
+- 2026-06-29 22:49 - [肝不好身体这几处会“说话”](http://www.share.kurohicncr.top/Article/details/088201999.shtml)
+- 2026-06-29 22:39 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/879521850.shtml)
+- 2026-06-29 22:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/83179248.shtml)
+- 2026-06-29 22:30 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/246644194325.shtml)
+- 2026-06-29 22:35 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/5071780.shtml)
+- 2026-06-29 22:41 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/6426333.shtml)
+- 2026-06-29 22:43 - [福建海警位金门附近海域常态执法巡查](http://www.blog.minike.top/Article/details/46009636.shtml)
+- 2026-06-29 22:53 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/478597400.shtml)
+- 2026-06-29 22:38 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/47754414.shtml)
+- 2026-06-29 22:45 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/42110.shtml)
+- 2026-06-29 22:44 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/95265.shtml)

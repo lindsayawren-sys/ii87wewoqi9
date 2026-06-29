@@ -1,59 +1,56 @@
-# 广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷
+# 中金公司三方合并遭大量小股东反对 申万宏源等现金提供方是否会严重亏损？
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网东莞5月9日电 题：广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷 中新网记者 王坚 一泓碧水，见证水利发展；一脉清流，赓续文化根魂。从广东东莞市区驱车向西南，穿过大岭山森林公园层层叠叠的绿意，两汪碧水静卧于山坳深处。当地人称它们为“子母库”——上游是怀德水库，下游是大溪水水库，常年守护着当地水安全。如今，这两座水库正在迎来一场“新生”：随着大溪水怀德水库扩建工程的持续推
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 2026年6月8日晚间，中金公司、东兴证券、信达证券同步发布公告：中金公司换股吸收合并东兴证券与信达证券的相关议案，获得三家公司股东大会审议通过。 然而，中金公司股东反对票占比约10.7%；信达证券持股5%以下股东的反对比例高达46.9%，东兴证券中
 
 ## 正文
 
-中新网东莞5月9日电 题：广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷 中新网记者 王坚 一泓碧水，见证水利发展；一脉清流，赓续文化根魂。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-从广东东莞市区驱车向西南，穿过大岭山森林公园层层叠叠的绿意，两汪碧水静卧于山坳深处。
+出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 2026年6月8日晚间，中金公司、东兴证券、信达证券同步发布公告：中金公司换股吸收合并东兴证券与信达证券的相关议案，获得三家公司股东大会审议通过。
 
-当地人称它们为“子母库”——上游是怀德水库，下游是大溪水水库，常年守护着当地水安全。
+然而，中金公司股东反对票占比约10.7%；信达证券持股5%以下股东的反对比例高达46.9%，东兴证券中小股东反对率亦达18.9%；合并本就以“强强联合”之名展开，为何在中小股东层面遭遇如此强烈的反对？
 
-如今，这两座水库正在迎来一场“新生”：随着大溪水怀德水库扩建工程的持续推进，这片水域成为岭南水文化传承与创新的生动注脚。
+很大可能是因为现金选择权产生的套利空间。
 
-1949年，怀德水库主体工程基本完成，1950年7月建成通水。
+值得关注的是，一旦所有异议股东全额行使现金选择权，第三方资金提供方将付出最高约81亿元的现金接盘。
 
-清澈的库水源源不断滋养7000亩良田，有效解决了周边农田灌溉难题，改写了当地“靠天吃饭”的历史。
+在当前券商板块整体估值承压的背景下，申万宏源等资金提供方是否有亏损风险？
 
-七十六载风雨兼程。
+这些问题，将关系到万亿级券商整合能否平稳落地。
 
-怀德水库建成后，下游又建起了大溪水水库，形成“子母库”串联格局，承担防洪、灌溉、生态涵养等功能，至今发挥着重要作用。
+现金选择权目前有较大套利空间 公告显示，从整体投票结果，中金公司、信达证券、东兴证券三家券商吸收合并相关议案获得“高票通过”，中金公司相关股东的同意比例超89%，东兴证券同意比例超93%，信达证券同意比例接近95%。
 
 ## 相关推荐
 
-- 2026-06-29 22:30 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 22:33 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 22:42 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 22:33 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 22:52 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 22:26 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 22:24 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 22:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 22:34 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 22:53 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 22:53 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 22:47 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 22:39 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 22:36 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 22:55 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 22:52 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 22:56 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 22:49 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 22:44 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 22:44 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 22:39 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 22:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 22:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/418906.shtml)
-- 2026-06-29 22:38 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/74360982586.shtml)
-- 2026-06-29 22:32 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/2213451482.shtml)
-- 2026-06-29 22:52 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/616558817239.shtml)
-- 2026-06-29 22:51 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/9521866.shtml)
-- 2026-06-29 22:43 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/094864228.shtml)
-- 2026-06-29 22:33 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/6818144478.shtml)
-- 2026-06-29 22:29 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/664435691.shtml)
-- 2026-06-29 22:38 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/634256143.shtml)
-- 2026-06-29 22:34 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/36212217724.shtml)
-- 2026-06-29 22:40 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/33564028742.shtml)
-- 2026-06-29 22:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/961326239737.shtml)
-- 2026-06-29 22:52 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/356153570.shtml)
-- 2026-06-29 22:53 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/781056092.shtml)
-- 2026-06-29 22:48 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/17344.shtml)
+- 2026-06-29 22:59 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/67345084.shtml)
+- 2026-06-29 22:53 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/2559535149.shtml)
+- 2026-06-29 22:40 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/75713487.shtml)
+- 2026-06-29 22:53 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/23679836.shtml)
+- 2026-06-29 22:46 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/1972809534.shtml)
+- 2026-06-29 22:58 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/74077781.shtml)
+- 2026-06-29 22:40 - [田曦薇没招了](https://www.share.minike.top/Article/details/9150748.shtml)
+- 2026-06-29 22:57 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/86204782802.shtml)
+- 2026-06-29 22:32 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/3900037100.shtml)
+- 2026-06-29 22:41 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/8391581.shtml)
+- 2026-06-29 22:34 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/15084.shtml)
+- 2026-06-29 22:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/450572550587.shtml)
+- 2026-06-29 22:40 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/33867751282.shtml)
+- 2026-06-29 22:57 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/77879.shtml)
+- 2026-06-29 22:30 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/298965889777.shtml)

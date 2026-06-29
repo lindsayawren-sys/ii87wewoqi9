@@ -1,51 +1,59 @@
-# 今年夏天将是“史上最热夏天”？气象专家回应传言
+# 战火重燃！美伊冲突急剧升级：从霍尔木兹海峡到德黑兰的全面对抗
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网5月9日电(记者 邵萌)记者9日从中国气象局获悉，围绕“今夏将迎来史上最热夏天”等观点，国家气候中心首席预报员陈丽娟表示，据国家气候中心预测，今年夏季全国平均气温较常年偏高，高温日数较常年偏多，尤其南方和新疆更明显，但气温偏高并非失控，极端高温过程的发生有空间和时间的限定。国家气候中心的具体预测为：今年主汛期，全国大部地区气温较常年同期偏高，华北、华东、华中、华南、西南地
+汇通财经APP讯——2026年6月10日至11日，美国与伊朗之间的军事对抗骤然升级，双方在波斯湾及中东地区展开了近年来最为激烈的一轮直接交火。根据多家国际媒体的报道，美国军方在总统特朗普的直接命令下，对伊朗境内及周边目标发动了新一轮大规模打击，而伊朗方面则以关闭霍尔木兹海峡、袭击美军基地等强硬手段予以回击。这一系列事件标志着持续数月的外交努力宣告破裂，地区安全局势陷入高度紧张。
 
 ## 正文
 
-中新网5月9日电(记者 邵萌)记者9日从中国气象局获悉，围绕“今夏将迎来史上最热夏天”等观点，国家气候中心首席预报员陈丽娟表示，据国家气候中心预测，今年夏季全国平均气温较常年偏高，高温日数较常年偏多，尤其南方和新疆更明显，但气温偏高并非失控，极端高温过程的发生有空间和时间的限定。
+汇通财经APP讯——2026年6月10日至11日，美国与伊朗之间的军事对抗骤然升级，双方在波斯湾及中东地区展开了近年来最为激烈的一轮直接交火。
 
-国家气候中心的具体预测为：今年主汛期，全国大部地区气温较常年同期偏高，华北、华东、华中、华南、西南地区东部、新疆等地有阶段性高温热浪。
+根据多家国际媒体的报道，美国军方在总统特朗普的直接命令下，对伊朗境内及周边目标发动了新一轮大规模打击，而伊朗方面则以关闭霍尔木兹海峡、袭击美军基地等强硬手段予以回击。
 
-专家指出，这与网传“2026年地球即将进入新一轮极端高温阶段，今年夏天注定会是史上罕见的酷热夏天，高温来得更早、持续更久、强度更强”等说法不能直接等同。
+这一系列事件标志着持续数月的外交努力宣告破裂，地区安全局势陷入高度紧张。
 
-陈丽娟称，对大众而言，2026年夏季可能是“相对偏热、高温天气多、体感阶段性较差”的夏天，尤其南方和新疆更明显，但并非“崩溃的灾难级夏天”。
+美军发动新一轮打击：以“自卫”之名行胁迫外交之实 据美国中央司令部的消息称，美军于当地时间周三（北京时间6月11日、周四凌晨）对伊朗发动了新一轮袭击，重点打击了位于霍尔木兹海峡附近的多个防空系统和雷达站。
+
+五角大楼将此次行动定性为“胁迫式外交”，意图通过军事压力迫使德黑兰在谈判桌上做出实质性让步。
+
+美国国防部长皮特·赫格塞思在访问中央司令部坦帕总部时发表了措辞强硬的讲话，他直言不讳地表示：“如果我们需要用炸弹来谈判，那我们就用炸弹来谈判。
+
+我们精于此道，无人能及。
+
+”美国中央司令部则称这些打击为“额外的自卫打击”，用以回应伊朗方面所谓的“无端且持续的攻击行为”。
 
 ## 相关推荐
 
-- 2026-06-29 22:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 22:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 22:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 22:24 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 22:49 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 22:34 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 22:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 22:29 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 22:48 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 22:53 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 22:24 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 22:52 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 22:37 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 22:42 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 22:41 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 22:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 22:55 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 22:57 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 22:51 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 22:30 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 22:40 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 22:38 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 22:46 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 22:40 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 22:36 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 22:30 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/34307210.shtml)
-- 2026-06-29 22:43 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/556024771229.shtml)
-- 2026-06-29 22:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/2987762908.shtml)
-- 2026-06-29 22:53 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/496144023.shtml)
-- 2026-06-29 22:38 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/08637862960.shtml)
-- 2026-06-29 22:45 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/44942093457.shtml)
-- 2026-06-29 22:40 - [温网](https://www.blog.kurohicncr.top/Article/details/186470.shtml)
-- 2026-06-29 22:44 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/210657500161.shtml)
-- 2026-06-29 22:43 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/45049216.shtml)
-- 2026-06-29 22:30 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/48049529.shtml)
-- 2026-06-29 22:31 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/669461181.shtml)
-- 2026-06-29 22:50 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/695809.shtml)
-- 2026-06-29 22:31 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/835396265.shtml)
-- 2026-06-29 22:47 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/557205700.shtml)
-- 2026-06-29 22:30 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/3041222478.shtml)
+- 2026-06-29 22:55 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/682013999.shtml)
+- 2026-06-29 22:50 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/28328092.shtml)
+- 2026-06-29 22:48 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/74880560788.shtml)
+- 2026-06-29 22:36 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/388391029.shtml)
+- 2026-06-29 22:55 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/145597368.shtml)
+- 2026-06-29 22:35 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/810461.shtml)
+- 2026-06-29 22:44 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/217299197215.shtml)
+- 2026-06-29 22:48 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/3543585.shtml)
+- 2026-06-29 22:35 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/9065928.shtml)
+- 2026-06-29 22:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/779713717463.shtml)
+- 2026-06-29 22:52 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/4837024.shtml)
+- 2026-06-29 22:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/86106624331.shtml)
+- 2026-06-29 22:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/3495784576.shtml)
+- 2026-06-29 22:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/13919866.shtml)
+- 2026-06-29 22:41 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/9102659762.shtml)

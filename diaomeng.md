@@ -1,59 +1,59 @@
-# 双鹭药业：炒股巨亏、信托暴雷、主业萎缩，曾经的“白马股”还能撑多久？
+# 共筑友谊路——阿布贾高速路见证中尼合作情谊
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-2025年营收6.24亿元，炒股亏损2亿元，7.64亿元信托本金难以追回，董事长“自掏腰包”补缺，却难掩公司内控崩塌、业绩断崖、主业疲软的现实。双鹭药业正陷入一场难以轻松脱身的“中年危机”。 一、内控失灵：信托迷局背后的管理黑洞 双鹭药业在2026年5月公告中承认，公司原财务人员隋某某涉嫌利用职务便利侵占公司利益，导致通过信托产品对外提供的7.64亿元本金难以收回。尽管公司已报
+新华社阿布贾6月10日电 通讯｜共筑友谊路——阿布贾高速路见证中尼合作情谊 新华社记者洪泽华 9日，在尼日利亚首都阿布贾东南侧，一条崭新的双向六车道公路正式竣工。该路段将阿布贾一环路与二环路相连，投入使用后将大幅改善当地交通状况，提升阿布贾城市形象与投资吸引力。 这条道路由中地海外尼日利亚有限公司承建，连接阿布贾重要功能区和发展新区，为当地重点基础设施项目。项目包括新建双向6排
 
 ## 正文
 
-2025年营收6.24亿元，炒股亏损2亿元，7.64亿元信托本金难以追回，董事长“自掏腰包”补缺，却难掩公司内控崩塌、业绩断崖、主业疲软的现实。
+新华社阿布贾6月10日电 通讯｜共筑友谊路——阿布贾高速路见证中尼合作情谊 新华社记者洪泽华 9日，在尼日利亚首都阿布贾东南侧，一条崭新的双向六车道公路正式竣工。
 
-双鹭药业正陷入一场难以轻松脱身的“中年危机”。
+该路段将阿布贾一环路与二环路相连，投入使用后将大幅改善当地交通状况，提升阿布贾城市形象与投资吸引力。
 
-一、内控失灵：信托迷局背后的管理黑洞 双鹭药业在2026年5月公告中承认，公司原财务人员隋某某涉嫌利用职务便利侵占公司利益，导致通过信托产品对外提供的7.64亿元本金难以收回。
+这条道路由中地海外尼日利亚有限公司承建，连接阿布贾重要功能区和发展新区，为当地重点基础设施项目。
 
-尽管公司已报案并立案，但事件暴露出其内部控制的严重缺陷——不仅未履行必要的审议程序，信披也不准确，深交所因此对公司及高管给予公开谴责。
+项目包括新建双向6排主行车道、2座桥梁、3座人行天桥，工期约8个月，于2025年10月开工建设。
 
-更令人担忧的是，董事长徐明波虽承诺补足差额并已先行缴纳5000万元，但其年薪仅31.85万元（2025年），持股比例22.62%，能否真正兜底仍是未知数。
+竣工仪式现场，尼日利亚参议院议长戈德斯威尔·阿克帕比奥代表总统提努布出席仪式并致辞。
 
-对于一家年营收刚过6亿元的企业来说，7.64亿元的潜在损失几乎是“灭顶之灾”。
+尼日利亚政府要员、议员、中国驻尼日利亚大使馆参赞孙学昆、中地海外尼日利亚有限公司总经理钟翔等出席仪式。
 
-二、沉迷“炒股”与投资：业绩的过山车游戏 近年来，双鹭药业的业绩表现与资本市场波动高度绑定，已然偏离了制药主业的稳健逻辑。
+竣工仪式结束后，中方项目副总工杨香伟与尼方工程师森迪握手道别。
 
-2023年，持仓股价上涨，贡献公允价值收益1.97亿元；2024年，股价回调，公允价值变动损失1.78亿元，导致公司上市以来首次年度净利润亏损；2025年前三季度，公允价值“由亏转盈”，归母净利润短暂暴增943.1%；2025年全年，理财投资亏损6.04亿元，公允价值收益3.54亿元，净拖累2.5亿元，全年净亏损3.47亿元。
+过去8个月里，他们与数百名中尼建设者并肩奋战，如今项目交付，两人相约未来在新的项目上再见。
 
 ## 相关推荐
 
-- 2026-06-29 22:42 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 22:43 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 22:50 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 22:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 22:37 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 22:53 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 22:53 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 22:33 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 22:27 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 22:40 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 22:39 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 22:47 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 22:29 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 22:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 22:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 22:59 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 22:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 22:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 22:33 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 22:48 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 22:46 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 22:33 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 22:55 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 22:34 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 22:55 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 22:31 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:26 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/860863.shtml)
-- 2026-06-29 22:43 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/30016.shtml)
-- 2026-06-29 22:47 - [沙丘](http://www.share.kurohicncr.top/Article/details/7835517656.shtml)
-- 2026-06-29 22:43 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/6019485.shtml)
-- 2026-06-29 22:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/81736730202.shtml)
-- 2026-06-29 22:37 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/39076533.shtml)
-- 2026-06-29 22:30 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/8122442477.shtml)
-- 2026-06-29 22:40 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/134598374.shtml)
-- 2026-06-29 22:47 - [沙丘](https://www.share.kurohicncr.top/Article/details/973221962.shtml)
-- 2026-06-29 22:36 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/5823251.shtml)
-- 2026-06-29 22:37 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/31804.shtml)
-- 2026-06-29 22:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/8078850667.shtml)
-- 2026-06-29 22:51 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/6122945708.shtml)
-- 2026-06-29 22:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/9831208961.shtml)
-- 2026-06-29 22:51 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/2732563655.shtml)
+- 2026-06-29 22:57 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/732219.shtml)
+- 2026-06-29 22:49 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/1747181.shtml)
+- 2026-06-29 22:38 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/0423099328.shtml)
+- 2026-06-29 22:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/28618.shtml)
+- 2026-06-29 22:37 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/597266.shtml)
+- 2026-06-29 22:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/415101.shtml)
+- 2026-06-29 22:36 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/714940123.shtml)
+- 2026-06-29 22:51 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/2354722870.shtml)
+- 2026-06-29 22:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/46909382785.shtml)
+- 2026-06-29 22:47 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/13281472.shtml)
+- 2026-06-29 22:32 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/38728.shtml)
+- 2026-06-29 22:49 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/93602.shtml)
+- 2026-06-29 22:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/911242480.shtml)
+- 2026-06-29 22:51 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/7492498398.shtml)
+- 2026-06-29 22:49 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/926424859464.shtml)

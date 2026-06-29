@@ -1,58 +1,60 @@
-# 同江水运口岸开通至俄罗斯明水期客货运输
+# 贵州茅台董事长陈华：价格不能出现大起大落，公司暂无拆股计划
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网佳木斯5月8日电(姜辉 李宁)随着中俄界江黑龙江全线开江进入明水期，8日，同江水运口岸东部作业区码头汽笛鸣响，“龙渡004”滚装船载着6辆货车、1辆客车及80名旅客缓缓驶离泊位，驶向俄罗斯下列宁斯阔耶港，拉开同江口岸2026年明水期客货运输序幕。 8日9时许，同江水运口岸东部作业区联检大厅里，办理出入境手续的旅客络绎不绝，他们携带着行李，秩序井然地排队等待办理通关手续。移
+专题：贵州茅台2025年度股东大会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：e公司 6月11日下午，贵州茅台（600519）2025年度股东会在茅台会议中心召开，来自全国千余名茅台股东、机构投资者与分析师齐聚茅台镇。 针对茅台酒价格问题，茅台集团董事长陈华表示，将随行就市，相对平稳，价格不能出现大起大落，供需适配、量价平衡。目前，茅台酒价格
 
 ## 正文
 
-中新网佳木斯5月8日电(姜辉 李宁)随着中俄界江黑龙江全线开江进入明水期，8日，同江水运口岸东部作业区码头汽笛鸣响，“龙渡004”滚装船载着6辆货车、1辆客车及80名旅客缓缓驶离泊位，驶向俄罗斯下列宁斯阔耶港，拉开同江口岸2026年明水期客货运输序幕。
+专题：贵州茅台2025年度股东大会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-8日9时许，同江水运口岸东部作业区联检大厅里，办理出入境手续的旅客络绎不绝，他们携带着行李，秩序井然地排队等待办理通关手续。
+来源：e公司 6月11日下午，贵州茅台（600519）2025年度股东会在茅台会议中心召开，来自全国千余名茅台股东、机构投资者与分析师齐聚茅台镇。
 
-移民管理警察引导旅客有序通关，证件检查、车辆查验、船舶监护各环节衔接顺畅，实现了“即到即检、快速放行”。
+针对茅台酒价格问题，茅台集团董事长陈华表示，将随行就市，相对平稳，价格不能出现大起大落，供需适配、量价平衡。
 
-为保障通航首日平稳运行，同江出入境边防检查站提前制定专项勤务方案，优化通关流程，通过加开查验通道、台外引导等便利措施，最大限度压缩通关时间，提升跨境人员、车辆、船舶通行效率。
+目前，茅台酒价格调整社会高度关注，公司对此高度保密，网上流传有各种信息，大家不传谣、不信谣。
 
-同江水运口岸东部作业区与俄罗斯下列宁斯阔耶口岸仅一江之隔，水上最近距离1公里，此次从同江出境的船只最多可搭载130名旅客，载重量可达390吨。
+针对拆股问题，陈华表示，股东观点目前不统一、分化明显，综合研判，公司目前暂无拆股计划。
 
-作为中俄两国重要的水上贸易通道，同江水运口岸东部作业区年过客能力达50万人次，年过货能力达60万吨。
+此次股东会还出现了有趣的一幕：10日晚，贵州茅台为股东准备了自助餐欢迎晚宴，没有提供白酒品鉴，仅供应可乐、雪碧、橙汁等常见饮料。
 
-(完)
+现场，有投资者吐槽茅台应主动推广饮酒文化，借股东会适时营销自家产品；有股东无奈自带白酒饮用。
+
+11日中午，茅台为参会股东准备了自助午餐，将可乐、雪碧等碳酸饮料撤下，转而提供茶、咖啡、果汁等饮品。
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 22:42 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 22:28 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 22:37 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 22:33 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 22:50 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 22:48 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 22:27 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 22:25 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 22:33 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 22:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 22:25 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 22:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 22:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 22:39 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 22:37 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 22:51 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 22:51 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 22:42 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 22:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 22:31 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 22:31 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 22:31 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 22:35 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 22:55 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 22:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 22:48 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 22:45 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/029849.shtml)
-- 2026-06-29 22:42 - [田曦薇没招了](http://www.share.minike.top/Article/details/162329.shtml)
-- 2026-06-29 22:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/9866714.shtml)
-- 2026-06-29 22:34 - [金牌调解](http://www.share.minike.top/Article/details/178390335675.shtml)
-- 2026-06-29 22:47 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/034420427939.shtml)
-- 2026-06-29 22:47 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/82026273.shtml)
-- 2026-06-29 22:42 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/321537967.shtml)
-- 2026-06-29 22:38 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/272595.shtml)
-- 2026-06-29 22:38 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/33210916.shtml)
-- 2026-06-29 22:37 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/718868.shtml)
-- 2026-06-29 22:29 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/51746.shtml)
-- 2026-06-29 22:48 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/647432270696.shtml)
-- 2026-06-29 22:38 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/8974307465.shtml)
-- 2026-06-29 22:53 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/98807037115.shtml)
-- 2026-06-29 22:49 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/490653.shtml)
+- 2026-06-29 22:30 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/937684.shtml)
+- 2026-06-29 22:35 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/42069037.shtml)
+- 2026-06-29 22:51 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/864283557.shtml)
+- 2026-06-29 22:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/95126.shtml)
+- 2026-06-29 22:33 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/7064235.shtml)
+- 2026-06-29 22:40 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/4983198.shtml)
+- 2026-06-29 22:31 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/764380.shtml)
+- 2026-06-29 22:54 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/2589585058.shtml)
+- 2026-06-29 22:59 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/3307399064.shtml)
+- 2026-06-29 22:33 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/73903496.shtml)
+- 2026-06-29 22:53 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/308114478770.shtml)
+- 2026-06-29 22:35 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/740342.shtml)
+- 2026-06-29 22:31 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/17625304.shtml)
+- 2026-06-29 22:57 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/066610.shtml)
+- 2026-06-29 22:53 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/5288588444.shtml)

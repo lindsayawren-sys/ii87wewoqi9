@@ -1,61 +1,61 @@
-# 汉堡连锁Shake Shack爆出经营亏损，股价暴跌30%
+# 美伊交火加剧霍尔木兹海峡局势 多艘液化天然气船“关闭应答器”暗中通关
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 这家汉堡连锁企业公布营业亏损 260 万美元后，周四早盘股价重挫 30%。 根据路孚特对分析师的调查，公司盈利与营收均低于华尔街预期。 Shake Shack 当季每股收益盈亏持平，远不及市场预期的每股盈利 12 美分；季度营收为 3.67 亿美元，低于预期的 3.72 亿美元。 在财报电话会议上，Shake Shack 首席执行
+综合外电报道，随着美国与伊朗在霍尔木兹海峡周边的军事冲突连续升级，全球能源运输关键航道局势持续恶化。最新船舶跟踪数据表明，多艘液化天然气（LNG）油轮近期通过关闭自动识别系统（AIS）应答器的“暗中通航”方式驶出霍尔木兹海峡，以规避地缘政治冲突带来的安全风险。 美国与伊朗军队周四（11日）在相关区域连续第二天展开交火与空袭。美国国防部及有关方面声称，美军向一艘运载伊朗石油的船只
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 这家汉堡连锁企业公布营业亏损 260 万美元后，周四早盘股价重挫 30%。
+综合外电报道，随着美国与伊朗在霍尔木兹海峡周边的军事冲突连续升级，全球能源运输关键航道局势持续恶化。
 
-根据路孚特对分析师的调查，公司盈利与营收均低于华尔街预期。
+最新船舶跟踪数据表明，多艘液化天然气（LNG）油轮近期通过关闭自动识别系统（AIS）应答器的“暗中通航”方式驶出霍尔木兹海峡，以规避地缘政治冲突带来的安全风险。
 
-Shake Shack 当季每股收益盈亏持平，远不及市场预期的每股盈利 12 美分；季度营收为 3.67 亿美元，低于预期的 3.72 亿美元。
+美国与伊朗军队周四（11日）在相关区域连续第二天展开交火与空袭。
 
-在财报电话会议上，Shake Shack 首席执行官罗布・林奇表示，冬季暴风雪天气、以及公司上调今年新店扩张目标，共同拖累了季度息税折旧摊销前利润（EBITDA）。
+美国国防部及有关方面声称，美军向一艘运载伊朗石油的船只开火，并对伊朗境内多处目标实施了打击。
 
-同时企业还面临牛肉成本走高的压力，不过牛肉涨价幅度已较去年有所放缓。
+美国总统唐纳德·特朗普随后发表声明强调，华盛顿已准备好对德黑兰实施进一步军事打击，除非伊朗方面同意签署和平协议。
 
-全年业绩指引方面，公司将息税折旧摊销前利润预期区间拓宽至2.3 亿 —2.45 亿美元；营收预期维持不变，仍为16 亿 —17 亿美元。
+受美伊军事对抗升级影响，霍尔木兹海峡的商业航运面临严峻的安全威胁。
 
-Shake Shack 同时预计，中东战事将继续拖累今年整体业绩。
+伦敦证券交易所集团（LSEG）与大宗商品数据分析公司Kpler的最新航运数据显示，至少有三艘大型液化天然气油轮此前在 Persian Gulf 内部“去向不明”，直至6月10日才重新出现在中东海域以外的船舶追踪系统屏幕上。
 
-该品牌在中东拥有数十家授权加盟店。
+分析表明，这些船只在通过海峡时均采取了关闭应答器的隐蔽手段，导致其通过霍尔木兹海峡的确切时间无法被实时监测。
 
 ## 相关推荐
 
-- 2026-06-29 22:33 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 22:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 22:50 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 22:24 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 22:39 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 22:36 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 22:49 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 22:43 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 22:28 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 22:26 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 22:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 22:35 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 22:51 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 22:52 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 22:51 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 22:31 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 22:36 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 22:57 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 22:33 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 22:34 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 22:53 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 22:39 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 22:43 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 22:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 22:35 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 22:51 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 22:34 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 22:32 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 22:56 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 22:38 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [记者：预计热火将追求小哈达威和康利](http://www.blog.kurohicncr.top/Article/details/7550502.shtml)
-- 2026-06-29 22:46 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/15672.shtml)
-- 2026-06-29 22:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/4272371.shtml)
-- 2026-06-29 22:29 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/780779734.shtml)
-- 2026-06-29 22:34 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/95014.shtml)
-- 2026-06-29 22:33 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/8832376258.shtml)
-- 2026-06-29 22:24 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/80043914921.shtml)
-- 2026-06-29 22:44 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/04161130.shtml)
-- 2026-06-29 22:51 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/01237.shtml)
-- 2026-06-29 22:24 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/27665154472.shtml)
-- 2026-06-29 22:50 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/5027041.shtml)
-- 2026-06-29 22:30 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/767246.shtml)
-- 2026-06-29 22:30 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/86554418876.shtml)
-- 2026-06-29 22:31 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/498140.shtml)
-- 2026-06-29 22:27 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/29009096971.shtml)
+- 2026-06-29 22:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/44275107290.shtml)
+- 2026-06-29 22:36 - [恋与深空 日服](http://www.share.minike.top/Article/details/249162.shtml)
+- 2026-06-29 22:57 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/90334616759.shtml)
+- 2026-06-29 22:47 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/3295244.shtml)
+- 2026-06-29 22:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/60171.shtml)
+- 2026-06-29 22:58 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/95497851746.shtml)
+- 2026-06-29 22:47 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/001333568.shtml)
+- 2026-06-29 22:31 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/74366.shtml)
+- 2026-06-29 22:53 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/796957.shtml)
+- 2026-06-29 22:55 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/717652.shtml)
+- 2026-06-29 22:33 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/32467.shtml)
+- 2026-06-29 22:52 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/14368.shtml)
+- 2026-06-29 22:51 - [月亮](http://www.share.minike.top/Article/details/7498020.shtml)
+- 2026-06-29 22:37 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/823745586221.shtml)
+- 2026-06-29 22:31 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/4642409292.shtml)

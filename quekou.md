@@ -1,60 +1,49 @@
-# 万份收益不足3毛，天弘余额宝连续6天“七日年化收益率”低于1％
+# 三花智控遭Schroders PLC减持136.63万股 每股作价约30.48港元
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-来源：华夏时报 截至5月7日，天弘余额宝已连续6个交易日“七日年化收益率”低于1%。该基金于5月2日迎来自2016年5月9日以来的首次破1%关口，当日收益率从5月1日的1.0%降至0.999%。此后收益率持续下行，5月7日触及0.89%的历史最低水平。 与收益下行形成鲜明对比的是，货币基金总规模在2026年3月末达到15.58万亿元的历史新高，年内新增超过5720亿元。其中，仅
+香港联交所最新资料显示，6月8日，Schroders PLC减持三花智控（02050）136.63万股，每股作价30.4838港元，总金额约为4165万港元。减持后最新持股数目为6108.82万股，最新持股比例为12.82%。责任编辑：卢昱君
 
 ## 正文
 
-来源：华夏时报 截至5月7日，天弘余额宝已连续6个交易日“七日年化收益率”低于1%。
+香港联交所最新资料显示，6月8日，Schroders PLC减持三花智控（02050）136.63万股，每股作价30.4838港元，总金额约为4165万港元。
 
-该基金于5月2日迎来自2016年5月9日以来的首次破1%关口，当日收益率从5月1日的1.0%降至0.999%。
+减持后最新持股数目为6108.82万股，最新持股比例为12.82%。
 
-此后收益率持续下行，5月7日触及0.89%的历史最低水平。
-
-与收益下行形成鲜明对比的是，货币基金总规模在2026年3月末达到15.58万亿元的历史新高，年内新增超过5720亿元。
-
-其中，仅天弘余额宝一只产品就超7000亿元规模、7.8亿户持有人。
-
-这一“低收益、高规模”的现象，折射出在流动性刚需驱动下，投资者对零钱管理工具的深度依赖。
-
-逾两成货基收益率跌破1% 根据最新数据，天弘余额宝5月7日的“七日年化收益率”已降至0.89%，每万元年收益仅89元，折合单日万份收益约0.24元。
-
-这一水平较2023年约2%、2024年约1.5%以及2025年末约1.1%的收益率持续下行，创下十年来的最低纪录。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:40 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 22:26 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 22:38 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 22:27 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 22:30 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 22:34 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 22:29 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 22:52 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 22:29 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 22:33 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 22:39 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 22:39 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 22:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 22:39 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 22:59 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 22:54 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 22:50 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 22:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 22:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 22:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 22:56 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 22:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 22:35 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 22:48 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 22:55 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 22:54 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 22:44 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:31 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/894306.shtml)
-- 2026-06-29 22:47 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/9682500011.shtml)
-- 2026-06-29 22:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/32934127.shtml)
-- 2026-06-29 22:31 - [乌克兰发广告全球征兵](https://www.blog.minike.top/Article/details/608326852541.shtml)
-- 2026-06-29 22:39 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/08849418.shtml)
-- 2026-06-29 22:35 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/28955413641.shtml)
-- 2026-06-29 22:51 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/41270475798.shtml)
-- 2026-06-29 22:38 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/2846201.shtml)
-- 2026-06-29 22:30 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/895054.shtml)
-- 2026-06-29 22:29 - [爱奇艺抬高国剧新标尺](http://www.share.kurohicncr.top/Article/details/26669.shtml)
-- 2026-06-29 22:28 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/47033145.shtml)
-- 2026-06-29 22:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/9156943.shtml)
-- 2026-06-29 22:32 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/5050264.shtml)
-- 2026-06-29 22:51 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/5984137.shtml)
-- 2026-06-29 22:28 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/339930834.shtml)
+- 2026-06-29 22:42 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/8826065462.shtml)
+- 2026-06-29 22:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/24290478778.shtml)
+- 2026-06-29 22:36 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/200552631582.shtml)
+- 2026-06-29 22:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/4032273235.shtml)
+- 2026-06-29 22:58 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/284684.shtml)
+- 2026-06-29 22:45 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/67726.shtml)
+- 2026-06-29 22:44 - [乔家的儿女](https://www.share.minike.top/Article/details/30184.shtml)
+- 2026-06-29 22:54 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/570699117.shtml)
+- 2026-06-29 22:30 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/123650514.shtml)
+- 2026-06-29 22:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/40061356416.shtml)
+- 2026-06-29 22:39 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/39688798.shtml)
+- 2026-06-29 22:38 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/675030.shtml)
+- 2026-06-29 22:55 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/32164094.shtml)
+- 2026-06-29 22:31 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/48475390.shtml)
+- 2026-06-29 22:41 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/6845760688.shtml)

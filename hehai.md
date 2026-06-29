@@ -1,54 +1,58 @@
-# 青海玛沁突发山体崩塌导致227国道部分路段中断
+# 端午假期国内机票预订量超180万张 民俗游持续升温
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-新华社西宁5月8日电(记者王浡)记者从青海省交通运输厅获悉，受持续降雨天气影响，5月7日10时09分，G227张(掖)孟(连)公路青海段，果洛藏族自治州玛沁县拉加镇赞根村K748+500米处突发山体崩塌，造成道路全幅中断、车辆滞留，并引发道路交通安全事故。目前，该路段实行全幅封闭、双向交通阻断，暂不具备通行条件。据现场勘查核实，本次崩塌山体地势陡峭，山体近乎垂直呈90度，山体高
+随着端午假期的临近，假期机票预订量持续增长，部分节日氛围浓厚的目的地吸引大量旅客前往，民俗游成为端午出行的增长动力。 航旅纵横大数据显示，截至6月10日，端午假期国内航线机票预订量超183万张；出入境航线机票预订量超58万张，同比增长约8%。北京、上海、广州、成都等地依旧是出行的热门目的地。其中广州、深圳在节日期间举办龙舟赛、龙舟宴等传统民俗活动，浓厚的端午氛围吸引大量旅客专程
 
 ## 正文
 
-新华社西宁5月8日电(记者王浡)记者从青海省交通运输厅获悉，受持续降雨天气影响，5月7日10时09分，G227张(掖)孟(连)公路青海段，果洛藏族自治州玛沁县拉加镇赞根村K748+500米处突发山体崩塌，造成道路全幅中断、车辆滞留，并引发道路交通安全事故。
+随着端午假期的临近，假期机票预订量持续增长，部分节日氛围浓厚的目的地吸引大量旅客前往，民俗游成为端午出行的增长动力。
 
-目前，该路段实行全幅封闭、双向交通阻断，暂不具备通行条件。
+航旅纵横大数据显示，截至6月10日，端午假期国内航线机票预订量超183万张；出入境航线机票预订量超58万张，同比增长约8%。
 
-据现场勘查核实，本次崩塌山体地势陡峭，山体近乎垂直呈90度，山体高度50余米，临路绵延长度200余米。
+北京、上海、广州、成都等地依旧是出行的热门目的地。
 
-经无人机航拍勘查，山体表层覆盖30厘米厚度腐殖土，岩体风化裸露严重，山体顶部存在明显裂隙，地质结构稳定性较差。
+其中广州、深圳在节日期间举办龙舟赛、龙舟宴等传统民俗活动，浓厚的端午氛围吸引大量旅客专程打卡，机票预订量同比增长均超10%。
 
-本次崩塌起始于距地面2米位置，塌面贯通至山体顶部，塌方总量约2000立方米，受阻路段长度200米，导致双向滞留车辆50余辆。
+此外，这个端午假期，“草原游”也热度空前。
 
-险情发生后，省、州、县各级交通、应急、自然资源、公安交警等部门快速响应、协同处置，目前，滞留车辆已全部疏散，现场正进行危岩体清理工作。
+大数据显示，呼伦贝尔成为今年端午假期机票预订量增速最快的旅游目的地之一，同比增长约100%；与此同时，锡林浩特、呼和浩特等多个内蒙古城市的机票预订量增速也位居全国前列，草原骑马、星空露营成为游客避暑新玩法。
 
-据悉，该路段具体恢复通行时间将根据山体稳定性监测及抢险施工进度另行通告，交通运输部门将持续跟踪险情动态，及时发布最新处置进展，尽快抢通受损道路。
+暑期国际航线机票预订热度快速增长 近期不仅是端午假期机票预订量在持续走高，假期后即将到来的暑期国际航线机票预订热度也在快速增长，出境游和入境游双向火爆。
+
+每年暑期都是出入境旅游的旺季。
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 22:28 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 22:28 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 22:29 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 22:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 22:38 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 22:41 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 22:49 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 22:38 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 22:52 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 22:58 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 22:49 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 22:37 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 22:51 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 22:46 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 22:43 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 22:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 22:41 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 22:44 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 22:41 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 22:43 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 22:41 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:29 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/08667065.shtml)
-- 2026-06-29 22:47 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/207845204296.shtml)
-- 2026-06-29 22:32 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/3583689111.shtml)
-- 2026-06-29 22:28 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/75065.shtml)
-- 2026-06-29 22:33 - [小娘惹](https://www.share.minike.top/Article/details/24811.shtml)
-- 2026-06-29 22:41 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/32203.shtml)
-- 2026-06-29 22:44 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/64825458.shtml)
-- 2026-06-29 22:49 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/77833547209.shtml)
-- 2026-06-29 22:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/0164503042.shtml)
-- 2026-06-29 22:33 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/810570.shtml)
-- 2026-06-29 22:53 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/949535.shtml)
-- 2026-06-29 22:33 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/24274.shtml)
-- 2026-06-29 22:24 - [温网](https://www.share.kurohicncr.top/Article/details/619772101840.shtml)
-- 2026-06-29 22:39 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/7581406.shtml)
-- 2026-06-29 22:44 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/571634.shtml)
+- 2026-06-29 22:41 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/42673040088.shtml)
+- 2026-06-29 22:39 - [金牌调解](https://www.blog.minike.top/Article/details/63853.shtml)
+- 2026-06-29 22:32 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/61399.shtml)
+- 2026-06-29 22:45 - [极限挑战第一季](http://www.share.minike.top/Article/details/326460735.shtml)
+- 2026-06-29 22:43 - [世界杯](https://www.blog.kurohicncr.top/Article/details/2772002806.shtml)
+- 2026-06-29 22:47 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/33596302000.shtml)
+- 2026-06-29 22:57 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/1765248.shtml)
+- 2026-06-29 22:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/542561175.shtml)
+- 2026-06-29 22:41 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/8769492658.shtml)
+- 2026-06-29 22:40 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/9810856117.shtml)
+- 2026-06-29 22:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/1039201785.shtml)
+- 2026-06-29 22:50 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/789416408.shtml)
+- 2026-06-29 22:39 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/0200175.shtml)
+- 2026-06-29 22:50 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/3818584061.shtml)
+- 2026-06-29 22:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/52930810.shtml)

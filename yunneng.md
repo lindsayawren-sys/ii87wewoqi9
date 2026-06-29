@@ -1,47 +1,47 @@
-# 华勤技术获富国基金增持21.13万股 每股作价约90.42港元
+# 伊朗：已向地区内美国目标发射导弹和无人机
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，5月4日，富国基金增持华勤技术（03296）21.13万股，每股作价90.4152港元，总金额约为1910.47万港元。增持后最新持股数目为370.07万股，持股比例为6.32%。责任编辑：卢昱君
+中新网6月10日电 据美国有线电视新闻网(CNN)报道，当地时间10日，伊朗伊斯兰革命卫队在社交媒体上发布消息称，“已向地区内美国目标发射导弹和无人机”。 据报道，美国在一架美军直升机被击落事件后，宣布对伊朗实施报复性打击。伊朗媒体报道称，伊朗南部锡里克地区、格什姆岛等霍尔木兹甘省多地发生爆炸。
 
 ## 正文
 
-香港联交所最新数据显示，5月4日，富国基金增持华勤技术（03296）21.13万股，每股作价90.4152港元，总金额约为1910.47万港元。
+中新网6月10日电 据美国有线电视新闻网(CNN)报道，当地时间10日，伊朗伊斯兰革命卫队在社交媒体上发布消息称，“已向地区内美国目标发射导弹和无人机”。
 
-增持后最新持股数目为370.07万股，持股比例为6.32%。
+据报道，美国在一架美军直升机被击落事件后，宣布对伊朗实施报复性打击。
 
-责任编辑：卢昱君
+伊朗媒体报道称，伊朗南部锡里克地区、格什姆岛等霍尔木兹甘省多地发生爆炸。
 
 ## 相关推荐
 
-- 2026-06-29 22:35 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 22:32 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 22:40 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 22:45 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 22:32 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 22:25 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 22:27 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 22:31 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 22:31 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 22:38 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 22:39 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 22:49 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 22:48 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 22:43 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 22:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 22:32 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 23:00 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 22:55 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 22:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 22:46 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 22:56 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 22:55 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:27 - [炽夏](https://www.blog.kurohicncr.top/Article/details/96697131215.shtml)
-- 2026-06-29 22:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/3084501969.shtml)
-- 2026-06-29 22:36 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/243301734078.shtml)
-- 2026-06-29 22:42 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/25782782601.shtml)
-- 2026-06-29 22:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/887420.shtml)
-- 2026-06-29 22:49 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/1371468803.shtml)
-- 2026-06-29 22:28 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/101091680.shtml)
-- 2026-06-29 22:52 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/69524.shtml)
-- 2026-06-29 22:30 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/681159044.shtml)
-- 2026-06-29 22:36 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/02954.shtml)
-- 2026-06-29 22:32 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/88238.shtml)
-- 2026-06-29 22:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/086151941066.shtml)
-- 2026-06-29 22:25 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/16536.shtml)
-- 2026-06-29 22:29 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/5056729471.shtml)
-- 2026-06-29 22:38 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/11340200395.shtml)
+- 2026-06-29 22:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/74456146445.shtml)
+- 2026-06-29 22:43 - [毒液2](https://www.blog.kurohicncr.top/Article/details/0182315.shtml)
+- 2026-06-29 22:37 - [英法德葡存在什么隐患](https://www.share.minike.top/Article/details/47615.shtml)
+- 2026-06-29 22:37 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/972667.shtml)
+- 2026-06-29 22:32 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/79143.shtml)
+- 2026-06-29 22:52 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/82238837.shtml)
+- 2026-06-29 22:54 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/8954762.shtml)
+- 2026-06-29 22:50 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/01627307302.shtml)
+- 2026-06-29 22:54 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/7198669818.shtml)
+- 2026-06-29 22:49 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/04722.shtml)
+- 2026-06-29 22:59 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/328080.shtml)
+- 2026-06-29 22:52 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/21077143.shtml)
+- 2026-06-29 22:43 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/0016767487.shtml)
+- 2026-06-29 22:31 - [世界杯高票价为何没劝退球迷](http://www.share.kurohicncr.top/Article/details/11524576541.shtml)
+- 2026-06-29 22:40 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/89052704890.shtml)

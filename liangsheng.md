@@ -1,45 +1,59 @@
-# 精神航空公司清算将重新分配资产和航线
+# （活力中国调研行）北京建设“人工智能第一城” 打造全球科学智能创新策源地和产业高地
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-精神航空公司（Spirit Airlines）开始有序关闭，出租方收回了其90多架飞机中的大部分，该公司正寻求将28架自有A320系列飞机、登机口和起降时刻变现；在一桩过失致死诉讼之后，法律 scrutiny加剧，此次关闭导致宾夕法尼亚州拉特罗布等机场失去了商业航班服务。责任编辑：张俊 SF065
+中新网北京6月11日电 (记者 陈杭 卢晓娜)记者11日从2026年“活力中国调研行”主题采访活动中获悉，北京将通过开放合作、协同创新，推动人工智能与科学研究的双向奔赴，打造全球科学智能创新策源地和产业高地。近年来，北京市以建设具有国际影响力的人工智能创新策源地和产业高地为主线，推动科技创新与产业融合，系统布局人工智能产业发展，持续建设“人工智能第一城”。2025年全市人工智能
 
 ## 正文
 
-精神航空公司（Spirit Airlines）开始有序关闭，出租方收回了其90多架飞机中的大部分，该公司正寻求将28架自有A320系列飞机、登机口和起降时刻变现；在一桩过失致死诉讼之后，法律 scrutiny加剧，此次关闭导致宾夕法尼亚州拉特罗布等机场失去了商业航班服务。
+中新网北京6月11日电 (记者 陈杭 卢晓娜)记者11日从2026年“活力中国调研行”主题采访活动中获悉，北京将通过开放合作、协同创新，推动人工智能与科学研究的双向奔赴，打造全球科学智能创新策源地和产业高地。
 
-责任编辑：张俊 SF065
+近年来，北京市以建设具有国际影响力的人工智能创新策源地和产业高地为主线，推动科技创新与产业融合，系统布局人工智能产业发展，持续建设“人工智能第一城”。
+
+2025年全市人工智能企业突破2500家，核心产业规模超4500亿元，已备案大模型241款，持续保持全国第一。
+
+北京坚持通用与专用模型双轮驱动，推动中国科学院发布国内首个通用科学基础大模型磐石、北京科学智能研究院发布全球首个微观世界大原子DPA系列模型、中关村研究院发布密度泛函模型MegaDFT、北京智源人工智能研究院发布Opencomplex系列全原子微观生命模型，模型性能全球领先，其中DPA4登顶材料科学AI国际双榜。
+
+同时，推动北京科学智能研究院联合北京深势科技股份有限公司产出全球首个全流程AI科研平台玻尔科研空间站，注册用户已超450万，在全国190余所高校院所以及150余家企业上线应用；推动深势科技发布智能实验室操作系统Uni-Lab-OS，已接入1800余种仪器设备型号，支持自然语言全流程控制实验。
+
+未来，北京将立足资源优势，深化与全球的开放合作，打造各要素协同、全链条闭环的科学智能创新生态。
+
+北京将着力夯实科学智能基础设施。
+
+持续推动科学基础模型升级迭代，协同布局通用大模型与专用模型。
 
 ## 相关推荐
 
-- 2026-06-29 22:42 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 22:28 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 22:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 22:41 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 22:34 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 22:37 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 22:27 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 22:38 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 22:50 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 22:24 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 22:38 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 22:44 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 22:59 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 22:43 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 22:43 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 22:41 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 22:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 22:39 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 22:35 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 22:32 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 22:48 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 22:57 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 22:31 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 22:48 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:40 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/46634.shtml)
-- 2026-06-29 22:31 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/96751717.shtml)
-- 2026-06-29 22:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/1194295.shtml)
-- 2026-06-29 22:29 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/48982.shtml)
-- 2026-06-29 22:47 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/1695791.shtml)
-- 2026-06-29 22:49 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/497761264.shtml)
-- 2026-06-29 22:48 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/301803.shtml)
-- 2026-06-29 22:45 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/19357.shtml)
-- 2026-06-29 22:38 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/933523204.shtml)
-- 2026-06-29 22:52 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/06429000.shtml)
-- 2026-06-29 22:47 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/993846861410.shtml)
-- 2026-06-29 22:48 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/43052263441.shtml)
-- 2026-06-29 22:40 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/2578406.shtml)
-- 2026-06-29 22:52 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/204551395935.shtml)
-- 2026-06-29 22:44 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/327636953598.shtml)
+- 2026-06-29 22:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/384136992582.shtml)
+- 2026-06-29 22:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/45843724.shtml)
+- 2026-06-29 22:57 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/580504537742.shtml)
+- 2026-06-29 22:40 - [佛得角队长门德斯被控强奸](https://www.blog.kurohicncr.top/Article/details/0090643.shtml)
+- 2026-06-29 22:35 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/019499193385.shtml)
+- 2026-06-29 22:42 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/988917256461.shtml)
+- 2026-06-29 22:40 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/449181.shtml)
+- 2026-06-29 22:55 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/847333762.shtml)
+- 2026-06-29 22:57 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/356898.shtml)
+- 2026-06-29 22:43 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/9655557.shtml)
+- 2026-06-29 22:44 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/53260.shtml)
+- 2026-06-29 22:42 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/01165679.shtml)
+- 2026-06-29 22:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/281782245036.shtml)
+- 2026-06-29 22:45 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/2876252.shtml)
+- 2026-06-29 22:38 - [斛珠夫人](http://www.blog.minike.top/Article/details/95367.shtml)

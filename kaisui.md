@@ -1,52 +1,52 @@
-# “人民至上——政党的使命和担当”中外政党专题对话举行
+# 特朗普称无意续签美墨加协定
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网石家庄5月8日电 (记者 郭超凯)5月8日，由中共中央对外联络部和中共河北省委共同主办的“人民至上——政党的使命和担当”中外政党专题对话在河北行唐举行。汤加议长瓦伊阿等来自20多个国家的政党、议会、政府代表等约180人与会。中联部部长刘海星表示，在习近平总书记领航掌舵下，中国脱贫攻坚取得全面胜利，为全球减贫事业作出巨大贡献。新征程上，中国共产党将坚持以人民为中心的发展理念
+美国总统特朗普表示，他不打算续签美墨加贸易协定（USMCA）。 “我不知道是否会续签它，因为老实说，美国的情况要好得多，”特朗普在白宫对记者表示。 “我们不需要加拿大拥有的任何东西，也不需要墨西哥拥有的任何东西，但他们需要我们拥有的一切，”他补充说。责任编辑：丁文武
 
 ## 正文
 
-中新网石家庄5月8日电 (记者 郭超凯)5月8日，由中共中央对外联络部和中共河北省委共同主办的“人民至上——政党的使命和担当”中外政党专题对话在河北行唐举行。
+美国总统特朗普表示，他不打算续签美墨加贸易协定（USMCA）。
 
-汤加议长瓦伊阿等来自20多个国家的政党、议会、政府代表等约180人与会。
+“我不知道是否会续签它，因为老实说，美国的情况要好得多，”特朗普在白宫对记者表示。
 
-中联部部长刘海星表示，在习近平总书记领航掌舵下，中国脱贫攻坚取得全面胜利，为全球减贫事业作出巨大贡献。
+“我们不需要加拿大拥有的任何东西，也不需要墨西哥拥有的任何东西，但他们需要我们拥有的一切，”他补充说。
 
-新征程上，中国共产党将坚持以人民为中心的发展理念，以高质量发展全面推进中国式现代化，同各国政党加强交流互鉴，做人民幸福的筑基者、捍卫者、守望者、护航者。
-
-与会外宾高度评价以习近平同志为核心的中共中央坚持人民至上，带领中国人民推进脱贫攻坚和乡村振兴取得的巨大成就，表示愿同中方深化治党治国经验交流，推动构建人类命运共同体。
-
-(完)
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 22:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 22:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 22:34 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 22:27 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 22:44 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 22:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 22:37 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 22:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 22:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 22:52 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 22:58 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 22:32 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 22:51 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 22:43 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 22:40 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 22:31 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 22:59 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 22:45 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 22:39 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 22:34 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 22:48 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 22:48 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 22:53 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 22:54 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:44 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/97195034374.shtml)
-- 2026-06-29 22:45 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/41786740422.shtml)
-- 2026-06-29 22:34 - [送你一朵小红花](http://www.blog.minike.top/Article/details/0794642933.shtml)
-- 2026-06-29 22:50 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/86885183.shtml)
-- 2026-06-29 22:49 - [世界杯高票价为何没劝退球迷](https://www.share.minike.top/Article/details/3415677977.shtml)
-- 2026-06-29 22:52 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/2536280568.shtml)
-- 2026-06-29 22:47 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/190021710860.shtml)
-- 2026-06-29 22:50 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/0469624128.shtml)
-- 2026-06-29 22:31 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/54499316.shtml)
-- 2026-06-29 22:48 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/933331.shtml)
-- 2026-06-29 22:29 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/74288805.shtml)
-- 2026-06-29 22:34 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/86180817700.shtml)
-- 2026-06-29 22:39 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/1090276.shtml)
-- 2026-06-29 22:26 - [急先锋](http://www.blog.kurohicncr.top/Article/details/41333486.shtml)
-- 2026-06-29 22:49 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/107902.shtml)
+- 2026-06-29 22:42 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/5147209.shtml)
+- 2026-06-29 22:32 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/567321.shtml)
+- 2026-06-29 22:34 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/108894.shtml)
+- 2026-06-29 22:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/421207421383.shtml)
+- 2026-06-29 22:52 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/21334265.shtml)
+- 2026-06-29 22:38 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/16553264436.shtml)
+- 2026-06-29 22:31 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/431988.shtml)
+- 2026-06-29 22:39 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/32160421196.shtml)
+- 2026-06-29 22:33 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/2869052798.shtml)
+- 2026-06-29 22:58 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/0950187436.shtml)
+- 2026-06-29 22:52 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/571833498854.shtml)
+- 2026-06-29 22:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/701476.shtml)
+- 2026-06-29 22:42 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/9052671.shtml)
+- 2026-06-29 22:36 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/08322166885.shtml)
+- 2026-06-29 22:43 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/53082060.shtml)

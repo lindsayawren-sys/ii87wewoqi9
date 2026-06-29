@@ -1,57 +1,50 @@
-# “一口价”黄金激战国贸，定价模式掀行业变局
+# 快讯：恒指低开0.5% 科指跌0.38% 黄金股低迷 芯片股回调
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-当金价持续高位震荡，传统按克计价的黄金首饰遭遇寒流，北京国贸商圈却悄然上演了一场百米之内的黄金品牌“贴身战”。近日，米瑞欧、京匠黄金两大新品牌相继完成北京首秀，以“一口价”模式将黄金克价拉升至2000元甚至更高区间。定价黄金热潮背后，究竟是短期风口还是行业变局？ 4月，两家新黄金品牌在国贸相继开业且比邻而居。 多家“一口价”黄金首店落子国贸 近日，国贸商圈接连落地两家“一口价”
+美股周二个别发展，资金回流传统股份，科技股表现受压，三大指数收市升跌不一。美元轻微偏软，美国十年期债息回落至4.52厘水平，金价继续向下，油价亦反复受压。 今日港股三大指数集体低开，恒指开盘跌0.5%，报24442.52点，恒科指跌0.38%，国企指数跌0.35%。盘面上，科网股涨跌不一，网易、百度、快手涨超1%，联想跌超2%，京东跌超1%；黄金股低开，紫金黄金国际跌超3%；光
 
 ## 正文
 
-当金价持续高位震荡，传统按克计价的黄金首饰遭遇寒流，北京国贸商圈却悄然上演了一场百米之内的黄金品牌“贴身战”。
+美股周二个别发展，资金回流传统股份，科技股表现受压，三大指数收市升跌不一。
 
-近日，米瑞欧、京匠黄金两大新品牌相继完成北京首秀，以“一口价”模式将黄金克价拉升至2000元甚至更高区间。
+美元轻微偏软，美国十年期债息回落至4.52厘水平，金价继续向下，油价亦反复受压。
 
-定价黄金热潮背后，究竟是短期风口还是行业变局？
+今日港股三大指数集体低开，恒指开盘跌0.5%，报24442.52点，恒科指跌0.38%，国企指数跌0.35%。
 
-4月，两家新黄金品牌在国贸相继开业且比邻而居。
+盘面上，科网股涨跌不一，网易、百度、快手涨超1%，联想跌超2%，京东跌超1%；黄金股低开，紫金黄金国际跌超3%；光通信板块回调，长飞光纤光缆跌超2%；芯片股低迷，中芯国际跌超1%。
 
-多家“一口价”黄金首店落子国贸 近日，国贸商圈接连落地两家“一口价”黄金品牌北京首店。
-
-9日下午，记者走进开业不久的京匠黄金，该店定位“东方高奢黄金”，全场实行“一口价”。
-
-一款京匠游园系列的蕾丝花盘吊坠，克重约7.5克，标价接近两万元；一款约14克的镶钻葫芦吊坠售价约3.9万元，每克价格超2700元，克价远超传统品牌。
-
-记者注意到，店内首饰主打黄金搭配红宝石的设计，所有标签均按件定价，同时也标注克重和宝石规格。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 22:49 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 22:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 22:48 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 22:41 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 22:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 22:50 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 22:49 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 22:26 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 22:37 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 22:32 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 22:32 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 22:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 22:31 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 22:51 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 22:38 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 22:33 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 22:45 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 22:55 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 22:38 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 22:31 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/99845.shtml)
-- 2026-06-29 22:50 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/4177284126.shtml)
-- 2026-06-29 22:46 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/99675.shtml)
-- 2026-06-29 22:52 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/2730081.shtml)
-- 2026-06-29 22:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/51902936278.shtml)
-- 2026-06-29 22:39 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/91087.shtml)
-- 2026-06-29 22:39 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/830982197137.shtml)
-- 2026-06-29 22:31 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/3708160.shtml)
-- 2026-06-29 22:38 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/3414162820.shtml)
-- 2026-06-29 22:37 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/383785627.shtml)
-- 2026-06-29 22:40 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/930872106295.shtml)
-- 2026-06-29 22:53 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/26333997.shtml)
-- 2026-06-29 22:38 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/10099347.shtml)
-- 2026-06-29 22:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/679756389.shtml)
-- 2026-06-29 22:27 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/3831617729.shtml)
+- 2026-06-29 22:35 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/80071824.shtml)
+- 2026-06-29 22:33 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/3870060516.shtml)
+- 2026-06-29 22:33 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/2457140786.shtml)
+- 2026-06-29 22:56 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/378580.shtml)
+- 2026-06-29 22:41 - [我们的少年时代2](http://www.blog.minike.top/Article/details/2906828.shtml)
+- 2026-06-29 22:54 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/146109.shtml)
+- 2026-06-29 22:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/0580442312.shtml)
+- 2026-06-29 22:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/704510498.shtml)
+- 2026-06-29 22:41 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/3498774.shtml)
+- 2026-06-29 22:35 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/83518752.shtml)
+- 2026-06-29 22:49 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/54146672.shtml)
+- 2026-06-29 22:39 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/0475370.shtml)
+- 2026-06-29 22:46 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/1802568.shtml)
+- 2026-06-29 22:32 - [天气热脾气都变差了](https://www.blog.kurohicncr.top/Article/details/11970433.shtml)
+- 2026-06-29 22:42 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/247685466615.shtml)

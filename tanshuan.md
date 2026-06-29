@@ -1,50 +1,58 @@
-# 上海平价社区超市圈粉外国友人
+# 甲醇：战火重燃 甲醇偏强震荡
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 20:56 来源：中国新闻网 近日，一块标价0.79元人民币的内酯豆腐，让在上海居住的美国人尤金成了网络红人，也让“中国平价社区超市”走进海外网友视野。这家主打“天天低价、件件爆款”的超市通过工厂直采、精简包装严控成本，单店面积不到800平方米，但是“麻雀虽小，五脏俱全”，店内通常都会精选约1500款聚焦一日三餐与日常生活的高频商品。不少外国顾
+大地期货研究院 主要观点 核心观点：中性偏多近期美伊战火重燃并且霍尔木兹海峡封锁没有明显改善，预计短期价格将偏强震荡，等待逢高布空的机会，关注美伊谈判进展、伊朗甲醇装置的开工、运输等情况。 新增产能：中性无新增产能计划投产。 国内开工：中性偏空目前看6月检修计划较少，且部分前期检修装置在5月重启，预计6月国内开工大概率将小幅提升。 进口方面：偏空5月进口量创新低，6月进口量大概
 
 ## 正文
 
-发布时间：2026年05月08日 20:56 来源：中国新闻网 近日，一块标价0.79元人民币的内酯豆腐，让在上海居住的美国人尤金成了网络红人，也让“中国平价社区超市”走进海外网友视野。
+大地期货研究院 主要观点 核心观点：中性偏多近期美伊战火重燃并且霍尔木兹海峡封锁没有明显改善，预计短期价格将偏强震荡，等待逢高布空的机会，关注美伊谈判进展、伊朗甲醇装置的开工、运输等情况。
 
-这家主打“天天低价、件件爆款”的超市通过工厂直采、精简包装严控成本，单店面积不到800平方米，但是“麻雀虽小，五脏俱全”，店内通常都会精选约1500款聚焦一日三餐与日常生活的高频商品。
+新增产能：中性无新增产能计划投产。
 
-不少外国顾客表示，这里不仅有别处难寻的特色水果和饮品，环境也干净整洁，每天都会前来采购。
+国内开工：中性偏空目前看6月检修计划较少，且部分前期检修装置在5月重启，预计6月国内开工大概率将小幅提升。
 
-今年“五一”假期，某在线旅游平台的数据显示，上海、北京等中国核心城市仍是外国游客的首选目的地，而据上海公安出入境管理部门数据，2025年累计办理的外国人永久居留身份证“五星卡”已突破1万张，居全国首位。
+进口方面：偏空5月进口量创新低，6月进口量大概率将增加。
 
-(李佳佳 杨海燕 制作 王佳琪） 责任编辑：【卢岩】
+港口库存：中性偏多目前看6月计划到港量有所增加，部分港口MTO装置近期有停车检修计划，且预计6月部分甲醇货源出口至国外有缩减预期，预计近期港口库存继续去库但幅度趋缓。
+
+MTO需求：偏空目前MTO经济性较差，盛虹停车中，宁波富德传闻近期有重启计划，青海盐湖5.26日停车，计划停一个月，诚志一期6.8日开始停车10天，因下游产品价格偏弱宁夏宝丰外采甲醇计划取消，继续关注负反馈情况。
+
+传统下游：偏空传统下游即将进入需求淡季，开工将有所回落。
+
+成本方面：中性偏多预计煤价整体将偏强运行。
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 22:39 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 22:43 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 22:52 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 22:30 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 22:48 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 22:52 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 22:29 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 22:39 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 22:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 22:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 22:38 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 22:44 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 22:58 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 22:31 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 22:37 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 22:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 22:50 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 22:35 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 22:52 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 22:52 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 22:55 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:46 - [《贺子珍》](http://www.blog.minike.top/Article/details/2957997711.shtml)
-- 2026-06-29 22:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/115479923198.shtml)
-- 2026-06-29 22:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/119921.shtml)
-- 2026-06-29 22:38 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/34679136.shtml)
-- 2026-06-29 22:45 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/92735.shtml)
-- 2026-06-29 22:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/095996.shtml)
-- 2026-06-29 22:24 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/8602034.shtml)
-- 2026-06-29 22:35 - [记者乘坐无人驾驶汽车去采访](http://www.blog.kurohicncr.top/Article/details/0744850739.shtml)
-- 2026-06-29 22:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/828693979499.shtml)
-- 2026-06-29 22:44 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/15333.shtml)
-- 2026-06-29 22:33 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/13280608.shtml)
-- 2026-06-29 22:36 - [扫黑风暴](https://www.blog.minike.top/Article/details/4632020.shtml)
-- 2026-06-29 22:28 - [谁在推动“成都造”影视持续出圈](https://www.blog.minike.top/Article/details/660831386.shtml)
-- 2026-06-29 22:48 - [扫黑风暴](http://www.share.minike.top/Article/details/813074.shtml)
-- 2026-06-29 22:49 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/84003089502.shtml)
+- 2026-06-29 22:33 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/24786.shtml)
+- 2026-06-29 22:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/0071261.shtml)
+- 2026-06-29 22:36 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/11781158510.shtml)
+- 2026-06-29 22:41 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/92057.shtml)
+- 2026-06-29 22:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/58192588.shtml)
+- 2026-06-29 22:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/54057270.shtml)
+- 2026-06-29 22:49 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/2072070.shtml)
+- 2026-06-29 22:57 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/45141665.shtml)
+- 2026-06-29 22:34 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/502541.shtml)
+- 2026-06-29 22:37 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/031472725.shtml)
+- 2026-06-29 22:44 - [月亮](http://www.blog.minike.top/Article/details/31964718117.shtml)
+- 2026-06-29 22:45 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/044020.shtml)
+- 2026-06-29 22:51 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/90333472.shtml)
+- 2026-06-29 22:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/868399.shtml)
+- 2026-06-29 22:37 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/1174537.shtml)

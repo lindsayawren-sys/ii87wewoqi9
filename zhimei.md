@@ -1,57 +1,57 @@
-# 俄外交部：铭记历史 警惕日本“再军事化”威胁
+# 博物馆里看电影 两岸光影融合向新发展
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-当地时间7日，俄罗斯外交部发言人扎哈罗娃在记者会上表示，铭记历史是维护国际法与国际秩序的重要基础，忘记历史无法捍卫和平。她同时指出，日本当前加速推进“再军事化”，已对地区稳定和安全构成威胁。视频：俄外交部：铭记历史 警惕日本“再军事化”威胁来源：央视新闻客户端 俄罗斯外交部发言人 扎哈罗娃：铭记历史是当今最重要的基本原则。因为如果不铭记历史，就很难让人们相信维护国际法和国际秩序
+在中国电影博物馆“台湾地区电影”展厅(简称“台湾展厅”)，全国政协委员、台盟北京市委会副主委、中国电影博物馆馆长陈伟近日接受本报记者专访，讲述展陈背后的两岸电影交流往事，以及影视合作何以促进两岸文化交流。 电影“破冰” 以情促融 台湾展厅的参观动线如一条时光长廊，清晰呈现台湾电影从萌芽到繁荣的发展脉络。从1925年台湾工作者拍摄的第一部故事片《谁之过》，到被影迷奉为经典的《侠女
 
 ## 正文
 
-当地时间7日，俄罗斯外交部发言人扎哈罗娃在记者会上表示，铭记历史是维护国际法与国际秩序的重要基础，忘记历史无法捍卫和平。
+在中国电影博物馆“台湾地区电影”展厅(简称“台湾展厅”)，全国政协委员、台盟北京市委会副主委、中国电影博物馆馆长陈伟近日接受本报记者专访，讲述展陈背后的两岸电影交流往事，以及影视合作何以促进两岸文化交流。
 
-她同时指出，日本当前加速推进“再军事化”，已对地区稳定和安全构成威胁。
+电影“破冰” 以情促融 台湾展厅的参观动线如一条时光长廊，清晰呈现台湾电影从萌芽到繁荣的发展脉络。
 
-视频：俄外交部：铭记历史 警惕日本“再军事化”威胁来源：央视新闻客户端 俄罗斯外交部发言人 扎哈罗娃：铭记历史是当今最重要的基本原则。
+从1925年台湾工作者拍摄的第一部故事片《谁之过》，到被影迷奉为经典的《侠女》《悲情城市》《饮食男女》……沿长廊前行，满墙海报和实物展品无声讲述着宝岛电影工业的辉煌过往。
 
-因为如果不铭记历史，就很难让人们相信维护国际法和国际秩序的必要性。
+“这部《汪洋中的一条船》，是首部在大陆发行的台湾电影。
 
-毒气室、种族隔离，对不同民族、国籍和种族的民众的灭绝，这些都是纳粹主义、法西斯主义和日本军国主义犯下的滔天罪行。
+”行至一处场景展陈前，陈伟介绍道。
 
-如果我们忘记这一切会怎样，我们还能去说服人们相信存在人权吗？
+场景里，一对恋人在月色中互相依偎。
 
-相信应该善良，相信应该为和平而战吗？
+这是电影里男女主角感情升华的一幕，饰演者是台湾影坛“二秦二林”里的秦汉、林凤娇。
 
-我们都做不到，因为我们会背叛对那些为和平、为人类的生命、尊严、自由而战的先烈的记忆。
+《汪洋中的一条船》改编自台湾作家郑丰喜所著同名自传体小说。
 
 ## 相关推荐
 
-- 2026-06-29 22:34 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 22:32 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 22:38 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 22:30 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 22:38 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 22:43 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 22:49 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 22:39 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 22:34 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 22:44 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 22:26 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 22:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 22:55 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 22:38 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 22:52 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 22:58 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 22:40 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 22:57 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 22:45 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 22:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 22:45 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 22:48 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:51 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/761820.shtml)
-- 2026-06-29 22:51 - [时光音乐会](https://www.blog.minike.top/Article/details/35604840.shtml)
-- 2026-06-29 22:41 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/26462540338.shtml)
-- 2026-06-29 22:49 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/15512589.shtml)
-- 2026-06-29 22:34 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/3410378.shtml)
-- 2026-06-29 22:32 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/007523.shtml)
-- 2026-06-29 22:50 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/137673.shtml)
-- 2026-06-29 22:31 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/96256338.shtml)
-- 2026-06-29 22:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/9316241.shtml)
-- 2026-06-29 22:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/0678652.shtml)
-- 2026-06-29 22:50 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/93126123150.shtml)
-- 2026-06-29 22:47 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/23661143069.shtml)
-- 2026-06-29 22:26 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/574186592748.shtml)
-- 2026-06-29 22:49 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/427754.shtml)
-- 2026-06-29 22:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/09057774.shtml)
+- 2026-06-29 22:33 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/4963627.shtml)
+- 2026-06-29 22:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/64138929.shtml)
+- 2026-06-29 22:57 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/07366904.shtml)
+- 2026-06-29 22:38 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.minike.top/Article/details/669964164.shtml)
+- 2026-06-29 22:49 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/511213.shtml)
+- 2026-06-29 22:44 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/584298.shtml)
+- 2026-06-29 22:40 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/253694804.shtml)
+- 2026-06-29 22:44 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/654196.shtml)
+- 2026-06-29 22:52 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/848303.shtml)
+- 2026-06-29 22:47 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/49383.shtml)
+- 2026-06-29 22:36 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/981816.shtml)
+- 2026-06-29 22:52 - [第一炉香](http://www.share.kurohicncr.top/Article/details/858158932133.shtml)
+- 2026-06-29 22:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/1087716064.shtml)
+- 2026-06-29 22:48 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/291031.shtml)
+- 2026-06-29 22:39 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/0089807105.shtml)

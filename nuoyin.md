@@ -1,52 +1,56 @@
-# 市场监管总局：全国累计有35.8万个体工商户直接转型为企业
+# 数据中心扩建耗资巨大，甲骨文股价大跌7%
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 19:16 来源：中国新闻网 5月8日，市场监管总局召开“高效办成一件事”专题新闻发布会。市场监管总局登记注册局副局长张炜在会上发言时介绍，个体工商户可以通过直接变更方式转为企业，依法保留字号、成立日期、统一社会信用代码、登记档案及年度报告等经营要素。“个转企”后可以同步办理税务、公章刻制、社保登记、住房公积金缴存等事项。对符合条件的工业产品生
+专题：聚焦美股2026年第一季度财报 甲骨文重申，2027 财年营收目标 900 亿美元。 云计算与软件巨头甲骨文盘前股价走低。公司当期利润、总营收双双上涨，但大规模基建扩张带来的高额资本开支引发市场担忧。 甲骨文公布，刚结束的完整财年资本开支达 557 亿美元，较分析师预期高出约 50 亿美元。公司首席财务官希拉里・马克森透露，预计 2027 财年资本开支净现金投入将达到 7
 
 ## 正文
 
-发布时间：2026年05月08日 19:16 来源：中国新闻网 5月8日，市场监管总局召开“高效办成一件事”专题新闻发布会。
+专题：聚焦美股2026年第一季度财报 甲骨文重申，2027 财年营收目标 900 亿美元。
 
-市场监管总局登记注册局副局长张炜在会上发言时介绍，个体工商户可以通过直接变更方式转为企业，依法保留字号、成立日期、统一社会信用代码、登记档案及年度报告等经营要素。
+云计算与软件巨头甲骨文盘前股价走低。
 
-“个转企”后可以同步办理税务、公章刻制、社保登记、住房公积金缴存等事项。
+公司当期利润、总营收双双上涨，但大规模基建扩张带来的高额资本开支引发市场担忧。
 
-对符合条件的工业产品生产、食品生产经营、烟草专卖、道路普通货物运输等行政许可予以延续。
+甲骨文公布，刚结束的完整财年资本开支达 557 亿美元，较分析师预期高出约 50 亿美元。
 
-截至2025年底，全国累计有35.8万个体工商户享受政策红利直接转型为企业，迎来更大发展空间。
+公司首席财务官希拉里・马克森透露，预计 2027 财年资本开支净现金投入将达到 700 亿美元左右。
 
-(记者 谢龙飞） 责任编辑：【卢岩】
+周四美股盘前，甲骨文股价大跌 7%。
+
+如此庞大的资金投入，直观反映出人工智能行业扩张的巨额成本压力。
+
+据报道，甲骨文去年一跃成为 AI 赛道热门厂商，拿下数千亿美元人工智能相关业务订单，其中包含与 OpenAI 签订的五年约 3000 亿美元算力采购大单。
 
 ## 相关推荐
 
-- 2026-06-29 22:37 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 22:35 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 22:45 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 22:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 22:24 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 22:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 22:37 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 22:50 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 22:51 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 22:46 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 22:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 22:30 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 22:36 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 22:51 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 22:57 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 22:45 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 22:50 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 22:59 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 22:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 22:37 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:51 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/892214159.shtml)
-- 2026-06-29 22:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/575130360796.shtml)
-- 2026-06-29 22:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/201584299446.shtml)
-- 2026-06-29 22:44 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/64451447.shtml)
-- 2026-06-29 22:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/4569884.shtml)
-- 2026-06-29 22:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/3097770182.shtml)
-- 2026-06-29 22:53 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/96485828.shtml)
-- 2026-06-29 22:26 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/674733.shtml)
-- 2026-06-29 22:28 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/8576509.shtml)
-- 2026-06-29 22:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/804356367.shtml)
-- 2026-06-29 22:42 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/062813144206.shtml)
-- 2026-06-29 22:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/512164709.shtml)
-- 2026-06-29 22:35 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/76413.shtml)
-- 2026-06-29 22:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/87188282702.shtml)
-- 2026-06-29 22:36 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.kurohicncr.top/Article/details/86894325.shtml)
+- 2026-06-29 22:47 - [温网](http://www.share.minike.top/Article/details/1526502.shtml)
+- 2026-06-29 22:47 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/24163560363.shtml)
+- 2026-06-29 22:56 - [时光音乐会](http://www.share.minike.top/Article/details/1389887.shtml)
+- 2026-06-29 22:54 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/4296297881.shtml)
+- 2026-06-29 22:41 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/01885644.shtml)
+- 2026-06-29 22:35 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/54807312910.shtml)
+- 2026-06-29 22:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/26255.shtml)
+- 2026-06-29 22:45 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/170436429.shtml)
+- 2026-06-29 22:44 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/284235816728.shtml)
+- 2026-06-29 22:53 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/7908673.shtml)
+- 2026-06-29 22:32 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/103589231270.shtml)
+- 2026-06-29 22:41 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/61662128402.shtml)
+- 2026-06-29 22:44 - [急先锋](http://www.share.kurohicncr.top/Article/details/1217106.shtml)
+- 2026-06-29 22:56 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/95903443205.shtml)
+- 2026-06-29 22:56 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/8582585.shtml)

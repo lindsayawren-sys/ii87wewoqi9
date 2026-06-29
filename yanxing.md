@@ -1,60 +1,56 @@
-# 中信建投期货：5月8日农产品早报
+# 茅台总经理王莉复盘茅台年轻化：酱香拿铁、茅台巧克力等产品“对品牌不是加持”
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-玉米：中性偏多 1．市场关注：市场传言稻谷5.7发文件，总量1690万吨，底价1490起拍，分央企专场（数量1190万吨）和饲料厂专场（500万吨），过去市场普遍担忧的供给端预期差逻辑有拆解迹象，推动相关多头集中离场。但热度偏高+饲用玉米/豆粕库存低位使底价成交并不现实，且新季小麦即将上市，生猪产能出清速度不及预期，专场拍卖落地冲击有限，且前期多头仍未完全出清，市场看涨趋势不变
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 专题：贵州茅台2025年度股东大会 6月11日，贵州茅台2025年度股东会在仁怀市茅台镇茅台会议中心召开。在股东提问环节，有股东建议茅台可考虑与泡泡玛特等潮牌企业在食品烘焙品类开展跨界合作，利用茅台独特的酱香风味优势，进一步拓宽消费群体。 对此，贵州茅台总经理王莉回应称，茅台在品牌联营方面将“非常谨慎”，并回顾了此前冰淇
 
 ## 正文
 
-玉米：中性偏多 1．市场关注：市场传言稻谷5.7发文件，总量1690万吨，底价1490起拍，分央企专场（数量1190万吨）和饲料厂专场（500万吨），过去市场普遍担忧的供给端预期差逻辑有拆解迹象，推动相关多头集中离场。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 专题：贵州茅台2025年度股东大会 6月11日，贵州茅台2025年度股东会在仁怀市茅台镇茅台会议中心召开。
 
-但热度偏高+饲用玉米/豆粕库存低位使底价成交并不现实，且新季小麦即将上市，生猪产能出清速度不及预期，专场拍卖落地冲击有限，且前期多头仍未完全出清，市场看涨趋势不变，不过在稻谷/小麦市场有确定性判断前玉米将维持窄幅震荡局面。
+在股东提问环节，有股东建议茅台可考虑与泡泡玛特等潮牌企业在食品烘焙品类开展跨界合作，利用茅台独特的酱香风味优势，进一步拓宽消费群体。
 
-2．观点总结：前期多头资金出现有序退场迹象；现货端深加工企业维持随采随用节奏，库存并未完成有效上修，饲用需求同样低迷，周内维持区间震荡判断，下方支撑2370元/吨，上方暂无明显压力位判断。
+对此，贵州茅台总经理王莉回应称，茅台在品牌联营方面将“非常谨慎”，并回顾了此前冰淇淋、酱香拿铁等年轻化尝试的复盘结论。
 
-豆粕：中性 1．美伊之间可能达成停火协议引发商品基金抛售农产品多头头寸，隔夜CBOT大豆回落至此前1160-1200美分震荡区间，注意地缘交易的反复性。
+问题的本质是“品牌管理与年轻化”的问题。
 
-2．截至5月5日，全美大豆产区干旱覆盖比例为27%，周度环比持平，干旱仍主要集中在平原及东南部部分区域。
+她透露，茅台在去年花了非常大的力气构建了公司的资产管理体系，包含四大组成部分：实物资产、无形资产、数字资产和知识。
 
-同时，玉米带北部霜冻天气可能阶段性拖慢大豆、玉米等作物出苗节奏。
+其中，无形资产里茅台最大的资产就是品牌和商誉。
 
-3．路透社公布的机构预估显示，市场对新作美豆单产的预估均值为53蒲/英亩、期末库存约3.64亿蒲。
+“我们把无形资产的管理提高到了非常高的维度，包括对它的决策。
 
-若报告结果与预期相近，意味着新季美豆供应仍处于相对宽松格局，或对本年度美盘上行空间形成限制。
+所以以后在品牌的联营上会非常谨慎。
 
 ## 相关推荐
 
-- 2026-06-29 22:30 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 22:47 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 22:33 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 22:26 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 22:44 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 22:40 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 22:53 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 22:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 22:47 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 22:28 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 22:37 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 22:44 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 22:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 22:50 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 22:38 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 22:59 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 22:59 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 22:41 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 22:53 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 22:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 22:54 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 22:49 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 22:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 22:32 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/2824717.shtml)
-- 2026-06-29 22:35 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/9197075.shtml)
-- 2026-06-29 22:42 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/046652092.shtml)
-- 2026-06-29 22:49 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/14699.shtml)
-- 2026-06-29 22:37 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/893147781831.shtml)
-- 2026-06-29 22:50 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/710492249897.shtml)
-- 2026-06-29 22:29 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/5994884629.shtml)
-- 2026-06-29 22:33 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/64610616.shtml)
-- 2026-06-29 22:43 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/462695.shtml)
-- 2026-06-29 22:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/275876843264.shtml)
-- 2026-06-29 22:30 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/543285.shtml)
-- 2026-06-29 22:43 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/04358.shtml)
-- 2026-06-29 22:44 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/76862574.shtml)
-- 2026-06-29 22:41 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/564640229459.shtml)
-- 2026-06-29 22:40 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/261622383640.shtml)
+- 2026-06-29 22:55 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/885469861998.shtml)
+- 2026-06-29 22:35 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/08350527355.shtml)
+- 2026-06-29 22:31 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/2751105.shtml)
+- 2026-06-29 22:30 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/6267345.shtml)
+- 2026-06-29 22:30 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/1214936585.shtml)
+- 2026-06-29 22:45 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/2761735130.shtml)
+- 2026-06-29 22:54 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/2948106999.shtml)
+- 2026-06-29 22:33 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/84561421.shtml)
+- 2026-06-29 22:54 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/604279449.shtml)
+- 2026-06-29 22:36 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/92867212876.shtml)
+- 2026-06-29 22:43 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/94360256696.shtml)
+- 2026-06-29 22:37 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/05659847.shtml)
+- 2026-06-29 22:45 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/81561384.shtml)
+- 2026-06-29 22:37 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/39965539.shtml)
+- 2026-06-29 22:55 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/47764950632.shtml)

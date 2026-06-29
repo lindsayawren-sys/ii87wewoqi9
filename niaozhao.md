@@ -1,57 +1,58 @@
-# DeepSeek拟募资最高500亿元！这些赛道的A股公司或受益
+# 分歧加剧，美以关系生变？
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中国AI大模型领域正迎来历史性融资时刻。券商中国援引《The Information》称，中国AI大模型明星企业DeepSeek正在寻求首轮融资，募资规模最高达500亿元人民币（约合73.5亿美元），若最终落地，将创下中国人工智能公司单轮融资的最高纪录。 报道称，本轮融资完成后，含募资额在内，DeepSeek整体估值或将突破3500亿元人民币（约515亿美元），成功跻身全球人工
+中新网6月10日电(冯小妍)近日，美国总统特朗普与以色列总理内塔尼亚胡之间的矛盾罕见公开化。在中东局势持续动荡的背景下，双方分歧正日益浮出水面。 特朗普指责以色列升级黎巴嫩局势危及美伊停火谈判进程，接连对内塔尼亚胡发出严厉警告，称其“疯了”，还放话称“现在所有人都讨厌你，讨厌以色列”，“你最好谨慎行事，否则可能会在对抗伊朗时陷入孤立”，“我说了算，一切由我做主，他无权做主”。
 
 ## 正文
 
-中国AI大模型领域正迎来历史性融资时刻。
+中新网6月10日电(冯小妍)近日，美国总统特朗普与以色列总理内塔尼亚胡之间的矛盾罕见公开化。
 
-券商中国援引《The Information》称，中国AI大模型明星企业DeepSeek正在寻求首轮融资，募资规模最高达500亿元人民币（约合73.5亿美元），若最终落地，将创下中国人工智能公司单轮融资的最高纪录。
+在中东局势持续动荡的背景下，双方分歧正日益浮出水面。
 
-报道称，本轮融资完成后，含募资额在内，DeepSeek整体估值或将突破3500亿元人民币（约515亿美元），成功跻身全球人工智能独角兽第一梯队。
+特朗普指责以色列升级黎巴嫩局势危及美伊停火谈判进程，接连对内塔尼亚胡发出严厉警告，称其“疯了”，还放话称“现在所有人都讨厌你，讨厌以色列”，“你最好谨慎行事，否则可能会在对抗伊朗时陷入孤立”，“我说了算，一切由我做主，他无权做主”。
 
-值得关注的是，该报道指出，创始人梁文锋计划个人出资最高200亿元，占本轮融资总额的40%。
+长期被视为“铁杆盟友”的美以领导人，为何在这一关键时刻公开暴露分歧？
 
-这场融资盛宴的背后，是DeepSeek创始人梁文锋商业策略的重大转变。
+在各自抱持不同政治考量的背景下，美以又是否会因此次裂痕而渐行渐远？
 
-公开资料显示，DeepSeek成立于2023年7月，由幻方量化孵化，发展初期资金完全依靠幻方量化支持，未进行过任何外部股权融资。
+分歧为何出现？
 
-梁文锋曾定下“三不”规矩：不接受外部融资、不稀释股权、不被任何人的商业化时间表绑架。
+对于此次美以分歧的根源，多家媒体将其归结于双方目标的错位。
 
-然而，4月底的工商变更已显露出其战略调整的信号。
+美联社称，在美国国内，汽油及其他商品价格正持续飙升，一些曾经的支持者指责特朗普违背竞选承诺，将美国拖入泥潭。
 
 ## 相关推荐
 
-- 2026-06-29 22:25 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 22:47 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 22:48 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 22:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 22:41 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 22:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 22:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 22:49 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 22:49 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 22:45 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 22:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 22:42 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 22:48 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 22:44 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 22:52 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 23:00 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 22:50 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 22:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 22:44 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 22:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 22:32 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 22:55 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 22:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:27 - [一生一世](https://www.share.minike.top/Article/details/547263.shtml)
-- 2026-06-29 22:26 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/56378225.shtml)
-- 2026-06-29 22:31 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/11038.shtml)
-- 2026-06-29 22:47 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/38362899.shtml)
-- 2026-06-29 22:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/560569.shtml)
-- 2026-06-29 22:30 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/8780730977.shtml)
-- 2026-06-29 22:35 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/424478.shtml)
-- 2026-06-29 22:42 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/824770705.shtml)
-- 2026-06-29 22:31 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/643461172.shtml)
-- 2026-06-29 22:49 - [一见倾心](http://www.blog.minike.top/Article/details/5863496.shtml)
-- 2026-06-29 22:33 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/392846636621.shtml)
-- 2026-06-29 22:35 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/952600220684.shtml)
-- 2026-06-29 22:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/826239672.shtml)
-- 2026-06-29 22:28 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/0596831299.shtml)
-- 2026-06-29 22:46 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/42813036796.shtml)
+- 2026-06-29 22:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/126026.shtml)
+- 2026-06-29 22:35 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/59531.shtml)
+- 2026-06-29 22:51 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/9838909.shtml)
+- 2026-06-29 22:50 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/373601040.shtml)
+- 2026-06-29 22:45 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/824978894.shtml)
+- 2026-06-29 22:33 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/5577087779.shtml)
+- 2026-06-29 22:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/4939464.shtml)
+- 2026-06-29 22:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/29130970267.shtml)
+- 2026-06-29 22:49 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/07611841.shtml)
+- 2026-06-29 22:37 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/67851143.shtml)
+- 2026-06-29 22:34 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/545596.shtml)
+- 2026-06-29 22:39 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/11606228.shtml)
+- 2026-06-29 22:38 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/21775.shtml)
+- 2026-06-29 22:58 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/2558838.shtml)
+- 2026-06-29 22:38 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/8912505771.shtml)

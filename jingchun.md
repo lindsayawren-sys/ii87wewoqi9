@@ -1,61 +1,58 @@
-# 美联储官员古尔斯比称所有利率选项都在考虑范围
+# 财务造假！“转板第一股”退市，股价大跌97%，实控人挪用2.8亿元
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-芝加哥联储行长奥斯坦·古尔斯比表示，所有利率选项目前都在考虑范围。 “在当前形势下，我看不出为什么只能认为摆在桌面上的选项只是降息，”古尔斯比周五接受采访时说。 美联储官员在4月底的会议上维持利率不变。有三位官员对声明中暗示央行下一步可能会降息的措辞表示异议。他们倾向于暗示下一步行动可能是降息也可能是加息。 古尔斯比的言论反映出，美联储决策者正逐步转向不再考虑短期内降息。这一转
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨莫丽娟 编辑丨张颖国 6月10日，“北交所转板科创板第一股”观典防务正式摘牌退市。 这只股票曾创下历史高点13.41元（前复权）、总市值69亿元的成绩，然而最后交易日收盘价仅0.37元，从高点跌去超97%，市值蒸发至不足1.3亿元。比股价崩盘更令人心寒
 
 ## 正文
 
-芝加哥联储行长奥斯坦·古尔斯比表示，所有利率选项目前都在考虑范围。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-“在当前形势下，我看不出为什么只能认为摆在桌面上的选项只是降息，”古尔斯比周五接受采访时说。
+记者丨莫丽娟 编辑丨张颖国 6月10日，“北交所转板科创板第一股”观典防务正式摘牌退市。
 
-美联储官员在4月底的会议上维持利率不变。
+这只股票曾创下历史高点13.41元（前复权）、总市值69亿元的成绩，然而最后交易日收盘价仅0.37元，从高点跌去超97%，市值蒸发至不足1.3亿元。
 
-有三位官员对声明中暗示央行下一步可能会降息的措辞表示异议。
+比股价崩盘更令人心寒的是其背后的信披黑幕：实控人挪用资金2.84亿元、违规担保1.73亿元，甚至不惜伪造银行函证对抗审计。
 
-他们倾向于暗示下一步行动可能是降息也可能是加息。
+退市不等于免责，符合文末索赔条件的受损投资者，可关注“投资快报”公众号，点击右侧“股民索赔”菜单栏挽回损失。
 
-古尔斯比的言论反映出，美联储决策者正逐步转向不再考虑短期内降息。
+从69亿市值到不足2亿 “转板第一股”股价跌超97% 观典防务曾是资本市场的“明星”。
 
-这一转变在很大程度上源于对通胀的担忧，因为伊朗战争引发了能源价格冲击。
+公司股票曾先后在新三板（832317）、北交所挂牌交易。
 
-古尔斯比今年没有货币政策投票权，但他周五重申，无论是降息还是加息，对他及其同事而言都是可选项。
+2022年5月25日，公司完成从北交所向科创板的转板上市，证券代码变更为688287，成为A股历史上第一家真正意义上的“转板第一股”。
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 22:24 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 22:36 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 22:52 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 22:35 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 22:38 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 22:46 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 22:43 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 22:37 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 22:44 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 22:42 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 22:36 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 22:52 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 22:25 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 22:29 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 22:44 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 22:45 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 22:56 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 22:42 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 22:36 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 22:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 22:39 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 22:30 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 22:56 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 22:34 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 22:53 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 22:40 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:50 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/40256475137.shtml)
-- 2026-06-29 22:33 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/02127217850.shtml)
-- 2026-06-29 22:27 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/719367958.shtml)
-- 2026-06-29 22:47 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/68541663541.shtml)
-- 2026-06-29 22:39 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/267311.shtml)
-- 2026-06-29 22:34 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/21760.shtml)
-- 2026-06-29 22:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/034232907.shtml)
-- 2026-06-29 22:24 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/0386141236.shtml)
-- 2026-06-29 22:45 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/139829482356.shtml)
-- 2026-06-29 22:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/724446135705.shtml)
-- 2026-06-29 22:32 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/89319334101.shtml)
-- 2026-06-29 22:42 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/416049.shtml)
-- 2026-06-29 22:37 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/7515715543.shtml)
-- 2026-06-29 22:40 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/83856.shtml)
-- 2026-06-29 22:37 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/469317669150.shtml)
+- 2026-06-29 22:55 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/20042.shtml)
+- 2026-06-29 22:44 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/09876730425.shtml)
+- 2026-06-29 22:38 - [巴西10号球衣是天才传承史](https://www.share.minike.top/Article/details/54696050.shtml)
+- 2026-06-29 22:34 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/61634.shtml)
+- 2026-06-29 22:38 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/4024448987.shtml)
+- 2026-06-29 22:38 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/848621454693.shtml)
+- 2026-06-29 22:43 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/1686452.shtml)
+- 2026-06-29 22:50 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/4020705074.shtml)
+- 2026-06-29 22:35 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/78467819.shtml)
+- 2026-06-29 22:49 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/413212972.shtml)
+- 2026-06-29 22:35 - [巴西10号球衣是天才传承史](http://www.blog.minike.top/Article/details/3873514.shtml)
+- 2026-06-29 22:41 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/363455892.shtml)
+- 2026-06-29 22:39 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/50959463975.shtml)
+- 2026-06-29 22:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/339968154030.shtml)
+- 2026-06-29 22:34 - [急先锋](https://www.blog.kurohicncr.top/Article/details/72682.shtml)

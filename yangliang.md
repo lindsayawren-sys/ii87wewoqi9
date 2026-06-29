@@ -1,56 +1,61 @@
-# 尺素金声丨营收利润双增，上市公司交出亮眼年报
+# 中信建投期货：6月10日农产品早报
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-上市公司是国民经济“基本盘”“压舱石”。截至4月30日，沪深5206家上市公司交出了去年全年及今年一季度成绩单，有力印证中国经济的强大韧性与活力。上市公司也是企业中的“优等生”，从上市公司发展新亮点中，能够看见“十五五”开局的新动能和新势头。 总体看，2025年上市公司营收、利润双增长。证监会数据显示，5206家上市公司营业收入同比增长1.2%；净利润同比增长2.6%，利润增速
+玉米：中性 1．市场关注：芽麦和萌动麦低价流入饲用领域仍是核心的压制成因，大型饲料企业小麦替代比例已升至15%-30%。当前新季前的真空期内，粮权已全面转移至贸易商手中，高成本限制其急抛意愿，抗跌属性较强，价格短期内能获得一定支撑。深加工方面，利润偏薄背景下开机率仍处低位，自身建库意愿不足，采购以随用随采为主，难以贡献额外的上行动力。糙米与当前玉米价格之间的替代优势极为有限，短
 
 ## 正文
 
-上市公司是国民经济“基本盘”“压舱石”。
+玉米：中性 1．市场关注：芽麦和萌动麦低价流入饲用领域仍是核心的压制成因，大型饲料企业小麦替代比例已升至15%-30%。
 
-截至4月30日，沪深5206家上市公司交出了去年全年及今年一季度成绩单，有力印证中国经济的强大韧性与活力。
+当前新季前的真空期内，粮权已全面转移至贸易商手中，高成本限制其急抛意愿，抗跌属性较强，价格短期内能获得一定支撑。
 
-上市公司也是企业中的“优等生”，从上市公司发展新亮点中，能够看见“十五五”开局的新动能和新势头。
+深加工方面，利润偏薄背景下开机率仍处低位，自身建库意愿不足，采购以随用随采为主，难以贡献额外的上行动力。
 
-总体看，2025年上市公司营收、利润双增长。
+糙米与当前玉米价格之间的替代优势极为有限，短期替代压力已显著弱于此前市场预期，不宜高估其对玉米需求的挤出能力。
 
-证监会数据显示，5206家上市公司营业收入同比增长1.2%；净利润同比增长2.6%，利润增速为近三年最高。
+关注昨日中储粮进行进口的玉米定向邀标拍卖实际结果，投放规模从上一轮的15.5万吨小幅增加至20万吨，起拍价集中在2070-2320元/吨区间，具体成交率有待公布。
 
-读懂这份成绩单，先看三个“含量”。
+关注本周USDA及CONAB六月报告。
 
-“含金量”持续提升。
+2．观点总结：利空冲击反弹明显，考虑中线多头布局 豆粕：中性偏空 1．缺乏边际利多驱动，隔夜CBOT大豆延续偏弱运行，短期关注SN合约在1100美分/蒲附近表现。
 
-一个代表盈利“含金量”的指标显著提升——每百元利润创造的经营活动现金净流入从2021年的72.4元持续提升至2025年的95.7元。
+USDA气象预报显示，玉米带阵雨天气使玉米和大豆尾声阶段播种工作放缓，但整体仍维持有利的生长条件。
 
 ## 相关推荐
 
-- 2026-06-29 22:33 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 22:39 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 22:47 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 22:31 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 22:39 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 22:25 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 22:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 22:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 22:30 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 22:37 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 22:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 22:45 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 22:30 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 22:35 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 22:43 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 22:44 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 22:42 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 22:31 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 22:31 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 22:40 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 22:44 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 22:33 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 22:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 22:57 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 22:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/160117582253.shtml)
-- 2026-06-29 22:46 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/39570783659.shtml)
-- 2026-06-29 22:38 - [锐评T1零封KC](http://www.share.minike.top/Article/details/791115.shtml)
-- 2026-06-29 22:52 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/086999202.shtml)
-- 2026-06-29 22:28 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/52689670561.shtml)
-- 2026-06-29 22:40 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/902767673.shtml)
-- 2026-06-29 22:39 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/964794.shtml)
-- 2026-06-29 22:35 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/3790853.shtml)
-- 2026-06-29 22:47 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/543140441925.shtml)
-- 2026-06-29 22:38 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/5410820986.shtml)
-- 2026-06-29 22:43 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/85643.shtml)
-- 2026-06-29 22:48 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/40613.shtml)
-- 2026-06-29 22:34 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/708408.shtml)
-- 2026-06-29 22:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/89199.shtml)
-- 2026-06-29 22:31 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/83676004349.shtml)
+- 2026-06-29 22:35 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/90331143.shtml)
+- 2026-06-29 22:46 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/47655047240.shtml)
+- 2026-06-29 22:49 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/226356370.shtml)
+- 2026-06-29 22:37 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/0615623.shtml)
+- 2026-06-29 22:58 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/44980891794.shtml)
+- 2026-06-29 22:54 - [东方风云榜](https://www.share.minike.top/Article/details/19929212.shtml)
+- 2026-06-29 22:40 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/61335.shtml)
+- 2026-06-29 22:42 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/8961620.shtml)
+- 2026-06-29 22:54 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/443715.shtml)
+- 2026-06-29 22:46 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/81257737.shtml)
+- 2026-06-29 22:37 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/29507175.shtml)
+- 2026-06-29 22:53 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/9956745.shtml)
+- 2026-06-29 22:53 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/863255.shtml)
+- 2026-06-29 22:50 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/750658962264.shtml)
+- 2026-06-29 22:50 - [周生如故](http://www.blog.minike.top/Article/details/60728435975.shtml)

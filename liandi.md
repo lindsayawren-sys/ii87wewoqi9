@@ -1,56 +1,58 @@
-# 中东局势缓和削弱避险买盘，美元指数小幅回落，等待非农数据指引
+# 全球监管机构呼吁加强对金融领域智能体化AI的管控
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周五亚洲交易时段，衡量美元兑六种主要货币表现的美元指数（DXY）小幅走弱，盘中交投于98.20附近。此前美元在连续反弹后出现阶段性回调，主要受到中东局势缓和以及市场风险情绪改善影响。 近期全球金融市场的核心焦点，依然围绕中东局势变化以及美国经济数据展开。此前美国与伊朗之间的军事摩擦一度推动市场避险情绪快速升温，美元因此获得资金流入支撑。不过，随着市场收到以色
+随着人工智能（AI）加快普及，全球监管机构表示，自主性日益增强的AI形态可能加剧金融体系风险，并呼吁制定新的管控措施。 全球标准制定机构金融稳定理事会 （FSB） 周三发布的一份报告“强烈”鼓励各机构考虑实施防护措施，以减轻AI带来的风险，包括“智能体化AI”（Agentic AI）带来的风险。智能体化AI是指那些能够在有限的人工监督下进行规划、推理并执行任务的系统。 金融机构
 
 ## 正文
 
-汇通财经APP讯——周五亚洲交易时段，衡量美元兑六种主要货币表现的美元指数（DXY）小幅走弱，盘中交投于98.20附近。
+随着人工智能（AI）加快普及，全球监管机构表示，自主性日益增强的AI形态可能加剧金融体系风险，并呼吁制定新的管控措施。
 
-此前美元在连续反弹后出现阶段性回调，主要受到中东局势缓和以及市场风险情绪改善影响。
+全球标准制定机构金融稳定理事会 （FSB） 周三发布的一份报告“强烈”鼓励各机构考虑实施防护措施，以减轻AI带来的风险，包括“智能体化AI”（Agentic AI）带来的风险。
 
-近期全球金融市场的核心焦点，依然围绕中东局势变化以及美国经济数据展开。
+智能体化AI是指那些能够在有限的人工监督下进行规划、推理并执行任务的系统。
 
-此前美国与伊朗之间的军事摩擦一度推动市场避险情绪快速升温，美元因此获得资金流入支撑。
+金融机构已将智能体化AI用于欺诈检测、客户服务和后台运营等领域。
 
-不过，随着市场收到以色列与伊朗双方释放的局势降温信号，投资者风险偏好出现回暖，美元避险需求有所下降。
+剑桥另类金融中心（Cambridge Centre for Alternative Finance）的一项调查显示，在金融行业受访者中，有52%表示正在积极采用智能体化AI，其中23%已在规模化推广或推进转型，29%则处于试点阶段。
 
-美国总统特朗普表示，美国与伊朗之间的停火安排目前依然有效，这进一步缓解了市场对于中东全面冲突升级的担忧。
+自Anthropic发布Mythos以来，监管机构和全球标准制定机构加大了对AI在金融领域推广所带来的风险的警示力度。
 
-与此同时，据市场调查显示，美国方面仍在等待伊朗对于重新开放霍尔木兹海峡以及结束冲突相关提议作出正式回应。
+专家认为，Mythos给银行业带来重大网络安全挑战。
 
-此前，美国军方曾针对伊朗班达尔阿巴斯港口以及霍尔木兹海峡附近目标展开军事打击，以回应伊朗针对美军舰艇的袭击行动。
+FSB表示，自主性AI会带来可能“以极快速度显现”的风险，包括未经授权或非法行为、数据泄露以及对互联系统的干扰。
 
 ## 相关推荐
 
-- 2026-06-29 22:49 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 22:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 22:52 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 22:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 22:41 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 22:34 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 22:41 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 22:43 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 22:53 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 22:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 22:32 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 22:30 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 22:43 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 22:50 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 22:55 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 22:54 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 22:53 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 22:36 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 22:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 22:55 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 22:56 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 22:46 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:52 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/3761860946.shtml)
-- 2026-06-29 22:28 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/763854.shtml)
-- 2026-06-29 22:38 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/6053916.shtml)
-- 2026-06-29 22:47 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/7975688.shtml)
-- 2026-06-29 22:45 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/5103877.shtml)
-- 2026-06-29 22:27 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/67842897.shtml)
-- 2026-06-29 22:52 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/8021987.shtml)
-- 2026-06-29 22:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/47461.shtml)
-- 2026-06-29 22:32 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/2830314.shtml)
-- 2026-06-29 22:30 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/47786135300.shtml)
-- 2026-06-29 22:26 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/0151347.shtml)
-- 2026-06-29 22:35 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/875735423012.shtml)
-- 2026-06-29 22:31 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/403244.shtml)
-- 2026-06-29 22:45 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/131019.shtml)
-- 2026-06-29 22:26 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/910154155294.shtml)
+- 2026-06-29 22:53 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/90252.shtml)
+- 2026-06-29 22:58 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/9637616079.shtml)
+- 2026-06-29 22:32 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/47775.shtml)
+- 2026-06-29 22:47 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/56395333.shtml)
+- 2026-06-29 22:51 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/45265.shtml)
+- 2026-06-29 22:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/389363799465.shtml)
+- 2026-06-29 22:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/18166256.shtml)
+- 2026-06-29 22:33 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/732997323.shtml)
+- 2026-06-29 22:50 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/8770263162.shtml)
+- 2026-06-29 22:31 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/1299695.shtml)
+- 2026-06-29 22:38 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/125642604509.shtml)
+- 2026-06-29 22:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/7649844.shtml)
+- 2026-06-29 22:42 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/8086626.shtml)
+- 2026-06-29 22:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/05288551.shtml)
+- 2026-06-29 22:49 - [田曦薇没招了](https://www.blog.minike.top/Article/details/932013.shtml)

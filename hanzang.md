@@ -1,59 +1,60 @@
-# 南京百年李公祠修缮后迎客
+# 知情人士：韩国已消化与SpaceX IPO相关的约15亿美元买需
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-海底电缆成美以伊博弈关键变量全国已有13个省份全省实施中小学春秋假夹娃娃成瘾？香港拟修订《赌博条例》！美国博主带老外组团“朝圣”中国电车，在车展集体破防：凭什么？星空卫视暂停卫星传输服务：一代华语电视记忆谢幕一张照片刷开门锁？消协实测曝光：智能锁这些功能有隐患一场爱心接力暖陕鄂 8000余斤苹果19小时售空悼念烈士：中国人民不会忘记北约犯下的这一野蛮罪行“恐发生人际传播”！大西
+一位知情人士周三表示，与SpaceX首次公开发行（IPO）相关的大规模外汇兑换需求已得到消化，此前这些需求在过去几周对韩元造成了沉重压力。 这位掌握韩元兑美元在岸市场交易情况的消息人士表示，估计价值15亿美元的购汇订单已进入最后阶段。鉴于此事的敏感性，该消息人士要求匿名。 媒体周二援引消息人士报道称，马斯克的太空探索公司SpaceX已吸引超过2，500亿美元的投资者认购需求，有
 
 ## 正文
 
-海底电缆成美以伊博弈关键变量全国已有13个省份全省实施中小学春秋假夹娃娃成瘾？
+一位知情人士周三表示，与SpaceX首次公开发行（IPO）相关的大规模外汇兑换需求已得到消化，此前这些需求在过去几周对韩元造成了沉重压力。
 
-香港拟修订《赌博条例》！
+这位掌握韩元兑美元在岸市场交易情况的消息人士表示，估计价值15亿美元的购汇订单已进入最后阶段。
 
-美国博主带老外组团“朝圣”中国电车，在车展集体破防：凭什么？
+鉴于此事的敏感性，该消息人士要求匿名。
 
-星空卫视暂停卫星传输服务：一代华语电视记忆谢幕一张照片刷开门锁？
+媒体周二援引消息人士报道称，马斯克的太空探索公司SpaceX已吸引超过2，500亿美元的投资者认购需求，有望成为史上规模最大的IPO，远高于公司计划募集的750亿美元。
 
-消协实测曝光：智能锁这些功能有隐患一场爱心接力暖陕鄂 8000余斤苹果19小时售空悼念烈士：中国人民不会忘记北约犯下的这一野蛮罪行“恐发生人际传播”！
+此次IPO将于周四定价，随后将确定机构和散户投资者的配售比例。
 
-大西洋涉疫游轮最新情况三分钟就能看完100页书？
+“市场此前高度关注SpaceX IPO将在美元—韩元外汇市场引发多大规模的美元需求，该规模约为12亿至15亿美元。
 
-！
+”该消息人士表示。
 
-披上“新科学外衣”的伪科学骗局卷土重来驾培行业新国标落地！
+“不过该过程已被拆分执行且接近完成，因此未来外汇市场上（韩元）不会面临下行压力。
 
 ## 相关推荐
 
-- 2026-06-29 22:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 22:28 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 22:52 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 22:51 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 22:44 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 22:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 22:44 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 22:53 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 22:41 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 22:53 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 22:47 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 22:47 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 22:43 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 22:44 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 22:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 22:59 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 22:39 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 22:55 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 22:30 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 22:34 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 22:33 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 22:33 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 22:43 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 22:50 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 22:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 22:45 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 22:45 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:50 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/481681121.shtml)
-- 2026-06-29 22:38 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/13140028.shtml)
-- 2026-06-29 22:24 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/853587219.shtml)
-- 2026-06-29 22:35 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/858324054.shtml)
-- 2026-06-29 22:41 - [日防卫省正考虑引进美企人工智能系统](http://www.share.minike.top/Article/details/232969.shtml)
-- 2026-06-29 22:36 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/38610295079.shtml)
-- 2026-06-29 22:44 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/80500.shtml)
-- 2026-06-29 22:32 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/9439669.shtml)
-- 2026-06-29 22:50 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/013182.shtml)
-- 2026-06-29 22:26 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/27030830144.shtml)
-- 2026-06-29 22:48 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/302542323.shtml)
-- 2026-06-29 22:25 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/09956.shtml)
-- 2026-06-29 22:41 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/51654972.shtml)
-- 2026-06-29 22:45 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/25130393.shtml)
-- 2026-06-29 22:40 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/184423690.shtml)
+- 2026-06-29 22:54 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/05075446064.shtml)
+- 2026-06-29 22:36 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/9946302.shtml)
+- 2026-06-29 22:53 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/295168927086.shtml)
+- 2026-06-29 22:52 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/57026225.shtml)
+- 2026-06-29 22:46 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/5393155946.shtml)
+- 2026-06-29 22:38 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/562570979.shtml)
+- 2026-06-29 22:33 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/42858599771.shtml)
+- 2026-06-29 22:43 - [肝不好身体这几处会“说话”](https://www.share.kurohicncr.top/Article/details/11118723.shtml)
+- 2026-06-29 22:34 - [起风了](http://www.blog.kurohicncr.top/Article/details/06358485.shtml)
+- 2026-06-29 22:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/3457509.shtml)
+- 2026-06-29 22:42 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/071912225301.shtml)
+- 2026-06-29 22:57 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/02401941.shtml)
+- 2026-06-29 22:57 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/7669578231.shtml)
+- 2026-06-29 22:33 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/7318703088.shtml)
+- 2026-06-29 22:47 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/68352.shtml)

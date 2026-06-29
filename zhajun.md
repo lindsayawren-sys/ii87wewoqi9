@@ -1,55 +1,59 @@
-# 2026年中国黑河至俄罗斯口岸明水期客运通航
+# 福建三明：山里来了“客货邮” 家门口取件暖民心
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新社黑龙江黑河5月9日电 (记者 刘锡菊)2026年中国黑龙江省黑河至俄罗斯布拉戈维申斯克口岸明水期国际客船旅客运输9日正式启动。 此次明水期旅客运输，中方投入3艘客运船舶，俄方投入6艘客运船舶协同作业，每日可运送旅客超千人次。 相较气垫船，明水期普通客船运力提升、抗恶劣天气能力更强，不仅能满足持续增长的旅客跨境出行需求，还可搭载小型跨境货物，为中俄跨境电商、小额边贸提供便利
+中新网三明6月10日电 (雷朝良 朱丹宇)在福建三明永安贡川镇客货邮融合站，过去闲置的大楼如今变身为人气最旺的便民枢纽。站内快递分拣区，智慧灯条与包裹一一绑定，村民扫码或输入手机号，对应指示灯随即亮起并语音提示，实现“一秒找件”。这是三明推进“客货邮”进村工程的一个缩影。 三明地处闽西北山区。近年来，当地立足山区实际，把“快递进村”作为重点民生工程，统筹交通、邮政、供销等资源，
 
 ## 正文
 
-中新社黑龙江黑河5月9日电 (记者 刘锡菊)2026年中国黑龙江省黑河至俄罗斯布拉戈维申斯克口岸明水期国际客船旅客运输9日正式启动。
+中新网三明6月10日电 (雷朝良 朱丹宇)在福建三明永安贡川镇客货邮融合站，过去闲置的大楼如今变身为人气最旺的便民枢纽。
 
-此次明水期旅客运输，中方投入3艘客运船舶，俄方投入6艘客运船舶协同作业，每日可运送旅客超千人次。
+站内快递分拣区，智慧灯条与包裹一一绑定，村民扫码或输入手机号，对应指示灯随即亮起并语音提示，实现“一秒找件”。
 
-相较气垫船，明水期普通客船运力提升、抗恶劣天气能力更强，不仅能满足持续增长的旅客跨境出行需求，还可搭载小型跨境货物，为中俄跨境电商、小额边贸提供便利。
+这是三明推进“客货邮”进村工程的一个缩影。
 
-黑河市与布拉戈维申斯克市隔黑龙江相望，并称“中俄双子城”。
+三明地处闽西北山区。
 
-中俄互免签证政策正式生效后，跨境旅客数量持续攀升。
+近年来，当地立足山区实际，把“快递进村”作为重点民生工程，统筹交通、邮政、供销等资源，构建起县、乡、村三级农村寄递物流体系。
 
-5月10日起，黑河口岸国际货运船舶也将陆续投入运营。
+数据显示，三明全市客货邮试点乡镇超110个，11个县(市、区)1739个建制村实现客货邮服务全覆盖，初步形成“产地集货、分级处理、专线运输、城市直达”的乡村物流链条。
 
-(完)
+从“进城取件”到“快递进村” “以前网购，要专程跑镇上取件，大件更不敢下单。
+
+”贡川镇偏远山村村民李庆友说，现在快递直接送到村口，网上购物再没有顾虑。
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 22:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 22:50 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 22:50 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 22:46 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 22:50 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 22:49 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 22:32 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 22:53 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 22:24 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 22:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 23:00 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 22:52 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 22:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 22:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 22:53 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 22:46 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 22:51 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 22:54 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 22:50 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 22:47 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 22:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 22:49 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 22:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/391820.shtml)
-- 2026-06-29 22:32 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/226942145.shtml)
-- 2026-06-29 22:53 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/021049.shtml)
-- 2026-06-29 22:54 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/90899566.shtml)
-- 2026-06-29 22:26 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/270672542.shtml)
-- 2026-06-29 22:47 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/986446835264.shtml)
-- 2026-06-29 22:33 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/26118352491.shtml)
-- 2026-06-29 22:51 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/8225687.shtml)
-- 2026-06-29 22:51 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/7781686702.shtml)
-- 2026-06-29 22:43 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/35538531136.shtml)
-- 2026-06-29 22:36 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/74848168.shtml)
-- 2026-06-29 22:47 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/559707519450.shtml)
-- 2026-06-29 22:49 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/3645573.shtml)
-- 2026-06-29 22:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/740572911.shtml)
-- 2026-06-29 22:30 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/01038.shtml)
+- 2026-06-29 22:59 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/5339024087.shtml)
+- 2026-06-29 22:46 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/902235569.shtml)
+- 2026-06-29 22:54 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/4378820645.shtml)
+- 2026-06-29 22:30 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/152330.shtml)
+- 2026-06-29 22:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/833694.shtml)
+- 2026-06-29 22:36 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/5398110204.shtml)
+- 2026-06-29 22:58 - [勇敢的心第二部](http://www.share.minike.top/Article/details/534795452907.shtml)
+- 2026-06-29 22:36 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/5802469409.shtml)
+- 2026-06-29 22:58 - [毒液2](http://www.blog.minike.top/Article/details/1263504.shtml)
+- 2026-06-29 22:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/9551688052.shtml)
+- 2026-06-29 22:52 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/23564.shtml)
+- 2026-06-29 22:37 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/1093069557.shtml)
+- 2026-06-29 22:31 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/0491910631.shtml)
+- 2026-06-29 22:45 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/48719417457.shtml)
+- 2026-06-29 22:46 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/737167.shtml)

@@ -1,60 +1,59 @@
-# 焦点访谈丨实干笃行新征程 他们用匠心诠释着每一份坚守
+# 动力电池会重蹈光伏覆辙吗？宁德时代曾毓群回应
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-自古以来，工匠精神就根植于中华优秀传统文化的深厚土壤，也深深融入中华民族的精神血脉。党的十八大以来，习近平总书记多次礼赞劳动创造，并强调要发扬“执着专注、精益求精、一丝不苟、追求卓越”的工匠精神。 一支150毫米大口径折射式望远镜在接受测试，即将用于航空航天领域的空间目标探测。 平行光管测试，模拟的是遥远太空中的星体发来的平行星光。设计师通过从这支望远镜里看到的光线形态和清晰度
+编者按：近日《财经》杂志执行主编马克在宁德时代总部与曾毓群先生做了一场对话。 动力电池会重蹈光伏覆辙吗？ 《财经》：新能源里面也并不是人人都好。比如光伏行业，2025年的财报最近都发布了，大家又都是巨额亏损。您觉得动力电池有没有可能也到光伏这一步？ 曾毓群：如果大家不小心就很有可能。中国的光伏产业、光伏技术还是世界最好，那世界最好的技术为什么不赚钱呢？就是因为知识产权没保护，恶
 
 ## 正文
 
-自古以来，工匠精神就根植于中华优秀传统文化的深厚土壤，也深深融入中华民族的精神血脉。
+编者按：近日《财经》杂志执行主编马克在宁德时代总部与曾毓群先生做了一场对话。
 
-党的十八大以来，习近平总书记多次礼赞劳动创造，并强调要发扬“执着专注、精益求精、一丝不苟、追求卓越”的工匠精神。
+动力电池会重蹈光伏覆辙吗？
 
-一支150毫米大口径折射式望远镜在接受测试，即将用于航空航天领域的空间目标探测。
+《财经》：新能源里面也并不是人人都好。
 
-平行光管测试，模拟的是遥远太空中的星体发来的平行星光。
+比如光伏行业，2025年的财报最近都发布了，大家又都是巨额亏损。
 
-设计师通过从这支望远镜里看到的光线形态和清晰度，来判断如何使它最大限度实现设计目标。
+您觉得动力电池有没有可能也到光伏这一步？
 
-第一次的测试结果，摄像机的拍摄与肉眼观测有差距，实际看到的星点已相当清晰，但这还远没有达到设计师的目标。
+曾毓群：如果大家不小心就很有可能。
 
-这支镜头出自肖维军设计团队，经过两年多的磨合，从生产加工到安装调试都已相对成熟。
+中国的光伏产业、光伏技术还是世界最好，那世界最好的技术为什么不赚钱呢？
 
-即便如此，每到最终的调试阶段，肖维军也会亲自参与，作为设计师，他希望每一支镜头都能最大限度实现极致目标。
+就是因为知识产权没保护，恶性竞争。
 
 ## 相关推荐
 
-- 2026-06-29 22:42 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 22:40 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 22:37 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 22:48 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 22:53 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 22:47 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 22:36 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 22:32 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 22:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 22:34 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 22:33 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 22:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 22:32 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 22:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 22:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 22:44 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 22:55 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 22:44 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 22:47 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 22:42 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 22:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 22:38 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 22:46 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 22:43 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 22:33 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 22:45 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 22:33 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:37 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/517723222.shtml)
-- 2026-06-29 22:48 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/75238279.shtml)
-- 2026-06-29 22:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/6902450923.shtml)
-- 2026-06-29 22:26 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/786599562.shtml)
-- 2026-06-29 22:34 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/82472831.shtml)
-- 2026-06-29 22:49 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/47937519153.shtml)
-- 2026-06-29 22:32 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/11407119741.shtml)
-- 2026-06-29 22:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/99540.shtml)
-- 2026-06-29 22:28 - [英法德葡存在什么隐患](https://www.blog.minike.top/Article/details/287139769.shtml)
-- 2026-06-29 22:51 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/19567.shtml)
-- 2026-06-29 22:26 - [第一炉香](http://www.share.kurohicncr.top/Article/details/30161768951.shtml)
-- 2026-06-29 22:53 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/72060.shtml)
-- 2026-06-29 22:47 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/86709639014.shtml)
-- 2026-06-29 22:36 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/85775933477.shtml)
-- 2026-06-29 22:31 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/9264751968.shtml)
+- 2026-06-29 22:41 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/925973301.shtml)
+- 2026-06-29 22:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/1223771492.shtml)
+- 2026-06-29 22:37 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/773678.shtml)
+- 2026-06-29 22:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/321803754.shtml)
+- 2026-06-29 22:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/712658343.shtml)
+- 2026-06-29 22:47 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/8410608.shtml)
+- 2026-06-29 22:59 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/84147944.shtml)
+- 2026-06-29 22:57 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/68165.shtml)
+- 2026-06-29 22:49 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/83807647176.shtml)
+- 2026-06-29 22:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/6481125.shtml)
+- 2026-06-29 22:33 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/8850327012.shtml)
+- 2026-06-29 22:53 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/785458.shtml)
+- 2026-06-29 22:47 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/13606.shtml)
+- 2026-06-29 22:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/63983.shtml)
+- 2026-06-29 22:33 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/75373718.shtml)

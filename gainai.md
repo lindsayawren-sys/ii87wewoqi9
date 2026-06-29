@@ -1,59 +1,57 @@
-# 眸深智能陈涛：致力于在通用大脑赛道成为“中国的Skild AI”
+# 眼压“正常”，怎会确诊中晚期青光眼？
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。眸深智能首席科学家陈涛出席并演讲。 以下为演讲实录： 尊敬的各位领导、各位嘉宾，还有各位企业家朋友，大家好。很高兴向大家介绍一下我们成立于2025年1月份的眸深智能科技有限公司，以及我们最近取得的一些成果。 我们主要做的是数据和算力高效的机器人生成式运动大模型，从名称不难
+日常门诊中，经常碰到两类这样的患者：一类拿着体检报告惊慌失措，说自己眼压高，或者眼睛胀痛，非常担心，觉得自己肯定是青光眼，眼睛要瞎了。另一类患者视力一直保持在0.8甚至更好，体检眼压也“正常”，却最终被确诊为中晚期青光眼，视野已经缺损得只剩中央一点点。这两类患者背后，恰恰衍射出公众对眼压与青光眼关系很深的误解。 眼压高≠青光眼 先说说眼压。 眼压是眼球内容物对眼球壁产生的压力，
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
+日常门诊中，经常碰到两类这样的患者：一类拿着体检报告惊慌失措，说自己眼压高，或者眼睛胀痛，非常担心，觉得自己肯定是青光眼，眼睛要瞎了。
 
-眸深智能首席科学家陈涛出席并演讲。
+另一类患者视力一直保持在0.8甚至更好，体检眼压也“正常”，却最终被确诊为中晚期青光眼，视野已经缺损得只剩中央一点点。
 
-以下为演讲实录： 尊敬的各位领导、各位嘉宾，还有各位企业家朋友，大家好。
+这两类患者背后，恰恰衍射出公众对眼压与青光眼关系很深的误解。
 
-很高兴向大家介绍一下我们成立于2025年1月份的眸深智能科技有限公司，以及我们最近取得的一些成果。
+眼压高≠青光眼 先说说眼压。
 
-我们主要做的是数据和算力高效的机器人生成式运动大模型，从名称不难看出，我们聚焦当前备受关注的机器人产业，为本体打造最适合、性价比最高的 “大脑”。
+眼压是眼球内容物对眼球壁产生的压力，正常范围在10至21毫米汞柱之间。
 
-在这里，我想先通过一张图说明具身智能赛道的生态分布：最下方是专业机器人，其市场份额和毛利空间相对较小；中间是通用本体，涵盖灵巧手、机械臂到整机等，我们已对比中国的宇树、美国的波士顿动力（Boston Dynamics）、丰田等本体企业；最上方是机器人大脑，目前其市场份额和毛利空间都非常可观，且中美两国在该赛道竞争势头强劲，我们极具希望超越美国，在国际上占据一席之地。
+它由眼球内的水(称为“房水”)生成与排出，以维持动态平衡。
 
-眸深智能就定位在通用大脑赛道，致力于成为 “中国的 Skild AI”。
+青光眼是全球首位不可逆的致盲眼病，其核心病理特征是青光眼特征性视神经萎缩和视野缺损，而病理性眼压升高确实是它最重要的危险因素。
 
-当前大脑市场面临两大核心挑战，可总结为具身数据的 Scaling Law 和算力的 Scaling Law。
+但危险因素不等于确诊标准。
 
 ## 相关推荐
 
-- 2026-06-29 22:29 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 22:52 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 22:36 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 22:29 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 22:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 22:50 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 22:24 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 22:32 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 22:43 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 22:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 22:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 22:49 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 22:47 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 22:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 22:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 22:58 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 22:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 22:55 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 22:37 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 22:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 22:36 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 22:30 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 22:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 22:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:40 - [金刚川](https://www.blog.kurohicncr.top/Article/details/677941.shtml)
-- 2026-06-29 22:30 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/85990.shtml)
-- 2026-06-29 22:47 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/77457.shtml)
-- 2026-06-29 22:47 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/42608.shtml)
-- 2026-06-29 22:31 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/622440147.shtml)
-- 2026-06-29 22:31 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/1787355627.shtml)
-- 2026-06-29 22:34 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/613090.shtml)
-- 2026-06-29 22:34 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/173949330479.shtml)
-- 2026-06-29 22:32 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/549652089690.shtml)
-- 2026-06-29 22:53 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/054490180.shtml)
-- 2026-06-29 22:32 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/725306319.shtml)
-- 2026-06-29 22:53 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/98251843.shtml)
-- 2026-06-29 22:50 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/3371445.shtml)
-- 2026-06-29 22:44 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/6206552084.shtml)
-- 2026-06-29 22:31 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/8150712.shtml)
+- 2026-06-29 22:37 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/62646751112.shtml)
+- 2026-06-29 22:40 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/21363275811.shtml)
+- 2026-06-29 22:57 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/01119946726.shtml)
+- 2026-06-29 23:00 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/9697133342.shtml)
+- 2026-06-29 22:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/924207.shtml)
+- 2026-06-29 22:33 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/760277169972.shtml)
+- 2026-06-29 22:33 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/12196.shtml)
+- 2026-06-29 22:55 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/106498514.shtml)
+- 2026-06-29 22:30 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/147901053064.shtml)
+- 2026-06-29 22:53 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/47624611.shtml)
+- 2026-06-29 22:36 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/729785962076.shtml)
+- 2026-06-29 22:43 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/4361967.shtml)
+- 2026-06-29 22:54 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/95556031697.shtml)
+- 2026-06-29 22:56 - [一生一世](https://www.share.kurohicncr.top/Article/details/76383549543.shtml)
+- 2026-06-29 22:46 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/02738.shtml)

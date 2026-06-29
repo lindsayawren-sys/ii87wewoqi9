@@ -1,56 +1,56 @@
-# 中国北方下周多地升温 最高气温可达37℃
+# 调查显示：半数美国人向AI寻求医疗建议，多数人信任AI给出的指导
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 (记者 陈溯)中国已进入立夏时节，中央气象台8日预报，11日至13日，华北南部、黄淮及陕西关中等地气温上升明显，最高气温可达35℃至37℃，炎热感升级。 在冷空气和降水共同影响下，目前中国自北向南正经历一轮降温过程，5月7日降温区域主要集中在西北、华北、东北一带，8日、9日降温范围会扩展至南方，华南也会加入降温队伍，部分地区气温降幅可超过10℃。 不过，降
+eHealth最新发布的调查数据显示，人工智能正日益成为美国人寻求医疗建议的重要渠道。在参与调查的1000多名美国受访者中，有49%的人表示曾使用AI工具获取医疗建议，其中高达82%的人表示信任AI提供的信息。这一数据揭示了AI在医疗健康领域日益增长的影响力，以及公众对AI医疗建议接受度的显著提升。 AI在健康保险领域应用拓展 除了医疗建议，AI还被广泛用于帮助理解健康保险。调
 
 ## 正文
 
-中新社北京5月8日电 (记者 陈溯)中国已进入立夏时节，中央气象台8日预报，11日至13日，华北南部、黄淮及陕西关中等地气温上升明显，最高气温可达35℃至37℃，炎热感升级。
+eHealth最新发布的调查数据显示，人工智能正日益成为美国人寻求医疗建议的重要渠道。
 
-在冷空气和降水共同影响下，目前中国自北向南正经历一轮降温过程，5月7日降温区域主要集中在西北、华北、东北一带，8日、9日降温范围会扩展至南方，华南也会加入降温队伍，部分地区气温降幅可超过10℃。
+在参与调查的1000多名美国受访者中，有49%的人表示曾使用AI工具获取医疗建议，其中高达82%的人表示信任AI提供的信息。
 
-不过，降温只是短暂的。
+这一数据揭示了AI在医疗健康领域日益增长的影响力，以及公众对AI医疗建议接受度的显著提升。
 
-本周末前后，中国各地将迎来一轮气温反弹，长江以北气温累计升幅大多将在10℃以上，局地气温升幅将超过15℃，不少地方最高气温将再度冲击30℃，黄淮及其周边地区还将出现较大范围35℃以上的高温天气。
+AI在健康保险领域应用拓展 除了医疗建议，AI还被广泛用于帮助理解健康保险。
 
-中央气象台预计，未来10天，北方大部地区降雨偏少，平均气温较常年同期偏高1℃至3℃，局地偏高4℃至5℃，其中华北、黄淮等地将多晴热天气。
+调查显示，34%的投保美国人曾使用AI来帮助理解健康保险的运作方式，无论是在购买保险时，还是在试图理解他们的保险福利时。
 
-气象部门建议，公众外出做好防暑降温和防晒措施。
+在这些人中，高达91%的人表示他们信任收到的信息，其中42%表示“完全信任”。
 
-(完)
+这一趋势的背后，反映出美国消费者在医疗体系中面临的诸多挑战。
+
+调查同时发现，53%的投保美国人在过去12个月内曾因费用问题而避免就医，56%的人在过去五年中至少跳过一年次的年度健康检查。
 
 ## 相关推荐
 
-- 2026-06-29 22:51 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 22:33 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 22:34 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 22:25 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 22:42 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 22:24 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 22:33 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 22:27 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 22:53 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 22:35 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 22:33 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 22:52 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 22:51 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 22:55 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 22:38 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 22:48 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 22:57 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 22:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 22:58 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 22:36 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 22:43 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 22:32 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/494879906724.shtml)
-- 2026-06-29 22:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/7460018675.shtml)
-- 2026-06-29 22:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/16970466.shtml)
-- 2026-06-29 22:51 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/02397788.shtml)
-- 2026-06-29 22:45 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/0453691368.shtml)
-- 2026-06-29 22:41 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/2193670353.shtml)
-- 2026-06-29 22:51 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/02402165011.shtml)
-- 2026-06-29 22:28 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/500364115.shtml)
-- 2026-06-29 22:38 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/82411923.shtml)
-- 2026-06-29 22:35 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/906655472.shtml)
-- 2026-06-29 22:42 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/01657.shtml)
-- 2026-06-29 22:24 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/7257781526.shtml)
-- 2026-06-29 22:38 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/86969937.shtml)
-- 2026-06-29 22:33 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/5452841.shtml)
-- 2026-06-29 22:41 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/07493.shtml)
+- 2026-06-29 22:35 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/1445215.shtml)
+- 2026-06-29 22:36 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/61181.shtml)
+- 2026-06-29 22:52 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/91119431.shtml)
+- 2026-06-29 22:43 - [女心理师](http://www.share.minike.top/Article/details/6683056.shtml)
+- 2026-06-29 22:55 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/0532653.shtml)
+- 2026-06-29 22:44 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/909003832.shtml)
+- 2026-06-29 22:42 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/62180402605.shtml)
+- 2026-06-29 22:48 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/675621.shtml)
+- 2026-06-29 22:55 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/009341.shtml)
+- 2026-06-29 22:55 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/61643.shtml)
+- 2026-06-29 22:58 - [时光音乐会](https://www.blog.minike.top/Article/details/803070576166.shtml)
+- 2026-06-29 22:45 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/12401322507.shtml)
+- 2026-06-29 22:44 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/03474573448.shtml)
+- 2026-06-29 22:52 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/1417183.shtml)
+- 2026-06-29 22:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/916760954647.shtml)

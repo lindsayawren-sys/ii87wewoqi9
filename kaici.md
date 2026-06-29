@@ -1,59 +1,60 @@
-# 中信建投期货：5月8日黑色系早报
+# 远东国际观察：沃什就任美联储新任主席 面临通胀挑战与独立性考验
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-钢材早报：市场分歧较重，期钢高位运行 市场信息： 1、 伊朗伊斯兰革命卫队海军 8 日凌晨表示，3 艘美军驱逐舰在遭到伊朗反舰弹道导弹、巡航导弹以及无人机打击后受损，迅速撤离霍尔木兹海峡附近海域。据美国福克斯新闻频道7日报道，美军当天对伊朗格什姆港和阿巴斯港发动空袭。据伊朗新闻电视台8日凌晨报道说，在经历数小时交火后，霍尔木兹海峡沿线伊朗岛屿及沿海城市局势已恢复正常。 2、 5
+5月22日，凯文·沃什在美国白宫举行的仪式上宣誓就任美国联邦储备委员会第17任主席，任期4年。就职仪式由美国总统特朗普主持，并由美国最高法院大法官托马斯监誓。沃什在致辞中表示，自己将领导一个“改革导向”的美联储，从以往成功和失误的经验中学习，摆脱不变的框架和模型，致力于实现物价稳定和充分就业的目标。特朗普在仪式上表示，希望沃什能够“完全独立”地开展工作。 远东点评： 沃什就任正
 
 ## 正文
 
-钢材早报：市场分歧较重，期钢高位运行 市场信息： 1、 伊朗伊斯兰革命卫队海军 8 日凌晨表示，3 艘美军驱逐舰在遭到伊朗反舰弹道导弹、巡航导弹以及无人机打击后受损，迅速撤离霍尔木兹海峡附近海域。
+5月22日，凯文·沃什在美国白宫举行的仪式上宣誓就任美国联邦储备委员会第17任主席，任期4年。
 
-据美国福克斯新闻频道7日报道，美军当天对伊朗格什姆港和阿巴斯港发动空袭。
+就职仪式由美国总统特朗普主持，并由美国最高法院大法官托马斯监誓。
 
-据伊朗新闻电视台8日凌晨报道说，在经历数小时交火后，霍尔木兹海峡沿线伊朗岛屿及沿海城市局势已恢复正常。
+沃什在致辞中表示，自己将领导一个“改革导向”的美联储，从以往成功和失误的经验中学习，摆脱不变的框架和模型，致力于实现物价稳定和充分就业的目标。
 
-2、 5月6日，宝武资源西非公司发布官方声明，宣布在几内亚政府相关监管部门的主持下，运营方宝赢矿山公司（BWCS）已于5月6日与工会达成协议，双方同意停止罢工，并恢复西芒杜铁矿1、2号区块生产。
+特朗普在仪式上表示，希望沃什能够“完全独立”地开展工作。
 
-3、 截至5月6日，Mysteel样本内钢厂钢坯手持订单量200.7万吨，环比上月调研增加22.1万吨，增幅12.4%。
+远东点评： 沃什就任正值美国货币政策面临复杂局面的关键时点，其政策取向将深刻影响未来全球金融市场的走向。
 
-其中，内贸接单91.7 万吨，环比增加24.2 万吨，占比46%，直接出口接单109万吨，环比减少2.1万吨，占比54%。
+沃什早年以鹰派立场著称，但近年来倡导“实用货币主义”，主张根据经济现实灵活调整政策。
 
-4、 5 月7日，第三轮第六批中央生态环境保护督察全面启动。
+这一理念意味着他可能在抑制通胀与支持经济增长之间寻求更务实的平衡。
 
-由7个中央生态环境保护督察组分别对7个省（区）及新疆生产建设兵团开展为期1个月的督察工作。
+然而，其上任伊始即面临严峻挑战，4月美国个人消费支出（PCE）物价指数同比升至3.8%，核心PCE同比上涨3.3%，持续高于2%的政策目标，导致美联储内部在利率政策路径上存在分歧；另一方面，白宫对低利率环境的偏好也对其形成政治压力。
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 22:53 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 22:39 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 22:33 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 22:37 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 22:36 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 22:29 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 22:49 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 22:26 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 22:29 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 22:37 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 22:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 22:51 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 22:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 22:40 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 22:36 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 22:31 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 22:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 22:45 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 22:38 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 22:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 22:49 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 22:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 22:35 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 22:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 22:43 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 22:36 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/122864997.shtml)
-- 2026-06-29 22:31 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/53263806874.shtml)
-- 2026-06-29 22:34 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/14621407.shtml)
-- 2026-06-29 22:40 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/64701562171.shtml)
-- 2026-06-29 22:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/5073872.shtml)
-- 2026-06-29 22:53 - [扫黑风暴](https://www.blog.minike.top/Article/details/41593186.shtml)
-- 2026-06-29 22:41 - [王安宇聪明到导演组炸了](https://www.share.minike.top/Article/details/11134.shtml)
-- 2026-06-29 22:46 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/1809314344.shtml)
-- 2026-06-29 22:42 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/8145949.shtml)
-- 2026-06-29 22:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/2907713.shtml)
-- 2026-06-29 22:34 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/5801793030.shtml)
-- 2026-06-29 22:27 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/945433.shtml)
-- 2026-06-29 22:34 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/202448599876.shtml)
-- 2026-06-29 22:28 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/9065754.shtml)
-- 2026-06-29 22:30 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/976417070.shtml)
+- 2026-06-29 22:43 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/242707177370.shtml)
+- 2026-06-29 22:55 - [毒液2](https://www.share.kurohicncr.top/Article/details/283345620550.shtml)
+- 2026-06-29 22:55 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/4181526907.shtml)
+- 2026-06-29 22:57 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/400557632832.shtml)
+- 2026-06-29 22:57 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/430194570.shtml)
+- 2026-06-29 22:31 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/16303303.shtml)
+- 2026-06-29 22:51 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/70689.shtml)
+- 2026-06-29 22:36 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/833135324.shtml)
+- 2026-06-29 22:56 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/859477.shtml)
+- 2026-06-29 22:52 - [明星大侦探第四季](http://www.share.minike.top/Article/details/639217030927.shtml)
+- 2026-06-29 22:36 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/7309736.shtml)
+- 2026-06-29 22:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/2487968988.shtml)
+- 2026-06-29 22:33 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/493174.shtml)
+- 2026-06-29 22:44 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/41567434.shtml)
+- 2026-06-29 22:57 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/93598222687.shtml)

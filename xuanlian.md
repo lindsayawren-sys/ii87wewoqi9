@@ -1,56 +1,59 @@
-# 两家上市公司收到终止上市事先告知书
+# NIKE旗舰店买鞋收到空盒？消费前瞄一眼就能少踩坑
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网北京5月7日电 (记者 陈康亮)赛隆药业集团股份有限公司(下称*ST赛隆)和江苏华盛天龙光电设备股份有限公司(下称*ST天龙)7日相继发布公告称，收到深圳证券交易所的终止上市事先告知书。 *ST赛隆公告称，公司收到深交所《终止上市事先告知书》，公司2025年度财务会计报告、财务报告内部控制均被出具无法表示意见的审计报告，触及交易所相关规则规定的股票终止上市情形，深交所拟决
+花139元在耐克官方旗舰店买婴童凉拖鞋，签收后打开快递盒，里面只有一个空鞋盒——这是浙江郑女士最近的真实遭遇。更让她气愤的是，当她向商家和平台申请退款时，对方均以仓库核实发货无异常为由拒绝。平台先后提出补偿100元、130元、139元优惠券企图息事宁人，但始终不肯承认商家确实没有发货。直到郑女士用另一个账号重新下单同款商品，录制一镜到底的开箱称重视频，对比物流揽收重量后，才用实
 
 ## 正文
 
-中新网北京5月7日电 (记者 陈康亮)赛隆药业集团股份有限公司(下称*ST赛隆)和江苏华盛天龙光电设备股份有限公司(下称*ST天龙)7日相继发布公告称，收到深圳证券交易所的终止上市事先告知书。
+花139元在耐克官方旗舰店买婴童凉拖鞋，签收后打开快递盒，里面只有一个空鞋盒——这是浙江郑女士最近的真实遭遇。
 
-*ST赛隆公告称，公司收到深交所《终止上市事先告知书》，公司2025年度财务会计报告、财务报告内部控制均被出具无法表示意见的审计报告，触及交易所相关规则规定的股票终止上市情形，深交所拟决定终止公司股票上市交易。
+更让她气愤的是，当她向商家和平台申请退款时，对方均以仓库核实发货无异常为由拒绝。
 
-公司有权申请听证或者提出书面陈述和申辩。
+平台先后提出补偿100元、130元、139元优惠券企图息事宁人，但始终不肯承认商家确实没有发货。
 
-*ST天龙公告称，公司收到深交所下发的《事先告知书》，因公司2025年度经审计的期末净资产为负值，且财务报告内部控制被出具否定意见的审计报告，触及交易所相关规则规定的股票终止上市情形，深交所拟决定终止公司股票上市交易。
+直到郑女士用另一个账号重新下单同款商品，录制一镜到底的开箱称重视频，对比物流揽收重量后，才用实打实的数据打脸了商家的说辞，最终拿到了139元退款。
 
-公司有权申请听证或者提出书面陈述和申辩。
+而此时，她为维权已经投入了大量时间和精力。
 
-(完)
+这个看似个案的事件，在网络上引发了巨大的共鸣。
+
+在黑猫投诉 【下载黑猫投诉客户端】平台上，类似收到空包裹、货不对板、少发漏发的投诉屡见不鲜。
+
+2025年双十一期间，黑猫平台电商投诉量超过18万件，其中货不对板和客服推诿是最主要的投诉类型。
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 22:38 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 22:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 22:49 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 22:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 22:40 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 22:28 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 22:31 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 22:26 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 22:49 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 22:43 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 22:24 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 22:48 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 22:31 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 22:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 22:42 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 22:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 22:53 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 22:47 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 22:44 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 22:32 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 22:31 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 22:37 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 22:47 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 22:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 22:40 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 22:52 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/105221601.shtml)
-- 2026-06-29 22:53 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/515223.shtml)
-- 2026-06-29 22:43 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/737863421.shtml)
-- 2026-06-29 22:50 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/10339409384.shtml)
-- 2026-06-29 22:43 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/00248824385.shtml)
-- 2026-06-29 22:31 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/393734.shtml)
-- 2026-06-29 22:37 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/22320.shtml)
-- 2026-06-29 22:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/03169374215.shtml)
-- 2026-06-29 22:51 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/07021557.shtml)
-- 2026-06-29 22:35 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/2981010.shtml)
-- 2026-06-29 22:30 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/385533.shtml)
-- 2026-06-29 22:32 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/7516341646.shtml)
-- 2026-06-29 22:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/578179289.shtml)
-- 2026-06-29 22:47 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/2834719.shtml)
-- 2026-06-29 22:32 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/550732781.shtml)
+- 2026-06-29 22:43 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/16828761504.shtml)
+- 2026-06-29 22:42 - [极限挑战第一季](http://www.blog.minike.top/Article/details/7211709.shtml)
+- 2026-06-29 22:48 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/15444.shtml)
+- 2026-06-29 22:44 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/551869.shtml)
+- 2026-06-29 22:51 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/6932529.shtml)
+- 2026-06-29 22:47 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/08873.shtml)
+- 2026-06-29 22:48 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/843854050753.shtml)
+- 2026-06-29 22:46 - [返利科技盘中上演“天地板”](https://www.share.kurohicncr.top/Article/details/098717285177.shtml)
+- 2026-06-29 22:45 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/311658870998.shtml)
+- 2026-06-29 22:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/9737467.shtml)
+- 2026-06-29 22:37 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/111566685702.shtml)
+- 2026-06-29 22:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/72350529059.shtml)
+- 2026-06-29 22:48 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/163603171133.shtml)
+- 2026-06-29 22:41 - [肝不好身体这几处会“说话”](https://www.share.kurohicncr.top/Article/details/6562658212.shtml)
+- 2026-06-29 22:49 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.minike.top/Article/details/7731746559.shtml)

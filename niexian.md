@@ -1,60 +1,58 @@
-# 酒价内参5月9日价格发布：国窖1573下跌5元/瓶，再度跌破900元大关
+# Meta敲定印度AI数据中心合作，大型云厂商持续加码基础设施建设
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月9日整体明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9921元，较昨日下跌23元，创下近半个月以来最低。市场在短暂平稳后再度下探，终端交投情绪转冷，高端龙头价格企稳，次高端和腰部单品普遍走弱且跌幅较重。 今日白酒市场11
+Meta周三宣布，将从印度富豪穆克什・安巴尼旗下的信实工业集团，租赁一座算力规模达168兆瓦的人工智能数据中心。 这家美国企业在公告中表示，信实工业业务版图庞大，经营范围涵盖石化、纺织、大众传媒等多个领域。该集团将为Meta承建这座数据中心，项目两年内交付，且后续可按需扩容。 Meta创始人兼首席执行官马克・扎克伯格表示：“这座位于贾姆纳格尔的世界级数据中心，将助力我们拓展全球
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月9日整体明显走弱。
+Meta周三宣布，将从印度富豪穆克什・安巴尼旗下的信实工业集团，租赁一座算力规模达168兆瓦的人工智能数据中心。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9921元，较昨日下跌23元，创下近半个月以来最低。
+这家美国企业在公告中表示，信实工业业务版图庞大，经营范围涵盖石化、纺织、大众传媒等多个领域。
 
-市场在短暂平稳后再度下探，终端交投情绪转冷，高端龙头价格企稳，次高端和腰部单品普遍走弱且跌幅较重。
+该集团将为Meta承建这座数据中心，项目两年内交付，且后续可按需扩容。
 
-今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。
+Meta创始人兼首席执行官马克・扎克伯格表示：“这座位于贾姆纳格尔的世界级数据中心，将助力我们拓展全球人工智能基础设施，同时进一步加大对印度经济的长期投入。
 
-上涨方面，精品茅台涨幅居前，上涨4元/瓶，近期走势平稳；飞天茅台与五粮液普五八代均上涨1元/瓶，后者平近一月最高价格。
+” 双方的合作最早可追溯至2020年，当时Meta向安巴尼旗下电信与数字服务公司吉奥平台投资57亿美元。
 
-下跌方面，青花郎与习酒君品跌幅居前，均下跌6元/瓶，前者再度失守700元关口，近期该酒品的价格波动较为剧烈，在700元大关附近反复震荡，后者价格今日快速下探，回落至近一个月次低位；国窖1573、洋河梦之蓝M6+及古井贡古20均下跌5元/瓶，其中国窖1573再度跌破900元大关，梦之蓝M6+失守600元关口；青花汾20与水晶剑南春均下跌1元/瓶。
+去年，两家企业再度深化合作，成立合资公司，面向印度本土企业与开发者开放Meta的开源人工智能模型。
 
-五粮液1618的价格环比保持不变。
+信实工业董事长安巴尼称，Meta此次投资，是印度数字基础设施发展的标志性转折点。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+全球各大超大规模科技企业纷纷入局印度数据中心市场。
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 22:38 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 22:28 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 22:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 22:25 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 22:32 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 22:42 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 22:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 22:30 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 22:46 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 22:42 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 22:41 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 22:31 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 22:45 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 22:50 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 22:46 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 22:55 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 22:58 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 22:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 22:46 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 22:43 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 22:47 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 22:52 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 22:31 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 22:44 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 22:45 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:49 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/44617582040.shtml)
-- 2026-06-29 22:29 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/397154.shtml)
-- 2026-06-29 22:28 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/343335.shtml)
-- 2026-06-29 22:25 - [温网](http://www.share.kurohicncr.top/Article/details/9530137606.shtml)
-- 2026-06-29 22:30 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/79724118.shtml)
-- 2026-06-29 22:30 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/26553226.shtml)
-- 2026-06-29 22:30 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/532085.shtml)
-- 2026-06-29 22:53 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/21525518.shtml)
-- 2026-06-29 22:42 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/924162.shtml)
-- 2026-06-29 22:37 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/431369.shtml)
-- 2026-06-29 22:53 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/588401206467.shtml)
-- 2026-06-29 22:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/373002936.shtml)
-- 2026-06-29 22:28 - [刘宇宁 好听](https://www.share.minike.top/Article/details/381034741624.shtml)
-- 2026-06-29 22:32 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/278190028156.shtml)
-- 2026-06-29 22:48 - [沉睡花园](http://www.share.minike.top/Article/details/3214853648.shtml)
+- 2026-06-29 22:31 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/50705101441.shtml)
+- 2026-06-29 22:48 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/803286861470.shtml)
+- 2026-06-29 22:49 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/1388611.shtml)
+- 2026-06-29 22:51 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/665361478195.shtml)
+- 2026-06-29 22:30 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/94280110.shtml)
+- 2026-06-29 22:45 - [第一炉香](http://www.share.minike.top/Article/details/371940755081.shtml)
+- 2026-06-29 22:52 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/644655370654.shtml)
+- 2026-06-29 22:38 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/57249.shtml)
+- 2026-06-29 22:58 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/241934.shtml)
+- 2026-06-29 22:55 - [我和我的家乡](https://www.share.minike.top/Article/details/777214010437.shtml)
+- 2026-06-29 22:45 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/85344700.shtml)
+- 2026-06-29 22:52 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/178251395484.shtml)
+- 2026-06-29 22:53 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/984022426151.shtml)
+- 2026-06-29 22:44 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/974345.shtml)
+- 2026-06-29 22:51 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/48758801.shtml)

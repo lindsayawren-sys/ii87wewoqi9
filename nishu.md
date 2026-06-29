@@ -1,59 +1,58 @@
-# 红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万
+# “光影刻印 交响之巅”：“扎西德勒”第六届西藏网络影像节在拉萨颁奖
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-2026年5月6日，Astrocade正式对外披露了一笔引人注目的A轮和B轮合并融资——总计5600万美元（约4亿元人民币）。融资结构安排极为清晰：由红杉资本领投B轮，而A轮则由总部位于新加坡的Sea Limited控股实体Sea Capital领投。B轮领投方红杉资本主要押注平台规模化潜力，A轮领投方Sea Capital则将东南亚“以游戏作为娱乐基础设施”的运营经验带入董事
+中新网拉萨6月10日电(记者 赵朗)2026年“扎西德勒”第六届西藏网络影像节颁奖典礼10日在拉萨举行。颁奖典礼以“光影刻印交响之巅”为主题，来自海内外的优秀创作者、专家学者及媒体代表齐聚一堂，分享用影像记录伟大时代、让西藏更好走向世界的动人故事，共同见证这一记录时代变迁、彰显影像力量的行业盛事。 本届网络影像节由中央网信办网络传播局、西藏自治区党委宣传部指导，西藏自治区党委网
 
 ## 正文
 
-2026年5月6日，Astrocade正式对外披露了一笔引人注目的A轮和B轮合并融资——总计5600万美元（约4亿元人民币）。
+中新网拉萨6月10日电(记者 赵朗)2026年“扎西德勒”第六届西藏网络影像节颁奖典礼10日在拉萨举行。
 
-融资结构安排极为清晰：由红杉资本领投B轮，而A轮则由总部位于新加坡的Sea Limited控股实体Sea Capital领投。
+颁奖典礼以“光影刻印交响之巅”为主题，来自海内外的优秀创作者、专家学者及媒体代表齐聚一堂，分享用影像记录伟大时代、让西藏更好走向世界的动人故事，共同见证这一记录时代变迁、彰显影像力量的行业盛事。
 
-B轮领投方红杉资本主要押注平台规模化潜力，A轮领投方Sea Capital则将东南亚“以游戏作为娱乐基础设施”的运营经验带入董事会。
+本届网络影像节由中央网信办网络传播局、西藏自治区党委宣传部指导，西藏自治区党委网信办主办。
 
-A轮B轮合并披露，“用一轮的钱告诉市场价值已经翻了不止一轮” 值得注意的是，博满资本投资报告以2025年行业风口期的参考基准判断，此规模单轮融资已属顶配。
+自2025年12月启动以来，广大影像爱好者用镜头聚焦雪域高原盛世，用光影展现人民群众幸福瞬间，共收到海内外投稿作品10.2万余件。
 
-但Astrocade选择将A、B两轮融资合并披露，意味着A轮和B轮之间的估值差距已被投资方以合并口径默许，团队“用一轮融资公告，让市场同步知道A轮到B轮的进步，不用分两次传播”的意图十分明显。
+根据本届活动作品征集要求及专家评审，秉持“公平、公正”原则，严格恪守专业标准，经过层层遴选，最终99件作品脱颖而出，5家单位获最佳组织奖。
 
-据公开信息，Astrocade此前于2024年6月完成1200万美元种子轮融资，投资方包括AME Cloud Ventures和英伟达旗下的NVIDIA Ventures，早期便已进入顶级资本火力范围内。
+获奖作品内容涵盖“和润、共兴、绿韵、固边”四大主题。
 
-Astrocade的团队结构，在AI游戏赛道的创业公司中形成了十分特别的布局。
+这些作品紧扣时代脉搏，扎根现实生活，以镜头捕捉雪域神韵，用旋律讲述西藏故事，以多元视角展现西藏的发展之美、和谐之美、生态之美、家园之美。
 
-公司的核心创始人包括CEO Amir Sadeghian和CTO Ali Sadeghian两兄弟。
+据悉，“扎西德勒”西藏网络影像节自2020年正式启动以来，历经六届，旨在鼓励广大摄影工作者、爱好者用镜头捕捉时代百态、用光影讲述西藏故事，持续推出有温度、有深度、有力量的影像作品。
 
 ## 相关推荐
 
-- 2026-06-29 22:51 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 22:41 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 22:51 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 22:30 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 22:52 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 22:51 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 22:37 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 22:40 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 22:29 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 22:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 22:53 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 22:34 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 22:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 22:49 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 22:39 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 22:48 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 22:35 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 22:46 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 22:58 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 22:51 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 22:39 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 22:35 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 22:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 22:31 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 22:53 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:52 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/309675197.shtml)
-- 2026-06-29 22:41 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/779709663.shtml)
-- 2026-06-29 22:43 - [锐评T1零封KC](http://www.share.minike.top/Article/details/66871.shtml)
-- 2026-06-29 22:47 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/2135006782.shtml)
-- 2026-06-29 22:50 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/9200217180.shtml)
-- 2026-06-29 22:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/50287034.shtml)
-- 2026-06-29 22:41 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/48521.shtml)
-- 2026-06-29 22:47 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/72074.shtml)
-- 2026-06-29 22:48 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/893764679901.shtml)
-- 2026-06-29 22:34 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/907505855.shtml)
-- 2026-06-29 22:33 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/00190059.shtml)
-- 2026-06-29 22:47 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/659045508794.shtml)
-- 2026-06-29 22:41 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/8502694421.shtml)
-- 2026-06-29 22:43 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/29414.shtml)
-- 2026-06-29 22:42 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/15189.shtml)
+- 2026-06-29 22:53 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/984646428.shtml)
+- 2026-06-29 22:51 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/031354.shtml)
+- 2026-06-29 22:41 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/159049.shtml)
+- 2026-06-29 22:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/8426931044.shtml)
+- 2026-06-29 22:47 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/6476534445.shtml)
+- 2026-06-29 22:44 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/88092993.shtml)
+- 2026-06-29 22:36 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/00527062.shtml)
+- 2026-06-29 22:45 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/6630539097.shtml)
+- 2026-06-29 22:43 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/354970.shtml)
+- 2026-06-29 22:42 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/1954916.shtml)
+- 2026-06-29 22:52 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/927531025689.shtml)
+- 2026-06-29 22:43 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/8718088.shtml)
+- 2026-06-29 22:30 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/866732850457.shtml)
+- 2026-06-29 22:49 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/72967.shtml)
+- 2026-06-29 22:54 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/722959273.shtml)

@@ -1,53 +1,58 @@
-# 古特雷斯呼吁美伊保持克制 避免局势进一步升级
+# 甲骨文盘前跌7.9% 云业务高增难抵传统软件疲软
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-联合国秘书长古特雷斯的副发言人哈克8日说，古特雷斯呼吁美国和伊朗保持最大限度克制，以避免局势进一步升级。 哈克当天在例行记者会上回答有关提问时表示，古特雷斯对霍尔木兹海峡发生的交火事件表示关切。秘书长强调，当前正处于缓解局势的关键时刻，他敦促各方保持最大限度克制，以避免局势进一步升级。 哈克说，古特雷斯同时呼吁各方全面遵守停火协议，并避免采取任何可能导致局势重新升级或破坏当前外
+专题：聚焦美股2026年第一季度财报 本季度甲骨文 AI 数据中心营收近乎翻倍，达 58 亿美元，但用于扩建 AI 数据中心的资本开支同步大幅攀升 甲骨文公布截至 5 月的财年收官季度财报，季度总营收 192 亿美元，同比增长 21%，增速较上一季度小幅回落；但若剔除汇率波动、按固定汇率口径计算，公司营收增速实则有所加快。 这家云与软件企业持续加码 AI 数据中心业务。本板块季
 
 ## 正文
 
-联合国秘书长古特雷斯的副发言人哈克8日说，古特雷斯呼吁美国和伊朗保持最大限度克制，以避免局势进一步升级。
+专题：聚焦美股2026年第一季度财报 本季度甲骨文 AI 数据中心营收近乎翻倍，达 58 亿美元，但用于扩建 AI 数据中心的资本开支同步大幅攀升 甲骨文公布截至 5 月的财年收官季度财报，季度总营收 192 亿美元，同比增长 21%，增速较上一季度小幅回落；但若剔除汇率波动、按固定汇率口径计算，公司营收增速实则有所加快。
 
-哈克当天在例行记者会上回答有关提问时表示，古特雷斯对霍尔木兹海峡发生的交火事件表示关切。
+这家云与软件企业持续加码 AI 数据中心业务。
 
-秘书长强调，当前正处于缓解局势的关键时刻，他敦促各方保持最大限度克制，以避免局势进一步升级。
+本板块季度营收近乎翻倍至 58 亿美元，不过配套扩建的资本开支也大幅增至 165 亿美元。
 
-哈克说，古特雷斯同时呼吁各方全面遵守停火协议，并避免采取任何可能导致局势重新升级或破坏当前外交努力的行动。
+全年来看，甲骨文资本开支规模翻番有余，达到 556.6 亿美元，远超公司全年 319 亿美元的经营现金流。
 
-据伊朗方面8日消息，伊朗武装部队哈塔姆安比亚中央总部发言人表示，由于美国违反停火协议，袭击伊朗油轮和另一艘进入霍尔木兹海峡的船只，伊朗武装力量当晚打击了霍尔木兹海峡以东的美国军舰。
+甲骨文通过举债与股权融资填补资金缺口，并释放信号称 2027 年计划再新增 20 亿美元债务融资。
 
-美军中央司令部证实美驱逐舰遭袭，并称进行了回击，但美方无意寻求局势升级。
+与此同时，本季度数据显示甲骨文软件业务增长乏力。
+
+企业客户纷纷从买断式软件转向云端订阅服务，致使甲骨文传统软件业务收入同比下滑 2%；公司云订阅软件业务本季度营收 41 亿美元，同比仅增长 10%，增速环比回落 3 个百分点。
+
+不过甲骨文管理层表示，尚未确认入账的软件应用合同收入增速表现更优。
 
 ## 相关推荐
 
-- 2026-06-29 22:25 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 22:45 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 22:34 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 22:50 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 22:44 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 22:51 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 22:30 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 22:29 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 22:39 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 22:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 22:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 22:58 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 22:51 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 22:55 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 22:44 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 22:37 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 22:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 22:42 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 22:31 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 22:34 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 22:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 22:55 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 22:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:37 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/16141154696.shtml)
-- 2026-06-29 22:25 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/17901.shtml)
-- 2026-06-29 22:31 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/0892669678.shtml)
-- 2026-06-29 22:51 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/20115007859.shtml)
-- 2026-06-29 22:35 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/18464.shtml)
-- 2026-06-29 22:41 - [明星大侦探第一季](https://www.share.minike.top/Article/details/70554071933.shtml)
-- 2026-06-29 22:34 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/488695238.shtml)
-- 2026-06-29 22:26 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/3339435718.shtml)
-- 2026-06-29 22:42 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/254181141309.shtml)
-- 2026-06-29 22:33 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/31340657065.shtml)
-- 2026-06-29 22:47 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/9555568.shtml)
-- 2026-06-29 22:25 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/9849732.shtml)
-- 2026-06-29 22:31 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/05018577742.shtml)
-- 2026-06-29 22:50 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/468504171981.shtml)
-- 2026-06-29 22:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/37138252.shtml)
+- 2026-06-29 22:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/90353391.shtml)
+- 2026-06-29 22:53 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/04259901807.shtml)
+- 2026-06-29 22:55 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/2718641736.shtml)
+- 2026-06-29 22:44 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/48924226.shtml)
+- 2026-06-29 22:57 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/41635555097.shtml)
+- 2026-06-29 22:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/9706755679.shtml)
+- 2026-06-29 22:33 - [爱很美味](https://www.share.minike.top/Article/details/141116.shtml)
+- 2026-06-29 22:30 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/4077711.shtml)
+- 2026-06-29 22:34 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/25222.shtml)
+- 2026-06-29 22:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/460352.shtml)
+- 2026-06-29 22:37 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/19416543.shtml)
+- 2026-06-29 22:53 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/4656703.shtml)
+- 2026-06-29 22:45 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/08751.shtml)
+- 2026-06-29 22:57 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/219410974.shtml)
+- 2026-06-29 22:58 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/246394606320.shtml)

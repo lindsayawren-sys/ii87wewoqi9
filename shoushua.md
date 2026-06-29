@@ -1,55 +1,51 @@
-# Stifel在近期抛售后上调Shake Shack评级
+# 金力集团遭高健行减持38万股 每股均价约1.18港元
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-Stifel认为，在财报引发的抛售之后，Shake Shack目前的估值已处于投资者不容忽视的折价水平。 这家投资公司将这家快餐休闲连锁店的评级从持有上调至买入。该行将目标价从105美元下调至85美元，但仍较周四收盘价隐含23%的上行空间。 该股周四暴跌28%，此前该公司公布一季度每股收益仅盈亏平衡。FactSet调查的分析师此前预期每股盈利12美分。餐饮连锁店的关键指标同店销
+香港联交所最新数据显示，6月4日，高健行减持金力集团（03919）38万股，每股均价1.177港元，总金额约为44.73万港元。减持后最新持股数目为352.4万股，最新持股比例为9.06%。责任编辑：卢昱君
 
 ## 正文
 
-Stifel认为，在财报引发的抛售之后，Shake Shack目前的估值已处于投资者不容忽视的折价水平。
+香港联交所最新数据显示，6月4日，高健行减持金力集团（03919）38万股，每股均价1.177港元，总金额约为44.73万港元。
 
-这家投资公司将这家快餐休闲连锁店的评级从持有上调至买入。
+减持后最新持股数目为352.4万股，最新持股比例为9.06%。
 
-该行将目标价从105美元下调至85美元，但仍较周四收盘价隐含23%的上行空间。
-
-该股周四暴跌28%，此前该公司公布一季度每股收益仅盈亏平衡。
-
-FactSet调查的分析师此前预期每股盈利12美分。
-
-餐饮连锁店的关键指标同店销售额也略低于季度预期。
-
-责任编辑：张俊 SF065
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 22:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 22:50 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 22:49 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 22:30 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 22:41 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 22:25 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 22:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 22:39 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 22:25 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 22:29 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 22:44 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 22:49 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 22:48 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 22:41 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 22:33 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 22:36 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 22:42 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 22:45 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 22:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 22:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 22:31 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 22:33 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 22:30 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 22:37 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 22:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:32 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/3243433512.shtml)
-- 2026-06-29 22:36 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/2382239375.shtml)
-- 2026-06-29 22:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/02378327267.shtml)
-- 2026-06-29 22:42 - [85花告别古偶](https://www.share.minike.top/Article/details/664307.shtml)
-- 2026-06-29 22:47 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.kurohicncr.top/Article/details/94106793504.shtml)
-- 2026-06-29 22:43 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/0824288.shtml)
-- 2026-06-29 22:47 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/34837390.shtml)
-- 2026-06-29 22:30 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/119651.shtml)
-- 2026-06-29 22:30 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/45085379984.shtml)
-- 2026-06-29 22:36 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/724481.shtml)
-- 2026-06-29 22:42 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/8875886834.shtml)
-- 2026-06-29 22:48 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/1895500238.shtml)
-- 2026-06-29 22:25 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/940615459609.shtml)
-- 2026-06-29 22:44 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/2370834854.shtml)
-- 2026-06-29 22:40 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/69104376.shtml)
+- 2026-06-29 22:49 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/237568.shtml)
+- 2026-06-29 22:30 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/836651283921.shtml)
+- 2026-06-29 22:32 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/8400415.shtml)
+- 2026-06-29 22:30 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/034944817.shtml)
+- 2026-06-29 22:57 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/382523114733.shtml)
+- 2026-06-29 22:51 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/99701.shtml)
+- 2026-06-29 22:32 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/951450882267.shtml)
+- 2026-06-29 22:30 - [急先锋](http://www.share.kurohicncr.top/Article/details/50159397505.shtml)
+- 2026-06-29 22:33 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/87229.shtml)
+- 2026-06-29 22:59 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/32254.shtml)
+- 2026-06-29 22:34 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/194428502.shtml)
+- 2026-06-29 22:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/234160552.shtml)
+- 2026-06-29 22:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/162524042857.shtml)
+- 2026-06-29 22:30 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/96602095847.shtml)
+- 2026-06-29 22:30 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/4124710124.shtml)

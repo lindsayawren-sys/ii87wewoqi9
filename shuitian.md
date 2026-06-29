@@ -1,55 +1,57 @@
-# 中国企业自主研制的无人车全链路补能体系发布 可实现自动充电
+# AI赋能创业新范式 浙江平阳探索“OPC青年创业社区”
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 10:28 来源：中国新闻网 5月8日，面向无人驾驶领域的全链路自动充电与无人运营体系“来电岛1号”在山东青岛发布。该体系通过充电机器人、泊车机器人与AI智能体的融合技术架构，实现无人驾驶车辆从泊车、补能到运维的全流程无人化闭环，为无人驾驶产业规模化落地提供系统性的解决方案。 该体系中，多车型通用的自动充电机器人大幅压缩设备成本，打破了自动补能
+中新网温州6月10日电(胡丰盛 张炜)在人工智能浪潮席卷各行各业的今天，创业形态正在被重新定义。 浙江省温州市平阳县以AI赋能“OPC”(一人公司)的新模式，悄然打开了“轻资产、低门槛、快变现”的创业通道。从2025年平阳县星洋OPC青年创业社区(简称“星洋社区”)先行先试，到2026年“1035”三年行动计划全面铺开，平阳正尝试回答一个时代命题：AI时代，个体如何以最低成本、
 
 ## 正文
 
-发布时间：2026年05月09日 10:28 来源：中国新闻网 5月8日，面向无人驾驶领域的全链路自动充电与无人运营体系“来电岛1号”在山东青岛发布。
+中新网温州6月10日电(胡丰盛 张炜)在人工智能浪潮席卷各行各业的今天，创业形态正在被重新定义。
 
-该体系通过充电机器人、泊车机器人与AI智能体的融合技术架构，实现无人驾驶车辆从泊车、补能到运维的全流程无人化闭环，为无人驾驶产业规模化落地提供系统性的解决方案。
+浙江省温州市平阳县以AI赋能“OPC”(一人公司)的新模式，悄然打开了“轻资产、低门槛、快变现”的创业通道。
 
-该体系中，多车型通用的自动充电机器人大幅压缩设备成本，打破了自动补能设备规模化应用的价格壁垒；自动泊车机器人将单车存取时间大幅缩减，显著提升了高频密集停车场景的适配性；基于海量充电数据打造的AI智能体，可实现电池安全风险提前预警与车网互动智能调度，有效降低无人车运营能耗成本。
+从2025年平阳县星洋OPC青年创业社区(简称“星洋社区”)先行先试，到2026年“1035”三年行动计划全面铺开，平阳正尝试回答一个时代命题：AI时代，个体如何以最低成本、最高效率参与产业分工？
 
-特来电副总裁、首席科学家穆晓鹏表示，通过来电岛，可以将无人车的充电无人化，摆脱现在人工插枪的模式，同时通过自动泊车和自动充电的体系，让无人车的运营效率提升30%。
+县域经济又如何借此培育新质生产力？
 
-(王禹 制作 刘鹏） 责任编辑：【罗攀】
+“过去接一个大型设计项目，需要五六人的团队，启动资金动辄几十万元。
+
+现在一个人、一台电脑，借助AI平台就能完成。
+
+”这是入驻星洋社区的00后创客的共同体验。
+
+依托社区自研的“蕉点AI设计师平台”及AI文案、漫剧制作等工具，创业者无需技术背景，就能承接腾讯、蚂蚁等企业的真实订单。
 
 ## 相关推荐
 
-- 2026-06-29 22:35 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 22:28 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 22:49 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 22:32 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 22:43 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 22:36 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 22:45 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 22:40 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 22:46 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 22:53 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 22:29 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 22:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 22:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 22:33 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 22:28 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 22:51 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 22:38 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 22:52 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 22:47 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 22:46 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 22:40 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 22:36 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 22:50 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 22:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 22:56 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 22:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/7301617645.shtml)
-- 2026-06-29 22:27 - [请回答王牌2019](https://www.share.minike.top/Article/details/650324.shtml)
-- 2026-06-29 22:44 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/571436183801.shtml)
-- 2026-06-29 22:51 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/82820957558.shtml)
-- 2026-06-29 22:30 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/87713234.shtml)
-- 2026-06-29 22:49 - [勇敢的心第二部](http://www.share.minike.top/Article/details/491162.shtml)
-- 2026-06-29 22:45 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/360007593.shtml)
-- 2026-06-29 22:39 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/2423458.shtml)
-- 2026-06-29 22:47 - [月亮](http://www.share.kurohicncr.top/Article/details/593762.shtml)
-- 2026-06-29 22:32 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/67015235056.shtml)
-- 2026-06-29 22:51 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/45541728326.shtml)
-- 2026-06-29 22:26 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/369353.shtml)
-- 2026-06-29 22:33 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/03046.shtml)
-- 2026-06-29 22:25 - [极限挑战第一季](https://www.blog.minike.top/Article/details/42292530846.shtml)
-- 2026-06-29 22:31 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/126565790913.shtml)
+- 2026-06-29 22:52 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/2050415650.shtml)
+- 2026-06-29 22:47 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/460127.shtml)
+- 2026-06-29 22:48 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/4190648496.shtml)
+- 2026-06-29 22:51 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/973809.shtml)
+- 2026-06-29 22:41 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/77033609.shtml)
+- 2026-06-29 22:45 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/53484570.shtml)
+- 2026-06-29 22:44 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/94325853619.shtml)
+- 2026-06-29 22:41 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/742752.shtml)
+- 2026-06-29 22:48 - [恋与深空回应争议](https://www.share.minike.top/Article/details/3452748.shtml)
+- 2026-06-29 22:38 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/48446.shtml)
+- 2026-06-29 22:56 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/59468317174.shtml)
+- 2026-06-29 22:58 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/9773459334.shtml)
+- 2026-06-29 22:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/28834568220.shtml)
+- 2026-06-29 22:31 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/2945290.shtml)
+- 2026-06-29 22:33 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/855504234938.shtml)

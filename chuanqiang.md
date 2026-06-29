@@ -1,59 +1,59 @@
-# 中国发明专利有效量达631.8万件 有效注册商标量达5303.2万件
+# 台胞扎根平潭：从“融入”迈向“融合”
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网北京5月7日电 (记者 孙自法)中国国家知识产权局5月7日正式发布的《二〇二五年中国知识产权保护状况》白皮书显示，截至2025年底，中国发明专利有效量达631.8万件，有效注册商标量达5303.2万件，同比分别增长11.1%、6.5%。同时，著作权年登记总量1067.7万件；累计认定地理标志产品5066个。全年受理农业植物新品种权申请17104件，同比增长15.26%。
+中新网福建平潭6月10日电 题：台胞扎根平潭：从“融入”迈向“融合” 作者 叶秋云 “2013年到平潭，我只是想来试试。走过十余年时光，这里已成为我的‘第二故乡’，我在此扎根。”10日，第十五届共同家园论坛在福建平潭举行，台湾青年杨哲安在“畅叙心声·共话融合”对话沙龙环节如此分享。 在平潭十余年，从组建金融办、推动金融政策落地，到服务企业，再到开拓对台及自贸区金融业务，杨哲安的
 
 ## 正文
 
-中新网北京5月7日电 (记者 孙自法)中国国家知识产权局5月7日正式发布的《二〇二五年中国知识产权保护状况》白皮书显示，截至2025年底，中国发明专利有效量达631.8万件，有效注册商标量达5303.2万件，同比分别增长11.1%、6.5%。
+中新网福建平潭6月10日电 题：台胞扎根平潭：从“融入”迈向“融合” 作者 叶秋云 “2013年到平潭，我只是想来试试。
 
-同时，著作权年登记总量1067.7万件；累计认定地理标志产品5066个。
+走过十余年时光，这里已成为我的‘第二故乡’，我在此扎根。
 
-全年受理农业植物新品种权申请17104件，同比增长15.26%。
+”10日，第十五届共同家园论坛在福建平潭举行，台湾青年杨哲安在“畅叙心声·共话融合”对话沙龙环节如此分享。
 
-根据白皮书，2025年中国知识产权保护成效显著增强，知识产权治理能力和水平持续提升，保护社会满意度得分达82.81分，再创新高。
+在平潭十余年，从组建金融办、推动金融政策落地，到服务企业，再到开拓对台及自贸区金融业务，杨哲安的每一步都与平潭金融产业发展“同频共振”。
 
-司法保护全面强化，全国法院新收知识产权民事一审案件47.3万件，检察机关受理审查逮捕侵犯知识产权犯罪案件6220件，公安机关立案侦办相关刑事案件2.6万起。
+“平潭是综合实验区，在制度、政策上为台胞提供了‘先行先试’的广阔空间。
 
-行政保护纵深推进，市场监管部门查处知识产权违法案件3.7万件，知识产权管理部门审结专利侵权纠纷行政裁决案件9341件，海关查扣进出口侵权嫌疑货物8642万件。
+”杨哲安现任平潭综合实验区金融科技有限公司总经理，多次参加共同家园论坛的他表示，亲历平潭的变化，他深刻感受到台胞在平潭的发展已从初期的“融入”阶段，迈向了更深层次的“融合”新阶段。
 
-保护体系加快健全，新建国家级知识产权保护中心和快速维权中心7家，总数达129家，海外知识产权纠纷应对指导工作平台全年为企业挽回损失27.5亿元人民币。
+平潭综合实验区台湾同胞投资企业协会会长李振瑄出生于一个台商家庭。
 
-在知识产权制度建设和法治保障方面，全年制修订法律法规及规章18部，出台司法解释2部。
+三十余年前，他的祖父李登瑞在平潭成立了第一家台资企业。
 
 ## 相关推荐
 
-- 2026-06-29 22:28 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 22:53 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 22:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 22:25 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 22:43 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 22:28 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 22:30 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 22:38 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 22:26 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 22:42 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 22:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 22:47 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 22:35 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 22:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 22:40 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 22:40 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 22:54 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 22:32 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 22:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 22:32 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 22:31 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 22:51 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 22:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 22:45 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 22:56 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 22:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/683965783.shtml)
-- 2026-06-29 22:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/7627578553.shtml)
-- 2026-06-29 22:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/953146098.shtml)
-- 2026-06-29 22:29 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/621887607.shtml)
-- 2026-06-29 22:32 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/55804547045.shtml)
-- 2026-06-29 22:41 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/277434346.shtml)
-- 2026-06-29 22:30 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.minike.top/Article/details/85803.shtml)
-- 2026-06-29 22:36 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/49111269.shtml)
-- 2026-06-29 22:47 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/537519342893.shtml)
-- 2026-06-29 22:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/254850995843.shtml)
-- 2026-06-29 22:49 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/237483098205.shtml)
-- 2026-06-29 22:38 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/16030995.shtml)
-- 2026-06-29 22:47 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/9023004.shtml)
-- 2026-06-29 22:44 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/7092142.shtml)
-- 2026-06-29 22:44 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/0471018521.shtml)
+- 2026-06-29 22:46 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/05208.shtml)
+- 2026-06-29 22:48 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/13289971268.shtml)
+- 2026-06-29 22:35 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/5335927.shtml)
+- 2026-06-29 22:56 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/675084.shtml)
+- 2026-06-29 22:57 - [东方风云榜直播](http://www.share.minike.top/Article/details/9958035.shtml)
+- 2026-06-29 22:49 - [天道](http://www.share.minike.top/Article/details/50230985.shtml)
+- 2026-06-29 22:31 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/94052801.shtml)
+- 2026-06-29 22:56 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/94013032318.shtml)
+- 2026-06-29 22:35 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/239172231.shtml)
+- 2026-06-29 22:40 - [毒液2](https://www.blog.kurohicncr.top/Article/details/05800021.shtml)
+- 2026-06-29 22:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/044840398230.shtml)
+- 2026-06-29 22:50 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/260510703867.shtml)
+- 2026-06-29 22:43 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/916748.shtml)
+- 2026-06-29 22:43 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/17419342.shtml)
+- 2026-06-29 22:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/08924733660.shtml)

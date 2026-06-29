@@ -1,46 +1,51 @@
-# 大美边疆看我家丨黑龙江双鸭山：黑土沃野上的生态边城
+# 中金：云顶新耀维持跑赢行业评级 目标价41.5港元
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 14:38 来源：中国新闻网 黑龙江省双鸭山市，是一座静卧于黑土沃野的生态边城。江河蜿蜒穿城而过，湿地候鸟振翅齐飞，林泽相依，城景交融，尽显边疆小城的灵秀与壮美。(作者：王潇涵） 责任编辑：【魏聪聪】
+中金发布研报称，维持云顶新耀（01952）2026年和2027年盈利预测不变。基于DCF，予跑赢行业评级与目标价41.5港元，较当前股价有48.43%上行空间。6月2日，公司公告与Travere Therapeutics达成独家授权许可与合作协议，授予其EVER001（希布替尼，civorebrutinib）除大中华区及部分东南亚国家以外区域的独家开发及商业化权益。责任编辑：卢
 
 ## 正文
 
-发布时间：2026年05月09日 14:38 来源：中国新闻网 黑龙江省双鸭山市，是一座静卧于黑土沃野的生态边城。
+中金发布研报称，维持云顶新耀（01952）2026年和2027年盈利预测不变。
 
-江河蜿蜒穿城而过，湿地候鸟振翅齐飞，林泽相依，城景交融，尽显边疆小城的灵秀与壮美。
+基于DCF，予跑赢行业评级与目标价41.5港元，较当前股价有48.43%上行空间。
 
-(作者：王潇涵） 责任编辑：【魏聪聪】
+6月2日，公司公告与Travere Therapeutics达成独家授权许可与合作协议，授予其EVER001（希布替尼，civorebrutinib）除大中华区及部分东南亚国家以外区域的独家开发及商业化权益。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 22:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 22:47 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 22:52 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 22:45 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 22:32 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 22:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 22:34 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 22:41 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 22:34 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 22:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 22:37 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 22:58 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 22:41 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 22:59 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 22:34 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 22:48 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 22:39 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 22:51 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 22:34 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 22:50 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 22:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 22:34 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/27896225011.shtml)
-- 2026-06-29 22:26 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/4007659.shtml)
-- 2026-06-29 22:25 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/6053715.shtml)
-- 2026-06-29 22:27 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/77627465209.shtml)
-- 2026-06-29 22:38 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/70895995.shtml)
-- 2026-06-29 22:50 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/709797.shtml)
-- 2026-06-29 22:33 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/662650.shtml)
-- 2026-06-29 22:51 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/4977127812.shtml)
-- 2026-06-29 22:52 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/29713798010.shtml)
-- 2026-06-29 22:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/016399.shtml)
-- 2026-06-29 22:31 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/337003.shtml)
-- 2026-06-29 22:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/33443.shtml)
-- 2026-06-29 22:29 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/21969465275.shtml)
-- 2026-06-29 22:47 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/650040.shtml)
-- 2026-06-29 22:52 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/23253586.shtml)
+- 2026-06-29 22:30 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/2285874845.shtml)
+- 2026-06-29 22:57 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/418397346.shtml)
+- 2026-06-29 22:59 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/79931636722.shtml)
+- 2026-06-29 22:45 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/864082957.shtml)
+- 2026-06-29 22:30 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/29911033287.shtml)
+- 2026-06-29 22:31 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/092225.shtml)
+- 2026-06-29 22:52 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/786265.shtml)
+- 2026-06-29 22:51 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/0271855202.shtml)
+- 2026-06-29 22:39 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/2788322992.shtml)
+- 2026-06-29 22:49 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/21992.shtml)
+- 2026-06-29 22:45 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/10597617306.shtml)
+- 2026-06-29 22:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/567724599314.shtml)
+- 2026-06-29 22:59 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/32247787742.shtml)
+- 2026-06-29 22:50 - [扬名立万](https://www.share.minike.top/Article/details/987725251.shtml)
+- 2026-06-29 22:50 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/73577.shtml)

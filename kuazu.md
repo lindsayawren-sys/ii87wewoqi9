@@ -1,58 +1,56 @@
-# 美国一季度生产率增速进一步放缓
+# 金价深度回调，“固收+”理财如何守住“黄金增强”不翻车？
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-美国工人生产率增速在一季度进一步放缓，但随着企业在人工智能领域大力投资，这一趋势可能出现逆转。 美国劳工部劳工统计局周四表示，衡量每小时工人产出的非农生产率在一季度环比年化增长0.8%。 四季度数据被下修，显示生产率年化增长率为1.6%，而此前报告为1.8%。这一增速自三季度5.2%的激增后已有所降温。此前预计一季度生产率年化增长率为1.0%。 生产率同比增长2.9%。经济学家
+界面新闻记者 | 冯丽君 黄金价格的下跌幅度与速度，似乎超出了市场预期。 6月10日，伦敦金现货价格跌破4200美元关口，一度低至4106.46美元，距年内高点跌去26.65%。今年以来，伦敦金现货价格已累计下跌超4%。 当日，上海黄金交易所SGE黄金9999价格来到898元/克，距年内高点1256元/克已跌去28.5%。 理财市场方面，“黄金+”系列理财产品在2025年较为火
 
 ## 正文
 
-美国工人生产率增速在一季度进一步放缓，但随着企业在人工智能领域大力投资，这一趋势可能出现逆转。
+界面新闻记者 | 冯丽君 黄金价格的下跌幅度与速度，似乎超出了市场预期。
 
-美国劳工部劳工统计局周四表示，衡量每小时工人产出的非农生产率在一季度环比年化增长0.8%。
+6月10日，伦敦金现货价格跌破4200美元关口，一度低至4106.46美元，距年内高点跌去26.65%。
 
-四季度数据被下修，显示生产率年化增长率为1.6%，而此前报告为1.8%。
+今年以来，伦敦金现货价格已累计下跌超4%。
 
-这一增速自三季度5.2%的激增后已有所降温。
+当日，上海黄金交易所SGE黄金9999价格来到898元/克，距年内高点1256元/克已跌去28.5%。
 
-此前预计一季度生产率年化增长率为1.0%。
+理财市场方面，“黄金+”系列理财产品在2025年较为火热，当前布局则较为谨慎。
 
-生产率同比增长2.9%。
+从目前存量产品来看，富邦华一银行发行的两款黄金类理财产品——贝莱德世界黄金基金人民币款与贝莱德世界黄金基金美金款属于中高风险（R4级）权益类理财。
 
-经济学家认为，人工智能的采用将提升生产率并抑制劳动力成本。
+Wind数据显示，截至6月10日，上述两款理财产品近1月收益率分别为-13.51%、-13.17%；近3月收益率分别为-21.10%、-20.27%；今年以来的收益率分别为-7.54%、-4.71%。
 
-单位劳动力成本（即每单位产出的劳动力价格）在一季度环比年化增长2.3%。
+界面新闻记者梳理发现，根据Wind数据，国内银行理财子公司发行的产品中，与黄金相关的理财产品绝大部分为固收+类，少部分为混合类理财产品，风险等级绝大部分为R2级。
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 22:45 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 22:30 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 22:29 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 22:38 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 22:24 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 22:37 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 22:43 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 22:47 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 22:26 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 22:51 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 22:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 22:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 22:35 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 22:41 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 22:35 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 22:58 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 22:40 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 22:54 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 22:57 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 22:42 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 22:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/06157.shtml)
-- 2026-06-29 22:48 - [请回答王牌2019](https://www.blog.minike.top/Article/details/2069311.shtml)
-- 2026-06-29 22:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/60070725.shtml)
-- 2026-06-29 22:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/2378036043.shtml)
-- 2026-06-29 22:38 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/11286905.shtml)
-- 2026-06-29 22:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/41689.shtml)
-- 2026-06-29 22:28 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/704532.shtml)
-- 2026-06-29 22:45 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/96484.shtml)
-- 2026-06-29 22:28 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/33140327895.shtml)
-- 2026-06-29 22:29 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/027998735874.shtml)
-- 2026-06-29 22:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/77423.shtml)
-- 2026-06-29 22:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/063775954.shtml)
-- 2026-06-29 22:38 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/5740931411.shtml)
-- 2026-06-29 22:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/4589072.shtml)
-- 2026-06-29 22:39 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/56768.shtml)
+- 2026-06-29 22:35 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/26022960.shtml)
+- 2026-06-29 22:31 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/17396370.shtml)
+- 2026-06-29 22:38 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/25877478157.shtml)
+- 2026-06-29 22:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/389869.shtml)
+- 2026-06-29 22:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/602352490330.shtml)
+- 2026-06-29 22:46 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/9726842588.shtml)
+- 2026-06-29 22:47 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/254798150.shtml)
+- 2026-06-29 22:33 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/75976432186.shtml)
+- 2026-06-29 22:45 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/39024554.shtml)
+- 2026-06-29 22:58 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/24400693.shtml)
+- 2026-06-29 22:40 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/8883658036.shtml)
+- 2026-06-29 22:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/3246394.shtml)
+- 2026-06-29 22:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/12900331810.shtml)
+- 2026-06-29 22:55 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/841862681902.shtml)
+- 2026-06-29 22:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/04801413.shtml)

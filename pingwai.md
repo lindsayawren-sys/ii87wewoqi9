@@ -1,53 +1,57 @@
-# 精神病医院炒股成为上市公司前十大股东？江西一医院最新回应
+# 亚马逊获得花旗牵头银团总计175亿美元贷款额度
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月8日，针对“医院新晋升为某上市公司前十大股东”一事，江西上饶广丰区十五岭山精神病医院有限公司发布情况说明。 5月8日，网传我院“新晋升为某上市公司前十大股东”，现将相关情况说明如下：我院是一所二级精神病专科医院，为营利性民营医院，我院按照《中华人民共和国公司法》《中华人民共和国证券法》等相关规定，正常参
+亚马逊公司在监管文件中披露，已与由花旗集团牵头的银团签署了一项总额175亿美元的贷款协议。 根据周三提交的监管文件，贷款方同意提供这笔延迟提取定期贷款（DDTL），额度将保留至今年9月底。亚马逊每次动用信贷额度借款时，均需在借款之日起三年内偿还。 该贷款的利率将在有担保隔夜融资利率（SOFR）的基础上，上浮0.625至0.875个百分点，具体幅度取决于亚马逊的信用评级。 参与此
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+亚马逊公司在监管文件中披露，已与由花旗集团牵头的银团签署了一项总额175亿美元的贷款协议。
 
-5月8日，针对“医院新晋升为某上市公司前十大股东”一事，江西上饶广丰区十五岭山精神病医院有限公司发布情况说明。
+根据周三提交的监管文件，贷款方同意提供这笔延迟提取定期贷款（DDTL），额度将保留至今年9月底。
 
-5月8日，网传我院“新晋升为某上市公司前十大股东”，现将相关情况说明如下：我院是一所二级精神病专科医院，为营利性民营医院，我院按照《中华人民共和国公司法》《中华人民共和国证券法》等相关规定，正常参与资本市场行为。
+亚马逊每次动用信贷额度借款时，均需在借款之日起三年内偿还。
 
-感谢媒体朋友监督，也恳请广大网友不信谣、不传谣！
+该贷款的利率将在有担保隔夜融资利率（SOFR）的基础上，上浮0.625至0.875个百分点，具体幅度取决于亚马逊的信用评级。
 
-责任编辑：凌辰
+参与此次交易的其他银行包括摩根大通、美国银行、汇丰银行和富国银行。
+
+此外，还有十几家银行也参与了此次融资。
+
+当前，各大科技巨头正大举举债加码AI基础设施建设。
+
+亚马逊近期也在海外市场发债，从而利用其他资金渠道。
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 22:43 - [炽夏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 22:28 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 22:32 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 22:43 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 22:50 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 22:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 22:42 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 22:29 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 22:48 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 22:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 22:39 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 22:48 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 22:56 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 22:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 22:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 22:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 22:31 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 22:50 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 22:53 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 22:53 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 22:56 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 22:35 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 22:52 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:26 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/190528.shtml)
-- 2026-06-29 22:42 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/909889850.shtml)
-- 2026-06-29 22:31 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/2208319.shtml)
-- 2026-06-29 22:53 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/7286022698.shtml)
-- 2026-06-29 22:32 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/3657683082.shtml)
-- 2026-06-29 22:39 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/980419.shtml)
-- 2026-06-29 22:41 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/4522164345.shtml)
-- 2026-06-29 22:41 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/13564044.shtml)
-- 2026-06-29 22:52 - [千与千寻](https://www.share.kurohicncr.top/Article/details/772094714.shtml)
-- 2026-06-29 22:49 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/01597.shtml)
-- 2026-06-29 22:43 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/4229979.shtml)
-- 2026-06-29 22:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/6318164.shtml)
-- 2026-06-29 22:47 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/066393414.shtml)
-- 2026-06-29 22:50 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/93124314604.shtml)
-- 2026-06-29 22:34 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/526040519.shtml)
+- 2026-06-29 22:57 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/21971.shtml)
+- 2026-06-29 22:58 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/719037298030.shtml)
+- 2026-06-29 22:37 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/228973.shtml)
+- 2026-06-29 22:42 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/963415.shtml)
+- 2026-06-29 22:51 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/723138844260.shtml)
+- 2026-06-29 22:30 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/85092263120.shtml)
+- 2026-06-29 22:41 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/00486.shtml)
+- 2026-06-29 22:32 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/76031277430.shtml)
+- 2026-06-29 22:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/51892.shtml)
+- 2026-06-29 22:49 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/267388.shtml)
+- 2026-06-29 22:32 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/89667327.shtml)
+- 2026-06-29 22:32 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/401342471.shtml)
+- 2026-06-29 22:58 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/234164862441.shtml)
+- 2026-06-29 22:44 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/99907.shtml)
+- 2026-06-29 22:45 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/82813166.shtml)

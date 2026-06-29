@@ -1,56 +1,57 @@
-# 泰康人寿回应青岛分公司代理人涉案事件：绝不姑息任何违法犯罪行为
+# 构建“脉冲式激活”药物研发新理念 中国基础科研创新成果登上《自然》
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-5月7日金融一线消息，近日，泰康人寿青岛分公司个人代理人任某某被青岛市公安机关立案侦查引发业内关注。对此，泰康人寿方面对金融一线表示，公司高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。 该公司表示，始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客户权益的行为零容忍。公司已主动联系可能
+中新网上海6月11日电 (记者 郑莹莹)北京时间6月10日晚，国际知名学术期刊《自然》(Nature)在线发表了中国科学院上海药物研究所徐华强研究员团队和李佳研究员团队合作的一项最新研究成果。 在该研究中，中国科研人员提出药物设计的第一性原理，并构建“脉冲式激活”药物研发新理念，有望为胆汁酸相关肝病带来希望。 简单而言，当大多数新药追求“在体内停留得越久越好”时，该研究团队反其
 
 ## 正文
 
-5月7日金融一线消息，近日，泰康人寿青岛分公司个人代理人任某某被青岛市公安机关立案侦查引发业内关注。
+中新网上海6月11日电 (记者 郑莹莹)北京时间6月10日晚，国际知名学术期刊《自然》(Nature)在线发表了中国科学院上海药物研究所徐华强研究员团队和李佳研究员团队合作的一项最新研究成果。
 
-对此，泰康人寿方面对金融一线表示，公司高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。
+在该研究中，中国科研人员提出药物设计的第一性原理，并构建“脉冲式激活”药物研发新理念，有望为胆汁酸相关肝病带来希望。
 
-该公司表示，始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客户权益的行为零容忍。
+简单而言，当大多数新药追求“在体内停留得越久越好”时，该研究团队反其道而行之，设计了这款“来去匆匆”的药物，名为Linafexor，让它像潮水一样“有涨有落”地激活靶点。
 
-公司已主动联系可能受影响的客户及相关人士，并承诺对于依法应由公司承担的责任，绝不推卸。
+该研究团队主张，药物的设计需顺应人体的生理节律，而不是“一直按住开关不放”。
 
-此外，公司深刻认识到代理人员管理的重要性，全面检视相关流程制度，加强合规培训与监督检查。
+在研究中，用药后，受体被短暂、强力地激活，随后迅速回落、获得休息，避免因“长期疲劳”而失灵。
 
-责任编辑：王进和
+中国科学院上海药物研究所研究员徐华强表示，“十年磨一药”和“九死一生”的创新药领域还处于“石器时代”，希望通过第一性原理回归新药研制的底层逻辑。
+
+所谓第一性原理指的是：健康是一种动态的生理稳态，疾病是这种稳态被打破，理想的药物应当恢复并强化正常的生理节律，而非将其打破。
+
+中国科学院上海药物研究所所长李佳表示，在生物医药领域，希望第一性原理能成为一个小小的标志性成果，助力中国生物医药的原始创新。
 
 ## 相关推荐
 
-- 2026-06-29 22:43 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 22:34 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 22:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 22:41 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 22:45 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 22:38 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 22:27 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 22:31 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 22:36 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 22:41 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 22:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 22:37 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 22:41 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 22:25 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 22:42 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 22:39 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 22:44 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 22:38 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 22:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 22:53 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 22:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 22:46 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 22:30 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 22:48 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 22:54 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:44 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/7576799286.shtml)
-- 2026-06-29 22:43 - [明星大侦探第四季](https://www.share.minike.top/Article/details/696604.shtml)
-- 2026-06-29 22:24 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/47607.shtml)
-- 2026-06-29 22:38 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/1721244953.shtml)
-- 2026-06-29 22:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/2200447.shtml)
-- 2026-06-29 22:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/86027042.shtml)
-- 2026-06-29 22:50 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/16257.shtml)
-- 2026-06-29 22:41 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/960016.shtml)
-- 2026-06-29 22:24 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/6035973.shtml)
-- 2026-06-29 22:45 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/8876345.shtml)
-- 2026-06-29 22:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/392711597098.shtml)
-- 2026-06-29 22:26 - [温网](http://www.blog.kurohicncr.top/Article/details/184708177593.shtml)
-- 2026-06-29 22:53 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/40185560.shtml)
-- 2026-06-29 22:40 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/51809.shtml)
-- 2026-06-29 22:51 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/639855773564.shtml)
+- 2026-06-29 22:48 - [世界杯](http://www.blog.kurohicncr.top/Article/details/31054072.shtml)
+- 2026-06-29 22:37 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/84455480.shtml)
+- 2026-06-29 22:34 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.kurohicncr.top/Article/details/159467936092.shtml)
+- 2026-06-29 22:36 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/073816658.shtml)
+- 2026-06-29 22:48 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/433985294263.shtml)
+- 2026-06-29 22:46 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/50741390.shtml)
+- 2026-06-29 22:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/88586288.shtml)
+- 2026-06-29 22:43 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/911922.shtml)
+- 2026-06-29 22:54 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/5002417753.shtml)
+- 2026-06-29 22:50 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/091491320549.shtml)
+- 2026-06-29 22:57 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/534079874148.shtml)
+- 2026-06-29 22:40 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/151890299.shtml)
+- 2026-06-29 22:34 - [明星大侦探第一季](https://www.share.minike.top/Article/details/4604082445.shtml)
+- 2026-06-29 22:36 - [速度与激情9](http://www.share.minike.top/Article/details/175176198.shtml)
+- 2026-06-29 22:50 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/9112517200.shtml)

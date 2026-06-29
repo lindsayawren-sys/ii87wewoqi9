@@ -1,51 +1,56 @@
-# 宏微科技：公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%
+# 我国旅居韩国大熊猫“华妮”产下一只雌性幼崽
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-证券日报网5月8日讯，宏微科技（维权）在接受调研者提问时表示，公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%，以应对上游贵金属成本上涨。目前大部分客户接受度良好，公司计划通过涨价释放利润弹性，并视上游晶圆厂涨价情况决定是否进一步向下游传导。本回复不构成任何投资建议，具体信息请以公司披露的临时公告与定期报告为准。
+中新网6月10日电 据中国大熊猫保护研究中心微信公众号消息，当地时间6月3日上午10时53分，我国旅居韩国三星爱宝乐园的大熊猫“华妮”(即“爱宝”)产下1只170多克的雌性幼崽。这是自2016年开启为期15年的中韩大熊猫保护科研合作以来，在中韩双方专家共同努力下，“华妮”产下的第4只幼崽，也是中国大熊猫保护研究中心旅居海外大熊猫今年产下的第一只幼崽。“幼崽叫声洪亮，活力好。已有
 
 ## 正文
 
-证券日报网5月8日讯，宏微科技（维权）在接受调研者提问时表示，公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%，以应对上游贵金属成本上涨。
+中新网6月10日电 据中国大熊猫保护研究中心微信公众号消息，当地时间6月3日上午10时53分，我国旅居韩国三星爱宝乐园的大熊猫“华妮”(即“爱宝”)产下1只170多克的雌性幼崽。
 
-目前大部分客户接受度良好，公司计划通过涨价释放利润弹性，并视上游晶圆厂涨价情况决定是否进一步向下游传导。
+这是自2016年开启为期15年的中韩大熊猫保护科研合作以来，在中韩双方专家共同努力下，“华妮”产下的第4只幼崽，也是中国大熊猫保护研究中心旅居海外大熊猫今年产下的第一只幼崽。
 
-本回复不构成任何投资建议，具体信息请以公司披露的临时公告与定期报告为准。
+“幼崽叫声洪亮，活力好。
+
+已有经验的‘华妮’迅速抱崽，舔崽，带崽行为熟练平稳。
+
+在爱宝乐园饲养员协助下，当日下午我两次辅助幼崽吃奶，确认幼崽已吸食到母乳。
+
+”专程前往韩国为“华妮”接生的中国大熊猫保护研究中心专家王平峰介绍。
+
+2016年3月3日，承载着中韩人民的深厚友谊，中国大熊猫保护研究中心的雄性大熊猫“园欣”和雌性大熊猫“华妮”抵达韩国三星爱宝乐园，开启中韩大熊猫保护科研合作之旅。
+
+10年来，中韩双方共同致力于大熊猫保护繁育、疾病防控、公众教育等科研和人文领域研究与发展，取得了积极成效，促进了两国濒危物种保护，增进了中韩人民友好感情。
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 22:33 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 22:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 22:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 22:52 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 22:49 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 22:42 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 22:46 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 22:24 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 22:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 22:41 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 22:24 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 22:40 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 22:44 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 22:45 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 22:31 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 22:58 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 22:39 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 22:36 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 22:50 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 22:58 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 22:53 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 22:30 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 22:55 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 22:50 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:26 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/127702086.shtml)
-- 2026-06-29 22:24 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/997755414.shtml)
-- 2026-06-29 22:28 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/97527152.shtml)
-- 2026-06-29 22:52 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/0988983.shtml)
-- 2026-06-29 22:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/864152538550.shtml)
-- 2026-06-29 22:32 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/08861.shtml)
-- 2026-06-29 22:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/777972828386.shtml)
-- 2026-06-29 22:26 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/283807976.shtml)
-- 2026-06-29 22:50 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/8080031.shtml)
-- 2026-06-29 22:46 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/8638861.shtml)
-- 2026-06-29 22:53 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/939808.shtml)
-- 2026-06-29 22:48 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/179480750062.shtml)
-- 2026-06-29 22:30 - [王安宇聪明到导演组炸了](https://www.share.minike.top/Article/details/1825732018.shtml)
-- 2026-06-29 22:33 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/63125099.shtml)
-- 2026-06-29 22:36 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/071973.shtml)
+- 2026-06-29 22:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/04439.shtml)
+- 2026-06-29 22:33 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/69999036971.shtml)
+- 2026-06-29 22:47 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/611638142.shtml)
+- 2026-06-29 22:52 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/4556953.shtml)
+- 2026-06-29 22:52 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/251018.shtml)
+- 2026-06-29 22:45 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/312233.shtml)
+- 2026-06-29 22:39 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/52060262156.shtml)
+- 2026-06-29 22:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/33428818903.shtml)
+- 2026-06-29 22:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/17585509417.shtml)
+- 2026-06-29 22:34 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/57028.shtml)
+- 2026-06-29 22:40 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/003191428832.shtml)
+- 2026-06-29 22:36 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.kurohicncr.top/Article/details/23900.shtml)
+- 2026-06-29 22:53 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/17597568.shtml)
+- 2026-06-29 22:51 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/166383.shtml)
+- 2026-06-29 22:37 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/3525496563.shtml)

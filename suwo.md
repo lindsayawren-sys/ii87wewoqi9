@@ -1,58 +1,60 @@
-# 【理响中国·幸福有“理”】数字技术赋能乡村全面振兴——以福建实践为镜鉴
+# 伊拉克前总统：和平是发展的基本前提 战争与冲突断送发展机遇
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-作者：胡冰川(中国社会科学院农村发展研究所农产品贸易与政策研究室主任、研究员) 在新时代推进中国式现代化进程中，数字技术正成为驱动农业农村高质量发展的新质生产力。习近平总书记深刻指出，要把握数字化、网络化、智能化方向，推动制造业、服务业、农业等产业数字化，利用互联网新技术对传统产业进行全方位、全链条的改造，提高全要素生产率，发挥数字技术对经济发展的放大、叠加、倍增作用。这一重要
+中新社北京6月11日电 (记者 曾玥)在11日举办的“2026·全球人权治理高端论坛”开幕式上，伊拉克前总统拉希德现场致辞表示，和平是发展的基本前提，战争与冲突则会摧毁各国的发展成果，断送未来的发展机遇。 拉希德在谈及巴勒斯坦问题时作出如上表述。他说，数十年来，巴勒斯坦人民最基本的人权和发展权遭到剥夺，已成为人类良知中一道尚未愈合的伤口。在巴勒斯坦问题上，伊拉克的立场始终坚定。
 
 ## 正文
 
-作者：胡冰川(中国社会科学院农村发展研究所农产品贸易与政策研究室主任、研究员) 在新时代推进中国式现代化进程中，数字技术正成为驱动农业农村高质量发展的新质生产力。
+中新社北京6月11日电 (记者 曾玥)在11日举办的“2026·全球人权治理高端论坛”开幕式上，伊拉克前总统拉希德现场致辞表示，和平是发展的基本前提，战争与冲突则会摧毁各国的发展成果，断送未来的发展机遇。
 
-习近平总书记深刻指出，要把握数字化、网络化、智能化方向，推动制造业、服务业、农业等产业数字化，利用互联网新技术对传统产业进行全方位、全链条的改造，提高全要素生产率，发挥数字技术对经济发展的放大、叠加、倍增作用。
+拉希德在谈及巴勒斯坦问题时作出如上表述。
 
-这一重要论述为数字农业发展指明了方向。
+他说，数十年来，巴勒斯坦人民最基本的人权和发展权遭到剥夺，已成为人类良知中一道尚未愈合的伤口。
 
-数字农业以物联网、大数据、人工智能、5G等现代信息技术为支撑，重塑农业生产、流通与服务方式，不仅能提升生产效率、降低成本，还为小农户对接大市场、乡村治理现代化提供有力支撑。
+在巴勒斯坦问题上，伊拉克的立场始终坚定。
 
-近年来，我国农村网络基础设施加速覆盖，智慧农业应用场景不断丰富，为全面乡村振兴注入强劲动能。
+这一立场基于伊拉克对国际法的恪守，以及对人权体系赖以建立的人道主义原则和道德准则的承诺。
 
-数字农业：农业现代化的必然选择 传统农业依赖经验和人力，面临劳动力短缺、资源利用效率低、产业链附加值不高等挑战。
+拉希德说，伊拉克在恢复和重建的道路上已走过漫长历程，但前路依然漫漫。
 
-数字农业通过“数据＋算法＋硬件”的融合，实现信息感知数字化、管理决策科学化、装备控制智能化和要素投入精准化，显著提升农业全要素生产率。
+伊拉克受益于包括中国在内的许多国家的支持与合作。
 
-要推动互联网、大数据、人工智能同产业深度融合，加快培育一批“专精特新”企业和制造业单项冠军企业。
+“中国为伊拉克的能源基础设施及许多项目提供了实实在在的帮助，对此我们深表感谢。
 
 ## 相关推荐
 
-- 2026-06-29 22:43 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 22:37 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 22:41 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 22:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 22:47 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 22:32 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 22:38 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 22:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 22:38 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 22:33 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 22:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 22:25 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 22:50 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 22:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 22:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 22:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 22:34 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 22:38 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 22:54 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 22:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 22:57 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 22:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 22:46 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 22:49 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 22:40 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 22:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:46 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/987201767196.shtml)
-- 2026-06-29 22:42 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/7876334152.shtml)
-- 2026-06-29 22:40 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/963063.shtml)
-- 2026-06-29 22:38 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/6748118.shtml)
-- 2026-06-29 22:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/837561757.shtml)
-- 2026-06-29 22:44 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/066249539868.shtml)
-- 2026-06-29 22:49 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/3499486.shtml)
-- 2026-06-29 22:50 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/068283574251.shtml)
-- 2026-06-29 22:43 - [急先锋](http://www.share.minike.top/Article/details/869200761245.shtml)
-- 2026-06-29 22:48 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/30288770478.shtml)
-- 2026-06-29 22:33 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/93763523812.shtml)
-- 2026-06-29 22:39 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/8260250.shtml)
-- 2026-06-29 22:25 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/132740.shtml)
-- 2026-06-29 22:52 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/47635.shtml)
-- 2026-06-29 22:33 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/1948104476.shtml)
+- 2026-06-29 22:38 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/616392.shtml)
+- 2026-06-29 22:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/6759204225.shtml)
+- 2026-06-29 22:46 - [巴西10号球衣是天才传承史](http://www.share.kurohicncr.top/Article/details/21047346721.shtml)
+- 2026-06-29 22:45 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/9279817.shtml)
+- 2026-06-29 22:55 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/259093746752.shtml)
+- 2026-06-29 22:59 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/511137.shtml)
+- 2026-06-29 22:54 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/259012.shtml)
+- 2026-06-29 22:47 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/6709299532.shtml)
+- 2026-06-29 22:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/8358570019.shtml)
+- 2026-06-29 22:39 - [沙丘](https://www.share.kurohicncr.top/Article/details/764494981.shtml)
+- 2026-06-29 22:33 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/715731709.shtml)
+- 2026-06-29 22:52 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/716725.shtml)
+- 2026-06-29 22:40 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/61356.shtml)
+- 2026-06-29 22:35 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/391819235.shtml)
+- 2026-06-29 22:34 - [福建海警位金门附近海域常态执法巡查](http://www.blog.minike.top/Article/details/031142492046.shtml)

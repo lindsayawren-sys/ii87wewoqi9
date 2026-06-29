@@ -1,56 +1,61 @@
-# 共话中国经济新机遇｜专访：期待与中国伙伴共拓发展新机遇——访喀麦隆经济、计划和领土整治部长梅伊
+# A股低开，深证成指、创业板指跌超1%，贵金属跌幅居前
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-新华社雅温得5月7日电专访：期待与中国伙伴共拓发展新机遇——访喀麦隆经济、计划和领土整治部长梅伊 新华社记者王泽欧阳子英 喀麦隆经济、计划和领土整治部长阿拉明·奥斯曼·梅伊日前在喀麦隆首都雅温得接受新华社记者专访时说，近年来，喀麦隆和中国在基础设施建设，特别是港口、公路和能源等领域取得重要合作成果，希望进一步加强对华经贸合作，欢迎中国投资者参与喀麦隆建设，共拓发展新机遇。 20
+中新经纬6月10日电 10日早盘，A股三大指数集体低开。上证指数跌0.62%，报3985.12点。深证成指跌1.35%，报15062.51点。创业板指跌1.62%，报3897.73点。科创综指跌0.55%，报2018.89点。 Wind截图 盘面上，体育、镍、代糖概念等板块领涨两市，贵金属、分立器件、激光设备等板块跌幅居前。 元件板块低开，宝鼎科技逼近跌停。中富电路、晶赛科技、
 
 ## 正文
 
-新华社雅温得5月7日电专访：期待与中国伙伴共拓发展新机遇——访喀麦隆经济、计划和领土整治部长梅伊 新华社记者王泽欧阳子英 喀麦隆经济、计划和领土整治部长阿拉明·奥斯曼·梅伊日前在喀麦隆首都雅温得接受新华社记者专访时说，近年来，喀麦隆和中国在基础设施建设，特别是港口、公路和能源等领域取得重要合作成果，希望进一步加强对华经贸合作，欢迎中国投资者参与喀麦隆建设，共拓发展新机遇。
+中新经纬6月10日电 10日早盘，A股三大指数集体低开。
 
-2026年是喀麦隆与中国建交55周年。
+上证指数跌0.62%，报3985.12点。
 
-梅伊表示，喀麦隆政府和企业通过中非经贸博览会、广交会等平台，与中方伙伴加强交流，建立更紧密的投资和贸易关系，推动双边经贸往来持续深入。
+深证成指跌1.35%，报15062.51点。
 
-他说，希望喀中企业进一步加强合作，鼓励更多中小企业参与基础设施建设，促进技能和技术经验转移，更好支持喀麦隆经济社会发展。
+创业板指跌1.62%，报3897.73点。
 
-谈及中国对53个非洲建交国全面实施零关税举措时，梅伊说，“这是一项具有历史意义的决定”，为喀麦隆提供了进入中国广阔市场的机会。
+科创综指跌0.55%，报2018.89点。
 
-当前，喀麦隆对华出口的农产品以初级大宗商品为主，主要包括原棉、木材和可可等。
+Wind截图 盘面上，体育、镍、代糖概念等板块领涨两市，贵金属、分立器件、激光设备等板块跌幅居前。
 
-梅伊表示，喀方希望进一步加强生产性投资，特别是在原材料本地加工领域的投入，以提升产品质量和附加值。
+元件板块低开，宝鼎科技逼近跌停。
 
-梅伊表示，喀麦隆正采取多种措施，积极推动由资源依赖型经济向生产型经济转型。
+中富电路、晶赛科技、顺络电子、沪电股份跌幅居前。
 
 ## 相关推荐
 
-- 2026-06-29 22:48 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 22:49 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 22:31 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 22:45 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 22:24 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 22:53 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 22:48 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 22:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 22:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 22:45 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 22:40 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 22:55 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 22:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 22:40 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 22:54 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 22:39 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 22:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 22:56 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 22:41 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 22:49 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 22:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 22:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 22:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 22:55 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 22:46 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:51 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/87817320346.shtml)
-- 2026-06-29 22:41 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/48490.shtml)
-- 2026-06-29 22:44 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/97247.shtml)
-- 2026-06-29 22:27 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/749638162.shtml)
-- 2026-06-29 22:42 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/29436256.shtml)
-- 2026-06-29 22:30 - [货车司机恶意闯卡逃费被行拘](https://www.share.minike.top/Article/details/571633739.shtml)
-- 2026-06-29 22:35 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/58995.shtml)
-- 2026-06-29 22:35 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/93439840755.shtml)
-- 2026-06-29 22:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/58447421.shtml)
-- 2026-06-29 22:36 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/64913090560.shtml)
-- 2026-06-29 22:43 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/71467199158.shtml)
-- 2026-06-29 22:36 - [田曦薇没招了](https://www.share.minike.top/Article/details/7736677.shtml)
-- 2026-06-29 22:31 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/035466652303.shtml)
-- 2026-06-29 22:26 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/29451.shtml)
-- 2026-06-29 22:46 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/182484060.shtml)
+- 2026-06-29 22:58 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/06913.shtml)
+- 2026-06-29 22:32 - [扬名立万](https://www.share.minike.top/Article/details/1667902594.shtml)
+- 2026-06-29 22:50 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/4104150890.shtml)
+- 2026-06-29 22:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/963900.shtml)
+- 2026-06-29 22:50 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/11178.shtml)
+- 2026-06-29 22:46 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/073564.shtml)
+- 2026-06-29 22:36 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/238093048.shtml)
+- 2026-06-29 22:30 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/053769538.shtml)
+- 2026-06-29 22:50 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/964216336046.shtml)
+- 2026-06-29 22:49 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/15856483996.shtml)
+- 2026-06-29 22:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/1879171287.shtml)
+- 2026-06-29 22:35 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/736972312.shtml)
+- 2026-06-29 22:45 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/8277700164.shtml)
+- 2026-06-29 22:56 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/811995448.shtml)
+- 2026-06-29 22:35 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/5156916.shtml)

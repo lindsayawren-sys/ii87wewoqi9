@@ -1,61 +1,56 @@
-# 申万菱信要换帅，贾经理真有点尬……
+# 瑞银上调Cava评级，看好其增长前景
 
-> 更新时间：2026-06-29 22:54:02 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-来源：今晚吃基 基金公司的“换帅”，往往不只是换个门面，背后通常藏着KPI焦虑。 老牌公募申万菱金刚传出要换总经理，现任汪涛拟离任，接棒的是刚从长城基金总经理位置过来的邱春杨。 自2020年4月履职至今的汪涛，其在位超过6年，是申万菱信历史上任期最长的总经理…… 怎么，就要换了呢？ 这背后的逻辑，跟之前花重金挖来的明星经理贾成东，不能说完全没有关系。 1️⃣ 汪涛的“缩表” 总
+瑞银周三将地中海快餐连锁店Cava Group的股票评级从中性上调至“买入”，并将目标价上调至90美元，理由是该公司第一季度同店销售增长强劲且门店扩张计划持续推进。 Cava股价在5月份发布第一财季财报后大幅上涨。数据显示，该公司当季同店销售额同比增长9.7%，超出分析师预期，其中客流量增长贡献了6.8个百分点。总收入增长32.2%至4.344亿美元，净收入达到2360万美元。
 
 ## 正文
 
-来源：今晚吃基 基金公司的“换帅”，往往不只是换个门面，背后通常藏着KPI焦虑。
+瑞银周三将地中海快餐连锁店Cava Group的股票评级从中性上调至“买入”，并将目标价上调至90美元，理由是该公司第一季度同店销售增长强劲且门店扩张计划持续推进。
 
-老牌公募申万菱金刚传出要换总经理，现任汪涛拟离任，接棒的是刚从长城基金总经理位置过来的邱春杨。
+Cava股价在5月份发布第一财季财报后大幅上涨。
 
-自2020年4月履职至今的汪涛，其在位超过6年，是申万菱信历史上任期最长的总经理…… 怎么，就要换了呢？
+数据显示，该公司当季同店销售额同比增长9.7%，超出分析师预期，其中客流量增长贡献了6.8个百分点。
 
-这背后的逻辑，跟之前花重金挖来的明星经理贾成东，不能说完全没有关系。
+总收入增长32.2%至4.344亿美元，净收入达到2360万美元。
 
-1️⃣ 汪涛的“缩表” 总经理当了6年，但汪涛的成绩单确实有点拿不出手： 💣 营收利润双杀：申万菱信的营收连续5年下滑，从2021年的6.62亿跌到2025年的4.72亿。
+瑞银分析师丹尼斯·盖格在报告中表示，在当前环境下，Cava仍然是一个引人注目的增长故事，这在行业中越来越稀缺。
 
-净利润更是连续4年缩水，直接腰斩到了7000多万。
+他指出，该公司差异化的菜单、多重销售催化剂以及对可持续发展的持续投资，都是支撑股价上行的积极因素。
 
-💣 规模靠“注水”： 虽然管理规模重返“千亿”俱乐部，但细看结构全是货币基金在撑场面。
+除了亮眼的业绩表现，Cava还大幅上调了2026财年的业绩指引。
 
-反观即将上任的邱春杨，他在长城基金的履历可是相当光鲜： 提出了“合规、投研、产品”三条生命线，硬是把规模从1500亿干到了3700亿，且净利润是稳步增长的！
+公司预计全年同店销售额增长将达到4.5%至6.5%，高于此前3%至5%的预期；调整后EBITDA展望也从1.76至1.84亿美元上调至1.81至1.91亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 22:32 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 22:24 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 22:24 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 22:35 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 22:48 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 22:50 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 22:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 22:47 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 22:27 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 22:26 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 22:40 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 22:36 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 22:51 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 22:48 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 22:37 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 22:48 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 22:36 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 22:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 22:43 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 22:34 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 22:56 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 22:38 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 22:43 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 22:35 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/2714819.shtml)
-- 2026-06-29 22:37 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/8520723.shtml)
-- 2026-06-29 22:34 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/190679.shtml)
-- 2026-06-29 22:24 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/17935.shtml)
-- 2026-06-29 22:24 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/312190443.shtml)
-- 2026-06-29 22:24 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/987832224.shtml)
-- 2026-06-29 22:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/760231209.shtml)
-- 2026-06-29 22:43 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/54700.shtml)
-- 2026-06-29 22:30 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/37602666.shtml)
-- 2026-06-29 22:49 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/88854.shtml)
-- 2026-06-29 22:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/86588422374.shtml)
-- 2026-06-29 22:26 - [流金岁月](http://www.share.minike.top/Article/details/70954664498.shtml)
-- 2026-06-29 22:50 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/51159778.shtml)
-- 2026-06-29 22:30 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/087549911.shtml)
-- 2026-06-29 22:52 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/85630960.shtml)
+- 2026-06-29 22:32 - [炽夏](https://www.share.minike.top/Article/details/07550512.shtml)
+- 2026-06-29 22:37 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/15791209.shtml)
+- 2026-06-29 22:30 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/18450.shtml)
+- 2026-06-29 22:48 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/35063521386.shtml)
+- 2026-06-29 22:49 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/38674.shtml)
+- 2026-06-29 22:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/84841.shtml)
+- 2026-06-29 22:52 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/65190.shtml)
+- 2026-06-29 22:46 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/691263583072.shtml)
+- 2026-06-29 22:56 - [月亮](https://www.blog.minike.top/Article/details/332654656202.shtml)
+- 2026-06-29 22:38 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/220921620.shtml)
+- 2026-06-29 22:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/179516.shtml)
+- 2026-06-29 22:30 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/11582.shtml)
+- 2026-06-29 22:58 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/20820150.shtml)
+- 2026-06-29 22:50 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/036050764.shtml)
+- 2026-06-29 22:36 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/863235.shtml)

@@ -1,59 +1,52 @@
-# 冰雪为媒携手四十载 中加双城合作续新章
+# 第三届中国与南亚国家官产学研对接活动在昆明举办
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月9日电 题：冰雪为媒携手四十载 中加双城合作续新章 中新网记者 王妮娜 2026年，加拿大埃德蒙顿市市长安德鲁·纳克在“世界市长对话”现场，面对台下数百位中外嘉宾，用“感恩”与“愿景”两个词，凝练出两座北方城市跨越四十年的深厚情谊。 “我们共同见证了一个意义非凡的里程碑——埃德蒙顿与哈尔滨缔结友好城市40周年。”纳克动情地说。 1985年，时任埃德蒙顿市市长劳伦
+中新网昆明6月10日电 (记者 缪超)第三届中国与南亚国家官产学研对接活动10日在云南昆明举办，吸引中国及南亚国家80余名政府官员、商界代表和专家学者参会。 此次活动由中国商务部外贸发展事务局、云南省商务厅共同主办，主题为“聚智聚力促合作 开放共赢向未来”。中外与会代表围绕“贸易畅通和贸易平衡”“数字互联与跨境电商合作”“绿色低碳技术创新与重点产业协同发展”三个议题，开展深入交
 
 ## 正文
 
-中新网哈尔滨5月9日电 题：冰雪为媒携手四十载 中加双城合作续新章 中新网记者 王妮娜 2026年，加拿大埃德蒙顿市市长安德鲁·纳克在“世界市长对话”现场，面对台下数百位中外嘉宾，用“感恩”与“愿景”两个词，凝练出两座北方城市跨越四十年的深厚情谊。
+中新网昆明6月10日电 (记者 缪超)第三届中国与南亚国家官产学研对接活动10日在云南昆明举办，吸引中国及南亚国家80余名政府官员、商界代表和专家学者参会。
 
-“我们共同见证了一个意义非凡的里程碑——埃德蒙顿与哈尔滨缔结友好城市40周年。
+此次活动由中国商务部外贸发展事务局、云南省商务厅共同主办，主题为“聚智聚力促合作 开放共赢向未来”。
 
-”纳克动情地说。
+中外与会代表围绕“贸易畅通和贸易平衡”“数字互联与跨境电商合作”“绿色低碳技术创新与重点产业协同发展”三个议题，开展深入交流研讨，共谋发展合作路径。
 
-1985年，时任埃德蒙顿市市长劳伦斯·迪考与时任哈尔滨市市长宫本言播下了友谊种子。
+当天的活动，还特设项目推介环节，邀请南亚国家代表就本国重点经贸及投资项目进行推介，以期促成中国与南亚国家达成更加务实的合作成果。
 
-“四十年来，在两座城市市民、政府官员、艺术家和商界领袖的悉心浇灌下，这颗种子已茁壮成长。
+中国与南亚国家官产学研对接活动自2024年启动以来，已连续成功举办三年，现已成为联结中国与南亚官产学研行业资源的重要纽带，助力中国与南亚国家经贸合作向高质量、深层次升级。
 
-”纳克说，两城在经贸、教育、科技、文旅、体育、城市规划、公共卫生等领域的合作结出累累硕果。
-
-在哈尔滨，“埃德蒙顿路”横贯城市东西；在埃德蒙顿，“哈尔滨路”静卧于河谷之畔。
-
-哈尔滨冰雪经济博览会曾设埃德蒙顿城市图片展，埃德蒙顿的“深冬狂欢节”上则活跃着华人社团的身影。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 22:47 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 22:43 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 22:32 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 22:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 22:46 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 22:47 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 22:31 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 22:32 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 22:33 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 22:34 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 22:49 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 22:25 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 22:51 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 22:48 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 22:36 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 22:47 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 22:49 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 22:32 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 22:40 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 22:57 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 22:31 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 22:32 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [送你一朵小红花](http://www.blog.minike.top/Article/details/29949870122.shtml)
-- 2026-06-29 22:44 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/783202142725.shtml)
-- 2026-06-29 22:34 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/9672165.shtml)
-- 2026-06-29 22:43 - [流金岁月](https://www.share.minike.top/Article/details/6621874.shtml)
-- 2026-06-29 22:41 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/448908064735.shtml)
-- 2026-06-29 22:42 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/6050881.shtml)
-- 2026-06-29 22:34 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.kurohicncr.top/Article/details/011696560840.shtml)
-- 2026-06-29 22:47 - [世界杯高票价为何没劝退球迷](https://www.blog.kurohicncr.top/Article/details/36372.shtml)
-- 2026-06-29 22:26 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/2999653352.shtml)
-- 2026-06-29 22:36 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/42104635.shtml)
-- 2026-06-29 22:28 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/40700916013.shtml)
-- 2026-06-29 22:51 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/54300.shtml)
-- 2026-06-29 22:38 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/0164223.shtml)
-- 2026-06-29 22:36 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/63544240040.shtml)
-- 2026-06-29 22:48 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/83291.shtml)
+- 2026-06-29 22:56 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/64871.shtml)
+- 2026-06-29 22:37 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/0540455338.shtml)
+- 2026-06-29 22:34 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/5986362980.shtml)
+- 2026-06-29 22:46 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/6010515.shtml)
+- 2026-06-29 22:54 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/11833462250.shtml)
+- 2026-06-29 22:52 - [急先锋](https://www.share.kurohicncr.top/Article/details/729486039.shtml)
+- 2026-06-29 22:32 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/3711299.shtml)
+- 2026-06-29 22:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/244177785.shtml)
+- 2026-06-29 22:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/367769111.shtml)
+- 2026-06-29 22:56 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/61444593421.shtml)
+- 2026-06-29 22:30 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/0332057380.shtml)
+- 2026-06-29 22:39 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/11015271.shtml)
+- 2026-06-29 22:37 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/78153.shtml)
+- 2026-06-29 22:32 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/766397.shtml)
+- 2026-06-29 22:47 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.kurohicncr.top/Article/details/1999683773.shtml)

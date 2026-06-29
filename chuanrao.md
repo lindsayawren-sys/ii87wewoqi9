@@ -1,59 +1,61 @@
-# “新债王”冈拉克警告美股估值过高：建议提高现金与实物资产配置，黄金回调仍是买点
+# 从北京到雅典——世界古典学大会连接古今文明与世界对话
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-文章来源：智通财经网 DoubleLine Capital首席投资官、有“新债王”之称的杰弗里·冈拉克（Jeffrey Gundlach）近日在接受彭博采访时表示，当前金融市场估值处于高位，投资者不宜过度押注风险资产。他认为，市场此前依赖美联储降息预期推动上涨，但在通胀压力仍存、利率前景不确定的背景下，这一交易逻辑正面临挑战。 冈拉克表示，年初市场一度预期美联储今年可能降息两到
+综述｜从北京到雅典——世界古典学大会连接古今文明与世界对话 新华社雅典6月10日电 综述｜从北京到雅典——世界古典学大会连接古今文明与世界对话 新华社记者陈刚 6月9日至10日，来自亚洲、欧洲、非洲和北美洲等地的200余名学者和社会人士齐聚希腊雅典，参加第二届世界古典学大会，共同探讨古典文明的时代价值与古典学研究的未来发展方向。本届大会不仅为全球古典学研究注入新的活力，也为推动
 
 ## 正文
 
-文章来源：智通财经网 DoubleLine Capital首席投资官、有“新债王”之称的杰弗里·冈拉克（Jeffrey Gundlach）近日在接受彭博采访时表示，当前金融市场估值处于高位，投资者不宜过度押注风险资产。
+综述｜从北京到雅典——世界古典学大会连接古今文明与世界对话 新华社雅典6月10日电 综述｜从北京到雅典——世界古典学大会连接古今文明与世界对话 新华社记者陈刚 6月9日至10日，来自亚洲、欧洲、非洲和北美洲等地的200余名学者和社会人士齐聚希腊雅典，参加第二届世界古典学大会，共同探讨古典文明的时代价值与古典学研究的未来发展方向。
 
-他认为，市场此前依赖美联储降息预期推动上涨，但在通胀压力仍存、利率前景不确定的背景下，这一交易逻辑正面临挑战。
+本届大会不仅为全球古典学研究注入新的活力，也为推动国际学术合作和文明交流互鉴开辟了空间。
 
-冈拉克表示，年初市场一度预期美联储今年可能降息两到三次，但这一判断如今已明显弱化。
+在首届古典学大会着力拓展古典学内涵和外延的基础上，本届大会聚焦古典学与现实的关系。
 
-他直言，如果投资者买入风险资产的核心理由只是“今年会有两次降息”，那么可能押错了方向。
+针对国际社会共同面临的地缘冲突、气候变化、技术伦理与社会治理等多重挑战，本届大会以“古今对话：古典智慧的现代启示”为主题，围绕知识与道德、社会伦理发展、国际和平秩序以及数智时代的人文精神等多个热点议题展开深入研讨。
 
-他认为，2026年美联储未必会降息，甚至不能排除加息风险。
+多位与会者认为，无论是中华文明倡导的“和而不同”“协和万邦”，还是古希腊哲学关于德性、友爱与公共生活的思考，都体现了人类对社会秩序、共同体关系与美好生活的长期探索。
 
-受中东局势、油价上涨以及通胀反复影响，市场对降息的信心已经下降。
+面对时代变局，古典文明所蕴含的人文精神、和平理念与治理智慧具有重要现实意义；加强古典文明研究与文明交流互鉴，不仅有助于深化对人类文明发展规律的认知，也能够为解决当代现实问题提供思想启迪。
 
-在资产配置方面，冈拉克建议投资者提高防御性仓位。
+10日发布的“以古典智慧照亮人类前行之路”共同倡议，成为本届大会的重要成果之一。
 
-他最新提出的组合思路包括：持有20%现金，以及配置20%实物资产，例如大宗商品等。
+倡议从德性建设、友爱精神、国际秩序与人文关怀4个维度展开，提出激发古典智慧的德性力量、弘扬友爱精神、坚持公平正义与相互尊重、涵养数智时代人文精神等主张，体现出古典学研究从历史阐释向现实关怀不断延展的时代意义。
 
 ## 相关推荐
 
-- 2026-06-29 22:26 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 22:31 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 22:52 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 22:42 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 22:33 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 22:40 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 22:24 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 22:24 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 22:43 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 22:34 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 22:44 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 22:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 22:30 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 22:52 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 22:37 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 22:59 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 22:59 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 22:56 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 22:50 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 22:54 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 22:44 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 22:42 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 22:50 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 22:57 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 22:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 22:56 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 22:34 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 22:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/738599.shtml)
-- 2026-06-29 22:30 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/70427.shtml)
-- 2026-06-29 22:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/53113585678.shtml)
-- 2026-06-29 22:26 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/163391566251.shtml)
-- 2026-06-29 22:25 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/73446472960.shtml)
-- 2026-06-29 22:25 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/39266689.shtml)
-- 2026-06-29 22:28 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/205871389.shtml)
-- 2026-06-29 22:29 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/528528.shtml)
-- 2026-06-29 22:28 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/6443750.shtml)
-- 2026-06-29 22:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/90012.shtml)
-- 2026-06-29 22:29 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/25481980793.shtml)
-- 2026-06-29 22:27 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/4311077.shtml)
-- 2026-06-29 22:51 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/31255588.shtml)
-- 2026-06-29 22:24 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/943191372.shtml)
-- 2026-06-29 22:51 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/51295611320.shtml)
+- 2026-06-29 22:36 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/82169165.shtml)
+- 2026-06-29 22:38 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/772749.shtml)
+- 2026-06-29 22:59 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/339859.shtml)
+- 2026-06-29 22:44 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/4892424.shtml)
+- 2026-06-29 22:46 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/929516792753.shtml)
+- 2026-06-29 22:49 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/629483045.shtml)
+- 2026-06-29 22:32 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/433517881823.shtml)
+- 2026-06-29 22:37 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/223834314.shtml)
+- 2026-06-29 22:56 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/74517.shtml)
+- 2026-06-29 22:39 - [勇敢的心第二部](https://www.share.minike.top/Article/details/322846950559.shtml)
+- 2026-06-29 22:52 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/95828065716.shtml)
+- 2026-06-29 22:42 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/21291.shtml)
+- 2026-06-29 22:40 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/29013.shtml)
+- 2026-06-29 22:59 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/0619840.shtml)
+- 2026-06-29 22:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/052130.shtml)

@@ -1,60 +1,56 @@
-# 《生活服务类平台算法负面清单（试行）》实施取得初步成效
+# Gartner调查：84%企业陷入“品牌死亡循环”，品牌测量不足成增长瓶颈
 
-> 更新时间：2026-06-29 22:54:03 UTC+8
+> 更新时间：2026-06-29 23:00:03 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据“网信中国”微信公众号消息，贯彻落实党中央决策部署，为更好维护新就业群体和广大人民群众合法权益，2026年1月，中央网信委印发《生活服务类平台算法负面清单(试行)》。随后，中央网信办会同有关部门精心组织实施，北京、上海、江苏、浙江、广东等地网信部门迅速行动，督促外卖、网约车、货运、网购、在线旅游、票务领域重点平台对照《负面清单》，深入开展自查自纠。美团、淘宝
+Gartner最新调查显示，84%的受访企业正陷入所谓的“品牌死亡循环”，即由于对品牌测量投入不足，导致难以证明品牌对业务的实际影响，进而难以获得持续的品牌建设预算。 这项于2025年9月至10月进行的调查涵盖了426名高级营销领导者。Gartner将“品牌死亡循环”描述为一个恶性循环：企业低估品牌测量投入，对测量结果缺乏信心，品牌因此获得的资金支持更少，最终品牌被低估、资金不
 
 ## 正文
 
-中新网5月8日电 据“网信中国”微信公众号消息，贯彻落实党中央决策部署，为更好维护新就业群体和广大人民群众合法权益，2026年1月，中央网信委印发《生活服务类平台算法负面清单(试行)》。
+Gartner最新调查显示，84%的受访企业正陷入所谓的“品牌死亡循环”，即由于对品牌测量投入不足，导致难以证明品牌对业务的实际影响，进而难以获得持续的品牌建设预算。
 
-随后，中央网信办会同有关部门精心组织实施，北京、上海、江苏、浙江、广东等地网信部门迅速行动，督促外卖、网约车、货运、网购、在线旅游、票务领域重点平台对照《负面清单》，深入开展自查自纠。
+这项于2025年9月至10月进行的调查涵盖了426名高级营销领导者。
 
-美团、淘宝闪购、淘宝天猫、京东、滴滴、高德、T3、百度、满帮、货拉拉、拼多多、抖音、携程、去哪儿网等平台积极响应，已实施优化改进措施63项，承诺遵守算法要求139项，限期推进125项，在提升算法透明度、公平性、合理性方面取得初步成效。
+Gartner将“品牌死亡循环”描述为一个恶性循环：企业低估品牌测量投入，对测量结果缺乏信心，品牌因此获得的资金支持更少，最终品牌被低估、资金不足、影响力下降。
 
-1.优化订单分配算法。
+Gartner营销业务副总裁、分析师Julie Reeves表示，长期以来品牌被视为传播资产，但它实际上是一个增长引擎。
 
-订单优先就近分配。
+挑战在于，大多数企业缺乏必要的测量方法和向高管沟通的能力，无法将品牌健康状况与业务表现有效连接起来。
 
-滴滴出行、T3出行将距离作为首要派单影响因素，绝大多数订单由距离最近的司机接单。
+这一问题的严峻性在于其直接后果——陷入“品牌死亡循环”的企业，其超越组织增长目标的可能性，仅为能成功评估品牌价值的企业的一半。
 
-货拉拉不指派订单，全部由司机自主抢单，按照“就近优先”原则确定接单司机的比例达93%。
+然而，品牌战略对企业增长的影响是确实存在的：数据显示，拥有强品牌战略的企业，其超越自身增长目标的可能性是其他企业的两倍。
 
-抵制不合理的差异化派单。
+Gartner预测，到2028年，超过80%的企业将对其使命、品牌和文化等公司身份进行重大调整，以跟上AI对市场的影响。
 
 ## 相关推荐
 
-- 2026-06-29 22:28 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 22:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 22:28 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 22:47 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 22:28 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 22:27 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 22:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 22:51 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 22:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 22:36 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 22:26 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 22:46 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 22:44 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 22:43 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 22:46 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 22:35 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 22:49 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 22:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 22:40 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 22:46 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 22:59 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 22:51 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 22:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 22:38 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/17428805772.shtml)
-- 2026-06-29 22:42 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/266613104.shtml)
-- 2026-06-29 22:49 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/5397110337.shtml)
-- 2026-06-29 22:30 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/27943392648.shtml)
-- 2026-06-29 22:31 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/8475356145.shtml)
-- 2026-06-29 22:28 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/244286924.shtml)
-- 2026-06-29 22:31 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/7605195698.shtml)
-- 2026-06-29 22:44 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/109570795151.shtml)
-- 2026-06-29 22:34 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/57416.shtml)
-- 2026-06-29 22:36 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/96968202.shtml)
-- 2026-06-29 22:47 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/186274657635.shtml)
-- 2026-06-29 22:37 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/12091.shtml)
-- 2026-06-29 22:33 - [月亮](https://www.blog.minike.top/Article/details/638308.shtml)
-- 2026-06-29 22:47 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/408449.shtml)
-- 2026-06-29 22:40 - [千与千寻](http://www.blog.minike.top/Article/details/80249591.shtml)
+- 2026-06-29 22:44 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/11503101728.shtml)
+- 2026-06-29 22:42 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/37793.shtml)
+- 2026-06-29 22:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/659022.shtml)
+- 2026-06-29 22:35 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/697542.shtml)
+- 2026-06-29 22:42 - [周生如故](https://www.share.minike.top/Article/details/94810.shtml)
+- 2026-06-29 22:36 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/06967.shtml)
+- 2026-06-29 22:43 - [月亮](http://www.blog.minike.top/Article/details/007082036.shtml)
+- 2026-06-29 22:32 - [月亮](http://www.blog.minike.top/Article/details/16621.shtml)
+- 2026-06-29 22:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/3544086020.shtml)
+- 2026-06-29 22:53 - [周生如故](https://www.blog.minike.top/Article/details/46681027046.shtml)
+- 2026-06-29 22:40 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/18892.shtml)
+- 2026-06-29 22:48 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/669869987.shtml)
+- 2026-06-29 22:56 - [极限挑战第一季](http://www.share.minike.top/Article/details/1735931552.shtml)
+- 2026-06-29 22:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/940768167.shtml)
+- 2026-06-29 22:43 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/631093306.shtml)
