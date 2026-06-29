@@ -1,57 +1,46 @@
-# 国际能源署：4月俄原油产量下滑但出口回升
+# 习近平：中缅建交76年来 两国始终风雨同舟 守望相助
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-国际能源署（IEA）周三发布的月度石油市场报告显示，受乌克兰无人机袭击及中东局势动荡等复合因素影响，4月份俄罗斯原油生产与出口呈现结构性波动：原油产量同比出现下滑，但受地缘冲突引发的供需调整影响，原油出口规模逆势回升。 产量及成品油出口显著承压 报告指出，4月份俄罗斯原油日均产量约为880万桶，较去年同期减少46万桶。与此同时，受炼油设施受损影响，俄罗斯石油成品油出口量环比减少
+发布时间：2026年06月16日 21:05 来源：央视新闻客户端 责任编辑：【姜媛媛】
 
 ## 正文
 
-国际能源署（IEA）周三发布的月度石油市场报告显示，受乌克兰无人机袭击及中东局势动荡等复合因素影响，4月份俄罗斯原油生产与出口呈现结构性波动：原油产量同比出现下滑，但受地缘冲突引发的供需调整影响，原油出口规模逆势回升。
-
-产量及成品油出口显著承压 报告指出，4月份俄罗斯原油日均产量约为880万桶，较去年同期减少46万桶。
-
-与此同时，受炼油设施受损影响，俄罗斯石油成品油出口量环比减少34万桶/日，降至220万桶/日，创下国际能源署有记录以来的最低水平。
-
-地缘政治风险驱动原油出口激增 尽管生产端承压，但俄罗斯原油出口在4月份实现了逆势增长。
-
-数据显示，俄原油日均出口量环比增加25万桶/日，达到490万桶/日。
-
-以乌拉尔原油（Urals）为例，4月份该品种吸引了包括埃及在内的新买家，其对埃日均出口量达20万桶，峰值曾一度达到38万桶。
-
-目前，乌拉尔原油出口规模已接近190万桶/日，基本恢复至乌克兰危机爆发前的水平。
-
-物流通道与输油管线动态 在出口物流方面，波罗的海海上运输量环比增加19万桶/日，支撑了出口总量的复苏。
+发布时间：2026年06月16日 21:05 来源：央视新闻客户端 责任编辑：【姜媛媛】
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 17:50 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 17:42 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 17:44 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 17:30 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 17:57 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 17:38 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 17:57 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 17:53 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 17:33 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 17:33 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 17:40 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 17:54 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 17:54 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 18:01 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 17:47 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 17:58 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 17:47 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 17:56 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 17:47 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 17:47 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 18:05 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 17:38 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 17:52 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 17:40 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/168507.shtml)
-- 2026-06-29 17:38 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/499469.shtml)
-- 2026-06-29 17:40 - [叠纸](http://www.share.kurohicncr.top/Article/details/758534911465.shtml)
-- 2026-06-29 17:37 - [TFING全员黑西装](https://www.share.minike.top/Article/details/1670798.shtml)
-- 2026-06-29 17:52 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/53413875.shtml)
-- 2026-06-29 17:54 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/673988675163.shtml)
-- 2026-06-29 17:49 - [7款高价创新药有望降价](http://www.blog.minike.top/Article/details/045314.shtml)
-- 2026-06-29 17:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/95576.shtml)
-- 2026-06-29 17:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/51849613.shtml)
-- 2026-06-29 17:46 - [周生如故](https://www.blog.minike.top/Article/details/38799761503.shtml)
-- 2026-06-29 17:57 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/4936744.shtml)
-- 2026-06-29 17:49 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/3265333.shtml)
-- 2026-06-29 17:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/023764.shtml)
-- 2026-06-29 17:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/3243582.shtml)
-- 2026-06-29 17:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/6238724.shtml)
+- 2026-06-29 17:54 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/98941.shtml)
+- 2026-06-29 18:00 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/0546262.shtml)
+- 2026-06-29 17:43 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/28203063.shtml)
+- 2026-06-29 17:57 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/0283608137.shtml)
+- 2026-06-29 17:52 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/14896225017.shtml)
+- 2026-06-29 17:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/168845.shtml)
+- 2026-06-29 17:50 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/40803000086.shtml)
+- 2026-06-29 18:06 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/963329.shtml)
+- 2026-06-29 17:50 - [扫黑风暴](http://www.share.minike.top/Article/details/2281259141.shtml)
+- 2026-06-29 17:51 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/06429011.shtml)
+- 2026-06-29 17:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/3542963.shtml)
+- 2026-06-29 17:49 - [看大国重器“云端穿针引线”](https://www.blog.kurohicncr.top/Article/details/1718006.shtml)
+- 2026-06-29 18:00 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/9041513.shtml)
+- 2026-06-29 17:55 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/92528.shtml)
+- 2026-06-29 18:03 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/47849508.shtml)

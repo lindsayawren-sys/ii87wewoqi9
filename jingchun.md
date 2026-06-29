@@ -1,56 +1,56 @@
-# 人均奖金610万元？ SK海力士员工遭婚恋市场“疯抢”！奖金尚未兑现，中国区“至少多发8个月工资”
+# 爱立信首席执行官鲍毅康即将卸任，公司资深高管纳文格将继任
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！ 《人均奖金610万元？ SK海力士员工遭婚恋市场“疯抢”！奖金尚未兑现，中国区“至少多发8个月工资”》 文 | 《BUG》栏目 刘丽丽 多家存储厂商业绩迅猛增长，员工薪资待遇也水涨船高。 近日有消息称，SK海力士韩国员工人均奖金将达610万元人民币，该消息源于国际投行麦格理证券的预测。该投行认为，若SK海
+现任核心网络业务负责人佩尔・纳文格将于 10 月正式接任首席执行官一职 爱立信宣布，执掌公司逾九年的首席执行官鲍毅康决定卸任，任命公司资深高管佩尔・纳文格接任这一职务。 这家瑞典电信设备制造商于周二公告称，现任核心网络业务负责人纳文格将于 10 月 1 日正式出任公司最高负责人。 纳文格 1997 年加入爱立信，历任多项高管职务：曾负责公司北欧及中欧区域业务、云软件与服务业务，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+现任核心网络业务负责人佩尔・纳文格将于 10 月正式接任首席执行官一职 爱立信宣布，执掌公司逾九年的首席执行官鲍毅康决定卸任，任命公司资深高管佩尔・纳文格接任这一职务。
 
-《人均奖金610万元？
+这家瑞典电信设备制造商于周二公告称，现任核心网络业务负责人纳文格将于 10 月 1 日正式出任公司最高负责人。
 
-SK海力士员工遭婚恋市场“疯抢”！
+纳文格 1997 年加入爱立信，历任多项高管职务：曾负责公司北欧及中欧区域业务、云软件与服务业务，去年年初开始执掌网络业务板块。
 
-奖金尚未兑现，中国区“至少多发8个月工资”》 文 | 《BUG》栏目 刘丽丽 多家存储厂商业绩迅猛增长，员工薪资待遇也水涨船高。
+爱立信董事长扬・卡尔森表示：“他深耕通信行业，拥有扎实的专业技术储备与丰富的商业运营经验，在多个关键管理岗位上均交出了亮眼的业绩答卷。
 
-近日有消息称，SK海力士韩国员工人均奖金将达610万元人民币，该消息源于国际投行麦格理证券的预测。
+” 本次管理层更迭之际，爱立信正面临多重经营挑战。
 
-该投行认为，若SK海力士2027年营业利润达到447万亿韩元，按营业利润的10%和去年年末约3.5万名员工总数简单计算，分红总规模将达到约44.7万亿韩元，人均可发放奖金约12.9亿韩元，接近610万元人民币。
+受宏观经济、地缘政治不确定性影响，运营商资本开支前景不明，今年网络设备市场需求预计将陷入停滞；与此同时，人工智能产业爆发推高半导体等元器件价格，企业生产成本持续攀升。
 
-而SK海力士员工也成为相亲市场香饽饽。
+爱立信押注，随着人工智能行业不断扩张、商业化落地提速，各大网络运营商将加大基础设施升级投入，以此承载海量激增的数据流量。
 
-有婚介公司CEO表示：“过去为SK海力士员工匹配的相亲对象大约在B+级别，但现在则无条件地是A级。
+在鲍毅康任职期间，爱立信还瞄准全球国防开支增长的机遇，加码防务及关键任务类产品布局，重点研发通信系统、基于 5G 的无人机探测传感系统等产品，拓展军工领域业务。
 
 ## 相关推荐
 
-- 2026-06-29 17:47 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 17:58 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 17:43 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 17:59 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 17:43 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 17:51 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 17:48 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 17:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 17:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 17:58 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 17:42 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 17:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 17:49 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 17:50 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 17:42 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 17:49 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 18:02 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 17:39 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 17:36 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 18:03 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:32 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.minike.top/Article/details/725629617513.shtml)
-- 2026-06-29 17:53 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/265418583.shtml)
-- 2026-06-29 17:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/87150334.shtml)
-- 2026-06-29 17:59 - [我和我的家乡](http://www.blog.minike.top/Article/details/021005811624.shtml)
-- 2026-06-29 17:54 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/326320864.shtml)
-- 2026-06-29 17:41 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/90123425637.shtml)
-- 2026-06-29 17:46 - [一生一世](https://www.blog.minike.top/Article/details/5485743082.shtml)
-- 2026-06-29 17:47 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/724822139.shtml)
-- 2026-06-29 17:32 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/080356.shtml)
-- 2026-06-29 17:34 - [博主：黄金和原油回落不等于风险消失](https://www.blog.kurohicncr.top/Article/details/16862.shtml)
-- 2026-06-29 17:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/8423876.shtml)
-- 2026-06-29 17:47 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/222749435331.shtml)
-- 2026-06-29 17:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/209943805.shtml)
-- 2026-06-29 17:44 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/9340216473.shtml)
-- 2026-06-29 17:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/72038.shtml)
+- 2026-06-29 18:02 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/137112079.shtml)
+- 2026-06-29 17:56 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/280210.shtml)
+- 2026-06-29 17:45 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/61089367852.shtml)
+- 2026-06-29 18:05 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/776315.shtml)
+- 2026-06-29 17:36 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/95285774.shtml)
+- 2026-06-29 17:56 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.kurohicncr.top/Article/details/98289626.shtml)
+- 2026-06-29 17:50 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/7250373.shtml)
+- 2026-06-29 17:42 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/77564387971.shtml)
+- 2026-06-29 17:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/59517313485.shtml)
+- 2026-06-29 18:02 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/7711306.shtml)
+- 2026-06-29 17:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/280449.shtml)
+- 2026-06-29 17:48 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/682895127.shtml)
+- 2026-06-29 17:36 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/38608.shtml)
+- 2026-06-29 18:01 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/151595.shtml)
+- 2026-06-29 17:39 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/480071809.shtml)

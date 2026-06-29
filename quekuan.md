@@ -1,57 +1,55 @@
-# 纽约联储：美国信用卡债务降至1.25万亿美元，但仍呈现K型分化
+# 苏州银行发布2025年年度权益分派实施公告：拟每10股派发现金股利1.50元
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-美国纽约联邦储备银行周二发布的最新家庭债务报告显示，2026年第一季度信用卡余额下降了250亿美元，降至1.25万亿美元。不过，这仍比去年同期增长了5.9%。 纽约联储还发现，同期抵押贷款债务、汽车贷款和房屋净值信贷额度均有所上升。 纽约联储研究经济学家丹尼尔·曼格鲁姆在一份声明中表示：“总体而言，家庭债务水平略有上升，大多数债务类型的小幅增长抵消了信用卡余额的季节性下降。”
+6月15日金融一线消息，苏州银行公告称，2026年5月25日，本行2025年度股东会审议通过了关于《苏州银行股份有限公司2025年度利润分配方案》的议案：向权益分派股权登记日登记在册的普通股股东每10股派发现金股利1.50元（含税），不送红股，不以资本公积转增股本。以本行总股本4，470，662，011股为基数，拟分配现金股利670，599，301.65元（含税）。在实施本次利
 
 ## 正文
 
-美国纽约联邦储备银行周二发布的最新家庭债务报告显示，2026年第一季度信用卡余额下降了250亿美元，降至1.25万亿美元。
+6月15日金融一线消息，苏州银行公告称，2026年5月25日，本行2025年度股东会审议通过了关于《苏州银行股份有限公司2025年度利润分配方案》的议案：向权益分派股权登记日登记在册的普通股股东每10股派发现金股利1.50元（含税），不送红股，不以资本公积转增股本。
 
-不过，这仍比去年同期增长了5.9%。
+以本行总股本4，470，662，011股为基数，拟分配现金股利670，599，301.65元（含税）。
 
-纽约联储还发现，同期抵押贷款债务、汽车贷款和房屋净值信贷额度均有所上升。
+在实施本次利润分配方案的股权登记日前，若总股本发生变动，本行将按照每股分配比例不变的原则，相应调整分红总额。
 
-纽约联储研究经济学家丹尼尔·曼格鲁姆在一份声明中表示：“总体而言，家庭债务水平略有上升，大多数债务类型的小幅增长抵消了信用卡余额的季节性下降。
+本次权益分派股权登记日为为2026年6月23日；除权除息日为为2026年6月24日。
 
-” 临近年底时，由于消费者在假日购物高峰期增加支出，信用卡债务往往会上升。
-
-随后，信用卡债务通常会在第一季度下降。
-
-尽管信用卡债务有所下降，但飞涨的汽油价格正日益加剧家庭预算的压力。
-
-根据美国汽车协会（AAA）的数据，周二全国普通汽油平均价格为每加仑4.50美元，而一年前约为3.14美元。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 17:37 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 17:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 17:55 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 17:57 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 17:37 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 17:34 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 17:34 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 17:53 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 17:36 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 17:50 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 17:40 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 17:58 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 17:36 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 17:56 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 18:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 17:40 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 17:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 18:01 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 17:57 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 17:47 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 17:39 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 17:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 17:40 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 17:38 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 17:56 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:49 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/54384800.shtml)
-- 2026-06-29 17:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/296500219.shtml)
-- 2026-06-29 17:33 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/88032966590.shtml)
-- 2026-06-29 17:48 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/9925272774.shtml)
-- 2026-06-29 17:43 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/80857983.shtml)
-- 2026-06-29 17:51 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/791867798.shtml)
-- 2026-06-29 17:40 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/85989.shtml)
-- 2026-06-29 17:36 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.kurohicncr.top/Article/details/13617042.shtml)
-- 2026-06-29 17:53 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/52879867.shtml)
-- 2026-06-29 17:36 - [爱很美味](https://www.blog.minike.top/Article/details/08081546918.shtml)
-- 2026-06-29 17:30 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/248465459184.shtml)
-- 2026-06-29 17:30 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/927453537.shtml)
-- 2026-06-29 17:31 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/95821.shtml)
-- 2026-06-29 17:52 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/39652.shtml)
-- 2026-06-29 17:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/2599129587.shtml)
+- 2026-06-29 18:00 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/9338975.shtml)
+- 2026-06-29 17:51 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/340298687.shtml)
+- 2026-06-29 17:51 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/93838629.shtml)
+- 2026-06-29 17:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/17489169738.shtml)
+- 2026-06-29 17:53 - [V8](http://www.share.kurohicncr.top/Article/details/66501060898.shtml)
+- 2026-06-29 17:45 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/98209.shtml)
+- 2026-06-29 17:53 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/962179.shtml)
+- 2026-06-29 17:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/3509825.shtml)
+- 2026-06-29 17:54 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/8558210661.shtml)
+- 2026-06-29 17:42 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/674163748.shtml)
+- 2026-06-29 17:37 - [叠纸](https://www.blog.kurohicncr.top/Article/details/42464328110.shtml)
+- 2026-06-29 18:03 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/412838274.shtml)
+- 2026-06-29 17:38 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/025184934381.shtml)
+- 2026-06-29 17:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/07839048.shtml)
+- 2026-06-29 17:46 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/459029.shtml)

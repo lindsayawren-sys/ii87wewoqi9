@@ -1,54 +1,59 @@
-# 湖北巴东：珍禽白冠长尾雉受伤 警民联手救助
+# “银行系”公募换帅！张宏良到龄离任 非货规模缩水432亿，袁庆伟代行董事长职务
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 22:21 来源：中国新闻网 近日，湖北省巴东县清太坪镇派出所民警在辖区山林周边巡逻时，发现一只外形独特、羽毛艳丽的野生鸟类，该鸟行动迟缓、无法正常飞行。民警随即对其进行妥善保护，并连夜送往巴东县林业局进行专业处置。 经林业野生动物保护工作人员现场辨认，确认这只鸟为国家一级重点保护野生动物白冠长尾雉。经检查，该鸟左眼存在明显外伤，行动能力受限，
+近日，交银施罗德基金管理有限公司发布高级管理人员变更公告。公司董事长张宏良因近法定退休年龄，按内部制度要求退出一线管理岗位，正式卸任董事长职务。在公司新任董事长到任前，由总经理袁庆伟代为履行董事长职责。 张宏良掌舵一年半：总规模基本持平，产品数量扩张，非货规模有所下降 出生于1966年的张宏良，职业生涯横跨保险、银行理财与公募三界。历任中国太平洋人寿保险公司乌鲁木齐分公司、河南
 
 ## 正文
 
-发布时间：2026年05月12日 22:21 来源：中国新闻网 近日，湖北省巴东县清太坪镇派出所民警在辖区山林周边巡逻时，发现一只外形独特、羽毛艳丽的野生鸟类，该鸟行动迟缓、无法正常飞行。
+近日，交银施罗德基金管理有限公司发布高级管理人员变更公告。
 
-民警随即对其进行妥善保护，并连夜送往巴东县林业局进行专业处置。
+公司董事长张宏良因近法定退休年龄，按内部制度要求退出一线管理岗位，正式卸任董事长职务。
 
-经林业野生动物保护工作人员现场辨认，确认这只鸟为国家一级重点保护野生动物白冠长尾雉。
+在公司新任董事长到任前，由总经理袁庆伟代为履行董事长职责。
 
-经检查，该鸟左眼存在明显外伤，行动能力受限，急需专业救治。
+张宏良掌舵一年半：总规模基本持平，产品数量扩张，非货规模有所下降 出生于1966年的张宏良，职业生涯横跨保险、银行理财与公募三界。
 
-工作人员第一时间对伤口进行初步处理，同时投喂食物补充体力。
+历任中国太平洋人寿保险公司乌鲁木齐分公司、河南（郑州）分公司、上海分公司党委书记、总经理，交银人寿保险有限公司党委书记、董事长、总裁，兼任交银康联资产管理有限公司董事长，交银理财有限责任公司党委书记、董事长。
 
-目前，这只受伤的白冠长尾雉已由专人专车安全送达湖北省野生动物救护研究开发中心，接受全面、专业的治疗，待其身体康复、具备野外生存能力后，将被放归适宜的自然栖息地。
+2024年8月，张宏良加入交银施罗德基金担任党委书记、董事，同年10月起出任董事长，至卸任时任职仅一年多。
 
-(焦国斌 制作 董晓斌 视频来源 巴东县融媒体中心) 责任编辑：【刘湃】
+这已是交银施罗德基金近两年内第二次因到达退休年龄而进行的董事长更替——2024年8月，前任董事长阮红同样因到龄退休卸任。
+
+公司公告中，公司在公告中对张宏良任职期间的工作给予高度评价，称其“立足公司既有发展优势，带领公司积极应对行业变革，着力推动发展方式转变，形成“资产管理与财富管理双轮驱动”的发展格局。
 
 ## 相关推荐
 
-- 2026-06-29 17:36 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 17:30 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 17:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 17:42 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 17:39 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 17:54 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 17:41 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 17:47 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 17:53 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 17:42 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 17:57 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 17:53 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 17:41 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 17:40 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 17:57 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 18:01 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 17:59 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 17:56 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 17:42 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 17:44 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 17:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 17:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 18:03 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:34 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/065872636584.shtml)
-- 2026-06-29 17:37 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/6016119346.shtml)
-- 2026-06-29 17:31 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/996556510.shtml)
-- 2026-06-29 17:38 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/3523324.shtml)
-- 2026-06-29 17:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/922697081.shtml)
-- 2026-06-29 17:53 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/532130938.shtml)
-- 2026-06-29 17:35 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/73772.shtml)
-- 2026-06-29 17:47 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/044061799.shtml)
-- 2026-06-29 17:37 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.minike.top/Article/details/64443.shtml)
-- 2026-06-29 17:47 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/73103.shtml)
-- 2026-06-29 17:32 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/070626.shtml)
-- 2026-06-29 17:32 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/8855561170.shtml)
-- 2026-06-29 17:37 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/467160777843.shtml)
-- 2026-06-29 17:55 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/487192.shtml)
-- 2026-06-29 17:47 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/394697249297.shtml)
+- 2026-06-29 18:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/3463625.shtml)
+- 2026-06-29 17:50 - [叠纸客服回应恋与深空新角色争议](https://www.blog.kurohicncr.top/Article/details/17741.shtml)
+- 2026-06-29 17:52 - [挪威王储妃长子2次强奸被判4年](https://www.blog.kurohicncr.top/Article/details/59356.shtml)
+- 2026-06-29 17:51 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/100953.shtml)
+- 2026-06-29 17:42 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/76979.shtml)
+- 2026-06-29 17:49 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/035683966.shtml)
+- 2026-06-29 17:54 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/609542326009.shtml)
+- 2026-06-29 17:49 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/9869564.shtml)
+- 2026-06-29 17:50 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/4512068938.shtml)
+- 2026-06-29 17:42 - [速度与激情9](https://www.blog.minike.top/Article/details/43620346.shtml)
+- 2026-06-29 17:40 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.kurohicncr.top/Article/details/5728608785.shtml)
+- 2026-06-29 17:57 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/85945.shtml)
+- 2026-06-29 18:00 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/55805641413.shtml)
+- 2026-06-29 17:50 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/10476874279.shtml)
+- 2026-06-29 17:40 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/913325702383.shtml)

@@ -1,60 +1,59 @@
-# 易华录（300212）投资者索赔分析
+# 共拓“内容+AI” 上影股份与智象未来达成战略投资合作
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-2026年4月29日，易华录（300212）发布公告，证监会决定对公司立案调查。此前公司公告，2023年到2025年分别亏损高达18.90亿、28.65亿和27.17亿元，截止2025年报净资产-19.53亿元，触及退市风险警示。部分股民或许存在索赔机会。 徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日晚间消息，6月14日，第28届上海国际电影节上影盛荟现场，上海电影股份有限公司（以下简称“上影股份”）与智象未来（HiDream.ai）正式达成战略投资合作，双方将共同推动上影对智象未来的战略性投资，依托“资本-技术-产业-场景”协同发展格局，探索AI驱动文化产业发展的新路径。 据介绍，基于对“内
 
 ## 正文
 
-2026年4月29日，易华录（300212）发布公告，证监会决定对公司立案调查。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此前公司公告，2023年到2025年分别亏损高达18.90亿、28.65亿和27.17亿元，截止2025年报净资产-19.53亿元，触及退市风险警示。
+6月15日晚间消息，6月14日，第28届上海国际电影节上影盛荟现场，上海电影股份有限公司（以下简称“上影股份”）与智象未来（HiDream.ai）正式达成战略投资合作，双方将共同推动上影对智象未来的战略性投资，依托“资本-技术-产业-场景”协同发展格局，探索AI驱动文化产业发展的新路径。
 
-部分股民或许存在索赔机会。
+据介绍，基于对“内容+AI”融合发展的共同判断，本次合作将以股权合作为纽带，围绕IP创新开发、院线场景升级、影视工业智能化三大方向展开布局，推动AI能力真正进入产业链的关键环节，构建文化产业智能化发展的全链路闭环。
 
-徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可索赔损失范围包括投资差额损失、印花税及佣金损失。
+上海电影（集团）有限公司党委书记、董事长，上海电影股份有限公司党委书记、董事长王隽在2026影视产业海上论坛中表示，电影产业面临流量红利渐退的结构性变革，AI将成为推动产业升级的重要力量。
 
-（徐劲律师专栏） 暂定索赔条件： 在2026年4月28日前买入，并在2026年4月28日后卖出或仍持有而亏损的投资者（最终索赔结果以法院判决为准）。
+“拥抱AI者立足当下，面向未来，上影将持续深化AI在剧本创作、特效制作、精准营销宣发等核心环节的应用，加快AI基础设施布局、聚拢新型人才、培育电影新业态，以科技赋能文化产业长远发展。
 
-（易华录维权入口） 投资者应准备下列材料：身份证复印件，证券账户开户信息确认单（原件加盖证券公司营业部印章），证券交易记录流水（从首次买入该股票至今并加盖证券公司营业部印章，有库存股的还要打印出库存股数）。
+” 智象未来联合创始人兼COO王科在论坛中分享：“AIGC已从根本上重塑内容生产逻辑、分发模式与价值体系，为广告、影视、音视频等业态带来系统性革新。
 
-（本文由北京市盈科（深圳）律师事务所徐劲律师（执业证号14403200610948623）供稿，不代表新浪财经的立场。
+未来，AI将成为文化产业的新型基础设施，以更强的互动性，推动优质内容突破媒介边界、拓展消费场景、释放长期价值。
 
-徐劲律师擅长在上市公司虚假陈述案件中为股民维权索赔，执业十余年来，曾代理投资者起诉多家上市公司成功索赔。
+AI不仅成为提升效率的工具，更成为放大文化产业价值、激活产业增量的关键引擎。
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 17:46 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 17:54 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 17:46 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 17:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 17:40 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 17:31 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 17:37 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 17:30 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 17:44 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 17:58 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 17:36 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 17:53 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 17:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 17:57 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 17:47 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 17:37 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 18:00 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 17:45 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 17:41 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 17:52 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 17:46 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 17:55 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 18:04 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 17:36 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 17:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 18:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:33 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/5714940086.shtml)
-- 2026-06-29 17:45 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/514769141160.shtml)
-- 2026-06-29 17:31 - [叠纸客服回应恋与深空新角色争议](https://www.share.kurohicncr.top/Article/details/5067378.shtml)
-- 2026-06-29 17:43 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/79945622725.shtml)
-- 2026-06-29 17:43 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/071418.shtml)
-- 2026-06-29 17:52 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/0104973.shtml)
-- 2026-06-29 17:57 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/96911913483.shtml)
-- 2026-06-29 17:39 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/2806867.shtml)
-- 2026-06-29 17:54 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/54888773723.shtml)
-- 2026-06-29 17:33 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/6529386879.shtml)
-- 2026-06-29 17:32 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/96687803.shtml)
-- 2026-06-29 17:55 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/915393440978.shtml)
-- 2026-06-29 17:54 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/7358716.shtml)
-- 2026-06-29 17:42 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/9226315798.shtml)
-- 2026-06-29 17:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/682528914745.shtml)
+- 2026-06-29 18:02 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/405679985.shtml)
+- 2026-06-29 17:50 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/456225777.shtml)
+- 2026-06-29 17:45 - [挪威王储妃长子2次强奸被判4年](http://www.blog.minike.top/Article/details/500927131631.shtml)
+- 2026-06-29 17:51 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/111755021.shtml)
+- 2026-06-29 18:01 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/23158388900.shtml)
+- 2026-06-29 17:59 - [急先锋](https://www.share.minike.top/Article/details/0113356341.shtml)
+- 2026-06-29 18:00 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/39716308.shtml)
+- 2026-06-29 17:43 - [未成年少女长期吸毒导致卧床不起](https://www.blog.kurohicncr.top/Article/details/509008522270.shtml)
+- 2026-06-29 17:57 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/6269410.shtml)
+- 2026-06-29 17:47 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/282684801638.shtml)
+- 2026-06-29 18:02 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/0056584.shtml)
+- 2026-06-29 17:56 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/70428551427.shtml)
+- 2026-06-29 17:40 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.minike.top/Article/details/9024809966.shtml)
+- 2026-06-29 17:44 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/108974553815.shtml)
+- 2026-06-29 17:54 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/39568471.shtml)

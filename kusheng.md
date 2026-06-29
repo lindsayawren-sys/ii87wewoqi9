@@ -1,53 +1,60 @@
-# 国台办批赖清德谬论：谎话说1000遍还是谎话 绝对成不了真
+# 光大期货：6月16日金融日报
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-5月13日，国务院台办举行例行新闻发布会。有记者问：近日，赖清德在“哥本哈根民主峰会”发表视频，散布“台独”言论。请问对此有何评论？ 发言人张晗表示，世界上只有一个中国，台湾是中国的一部分，这是无法否认，也不容否认的历史和法理事实。台湾从来不是一个国家，过去不是，今后更绝对不是，赖清德的谎话，说1000遍还是谎话，绝对成不了真。 (总台央视记者 张雪松 赵超逸)
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，A股市场跟随全球股指大幅上涨，Wind全A上涨2.95%，成交额3.05万亿元。中证1000指数上涨3.88%，中证500指数上涨3.71%，沪深300指数上涨2.39%，上证50指数上涨1.66%。短期来看，美伊协议达成，霍尔木兹海峡开放，美国通胀阶段性压力得到缓释，市场对于流动性紧缩
 
 ## 正文
 
-5月13日，国务院台办举行例行新闻发布会。
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，A股市场跟随全球股指大幅上涨，Wind全A上涨2.95%，成交额3.05万亿元。
 
-有记者问：近日，赖清德在“哥本哈根民主峰会”发表视频，散布“台独”言论。
+中证1000指数上涨3.88%，中证500指数上涨3.71%，沪深300指数上涨2.39%，上证50指数上涨1.66%。
 
-请问对此有何评论？
+短期来看，美伊协议达成，霍尔木兹海峡开放，美国通胀阶段性压力得到缓释，市场对于流动性紧缩的担忧显著降低。
 
-发言人张晗表示，世界上只有一个中国，台湾是中国的一部分，这是无法否认，也不容否认的历史和法理事实。
+因此，全球权益市场走强，黄金上涨，原油回落。
 
-台湾从来不是一个国家，过去不是，今后更绝对不是，赖清德的谎话，说1000遍还是谎话，绝对成不了真。
+中长期看，美伊冲突只是全球贸易格局重构的一个缩影，在新的全球性秩序建立以前，国际竞争的局面仍会持续。
 
-(总台央视记者 张雪松 赵超逸)
+同时，考虑到美联储降息缩表的长期政策构想，资本市场流动性很难回到较为宽松的水平。
+
+综上，科技行情短期可能仍然存在向上的脉冲，但长期建议有限选择对冲策略。
+
+当前市场交易集中度均较高，这使得市场对于宏观流动性和产业景气度均较为敏感。
 
 ## 相关推荐
 
-- 2026-06-29 17:48 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 17:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 17:52 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 17:44 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 17:50 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 17:58 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 17:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 17:59 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 17:49 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 17:45 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 17:30 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 17:46 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 17:49 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 17:39 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 18:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 17:58 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 17:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 17:44 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 17:50 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 18:04 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 17:41 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 17:41 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 17:53 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 17:44 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 17:44 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/652484997014.shtml)
-- 2026-06-29 17:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/2272240.shtml)
-- 2026-06-29 17:57 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/82093.shtml)
-- 2026-06-29 17:53 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/59819.shtml)
-- 2026-06-29 17:54 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/438341.shtml)
-- 2026-06-29 17:59 - [一见倾心](http://www.share.kurohicncr.top/Article/details/376260788783.shtml)
-- 2026-06-29 17:32 - [毒液2](https://www.blog.kurohicncr.top/Article/details/5835747626.shtml)
-- 2026-06-29 17:53 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/411217.shtml)
-- 2026-06-29 17:47 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/764196660.shtml)
-- 2026-06-29 17:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/89363832820.shtml)
-- 2026-06-29 17:50 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/36373497052.shtml)
-- 2026-06-29 17:58 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/171450944382.shtml)
-- 2026-06-29 17:57 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/19744685.shtml)
-- 2026-06-29 17:59 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/881392541.shtml)
-- 2026-06-29 17:48 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/971852532303.shtml)
+- 2026-06-29 17:47 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/30881983732.shtml)
+- 2026-06-29 17:57 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/70262148.shtml)
+- 2026-06-29 17:38 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/32073632.shtml)
+- 2026-06-29 17:40 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/23595081.shtml)
+- 2026-06-29 17:46 - [沙特外交大臣将访华](https://www.blog.kurohicncr.top/Article/details/7637430.shtml)
+- 2026-06-29 17:56 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/988776413255.shtml)
+- 2026-06-29 18:05 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/2373594178.shtml)
+- 2026-06-29 17:40 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/651161411914.shtml)
+- 2026-06-29 18:03 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/89175092265.shtml)
+- 2026-06-29 17:58 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/09757.shtml)
+- 2026-06-29 17:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/446560385147.shtml)
+- 2026-06-29 17:41 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/8452191.shtml)
+- 2026-06-29 17:42 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/41297420271.shtml)
+- 2026-06-29 18:00 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/435081218.shtml)
+- 2026-06-29 17:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/47561055.shtml)

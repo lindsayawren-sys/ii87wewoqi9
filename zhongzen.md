@@ -1,43 +1,50 @@
-# 联合国：若战火重燃将带来灾难性后果
+# 特朗普称美国不急于获取被埋藏的伊朗核材料
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 10:24 来源：央视新闻 责任编辑：【王祎】
+“我们不着急，”特朗普说道，他指的是埋藏在伊朗被摧毁的地下设施中的核材料。 特朗普在法国向记者发表讲话。 “但我们会把它找出来，一旦找到，就会将其销毁，”他补充道。责任编辑：江学思
 
 ## 正文
 
-发布时间：2026年05月12日 10:24 来源：央视新闻 责任编辑：【王祎】
+“我们不着急，”特朗普说道，他指的是埋藏在伊朗被摧毁的地下设施中的核材料。
+
+特朗普在法国向记者发表讲话。
+
+“但我们会把它找出来，一旦找到，就会将其销毁，”他补充道。
+
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 17:42 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 17:33 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 17:35 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 17:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 17:59 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 17:45 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 17:47 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 17:46 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 17:43 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 17:30 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 17:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 17:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 18:02 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 17:57 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 17:41 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 17:48 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 17:37 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 17:53 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 17:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 17:47 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 17:57 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 18:00 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 17:36 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/516633.shtml)
-- 2026-06-29 17:48 - [普京承认俄出现燃料危机](https://www.blog.kurohicncr.top/Article/details/125004496785.shtml)
-- 2026-06-29 17:36 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/5809910338.shtml)
-- 2026-06-29 17:45 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/74968.shtml)
-- 2026-06-29 17:32 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/80333914218.shtml)
-- 2026-06-29 17:59 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/3978938.shtml)
-- 2026-06-29 17:36 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/448754.shtml)
-- 2026-06-29 17:50 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/9816849.shtml)
-- 2026-06-29 17:39 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/89810864.shtml)
-- 2026-06-29 17:43 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/095323407.shtml)
-- 2026-06-29 17:31 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/562558500262.shtml)
-- 2026-06-29 17:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/2104293.shtml)
-- 2026-06-29 17:59 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/529320.shtml)
-- 2026-06-29 17:43 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/602614.shtml)
-- 2026-06-29 17:52 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/85170.shtml)
+- 2026-06-29 17:51 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/568669.shtml)
+- 2026-06-29 18:04 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/7742731.shtml)
+- 2026-06-29 17:58 - [NBA交易](http://www.share.kurohicncr.top/Article/details/13325177.shtml)
+- 2026-06-29 17:51 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/893898922081.shtml)
+- 2026-06-29 18:04 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/3750171.shtml)
+- 2026-06-29 18:03 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/3647083.shtml)
+- 2026-06-29 18:04 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/08386366.shtml)
+- 2026-06-29 17:54 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/351767.shtml)
+- 2026-06-29 17:53 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/62794.shtml)
+- 2026-06-29 17:59 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/53707451.shtml)
+- 2026-06-29 17:57 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/935659.shtml)
+- 2026-06-29 17:43 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/830177210.shtml)
+- 2026-06-29 17:56 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/78099967177.shtml)
+- 2026-06-29 17:59 - [花万元相亲对象是50元雇的演员](http://www.blog.minike.top/Article/details/3456789.shtml)
+- 2026-06-29 17:52 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/284630.shtml)

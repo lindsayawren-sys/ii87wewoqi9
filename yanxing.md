@@ -1,58 +1,57 @@
-# 从样板到全域 智慧农业激活三湘良田新动能
+# 上海迪士尼度假区全新主题园区和两座新酒店正在建设中
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新网长沙5月12日电 (胡语桐)5月，湖南长沙湘江新区云盖村，岳麓智慧农场里的水稻已由插秧转入田间管理。田埂边，一架多光谱无人机腾空而起，沿着预设航线掠过连片稻田，20多分钟便完成780亩农田巡检。中联智慧农业农场管理平台上，苗情变化、长势差异、地块分布一一显现，哪里需要查漏补缺，哪里需要进一步管护，系统很快给出提示。 前段时间，这里还是另一番景象：无人驾驶插秧机自主规划路线
+中新网上海6月15日电 (记者 李佳佳)15日，上海迪士尼度假区总裁及总经理包兆天(Andrew Bolstein)在上海迪士尼度假区10周年庆典活动上透露，度假区的扩建工作才刚刚拉开帷幕，目前上海迪士尼乐园正在扩建其第九大主题园区——蜘蛛侠主题园区，同时宣布扩建的还有度假区的第三座及第四座主题酒店。 上海迪士尼度假区即将迎来开园10周年的里程碑。自开幕以来，上海迪士尼度假区从
 
 ## 正文
 
-中新网长沙5月12日电 (胡语桐)5月，湖南长沙湘江新区云盖村，岳麓智慧农场里的水稻已由插秧转入田间管理。
+中新网上海6月15日电 (记者 李佳佳)15日，上海迪士尼度假区总裁及总经理包兆天(Andrew Bolstein)在上海迪士尼度假区10周年庆典活动上透露，度假区的扩建工作才刚刚拉开帷幕，目前上海迪士尼乐园正在扩建其第九大主题园区——蜘蛛侠主题园区，同时宣布扩建的还有度假区的第三座及第四座主题酒店。
 
-田埂边，一架多光谱无人机腾空而起，沿着预设航线掠过连片稻田，20多分钟便完成780亩农田巡检。
+上海迪士尼度假区即将迎来开园10周年的里程碑。
 
-中联智慧农业农场管理平台上，苗情变化、长势差异、地块分布一一显现，哪里需要查漏补缺，哪里需要进一步管护，系统很快给出提示。
+自开幕以来，上海迪士尼度假区从未停下打造全新体验的脚步。
 
-前段时间，这里还是另一番景象：无人驾驶插秧机自主规划路线作业，插秧之后，平台继续接管后续环节——巡田形成长势图，系统开出施肥“处方”，再由无人机按图作业。
+2018年“迪士尼·皮克斯玩具总动员”主题园区成功开幕，2023年全球首个也是唯一一座“疯狂动物城”盛大开幕。
 
-过去更多依赖经验判断的田间活，正逐步变成按图作业、按数管理。
+两大主题园区均取得了亮眼成绩。
 
-从样板田里的技术验证，到连片田中的服务落地，再到更大范围的复制推广，智慧农业要跨过的，正是把“看上去很先进”变成“农民真正用得上”的那道坎。
+2025年10月，上海迪士尼乐园迎来了开幕以来的第1亿位游客，在运营仅九年多的时间里便实现了这一重要里程碑。
 
-一块田，先把技术跑通 样板田首先要回答的，是技术能不能真正嵌进农时、嵌进生产。
+截至2026年6月，上海迪士尼度假区拥有超过15000名演职人员，其中99%来自中国。
 
-长期在中联智慧农场从事农艺算法和田间应用的徐礼谱对这种变化感受最深。
+上海迪士尼乐园正在扩建的蜘蛛侠主题园区内标志性红色轨道的最后一段于数周前完成安装，标志着新主题园区建设又迈出了重要一步。
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 17:52 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 17:52 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 17:47 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 17:59 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 17:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 17:48 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 17:30 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 17:37 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 17:54 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 17:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 17:39 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 17:48 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 17:50 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 17:48 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 17:54 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 17:50 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 17:53 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 17:44 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 17:48 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 17:59 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 17:49 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 18:06 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [美人鱼](https://www.blog.minike.top/Article/details/2826706.shtml)
-- 2026-06-29 17:52 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/826579449043.shtml)
-- 2026-06-29 17:51 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/186841259670.shtml)
-- 2026-06-29 17:39 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/934541789068.shtml)
-- 2026-06-29 17:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/88532795034.shtml)
-- 2026-06-29 17:42 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/33133.shtml)
-- 2026-06-29 17:55 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/36525853728.shtml)
-- 2026-06-29 17:52 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/44535858493.shtml)
-- 2026-06-29 17:35 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/3794861.shtml)
-- 2026-06-29 17:52 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/03810693360.shtml)
-- 2026-06-29 17:42 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/11930837.shtml)
-- 2026-06-29 17:37 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/6708127406.shtml)
-- 2026-06-29 17:38 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/0291510.shtml)
-- 2026-06-29 17:55 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/988602.shtml)
-- 2026-06-29 17:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/23113485744.shtml)
+- 2026-06-29 17:53 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/39738004839.shtml)
+- 2026-06-29 17:54 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.kurohicncr.top/Article/details/907637631329.shtml)
+- 2026-06-29 17:54 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/183399094.shtml)
+- 2026-06-29 17:46 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/353112.shtml)
+- 2026-06-29 17:38 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/582456365146.shtml)
+- 2026-06-29 17:55 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/06998.shtml)
+- 2026-06-29 17:40 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/367094494.shtml)
+- 2026-06-29 17:38 - [急先锋](https://www.share.kurohicncr.top/Article/details/553915416466.shtml)
+- 2026-06-29 17:51 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/6297239347.shtml)
+- 2026-06-29 17:41 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/78462.shtml)
+- 2026-06-29 17:50 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/92515.shtml)
+- 2026-06-29 17:45 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/7889746.shtml)
+- 2026-06-29 18:02 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/40630.shtml)
+- 2026-06-29 18:02 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/243868652.shtml)
+- 2026-06-29 17:47 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/8620545866.shtml)

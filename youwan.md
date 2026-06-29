@@ -1,59 +1,55 @@
-# 台湾民众对“一国两制”认同逐步上升 国台办回应
+# 市场监管总局：集贸市场“鬼秤”乱象迎来治理新规
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-5月13日，国务院台办举行例行新闻发布会。有记者问，近日岛内有民调显示，近四分之一民众接受“和平统一、一国两制”。有评论称，这表明岛内民众对“一国两制”的认同在逐步上升，期盼和平统一的呼声越来越高。请问对此有何评论？ 发言人张晗答问表示，统一是不可阻挡的历史大势，“和平统一、一国两制”是我们解决台湾问题的基本方针，是实现祖国统一的最佳方式，对两岸同胞和中华民族最有利。越来越多台
+发布时间：2026年06月16日 18:25 来源：中国新闻网 6月16日，市场监管总局召开2026年二季度例行新闻发布会。市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，集贸市场是城乡居民日常消费的重要场所，“鬼秤”问题频发的本质，在于经营主体诚信缺失。今天，市场监管总局发布我国首个集贸市场计量信用评价规范性文件《集贸市场诚信计量评价规范》。新规实现两大转变。一是从“管器具
 
 ## 正文
 
-5月13日，国务院台办举行例行新闻发布会。
+发布时间：2026年06月16日 18:25 来源：中国新闻网 6月16日，市场监管总局召开2026年二季度例行新闻发布会。
 
-有记者问，近日岛内有民调显示，近四分之一民众接受“和平统一、一国两制”。
+市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，集贸市场是城乡居民日常消费的重要场所，“鬼秤”问题频发的本质，在于经营主体诚信缺失。
 
-有评论称，这表明岛内民众对“一国两制”的认同在逐步上升，期盼和平统一的呼声越来越高。
+今天，市场监管总局发布我国首个集贸市场计量信用评价规范性文件《集贸市场诚信计量评价规范》。
 
-请问对此有何评论？
+新规实现两大转变。
 
-发言人张晗答问表示，统一是不可阻挡的历史大势，“和平统一、一国两制”是我们解决台湾问题的基本方针，是实现祖国统一的最佳方式，对两岸同胞和中华民族最有利。
+一是从“管器具”向“管主体、管信用”转变；二是从“事后查处”向“事前预防、事中规范”转变。
 
-越来越多台湾同胞开始讨论“一国两制”台湾方案的具体内容，畅想统一后台湾的前景，认识到和平统一将给台湾经济社会发展创造巨大机遇，将给广大台湾同胞带来实实在在的好处。
+下一步，总局将在部分省份开展试点落地，压实集贸市场主办者计量主体责任，切实守护好百姓“菜篮子里的公平”。
 
-我们将同广大台湾同胞一道共创祖国统一、民族复兴的伟业。
-
-(记者赵博、李妍)
+(左雨晴 李萍） 责任编辑：【宋宇晟】
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 17:46 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 17:36 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 17:39 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 17:46 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 17:56 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 17:36 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 17:40 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 17:55 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 17:34 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 17:48 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 17:58 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 17:32 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 17:53 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 17:59 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 17:57 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 17:53 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 17:54 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 17:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 17:48 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 17:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 17:43 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 17:47 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 18:01 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:57 - [存储三巨头被告了](https://www.share.minike.top/Article/details/589578475.shtml)
-- 2026-06-29 17:51 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/8408569.shtml)
-- 2026-06-29 17:59 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/79894790.shtml)
-- 2026-06-29 17:30 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/564280.shtml)
-- 2026-06-29 17:46 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/11676.shtml)
-- 2026-06-29 17:57 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/4383816200.shtml)
-- 2026-06-29 17:47 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/26616.shtml)
-- 2026-06-29 17:31 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/07877655.shtml)
-- 2026-06-29 17:46 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/806526238595.shtml)
-- 2026-06-29 17:59 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/947324863.shtml)
-- 2026-06-29 17:48 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/794611730.shtml)
-- 2026-06-29 17:37 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/2001470.shtml)
-- 2026-06-29 17:37 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/0300414.shtml)
-- 2026-06-29 17:44 - [叠纸](http://www.share.kurohicncr.top/Article/details/77804388.shtml)
-- 2026-06-29 17:40 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/81973.shtml)
+- 2026-06-29 17:50 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/69892455133.shtml)
+- 2026-06-29 17:47 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/28712474.shtml)
+- 2026-06-29 17:57 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/51676712309.shtml)
+- 2026-06-29 17:51 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/96085.shtml)
+- 2026-06-29 17:41 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/58015464128.shtml)
+- 2026-06-29 17:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/54681.shtml)
+- 2026-06-29 17:44 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.kurohicncr.top/Article/details/0644609138.shtml)
+- 2026-06-29 17:48 - [NBA交易](http://www.share.minike.top/Article/details/2184942.shtml)
+- 2026-06-29 17:47 - [扫黑风暴](https://www.share.minike.top/Article/details/61265408862.shtml)
+- 2026-06-29 17:57 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/829644688235.shtml)
+- 2026-06-29 17:54 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/68824.shtml)
+- 2026-06-29 17:56 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.minike.top/Article/details/040580302.shtml)
+- 2026-06-29 17:59 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/87857629.shtml)
+- 2026-06-29 17:41 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/97863677.shtml)
+- 2026-06-29 17:54 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/001823.shtml)

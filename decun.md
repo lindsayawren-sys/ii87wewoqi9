@@ -1,60 +1,60 @@
-# CME与Silicon Data合作推出算力期货，打造AI时代“新石油”市场
+# 金信基金谭智汨评市场：地缘扰动趋弱，科技强势归来
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-芝加哥商品交易所集团（CME）周二宣布，将与GPU市场情报公司Silicon Data合作，于今年晚些时候推出首创的算力期货市场，目前正在等待监管审查。 AI算力成“21世纪新石油” 算力是驱动人工智能热潮的核心资源。随着AI企业大规模依赖算力进行模型训练和系统部署，需求持续飙升，但市场长期缺乏对冲算力价格波动的工具。CME首席执行官特里·达菲在声明中表示：“作为数字经济的支柱
+作者：谭智汨 金信基金基金经理 6月15日，上证指数涨1.61%报4096.47点，深证成指大涨3.79%报15531.11点，创业板指飙升5.30%报4033.53点，科创综指涨4.89%报2128.58点，万得全A涨2.95%报6947.19点。从盘面来看，科技强势归来，铜箔、算力元器件、电子布、CPO、超级电容、玻璃基板等大涨，在上周短暂的回调后资金依然回到了算力硬件及上
 
 ## 正文
 
-芝加哥商品交易所集团（CME）周二宣布，将与GPU市场情报公司Silicon Data合作，于今年晚些时候推出首创的算力期货市场，目前正在等待监管审查。
+作者：谭智汨 金信基金基金经理 6月15日，上证指数涨1.61%报4096.47点，深证成指大涨3.79%报15531.11点，创业板指飙升5.30%报4033.53点，科创综指涨4.89%报2128.58点，万得全A涨2.95%报6947.19点。
 
-AI算力成“21世纪新石油” 算力是驱动人工智能热潮的核心资源。
+从盘面来看，科技强势归来，铜箔、算力元器件、电子布、CPO、超级电容、玻璃基板等大涨，在上周短暂的回调后资金依然回到了算力硬件及上游核心材料环节。
 
-随着AI企业大规模依赖算力进行模型训练和系统部署，需求持续飙升，但市场长期缺乏对冲算力价格波动的工具。
+美伊达成停火协议、霍尔木兹海峡有望重新开放，这一地缘利好大幅提振全球金融市场情绪，引发各大资产显著异动。
 
-CME首席执行官特里·达菲在声明中表示：“作为数字经济的支柱，算力是21世纪的新石油。
+作为全球关键能源运输通道，霍尔木兹海峡承载着全球约20%的石油运输任务，此前的局势紧张持续推升全球能源、物流成本，加剧市场通胀担忧。
 
-每一个训练的AI模型、每一笔清算交易、每一个字节的数据处理都依赖算力，算力本身正迅速成为一个新兴的资产类别。
+而此次封锁解除，能够直接压降全球企业的能源与物流开支，有效缓解通胀上行压力。
 
-” 基于Silicon Data指数定价 新期货合约将基于Silicon Data编制的指数构建，该指数是全球首个针对按需租赁GPU费率的每日基准指标。
+通胀预期的快速降温，让市场大幅上调美联储降息预期，资金面流动性宽松预期持续抬升。
 
-Silicon Data由前DRW交易员卡门·李创立，专注于为GPU市场提供定价基准。
+利好情绪全面扩散至全球资本市场，各类资产迎来明显分化修复：国际原油大幅下行，以科技为代表的风险资产同步上涨。
 
-其首席执行官表示：“算力市场如今高度分散，定价差异巨大。
+其中韩国股市大幅冲高触发熔断，半导体板块领涨市场，日经指数刷新历史新高，全球权益市场整体回暖。
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 17:37 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 17:44 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 17:43 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 17:33 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 17:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 17:53 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 17:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 17:42 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 17:34 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 17:45 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 17:55 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 17:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 17:33 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 17:46 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 17:49 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 18:01 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 17:36 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 17:48 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 17:45 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 18:04 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 18:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 17:40 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 17:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 17:57 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 18:03 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 18:00 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 17:52 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:39 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/34700137638.shtml)
-- 2026-06-29 17:51 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/2904852.shtml)
-- 2026-06-29 17:33 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/259631.shtml)
-- 2026-06-29 17:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/1272944838.shtml)
-- 2026-06-29 17:42 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/410642.shtml)
-- 2026-06-29 17:36 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/37068517207.shtml)
-- 2026-06-29 17:38 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/8759903.shtml)
-- 2026-06-29 17:49 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/2464575.shtml)
-- 2026-06-29 17:56 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/4002121.shtml)
-- 2026-06-29 17:35 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/71503873.shtml)
-- 2026-06-29 17:38 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/980562818.shtml)
-- 2026-06-29 17:30 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/448152505423.shtml)
-- 2026-06-29 17:54 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/82419.shtml)
-- 2026-06-29 17:54 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/854444.shtml)
-- 2026-06-29 17:51 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/701401070.shtml)
+- 2026-06-29 17:37 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/23080085052.shtml)
+- 2026-06-29 17:36 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/213559.shtml)
+- 2026-06-29 17:47 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/33107541.shtml)
+- 2026-06-29 17:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/78296431689.shtml)
+- 2026-06-29 18:04 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.minike.top/Article/details/78159.shtml)
+- 2026-06-29 17:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/441237.shtml)
+- 2026-06-29 18:05 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/40094214861.shtml)
+- 2026-06-29 18:03 - [TTG KSG](http://www.share.minike.top/Article/details/76894042.shtml)
+- 2026-06-29 17:57 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/2101250328.shtml)
+- 2026-06-29 17:40 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/15851010.shtml)
+- 2026-06-29 18:02 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/03369540.shtml)
+- 2026-06-29 17:51 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/655361.shtml)
+- 2026-06-29 17:54 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/5459164.shtml)
+- 2026-06-29 18:00 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/7718855708.shtml)
+- 2026-06-29 17:44 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/651532344797.shtml)

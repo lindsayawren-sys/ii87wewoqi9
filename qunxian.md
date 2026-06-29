@@ -1,57 +1,43 @@
-# 上海居民何时能去台湾本岛个人游？国台办回应
+# 俄罗斯总统与美国总统通电话
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新网5月13日电 5月13日，国台办举行例行新闻发布会。有记者问：近日，上海市文旅局发布公告，宣布上海居民可通过上海市、福建省具备相关资质的旅行社报名赴金门、马祖团队游和个人游。请问目前相关情况进展如何？何时可实现上海居民赴台湾本岛旅游？ 国台办发言人张晗表示，4月29日，上海市文旅局就上海居民赴金门、马祖旅游作出安排，这是今年2月国共两党智库论坛成果的具体落实。近期两岸旅游
+发布时间：2026年06月15日 16:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网5月13日电 5月13日，国台办举行例行新闻发布会。
-
-有记者问：近日，上海市文旅局发布公告，宣布上海居民可通过上海市、福建省具备相关资质的旅行社报名赴金门、马祖团队游和个人游。
-
-请问目前相关情况进展如何？
-
-何时可实现上海居民赴台湾本岛旅游？
-
-国台办发言人张晗表示，4月29日，上海市文旅局就上海居民赴金门、马祖旅游作出安排，这是今年2月国共两党智库论坛成果的具体落实。
-
-近期两岸旅游业界已经开始互访考察，为后续两岸旅游交流合作铺路。
-
-我们已经宣布推动恢复上海市及福建省居民赴台(本岛)个人游试点，希望台湾有关方面顺应民意，尽早开放，为实现两岸人员往来交流正常化和各领域交流常态化创造条件。
-
-(中新网“燕新台”工作室)
+发布时间：2026年06月15日 16:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:53 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 17:37 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 17:58 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 17:37 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 17:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 17:46 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 17:46 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 17:34 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 17:34 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 17:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 17:49 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 17:53 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 17:47 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 17:48 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 17:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 18:05 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 17:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 17:59 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 17:43 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 18:01 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 17:41 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 17:44 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:52 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/5390848.shtml)
-- 2026-06-29 17:55 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/23289794319.shtml)
-- 2026-06-29 17:50 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/20734896.shtml)
-- 2026-06-29 17:44 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/24139.shtml)
-- 2026-06-29 17:52 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/4027226876.shtml)
-- 2026-06-29 17:35 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/93023.shtml)
-- 2026-06-29 17:50 - [东方风云榜红毯](http://www.share.minike.top/Article/details/62668921.shtml)
-- 2026-06-29 17:53 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/029235.shtml)
-- 2026-06-29 17:31 - [流金岁月](https://www.share.minike.top/Article/details/165394432064.shtml)
-- 2026-06-29 17:44 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/33100.shtml)
-- 2026-06-29 17:30 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/7608164.shtml)
-- 2026-06-29 17:48 - [极限挑战第一季](https://www.blog.minike.top/Article/details/65687437.shtml)
-- 2026-06-29 17:40 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/5276502.shtml)
-- 2026-06-29 17:54 - [千与千寻](http://www.blog.minike.top/Article/details/851964537.shtml)
-- 2026-06-29 17:39 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/6970331251.shtml)
+- 2026-06-29 17:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/0042400602.shtml)
+- 2026-06-29 17:42 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/87383135300.shtml)
+- 2026-06-29 17:36 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/53593514.shtml)
+- 2026-06-29 17:52 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/504539.shtml)
+- 2026-06-29 17:46 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/294205.shtml)
+- 2026-06-29 17:42 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/31191274.shtml)
+- 2026-06-29 17:50 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/86752.shtml)
+- 2026-06-29 18:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/676289194.shtml)
+- 2026-06-29 18:04 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/76857182.shtml)
+- 2026-06-29 17:38 - [金刚川](https://www.share.minike.top/Article/details/21508819.shtml)
+- 2026-06-29 17:53 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/3646989.shtml)
+- 2026-06-29 17:50 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/88001718651.shtml)
+- 2026-06-29 18:01 - [这一刀 会很帅](http://www.share.minike.top/Article/details/98096.shtml)
+- 2026-06-29 17:43 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/50593.shtml)
+- 2026-06-29 17:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/77465288548.shtml)

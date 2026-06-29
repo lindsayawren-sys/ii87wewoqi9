@@ -1,61 +1,61 @@
-# 抗震救灾综合实战演练在西藏林芝拉开帷幕
+# 外交部：奉劝有关机构停止渲染所谓“中国威胁”
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新网拉萨5月12日电 (费贤浩 刘远福 杨海涛)近日，“应急练兵·林芝2026”抗震救灾综合实战演练在林芝市拉开帷幕。模拟西藏林芝市发生5.6级地震，震源深度12千米，瞬间“造成”民房倒塌、人员被埋、道路与通信三断—真实感拉满的灾情设定。 林芝消防救援机动支队闻令即动，50名指战员、16台救援车辆、800余件专业装备火速集结，按“全要素、全流程、全实战”标准，第一时间挺进“灾
+中新网北京6月15日电 (记者 曾玥)中国外交部发言人林剑15日主持例行记者会。有记者就澳大利亚某智库发布报告炒作所谓“中国威胁”提问。 林剑：我注意到了相关报道。中国坚持走和平发展道路，中国发展军力是为了维护国家主权、安全和发展利益，不针对任何国家。中国军事力量的增长是世界爱好和平力量的增长。你提到的有关报告，用“国强必霸”的逻辑“镜像”中国，这是对中国严重的战略误判。奉劝有
 
 ## 正文
 
-中新网拉萨5月12日电 (费贤浩 刘远福 杨海涛)近日，“应急练兵·林芝2026”抗震救灾综合实战演练在林芝市拉开帷幕。
+中新网北京6月15日电 (记者 曾玥)中国外交部发言人林剑15日主持例行记者会。
 
-模拟西藏林芝市发生5.6级地震，震源深度12千米，瞬间“造成”民房倒塌、人员被埋、道路与通信三断—真实感拉满的灾情设定。
+有记者就澳大利亚某智库发布报告炒作所谓“中国威胁”提问。
 
-林芝消防救援机动支队闻令即动，50名指战员、16台救援车辆、800余件专业装备火速集结，按“全要素、全流程、全实战”标准，第一时间挺进“灾区”。
+林剑：我注意到了相关报道。
 
-但这次演练的亮点，远不止“快”。
+中国坚持走和平发展道路，中国发展军力是为了维护国家主权、安全和发展利益，不针对任何国家。
 
-演练现场，除了传统的破拆、搜救、森林灭火和水域救援科目，无人机灭火与无人机投送物资成为最大看点。
+中国军事力量的增长是世界爱好和平力量的增长。
 
-只见一架重型无人机吊载灭火弹精准扑灭模拟火点；另一架则穿越“断路”区域，将急救包、卫星电话等物资空投至“孤岛”被困人员手中——高原复杂地形下的“最后一公里”，被科技打通。
+你提到的有关报告，用“国强必霸”的逻辑“镜像”中国，这是对中国严重的战略误判。
 
-海拔高、含氧低、路况险，历来是高原救援的痛点。
+奉劝有关机构停止渲染所谓“中国威胁”，客观、公正、理性地看待中国发展。
 
-此次演练重点检验了队伍在高海拔环境下的快速响应、力量投送与协同作战能力。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 17:34 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 17:34 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 17:47 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 17:41 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 17:47 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 17:47 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 17:50 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 17:37 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 17:33 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 17:45 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 17:46 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 17:47 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 17:40 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 17:49 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 17:49 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 17:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 17:45 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 17:59 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 17:47 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 17:46 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 17:44 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 18:00 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 17:39 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 18:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 17:37 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 17:57 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 17:36 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 17:45 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 17:57 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [永远有话聊的原因](https://www.share.kurohicncr.top/Article/details/34391.shtml)
-- 2026-06-29 17:38 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/80355379.shtml)
-- 2026-06-29 17:44 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/9411457.shtml)
-- 2026-06-29 17:50 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/5062924851.shtml)
-- 2026-06-29 17:48 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/722703.shtml)
-- 2026-06-29 17:43 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/9999720.shtml)
-- 2026-06-29 17:31 - [叠纸](http://www.share.kurohicncr.top/Article/details/96968.shtml)
-- 2026-06-29 17:55 - [叠纸](https://www.blog.kurohicncr.top/Article/details/828130079.shtml)
-- 2026-06-29 17:38 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/168898208752.shtml)
-- 2026-06-29 17:58 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/315878.shtml)
-- 2026-06-29 17:58 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/02799.shtml)
-- 2026-06-29 17:41 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/924883548697.shtml)
-- 2026-06-29 17:38 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/418471.shtml)
-- 2026-06-29 17:46 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/326561696.shtml)
-- 2026-06-29 17:43 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/12211.shtml)
+- 2026-06-29 17:49 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/81372158198.shtml)
+- 2026-06-29 17:46 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/000377691438.shtml)
+- 2026-06-29 17:36 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/79036689674.shtml)
+- 2026-06-29 18:00 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/024555483.shtml)
+- 2026-06-29 17:39 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/3004842.shtml)
+- 2026-06-29 17:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/50205604041.shtml)
+- 2026-06-29 17:37 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/74766.shtml)
+- 2026-06-29 18:04 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/664676.shtml)
+- 2026-06-29 17:41 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/3405494778.shtml)
+- 2026-06-29 17:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/3296952873.shtml)
+- 2026-06-29 17:47 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/154516191.shtml)
+- 2026-06-29 17:39 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/59010288229.shtml)
+- 2026-06-29 17:38 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/7572449.shtml)
+- 2026-06-29 17:39 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/21115760811.shtml)
+- 2026-06-29 18:00 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/2892751.shtml)

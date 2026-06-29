@@ -1,57 +1,57 @@
-# 刷牙后立即漱口等于白刷？医生建议
+# 上海链家回应“吃差价”事件：未从中获取差价收益 涉事经纪人违规被辞退
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-原标题：刷牙后立即漱口等于白刷？ 医生：功效型牙膏建议刷完15至30分钟后再漱口 每天早晚认真刷牙，刷完马上用清水漱干净——这是多数人多年来的刷牙习惯。但最近，一则“刷牙后马上漱口，可能一直在‘无效刷牙’”的新闻，颠覆了不少人的认知。对此，南京同仁医院口腔牙周专科主治医师朱奕名在接受记者采访时表示，对于含氟牙膏、抗敏感牙膏等功效型牙膏而言，刷牙后立刻漱口，确实可能效果不佳，但对
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月16日下午消息，针对网传“吃差价”事件，上海链家发布调查通报。以下为通报内容： 在本次调查中，我们调取了系统内完整的挂牌、成交记录，并交叉对比涉事经纪人的独立问询记录。同时，为充分还原事实、接受社会监督，上海链家已主动联系属地房管局及消保部门，提请对本次事件的调查和处理予以指导协调。 经上海链家品质监察
 
 ## 正文
 
-原标题：刷牙后立即漱口等于白刷？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-医生：功效型牙膏建议刷完15至30分钟后再漱口 每天早晚认真刷牙，刷完马上用清水漱干净——这是多数人多年来的刷牙习惯。
+6月16日下午消息，针对网传“吃差价”事件，上海链家发布调查通报。
 
-但最近，一则“刷牙后马上漱口，可能一直在‘无效刷牙’”的新闻，颠覆了不少人的认知。
+以下为通报内容： 在本次调查中，我们调取了系统内完整的挂牌、成交记录，并交叉对比涉事经纪人的独立问询记录。
 
-对此，南京同仁医院口腔牙周专科主治医师朱奕名在接受记者采访时表示，对于含氟牙膏、抗敏感牙膏等功效型牙膏而言，刷牙后立刻漱口，确实可能效果不佳，但对于普通牙膏来说，并不需要在口腔内特别“停留”。
+同时，为充分还原事实、接受社会监督，上海链家已主动联系属地房管局及消保部门，提请对本次事件的调查和处理予以指导协调。
 
-扬子晚报/紫牛新闻记者 许倩倩“对于功效型牙膏，特别是含氟牙膏，为了防龋，我们一般会建议刷完牙后不要立即漱口，如果泡沫太多，可以先吐掉一些，等待15~30分钟之后再正常漱口（不漱口也可以）。
+经上海链家品质监察部门核查，情况如下：该房源6月7日在链家挂牌，同日江桥分行经纪人李某惠隐瞒客户亲属关系，违规参与交易斡旋，由亲属购入该房源并完成签约，向业主支付20万元定金。
 
-”朱奕名解释说，这样才能让牙膏里的氟化物等有效成分充分附着在牙齿表面，形成保护层，增强牙齿抗龋能力。
+在该房源三方签约已完成，且成交客户（李某惠亲属）无任何转售意向的情况下，江桥分行经纪人吴某雄私自对外虚构房源在售信息、编造价格、违规向客户推介（其网传截图中的195万及180万均无查实的数据出处或历史成交信息支撑）。
 
-“当然，如果实在觉得嘴里黏糊糊的，可以含一小口水轻轻吐掉，但千万别反复用力漱口，否则就可能把刚刚筑起的‘保护层’也冲走了。
+此后，该信息被业主获悉。
 
-” 朱奕名介绍，此前有一项涵盖2000多名青少年的研究数据显示，和刷完立即漱口的人相比，刷完不立即漱口的人，平均患龋率降低了约9%。
+6月10日，应业主要求，客业双方协商一致解除合同，并完成定金退还。
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 17:32 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 17:56 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 18:00 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 17:50 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 17:45 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 17:44 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 17:37 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 17:35 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 17:45 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 17:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 17:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 17:40 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 17:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 17:56 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 17:51 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 17:40 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 17:54 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 17:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 17:44 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 17:55 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 18:03 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/8358805771.shtml)
-- 2026-06-29 17:54 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/04496629.shtml)
-- 2026-06-29 17:48 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/0639677158.shtml)
-- 2026-06-29 17:50 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/3509152577.shtml)
-- 2026-06-29 17:42 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/7320522.shtml)
-- 2026-06-29 17:46 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/172372.shtml)
-- 2026-06-29 17:54 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/38494.shtml)
-- 2026-06-29 17:46 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/119627867136.shtml)
-- 2026-06-29 17:38 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/671300377002.shtml)
-- 2026-06-29 17:41 - [工作靠AI算不算职场作弊](https://www.blog.kurohicncr.top/Article/details/704681.shtml)
-- 2026-06-29 17:47 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/4311534.shtml)
-- 2026-06-29 17:44 - [花万元相亲对象是50元雇的演员](https://www.share.kurohicncr.top/Article/details/07586.shtml)
-- 2026-06-29 17:36 - [NBA交易](https://www.share.kurohicncr.top/Article/details/93431865.shtml)
-- 2026-06-29 17:46 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/390654.shtml)
-- 2026-06-29 17:55 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/004978.shtml)
+- 2026-06-29 17:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/12798.shtml)
+- 2026-06-29 17:39 - [叠纸](http://www.blog.minike.top/Article/details/014139.shtml)
+- 2026-06-29 17:57 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/57556482837.shtml)
+- 2026-06-29 17:55 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/6481265.shtml)
+- 2026-06-29 17:52 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/352172.shtml)
+- 2026-06-29 17:48 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/131613236.shtml)
+- 2026-06-29 18:02 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/149835407983.shtml)
+- 2026-06-29 17:45 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/93732563868.shtml)
+- 2026-06-29 17:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/903886945.shtml)
+- 2026-06-29 17:42 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/63922360.shtml)
+- 2026-06-29 17:45 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/74256915.shtml)
+- 2026-06-29 17:42 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/44484.shtml)
+- 2026-06-29 17:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/247921.shtml)
+- 2026-06-29 18:05 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/83224.shtml)
+- 2026-06-29 17:44 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/93154867.shtml)

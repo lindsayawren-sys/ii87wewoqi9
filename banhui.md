@@ -1,60 +1,61 @@
-# 东方园林（东方新能，002310）索赔倒计时两个月，园城黄金（600766）索赔案已有胜诉
+# 通用汽车洽谈为洛克希德马丁供应武器零部件
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-上海久诚律师事务所股票索赔律师许峰提示，东方园林（002310）虚假陈述引发的投资者索赔案已经进入最后两个月倒计时，提醒投资者注意，“过期作废”。（许峰律师专栏） 许峰律师代理的东方园林投资者索赔案已向北京金融法院多次提交立案，公告信息显示，该案已有投资者和解获赔，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2024年1月31日晚，东方园林公告收
+在美国着手补充弹药库存的背景下，这家汽车制造商计划壮大旗下防务子公司 据知情人士透露，通用汽车（GM，涨幅 3.15%）正在和洛克希德・马丁（LMT，跌幅 1.85%）洽谈合作，拟为后者生产各类武器零部件。 知情人士表示，按照双方拟议的合作模式，通用汽车将量产通用型零部件，助力洛克希德・马丁提升弹药产能，目前两家企业正在敲定通用可承接的零部件品类。 相关合作协议尚未最终敲定，合
 
 ## 正文
 
-上海久诚律师事务所股票索赔律师许峰提示，东方园林（002310）虚假陈述引发的投资者索赔案已经进入最后两个月倒计时，提醒投资者注意，“过期作废”。
+在美国着手补充弹药库存的背景下，这家汽车制造商计划壮大旗下防务子公司 据知情人士透露，通用汽车（GM，涨幅 3.15%）正在和洛克希德・马丁（LMT，跌幅 1.85%）洽谈合作，拟为后者生产各类武器零部件。
 
-（许峰律师专栏） 许峰律师代理的东方园林投资者索赔案已向北京金融法院多次提交立案，公告信息显示，该案已有投资者和解获赔，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+知情人士表示，按照双方拟议的合作模式，通用汽车将量产通用型零部件，助力洛克希德・马丁提升弹药产能，目前两家企业正在敲定通用可承接的零部件品类。
 
-2024年1月31日晚，东方园林公告收到证监会北京监管局出具的《行政处罚决定书》，经查明，东方园林违法事实如下： 2018年6月，东方园林及其子公司组成联合体，中标广西贵港市覃塘区全域旅游PPP项目。
+相关合作协议尚未最终敲定，合作框架仍存在调整空间。
 
-2019年12月，东方园林根据与供应商成本扣减结算情况，调减广西贵港项目相关成本2，232.19万元，但未在2019年相应调减营业收入3，541.84万元，直到2022年才进行调整。
+受乌克兰冲突与伊朗战事影响，导弹及各类关键武器弹药库存持续走低。
 
-该情况导致公司2019年度虚增收入、利润及资产各3，541.84万元，2020年度、2021年度虛增资产各3，541.84万元，2022年度虚减收入、利润各3，541.84万元。
+为补齐军备库存，特朗普政府与美国国防部敦促各大军工企业提速产能，同时积极拉拢通用汽车这类非传统制造企业参与军备生产。
 
-“20东林G1”公司债券募集说明书使用了2019年年度报告相关财务数据。
+通用汽车首席执行官玛丽・博拉已与本届政府官员会面，商讨这家车企深度参与军工领域的相关事宜，通用汽车正着力发展尚且规模不大的防务业务。
 
-上述事项导致东方园林2019年至2022年年度报告及“20东林G1”公司债券募集说明书存在错报。
+美国国防部官员表示，美军及盟友今年在中东战场消耗了大量打击类武器与防空拦截弹，传统军工承包商已难以满足订单需求，军方需要通用这类企业作为产能后备支撑。
 
-许峰律师认为，在2020年4月30日到2023年7月13日之间买入东方园林股票，并且在2023年7月13日后卖出或继续持有股票的投资者，在最后两个月诉讼时效内还可发起索赔。
+对通用汽车而言，本次合作洽谈是其拓展防务业务、开辟全新营收渠道的重要布局。
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 17:32 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 17:49 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 17:37 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 17:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 17:37 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 17:31 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 17:34 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 17:36 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 17:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 17:36 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 17:34 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 17:38 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 17:32 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 17:56 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 17:44 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 17:53 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 17:52 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 17:55 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 18:03 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 18:03 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 17:51 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 17:38 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 17:57 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 17:43 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 17:59 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 17:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 18:04 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 17:37 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:38 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/9304332290.shtml)
-- 2026-06-29 17:33 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/6794806769.shtml)
-- 2026-06-29 17:34 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/31967861923.shtml)
-- 2026-06-29 17:49 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/000036089.shtml)
-- 2026-06-29 17:32 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/275012711.shtml)
-- 2026-06-29 17:38 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/624468671362.shtml)
-- 2026-06-29 17:53 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/306074059.shtml)
-- 2026-06-29 17:56 - [王楚钦开门红](http://www.share.minike.top/Article/details/85328.shtml)
-- 2026-06-29 17:52 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/9120163.shtml)
-- 2026-06-29 17:56 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/17645.shtml)
-- 2026-06-29 17:44 - [葛军谈AI时代理科生出路](https://www.share.minike.top/Article/details/167880258957.shtml)
-- 2026-06-29 17:57 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/434900797.shtml)
-- 2026-06-29 17:46 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/81096753.shtml)
-- 2026-06-29 17:41 - [东方风云榜](http://www.share.minike.top/Article/details/818862.shtml)
-- 2026-06-29 17:43 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/7472642.shtml)
+- 2026-06-29 17:42 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/8394982401.shtml)
+- 2026-06-29 17:56 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/08428814.shtml)
+- 2026-06-29 17:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/16543416.shtml)
+- 2026-06-29 17:45 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/47033.shtml)
+- 2026-06-29 17:44 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/246446549329.shtml)
+- 2026-06-29 17:50 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/78140.shtml)
+- 2026-06-29 17:52 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/5927253047.shtml)
+- 2026-06-29 17:58 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/203654785.shtml)
+- 2026-06-29 17:43 - [东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/06918115654.shtml)
+- 2026-06-29 17:52 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/7150328.shtml)
+- 2026-06-29 17:58 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/1546376.shtml)
+- 2026-06-29 17:39 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/1614153.shtml)
+- 2026-06-29 17:39 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/237382.shtml)
+- 2026-06-29 18:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/751718162729.shtml)
+- 2026-06-29 17:38 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/639691806457.shtml)

@@ -1,61 +1,59 @@
-# 日本民众集会反对“国家情报会议”设置法案
+# A股200亿白银龙头，被立案调查！超7万股民受波及
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-当地时间5月12日傍晚，数百名日本民众在东京众议院议员会馆前举行抗议集会，反对高市政权推动“国家情报会议”设置法案，认为该法案将压制日本国内反战声音，对该法案表示强烈不满和反对。 集会参加者：高市政权很多事情，都是由高市政府擅自决定，然后强行推行。我们之所以努力纳税，是希望所有国民都能健康稳定地生活。可为什么他们却擅自打算发动战争？而且高市还逃避责任，连一次正经的对话都不愿意进
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日，A股白银龙头盛达资源（000603）公告称，公司收到证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。 公司就上述立案调查事项的自查情况说明如下：2025年4月29日，公司披露了《关于公司自查发现控股股东及其附属企业资金占
 
 ## 正文
 
-当地时间5月12日傍晚，数百名日本民众在东京众议院议员会馆前举行抗议集会，反对高市政权推动“国家情报会议”设置法案，认为该法案将压制日本国内反战声音，对该法案表示强烈不满和反对。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-集会参加者：高市政权很多事情，都是由高市政府擅自决定，然后强行推行。
+6月15日，A股白银龙头盛达资源（000603）公告称，公司收到证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。
 
-我们之所以努力纳税，是希望所有国民都能健康稳定地生活。
+公司就上述立案调查事项的自查情况说明如下：2025年4月29日，公司披露了《关于公司自查发现控股股东及其附属企业资金占用并已解决等情况的公告》，对公司控股股东及其附属企业非经营性资金占用情况进行了披露。
 
-可为什么他们却擅自打算发动战争？
+截至本公告披露日，公司已收回全部被占用资金及占用利息。
 
-而且高市还逃避责任，连一次正经的对话都不愿意进行，完全没有反省。
+公司已积极对相关问题进行整改，公司将依法履行相关信息披露义务。
 
-我认为这绝对不行。
+目前，公司生产经营活动正常开展，该事项不会对公司生产经营产生重大影响。
 
-集会参加者：我首先无法理解，为什么本该遵守宪法的人，反而想要修改它。
+同日，盛达资源再发公告称，公司实际控制人赵满堂于2026年6月15日收到证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对其立案。
 
-现在不是还有很多比修宪更应该优先处理的事情吗？
+赵满堂将积极配合调查并履行信息披露义务。
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 17:42 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 17:37 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 17:46 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 17:48 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 17:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 17:32 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 17:31 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 17:32 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 17:57 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 17:58 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 17:44 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 17:49 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 17:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 17:34 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 17:57 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 17:43 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 17:38 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 17:46 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 17:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 17:43 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 18:01 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 18:02 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 17:36 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 17:40 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 17:54 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 17:37 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 17:52 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [周生如故](http://www.blog.minike.top/Article/details/319600345.shtml)
-- 2026-06-29 17:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/19757938952.shtml)
-- 2026-06-29 17:38 - [花万元相亲对象是50元雇的演员](http://www.blog.minike.top/Article/details/131109.shtml)
-- 2026-06-29 17:50 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/268027268.shtml)
-- 2026-06-29 17:50 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/808703067.shtml)
-- 2026-06-29 17:30 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/69486123.shtml)
-- 2026-06-29 17:40 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/38429716.shtml)
-- 2026-06-29 17:53 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/675492311.shtml)
-- 2026-06-29 17:41 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/239040382525.shtml)
-- 2026-06-29 17:48 - [叠纸客服回应恋与深空新角色争议](https://www.blog.minike.top/Article/details/09605600.shtml)
-- 2026-06-29 17:51 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/637983691.shtml)
-- 2026-06-29 17:41 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/786283252876.shtml)
-- 2026-06-29 17:30 - [税务总局披露5起合规申报个税案例](http://www.share.minike.top/Article/details/2736975.shtml)
-- 2026-06-29 17:44 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/74643.shtml)
-- 2026-06-29 17:58 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/54764680.shtml)
+- 2026-06-29 18:05 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/82024666.shtml)
+- 2026-06-29 17:39 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/2471274153.shtml)
+- 2026-06-29 17:54 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/8351136397.shtml)
+- 2026-06-29 17:37 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/20160.shtml)
+- 2026-06-29 17:53 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/595016230.shtml)
+- 2026-06-29 17:58 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/220687965463.shtml)
+- 2026-06-29 17:52 - [沙丘](https://www.blog.minike.top/Article/details/333502.shtml)
+- 2026-06-29 17:56 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/2867942.shtml)
+- 2026-06-29 17:46 - [南昌市委书记调整](http://www.share.minike.top/Article/details/642571454.shtml)
+- 2026-06-29 17:47 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/224322918.shtml)
+- 2026-06-29 17:59 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/554697465.shtml)
+- 2026-06-29 18:03 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/637698.shtml)
+- 2026-06-29 17:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/9849283.shtml)
+- 2026-06-29 17:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/684208.shtml)
+- 2026-06-29 17:55 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/31046041656.shtml)

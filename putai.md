@@ -1,59 +1,59 @@
-# InPost发布首季财报：核心利润超预期,业务整合提速
+# 为文物立档 为历史存证（中国道路中国梦）
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-5月13日，波兰物流领军企业InPost发布的2026财年第一季度财报显示，受益于波兰本土及欧元区业务的强劲增长，公司当季核心利润表现显著优于市场预期。财报指出，国际市场的持续扩张有效抵消了整合英国业务所产生的相关成本。 数据显示，InPost第一季度经调整后的息税折旧及摊销前利润（EBITDA）达9.022亿波兰兹罗提（约合2.49亿美元），高于此前市场普遍预期的8.56亿兹
+人民日报 朱凤瀚 一个民族的历史记忆，无论散落何方，纵使千山万水、千难万险，都要有人寻回、有人接续 要说能够代表中华文明的文化符号，青铜器必定榜上有名。它是悠久文明最重要的物化表征之一，其铭文更记载着早期中国的国家形态、礼乐文化、族群结构等，是汉字系统得以传承的重要载体。“中国”一词最早的文字记载，便出自西周青铜器何尊的铭文。近代以来山河动荡，一大批非经考古发掘的青铜器非法流失
 
 ## 正文
 
-5月13日，波兰物流领军企业InPost发布的2026财年第一季度财报显示，受益于波兰本土及欧元区业务的强劲增长，公司当季核心利润表现显著优于市场预期。
+人民日报 朱凤瀚 一个民族的历史记忆，无论散落何方，纵使千山万水、千难万险，都要有人寻回、有人接续 要说能够代表中华文明的文化符号，青铜器必定榜上有名。
 
-财报指出，国际市场的持续扩张有效抵消了整合英国业务所产生的相关成本。
+它是悠久文明最重要的物化表征之一，其铭文更记载着早期中国的国家形态、礼乐文化、族群结构等，是汉字系统得以传承的重要载体。
 
-数据显示，InPost第一季度经调整后的息税折旧及摊销前利润（EBITDA）达9.022亿波兰兹罗提（约合2.49亿美元），高于此前市场普遍预期的8.56亿兹罗提。
+“中国”一词最早的文字记载，便出自西周青铜器何尊的铭文。
 
-期内，公司共处理包裹3.59亿件，同比大幅增长32%。
+近代以来山河动荡，一大批非经考古发掘的青铜器非法流失，分散在世界各地的博物馆、研究机构、大学、古董行乃至私人收藏中。
 
-从区域市场表现看，波兰本土市场仍是公司最重要的利润引擎，一季度业务量同比增长8%至1.88亿件，营收增长9.2%至18亿兹罗提。
+有的长期陈列，有的深藏库房，只在老旧的图录里留下寥寥数语，成为中华文明悬在海外的“文化乡愁”。
 
-与此同时，InPost国际化战略成效显著，波兰以外市场贡献了总营收的53%。
+流散海外的中国青铜器，是中华文明不可分割的一部分。
 
-其中，受收购英国快递公司Yodel后的资源整合推动，英国及爱尔兰市场业务量激增220%，欧元区业务量则增长28%。
+2012年，国家文物局委托北京大学调查流散海外的中国青铜器状况。
 
-针对市场关注的英国业务，InPost强调，目前正集中力量对Yodel进行物流体系转型，工作重心涵盖优化单件包裹成本、巩固物流网络以及提升中端运输效率。
+说实话，彼时，即使是长期做中国青铜器研究的学者，也说不清楚这个底数。
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 17:57 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 17:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 17:43 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 17:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 17:54 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 17:51 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 17:40 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 17:38 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 17:38 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 17:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 17:50 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 17:45 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 17:45 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 17:48 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 17:39 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 17:38 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 17:49 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 17:59 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 17:42 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 17:53 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 17:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 17:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 17:46 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 17:43 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 17:46 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/717330.shtml)
-- 2026-06-29 17:32 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/471599784.shtml)
-- 2026-06-29 17:47 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/1532500.shtml)
-- 2026-06-29 17:49 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.minike.top/Article/details/446992882778.shtml)
-- 2026-06-29 17:37 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/70975337.shtml)
-- 2026-06-29 17:51 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/05657.shtml)
-- 2026-06-29 17:51 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/419297.shtml)
-- 2026-06-29 17:54 - [王楚钦开门红](https://www.share.minike.top/Article/details/41745977246.shtml)
-- 2026-06-29 17:34 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/1088013.shtml)
-- 2026-06-29 17:30 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/54098957582.shtml)
-- 2026-06-29 17:38 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/830889178.shtml)
-- 2026-06-29 17:54 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/70449175439.shtml)
-- 2026-06-29 17:39 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/0426891622.shtml)
-- 2026-06-29 17:50 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/7299659.shtml)
-- 2026-06-29 17:54 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/5594443.shtml)
+- 2026-06-29 17:43 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/31075045.shtml)
+- 2026-06-29 17:43 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/9542354.shtml)
+- 2026-06-29 17:41 - [乔家的儿女](https://www.blog.minike.top/Article/details/5153969.shtml)
+- 2026-06-29 17:51 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/050700526.shtml)
+- 2026-06-29 17:54 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/48135116462.shtml)
+- 2026-06-29 17:52 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/6049967.shtml)
+- 2026-06-29 17:51 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/571228204427.shtml)
+- 2026-06-29 18:05 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/9490905075.shtml)
+- 2026-06-29 17:52 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/5350479.shtml)
+- 2026-06-29 17:41 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/58400.shtml)
+- 2026-06-29 17:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/39385525215.shtml)
+- 2026-06-29 17:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/55206.shtml)
+- 2026-06-29 18:01 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/269602165.shtml)
+- 2026-06-29 17:43 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/722249.shtml)
+- 2026-06-29 17:39 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/06806369417.shtml)

@@ -1,60 +1,59 @@
-# 韩国将加强对消费者“海淘”产品安全检查，到2028年检查次数翻番
+# 伊朗战事有望落幕、军贸出口预期升温，韩国军工股大幅飙升
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-韩国政府官员周二表示，为防止危险产品流入，政府将把消费者直接从海外进口产品的安全检查数量增加一倍以上。 据韩国政府政策协调办公室称，到2028年，此类产品的年度安全检查数量将从去年的1000次跃升至2000次以上。 该办公室在一份声明中表示，此举是周二由12个政府部门和机构组成的产品安全政策委员会会议批准的三年产品安全管理计划的关键内容之一。 该办公室表示：“随着海外直接采购的
+核心要点 随着伊朗战争迎来收尾曙光，市场预计韩国军工企业将从中东地区军备采购订单中获益，韩国国防军工板块周二迎来大幅拉升。 首尔头部军工企业韩华航空航天盘中最高涨幅 11.8%；K2 “黑豹” 主战坦克制造商现代 Rotem 最高上涨 12.67%；LIG 国防航空在韩国综合指数盘中涨幅逼近 30% 涨停线；地面作战车辆零部件供应商 Firstec 同样险些触及 30% 涨幅上
 
 ## 正文
 
-韩国政府官员周二表示，为防止危险产品流入，政府将把消费者直接从海外进口产品的安全检查数量增加一倍以上。
+核心要点 随着伊朗战争迎来收尾曙光，市场预计韩国军工企业将从中东地区军备采购订单中获益，韩国国防军工板块周二迎来大幅拉升。
 
-据韩国政府政策协调办公室称，到2028年，此类产品的年度安全检查数量将从去年的1000次跃升至2000次以上。
+首尔头部军工企业韩华航空航天盘中最高涨幅 11.8%；K2 “黑豹” 主战坦克制造商现代 Rotem 最高上涨 12.67%；LIG 国防航空在韩国综合指数盘中涨幅逼近 30% 涨停线；地面作战车辆零部件供应商 Firstec 同样险些触及 30% 涨幅上限。
 
-该办公室在一份声明中表示，此举是周二由12个政府部门和机构组成的产品安全政策委员会会议批准的三年产品安全管理计划的关键内容之一。
+未来资产证券在 6 月 16 日发布的研报中表示，投资者普遍看好韩国军工出口业务即将回暖，中东地区采购订单有望持续放量。
 
-该办公室表示：“随着海外直接采购的普及，人们对危险产品流入的担忧日益加剧，因此，采取先发制人的应对措施的需求也日益增长。
+韩国 DS 投资证券分析师姜泰浩认为，伊朗战事落幕将成为韩国军工行业的重大利好催化剂。
 
-政府将把人工智能应用于产品安全全流程，并转向以预防为中心的政策，以构建严密的产品安全网。
+LIG 公司研发的 “天弓” 中程防空导弹系统（M-SAM）在本次伊朗冲突期间于阿联酋完成实战首秀。
 
-” 韩国政府表示，将加强对易发生事故产品（包括内置电池产品和儿童产品）的安全检查，同时提升智能家居设备等新型产品的安全法规和标准。
+分析师称，该型拦截导弹性能对标美国爱国者防空系统配备的 PAC-3 拦截弹，但其采购成本仅为 PAC-3 公开报价 400 万美元的三分之一。
 
-此外，还将利用人工智能技术全天候监控网络市场，防止危险产品流通。
+姜泰浩举例分析了行业利好逻辑：受战事影响一度暂停的韩华航空航天与沙特阿拉伯的军贸谈判即将重启，同时现代 Rotem 正推进向伊拉克出口 250 辆 K2 主战坦克的合作洽谈。
 
-责任编辑：于健 SF069
+他表示：“冲突结束后相关谈判恢复落地，拿下大额军贸订单将成为大概率事件。
 
 ## 相关推荐
 
-- 2026-06-29 17:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 17:44 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 17:59 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 17:45 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 17:47 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 17:30 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 17:46 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 17:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 17:59 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 17:37 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 17:56 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 17:38 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 17:55 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 17:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 17:58 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 17:50 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 18:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 17:49 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 17:46 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 17:43 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 17:37 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 17:56 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 17:40 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 17:37 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 17:57 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 18:05 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 17:36 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:36 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/75879502.shtml)
-- 2026-06-29 17:46 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/7193110.shtml)
-- 2026-06-29 17:58 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/152124.shtml)
-- 2026-06-29 17:43 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/57209.shtml)
-- 2026-06-29 17:41 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/939804.shtml)
-- 2026-06-29 17:50 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/84181.shtml)
-- 2026-06-29 17:51 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/47575161.shtml)
-- 2026-06-29 17:41 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/1955934744.shtml)
-- 2026-06-29 17:36 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/098982.shtml)
-- 2026-06-29 17:59 - [送你一朵小红花](https://www.blog.minike.top/Article/details/49451153380.shtml)
-- 2026-06-29 17:55 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/1805158.shtml)
-- 2026-06-29 17:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/1683206163.shtml)
-- 2026-06-29 17:40 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/75445.shtml)
-- 2026-06-29 17:38 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/60550600.shtml)
-- 2026-06-29 17:47 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/1061222.shtml)
+- 2026-06-29 17:41 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/29893563942.shtml)
+- 2026-06-29 17:58 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/7362594693.shtml)
+- 2026-06-29 17:45 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/282452110.shtml)
+- 2026-06-29 17:43 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/3854867483.shtml)
+- 2026-06-29 17:38 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/713845.shtml)
+- 2026-06-29 17:51 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.minike.top/Article/details/54239613.shtml)
+- 2026-06-29 17:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/119057660.shtml)
+- 2026-06-29 17:54 - [沙丘](http://www.share.minike.top/Article/details/07672355352.shtml)
+- 2026-06-29 18:00 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/77650279794.shtml)
+- 2026-06-29 17:47 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/663309.shtml)
+- 2026-06-29 17:54 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/5338597.shtml)
+- 2026-06-29 17:56 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/89353120.shtml)
+- 2026-06-29 18:00 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/00405.shtml)
+- 2026-06-29 17:41 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/584725926.shtml)
+- 2026-06-29 17:37 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/7522238917.shtml)

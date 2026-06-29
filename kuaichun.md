@@ -1,61 +1,60 @@
-# 融资25亿美元、产业链巨头站队：阶跃星辰的AI终端霸业与港股冲刺
+# “新疆小羊”爆火，折射哪些文旅市场新变化？
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-2026年5月初的中国大模型赛道，注定将被刻进行业备忘录。 5月7日至8日，短短24小时内，月之暗面宣布完成约20亿美元融资、阶跃星辰被曝即将完成近25亿美元融资、DeepSeek首轮融资估值传闻直冲500亿美元以上——三家公司单周合计募资体量逼近百亿美元量级。加上此前已登陆港股的智谱AI和MiniMax，中国基础大模型的“五虎”格局在这个春天同时进入了各自的关键时刻。 这不是
+中新经纬6月15日电 (董湘依)近日，一只新疆毛绒小羊火爆全网，一句“小羊，和你的新疆户籍说再见吧”在社交媒体上大量传播。据新疆广播电视台报道，有人拖着行李箱专程赶来，有人一口气选走10只，排队3小时起步。摊主阿卜都拉从早做到晚，一天拼出200只，还是供不应求。北京旅游学会理事吴若山表示，从消费者行为学审视，“新疆小羊”的爆火绝非偶然，而是对当代年轻群体情绪价值的精准回应。经过
 
 ## 正文
 
-2026年5月初的中国大模型赛道，注定将被刻进行业备忘录。
+中新经纬6月15日电 (董湘依)近日，一只新疆毛绒小羊火爆全网，一句“小羊，和你的新疆户籍说再见吧”在社交媒体上大量传播。
 
-5月7日至8日，短短24小时内，月之暗面宣布完成约20亿美元融资、阶跃星辰被曝即将完成近25亿美元融资、DeepSeek首轮融资估值传闻直冲500亿美元以上——三家公司单周合计募资体量逼近百亿美元量级。
+据新疆广播电视台报道，有人拖着行李箱专程赶来，有人一口气选走10只，排队3小时起步。
 
-加上此前已登陆港股的智谱AI和MiniMax，中国基础大模型的“五虎”格局在这个春天同时进入了各自的关键时刻。
+摊主阿卜都拉从早做到晚，一天拼出200只，还是供不应求。
 
-这不是巧合，而是所有人都意识到：留在牌桌上的窗口，比想象中要窄得多。
+北京旅游学会理事吴若山表示，从消费者行为学审视，“新疆小羊”的爆火绝非偶然，而是对当代年轻群体情绪价值的精准回应。
 
-对于阶跃星辰而言，25亿美元的融资体量固然值得关注，但真正值得深度拆解的，是两个更具结构性的信号：其一，本轮融资投资方中集中出现了华勤技术、龙旗科技、豪威集团、中兴通讯等消费电子产业链核心企业，产业资本正以令人意想不到的方式“用脚投票”；其二，该公司已完成股份制改造、红筹架构拆除，正以明确的姿态冲刺港股IPO，剑指“国产大模型第三股”。
+经过多年深耕，旅游业向内容端发力、以文化为“活水”的鲜明特征日益凸显，旅游文创更是如此。
 
-“不是融钱，是结网”：25亿美元背后的资本逻辑与产业链绑定 华勤技术、龙旗科技、豪威集团、中兴通讯——如果只看这份股东名单，你可能会误以为这是一家消费电子供应链企业的融资公告。
+吴若山提到，此前，甘肃省博物馆依托铜奔马IP打造的“红运马”系列文创，线下短时售罄、线上销量暴涨背后，将厚重的地域历史文化拆解为贴合当代青年审美、适配社交传播的文创产品。
 
-然而，它们出现在同一家AI大模型公司的股东名册里，这本身就是一件极不寻常的事情。
+此番凭借艾德莱斯绸、宝石花帽等本土民族元素出圈的“新疆小羊”，亦是遵循这一逻辑生长出的现象级文旅样本。
 
-华勤技术和龙旗科技，是全球手机ODM（原始设计制造）的第一梯队企业，提供从整机研发设计到制造服务的全链条能力；豪威集团是图像传感器供应商，处于手机摄像头等关键零部件的上游核心位置；中兴通讯则是全球通信设备和终端制造领域的巨头，已与阶跃星辰在AI手机功能上深度共创，并在努比亚Z80 Ultra等多款旗舰机型上实现量产落地。
+吴若山表示，“新疆小羊”主打现场挑选配饰、手工量身装扮的微型私人定制，让游客全程参与创作。
 
 ## 相关推荐
 
-- 2026-06-29 17:58 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 17:58 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 17:56 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 17:52 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 17:56 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 17:58 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 17:45 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 17:52 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 17:51 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 17:51 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 17:38 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 17:57 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 17:46 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 17:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 17:35 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 18:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 17:39 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 17:36 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 17:38 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 18:04 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 18:02 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 17:47 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 17:46 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 17:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 18:02 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 17:42 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 17:44 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 18:04 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 17:56 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:53 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/83397317.shtml)
-- 2026-06-29 17:40 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/294285894228.shtml)
-- 2026-06-29 17:38 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/5662574624.shtml)
-- 2026-06-29 17:42 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/13611.shtml)
-- 2026-06-29 17:52 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/8700479.shtml)
-- 2026-06-29 17:43 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/97222229685.shtml)
-- 2026-06-29 17:48 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/45340965772.shtml)
-- 2026-06-29 17:35 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/96644489178.shtml)
-- 2026-06-29 17:39 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/6223762690.shtml)
-- 2026-06-29 17:34 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/444165412672.shtml)
-- 2026-06-29 17:43 - [啊啊啊](http://www.blog.minike.top/Article/details/7876883500.shtml)
-- 2026-06-29 17:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/633966494712.shtml)
-- 2026-06-29 17:46 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/8616889683.shtml)
-- 2026-06-29 17:57 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/2955650.shtml)
-- 2026-06-29 17:36 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/928258218472.shtml)
+- 2026-06-29 18:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/282649852.shtml)
+- 2026-06-29 18:02 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/15187.shtml)
+- 2026-06-29 17:47 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/37994577.shtml)
+- 2026-06-29 18:00 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/763580209.shtml)
+- 2026-06-29 18:02 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/6744033.shtml)
+- 2026-06-29 17:37 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/171521094531.shtml)
+- 2026-06-29 17:42 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/410543.shtml)
+- 2026-06-29 17:43 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/11882435.shtml)
+- 2026-06-29 17:36 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/0418377281.shtml)
+- 2026-06-29 17:55 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/800669.shtml)
+- 2026-06-29 17:39 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/3311459.shtml)
+- 2026-06-29 18:03 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/19208284.shtml)
+- 2026-06-29 17:40 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/05907972.shtml)
+- 2026-06-29 17:55 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/9400216222.shtml)
+- 2026-06-29 18:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/49905.shtml)

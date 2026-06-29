@@ -1,56 +1,59 @@
-# 中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动
+# 全球最富五百人单日财富激增3360亿美元 马斯克身家达1.27万亿美元
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新网5月12日电 据中国驻马里大使馆微信公众号消息，近期，马里全境多地发生协同恐袭事件，造成设施损毁、人员伤亡等重大损失。在布古尼、锡加索、库利克罗、卡伊等大区，恐怖分子仍频繁袭击外国企业、绑架外国公民。首都巴马科以外地区安全形势十分严峻，安全风险高企。马里政府对矿业领域开展强力整治行动，成立矿业署、贵金属办公室、矿业稽查大队等部门，重点打击非法采矿活动，包括查封无证开采矿点
+据彭博亿万富豪指数，截至昨日纽约收盘，全球最富裕的500人的财富合计增加3360亿美元，创下有记录以来单日最大增幅，使他们的总净资产达到创纪录的13.3万亿美元。 全球首位万亿富豪埃隆·马斯克进一步扩大了相对于其他富豪的领先优势，净资产增长逾10%，达到1.27万亿美元。榜单末尾的12人，也就是全球超级富豪中财富最少的一批，每人的身家均达79亿美元左右，也使跻身该指数的门槛创出
 
 ## 正文
 
-中新网5月12日电 据中国驻马里大使馆微信公众号消息，近期，马里全境多地发生协同恐袭事件，造成设施损毁、人员伤亡等重大损失。
+据彭博亿万富豪指数，截至昨日纽约收盘，全球最富裕的500人的财富合计增加3360亿美元，创下有记录以来单日最大增幅，使他们的总净资产达到创纪录的13.3万亿美元。
 
-在布古尼、锡加索、库利克罗、卡伊等大区，恐怖分子仍频繁袭击外国企业、绑架外国公民。
+全球首位万亿富豪埃隆·马斯克进一步扩大了相对于其他富豪的领先优势，净资产增长逾10%，达到1.27万亿美元。
 
-首都巴马科以外地区安全形势十分严峻，安全风险高企。
+榜单末尾的12人，也就是全球超级富豪中财富最少的一批，每人的身家均达79亿美元左右，也使跻身该指数的门槛创出了新高。
 
-马里政府对矿业领域开展强力整治行动，成立矿业署、贵金属办公室、矿业稽查大队等部门，重点打击非法采矿活动，包括查封无证开采矿点、没收采矿设备、羁押相关人员等。
+在周一之前，美国和伊朗达成一项临时协议，将重新开放霍尔木兹海峡，提振了市场情绪。
 
-驻马里使馆严肃提醒在马中国企业和公民务必高度重视当前形势，切勿冒生命危险从事非法采矿活动，在肯涅巴、扬福利拉、富鲁、康加巴、纳雷纳等地区的中国公民立即以安全稳妥方式撤离。
+SpaceX上周刚以公开上市公司身份实现重磅首秀。
 
-撤离时，如遇危急情况，应保持冷静，务必将确保人身安全放在首位，在保证自身安全前提下及时报警并与中国驻马里使馆取得联系。
+乐观情绪推动道琼斯工业平均指数创下纪录高位，纳斯达克100指数和MSCI发达市场指数收盘也均接近历史高点。
 
-心有侥幸，拒不撤离者将面临严重后果。
+SpaceX是这轮财富上涨的最大推动因素，散户纷纷涌入抢购该股票。
 
-马里报警电话：101、111、80001115、60603572 驻马里使馆领事保护电话：+223-78110040 外交部全球领事保护与服务应急呼叫中心电话：+86-10-12308或+86-10-65612308
+SpaceX市值飙升了20%，帮助马斯克净资产增加1640亿美元，几乎相当于彭博指数中其余499人合计增幅，也成为有记录以来最大规模的单日财富增幅之一。
 
 ## 相关推荐
 
-- 2026-06-29 17:48 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 17:58 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 17:34 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 17:44 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 17:55 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 17:55 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 17:43 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 17:49 - [AG 宫斗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 17:36 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 17:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 17:39 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 17:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 18:02 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 17:59 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 17:38 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 17:39 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 18:01 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 17:38 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 18:05 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 17:50 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 17:37 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 17:57 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 17:50 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/82502831.shtml)
-- 2026-06-29 17:51 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/667005.shtml)
-- 2026-06-29 17:56 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/40804101241.shtml)
-- 2026-06-29 17:44 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/54959.shtml)
-- 2026-06-29 17:33 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/96899.shtml)
-- 2026-06-29 17:50 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/700858.shtml)
-- 2026-06-29 17:31 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/00624.shtml)
-- 2026-06-29 17:35 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.kurohicncr.top/Article/details/3246740.shtml)
-- 2026-06-29 17:54 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/85586154.shtml)
-- 2026-06-29 17:55 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/6259309.shtml)
-- 2026-06-29 17:51 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/66938.shtml)
-- 2026-06-29 17:35 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/32808889.shtml)
-- 2026-06-29 17:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/04123.shtml)
-- 2026-06-29 17:42 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/99635703355.shtml)
-- 2026-06-29 17:39 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/08771.shtml)
+- 2026-06-29 17:57 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/237889631987.shtml)
+- 2026-06-29 17:54 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/1727323391.shtml)
+- 2026-06-29 17:44 - [徐昕暂不参加NBA夏季联赛](https://www.blog.kurohicncr.top/Article/details/89688807783.shtml)
+- 2026-06-29 18:03 - [永远有话聊的原因](https://www.share.kurohicncr.top/Article/details/8069606100.shtml)
+- 2026-06-29 17:58 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/548267261079.shtml)
+- 2026-06-29 17:42 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/13990.shtml)
+- 2026-06-29 18:02 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/9084659147.shtml)
+- 2026-06-29 17:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/53682534.shtml)
+- 2026-06-29 17:58 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/561552117.shtml)
+- 2026-06-29 17:37 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/3188616.shtml)
+- 2026-06-29 17:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/4973476361.shtml)
+- 2026-06-29 17:47 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/762843764999.shtml)
+- 2026-06-29 17:44 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/0672640325.shtml)
+- 2026-06-29 18:00 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.minike.top/Article/details/48084024801.shtml)
+- 2026-06-29 17:53 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/234632258675.shtml)

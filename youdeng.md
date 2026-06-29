@@ -1,54 +1,61 @@
-# 广州供电技术标准落地秘鲁
+# 四维材料冲刺北交所：招股书出现低级信披错误 产能计算准确性待考
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新网广州5月13日电 (王华 龚甸)南方电网广东广州供电局12日消息，该局与秘鲁博路兹公司联合编制的《城市中压配电网供电安全能力标准及风险评估方法》企业标准已在秘鲁正式发布，全面助力秘鲁提升供电可靠性与电网安全运行水平，成为中秘能源领域技术标准互通的里程碑。据介绍，该标准聚焦供电安全能力量化评价、网架风险精准评估、故障恢复能力提升三大方向，构建起一套可量化评估配电网网架的技术
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 近日，东莞四维材料科技股份有限公司（下称“四维材料”）北交所上市申请获受理，东莞证券保荐。 四维材料核心产品是定制铝板，报告期内收入占比皆超过了86%，但该产品的国内市占率连续下降，由2023年的2.42%降至2025年的1.75%。更重要的是，四维
 
 ## 正文
 
-中新网广州5月13日电 (王华 龚甸)南方电网广东广州供电局12日消息，该局与秘鲁博路兹公司联合编制的《城市中压配电网供电安全能力标准及风险评估方法》企业标准已在秘鲁正式发布，全面助力秘鲁提升供电可靠性与电网安全运行水平，成为中秘能源领域技术标准互通的里程碑。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据介绍，该标准聚焦供电安全能力量化评价、网架风险精准评估、故障恢复能力提升三大方向，构建起一套可量化评估配电网网架的技术体系，成功填补秘鲁当地配电网供电安全标准空白，在提升供电可靠性、优化投资精确性等方面优势显著。
+出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 近日，东莞四维材料科技股份有限公司（下称“四维材料”）北交所上市申请获受理，东莞证券保荐。
 
-预计2026年，该标准将帮助博路兹公司节省97%的提升供电可靠类设备改造投资，全年平均停电时长缩短25分钟，明显减少当地监管机构的停电罚款，为秘鲁电网提供了提升供电可靠性的技术方案。
+四维材料核心产品是定制铝板，报告期内收入占比皆超过了86%，但该产品的国内市占率连续下降，由2023年的2.42%降至2025年的1.75%。
 
-该标准源于广州供电局的配电网供电安全标准，在广州的实践过程中，已解决各类网架问题2600余项，累计节约投资超4亿元(人民币，下同)，助力广州客户平均停电时间迈入10分钟以内。
+更重要的是，四维材料的毛利率较低，尤其是研发费用率远低于同行可比公司均值。
 
-此次跨国联合编制标准发布，标志着广州电网技术体系实现海外标准化输出。
+在“双低”背后，四维材料原材料在主营业务成本中的占比超过95%，公司对前五大供应商的依赖程度超88%，对第一大供应商的依赖程度超50%，成本控制能力较弱。
 
-广州供电局表示，双方将在调度系统、自动化装备等领域深化合作，持续提升秘鲁电网的供电可靠性。
+此次IPO，四维材料计划募资不超过3.26亿元，2.7亿元用于扩产，但公司产能利用率2025年降至80%。
 
-(完)
+假如按照其他口径（完全达产后）计算，公司2025年的产能利用率可能在60%左右，更不支持扩产逻辑。
+
+核心产品市占率连年下降 招股书显示，四维材料主要从事定制工业材料的加工和销售，主要产品为定制铝件，为客户提供定制加工、现货仓储、物流配送、选材咨询等一站式服务。
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 17:30 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 17:34 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 17:59 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 17:49 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 17:51 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 17:59 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 17:30 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 17:45 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 17:33 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 17:50 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 17:51 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 17:54 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 17:37 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 17:58 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 18:05 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 17:42 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 17:52 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 18:00 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 17:40 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 17:51 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 17:36 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 17:37 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 17:49 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 17:41 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/9373351.shtml)
-- 2026-06-29 17:47 - [12所大学更正招生目录](http://www.share.kurohicncr.top/Article/details/255626523779.shtml)
-- 2026-06-29 17:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/9755671.shtml)
-- 2026-06-29 17:53 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/163029.shtml)
-- 2026-06-29 17:39 - [《贺子珍》](http://www.share.minike.top/Article/details/9037305977.shtml)
-- 2026-06-29 17:45 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/953063.shtml)
-- 2026-06-29 17:45 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/6109830154.shtml)
-- 2026-06-29 17:47 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/31615.shtml)
-- 2026-06-29 17:31 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/020959386591.shtml)
-- 2026-06-29 17:47 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/834786646.shtml)
-- 2026-06-29 17:30 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/3234219.shtml)
-- 2026-06-29 17:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/027951902.shtml)
-- 2026-06-29 17:31 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/4597047108.shtml)
-- 2026-06-29 17:47 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.kurohicncr.top/Article/details/566765013680.shtml)
-- 2026-06-29 17:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/151389979.shtml)
+- 2026-06-29 17:52 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/68733429.shtml)
+- 2026-06-29 17:41 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/709984.shtml)
+- 2026-06-29 18:03 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/032907047.shtml)
+- 2026-06-29 17:52 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/976407337592.shtml)
+- 2026-06-29 17:57 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/07341079703.shtml)
+- 2026-06-29 17:53 - [爱很美味](http://www.blog.minike.top/Article/details/2134132.shtml)
+- 2026-06-29 17:57 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/38251327.shtml)
+- 2026-06-29 17:49 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/98478735082.shtml)
+- 2026-06-29 18:05 - [日本前锋言论激怒巴西](http://www.blog.kurohicncr.top/Article/details/74878106.shtml)
+- 2026-06-29 18:05 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/2657883984.shtml)
+- 2026-06-29 17:56 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/09243755671.shtml)
+- 2026-06-29 17:36 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/2610342429.shtml)
+- 2026-06-29 17:54 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/0668735.shtml)
+- 2026-06-29 17:50 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/809507.shtml)
+- 2026-06-29 17:49 - [叠纸](http://www.blog.kurohicncr.top/Article/details/11611.shtml)

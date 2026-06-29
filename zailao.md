@@ -1,46 +1,52 @@
-# 天坛公园5月13日至14日将暂停开放
+# 智谱已推出最新一代旗舰模型GLM-5.2搭载1M长上下文
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新网5月12日电 据“天坛”微信公众号消息，北京市天坛公园管理处12日发布通告称，天坛公园5月13日至14日将暂停开放。
+智谱（02513）公布，公司已推出最新一代旗舰模型GLM-5.2，模型提供达到1M的长上下文，并在长程任务中继续保持领先，将遵循MIT协议开源。预计该模型将助益公司后续开放平台及API业务的调用量提升。公司严格遵守香港联合交易所有限公司证券上市规则和市场惯例。公司欢迎社会公众共同监督。 截至本公告日期，公司并不知悉任何须予公布以避免公司证券出现虚假市场的资料，或根据上市规则第1
 
 ## 正文
 
-中新网5月12日电 据“天坛”微信公众号消息，北京市天坛公园管理处12日发布通告称，天坛公园5月13日至14日将暂停开放。
+智谱（02513）公布，公司已推出最新一代旗舰模型GLM-5.2，模型提供达到1M的长上下文，并在长程任务中继续保持领先，将遵循MIT协议开源。
+
+预计该模型将助益公司后续开放平台及API业务的调用量提升。
+
+公司严格遵守香港联合交易所有限公司证券上市规则和市场惯例。
+
+公司欢迎社会公众共同监督。
+
+截至本公告日期，公司并不知悉任何须予公布以避免公司证券出现虚假市场的资料，或根据上市规则第13.09（2）条及证券及期货条例（香港法例第571章）第XIVA部须予披露的任何内幕消息。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 17:36 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 17:35 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 17:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 17:53 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 17:46 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 17:42 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 17:30 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 17:38 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 17:34 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 17:35 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 17:46 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 17:40 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 17:49 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 17:41 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 18:02 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 17:52 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 17:57 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 17:38 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 17:53 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 18:00 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 17:45 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 18:01 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 17:38 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:31 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/95170.shtml)
-- 2026-06-29 17:55 - [明星大侦探第一季](https://www.share.minike.top/Article/details/374642603.shtml)
-- 2026-06-29 17:58 - [第一炉香](http://www.blog.minike.top/Article/details/99085340.shtml)
-- 2026-06-29 17:32 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/643678.shtml)
-- 2026-06-29 17:53 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/527370162.shtml)
-- 2026-06-29 17:31 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/824078.shtml)
-- 2026-06-29 17:37 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/967778107.shtml)
-- 2026-06-29 17:32 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/12637.shtml)
-- 2026-06-29 17:59 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/774668824750.shtml)
-- 2026-06-29 17:54 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/615403.shtml)
-- 2026-06-29 17:56 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/3658417916.shtml)
-- 2026-06-29 17:48 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/52120.shtml)
-- 2026-06-29 17:57 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/00662.shtml)
-- 2026-06-29 17:45 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/6201361734.shtml)
-- 2026-06-29 17:43 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/962363358955.shtml)
+- 2026-06-29 17:51 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/042386.shtml)
+- 2026-06-29 17:42 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/6608239.shtml)
+- 2026-06-29 17:52 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/274057788.shtml)
+- 2026-06-29 17:46 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/81697493.shtml)
+- 2026-06-29 17:38 - [花万元相亲对象是50元雇的演员](http://www.share.minike.top/Article/details/65898.shtml)
+- 2026-06-29 17:44 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/741630221.shtml)
+- 2026-06-29 18:01 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/728124.shtml)
+- 2026-06-29 17:51 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/404887156801.shtml)
+- 2026-06-29 17:56 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/7406523118.shtml)
+- 2026-06-29 18:00 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/6625287.shtml)
+- 2026-06-29 18:04 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/66312833679.shtml)
+- 2026-06-29 17:41 - [女心理师](http://www.share.minike.top/Article/details/035417691657.shtml)
+- 2026-06-29 17:36 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/288407451929.shtml)
+- 2026-06-29 17:54 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/98693054.shtml)
+- 2026-06-29 17:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/40929791009.shtml)

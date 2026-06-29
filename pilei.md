@@ -1,57 +1,53 @@
-# 通用汽车与LG在俄亥俄州电池工厂的复工日期尚不确定
+# CPT Markets:金银波动仍待沉淀
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-通用汽车与LG能源解决方案 合资的电池公司 本月将让少量员工重返俄亥俄州一家停产的电动汽车电池工厂，但关于召回该厂数百名被裁员工的计划仍不确定。鉴于 电动汽车需求疲软， 通用汽车及其工厂合作伙伴——韩国LG能源解决方案—— 于今年1月决定将该工厂停产六个月。这意味着约850名员工预计将于6月某时重返岗位。周二，合资企业Ultium Cells的一位发言人拒绝证实俄亥俄州沃伦工厂
+6月15日，贵金属在剧烈下跌后进入整理阶段，CPT Markets表示黄金与白银的波动尚未完全沉淀，市场仍在重新评估急跌后的合理定价区间。 从价格行为看，CPT Markets认为大幅回撤之后的第一轮修复通常不会一气呵成，尤其是在收益率和宏观预期仍偏反复的情况下，金银更容易出现拉锯。 这意味着贵金属虽然存在技术性回稳基础，但若缺少更清晰的资金回流和宏观配合，价格仍可能在关键区间
 
 ## 正文
 
-通用汽车与LG能源解决方案 合资的电池公司 本月将让少量员工重返俄亥俄州一家停产的电动汽车电池工厂，但关于召回该厂数百名被裁员工的计划仍不确定。
+6月15日，贵金属在剧烈下跌后进入整理阶段，CPT Markets表示黄金与白银的波动尚未完全沉淀，市场仍在重新评估急跌后的合理定价区间。
 
-鉴于 电动汽车需求疲软， 通用汽车及其工厂合作伙伴——韩国LG能源解决方案—— 于今年1月决定将该工厂停产六个月。
+从价格行为看，CPT Markets认为大幅回撤之后的第一轮修复通常不会一气呵成，尤其是在收益率和宏观预期仍偏反复的情况下，金银更容易出现拉锯。
 
-这意味着约850名员工预计将于6月某时重返岗位。
+这意味着贵金属虽然存在技术性回稳基础，但若缺少更清晰的资金回流和宏观配合，价格仍可能在关键区间反复震荡。
 
-周二，合资企业Ultium Cells的一位发言人拒绝证实俄亥俄州沃伦工厂全面恢复运营的具体时间表。
+综合来看，CPT Markets分析称后续仍需观察波动率是否继续回落，以及低位承接能否稳定下来，这将决定金银整理后的表现。
 
-Ultium在声明中表示，5月25日当周将有“少量”员工返岗，从事“与今年晚些时候恢复运营相关”的工作，并补充称恢复生产的具体时间将取决于电动汽车的市场需求。
-
-责任编辑：王永生
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-29 17:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 17:36 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 17:37 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 17:43 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 17:49 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 17:58 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 17:58 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 17:37 - [抓特务票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 17:43 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 17:40 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 17:31 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 17:56 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 17:51 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 17:48 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 17:33 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 17:48 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 17:44 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 17:40 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 17:43 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 18:02 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 17:50 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 17:42 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 17:38 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 18:01 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 17:38 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 17:50 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 17:39 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 17:39 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/750893805898.shtml)
-- 2026-06-29 17:55 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/602540103607.shtml)
-- 2026-06-29 17:37 - [毒液2](http://www.share.minike.top/Article/details/0760123.shtml)
-- 2026-06-29 17:52 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/39761066.shtml)
-- 2026-06-29 17:43 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/88073547308.shtml)
-- 2026-06-29 17:54 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/240326313198.shtml)
-- 2026-06-29 17:42 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/568096925899.shtml)
-- 2026-06-29 17:39 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/7930384822.shtml)
-- 2026-06-29 17:45 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/68932.shtml)
-- 2026-06-29 17:49 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/914315618.shtml)
-- 2026-06-29 17:34 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/7680025791.shtml)
-- 2026-06-29 17:56 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/067858609034.shtml)
-- 2026-06-29 17:38 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/356530463.shtml)
-- 2026-06-29 17:55 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/07249.shtml)
-- 2026-06-29 17:31 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/13252099.shtml)
+- 2026-06-29 17:55 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/07426983093.shtml)
+- 2026-06-29 17:42 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/35123416.shtml)
+- 2026-06-29 18:05 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/246304152.shtml)
+- 2026-06-29 17:53 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/2389683109.shtml)
+- 2026-06-29 17:38 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/79660.shtml)
+- 2026-06-29 17:48 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/5044235994.shtml)
+- 2026-06-29 17:50 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/874051110724.shtml)
+- 2026-06-29 18:03 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/594112.shtml)
+- 2026-06-29 17:45 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/807141.shtml)
+- 2026-06-29 17:37 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/8349762.shtml)
+- 2026-06-29 18:00 - [叠纸](http://www.share.minike.top/Article/details/80858573.shtml)
+- 2026-06-29 17:47 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/39207744167.shtml)
+- 2026-06-29 17:59 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/6469180650.shtml)
+- 2026-06-29 17:49 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/64954931.shtml)
+- 2026-06-29 17:46 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/794574559.shtml)

@@ -1,60 +1,60 @@
-# On Holding业绩亮眼却股价大跌，市场聚焦关税隐忧
+# 黄金和白银可能正处于价格洼地 分析师给出关键策略信号！
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-尽管On Holding周二盘前交出了一份超预期的一季报，并同步上调了全年盈利指引，但公司股价却重挫逾5%，上演“业绩涨股价跌”的戏码。 财报显示，这家瑞士跑鞋制造商业绩全面飘红。在截至3月31日的季度内，净销售额同比增长14.5%至8.319亿瑞士法郎，超出市场预期的8.185亿瑞士法郎；调整后每股收益达0.37瑞士法郎，远高于分析师平均预期的0.27瑞士法郎。公司毛利率从5
+文章来源：财联社 受到美伊即将签订和平协议的利好消息提振，贵金属价格本周开局强劲，但这并不意味着风险已经消失。 MarketGauge首席市场策略师Michele Schneider表示，黄金和白银之前的下跌代表着一个绝佳的长期买入机会，但投资者在重新进入市场之前应该等待技术面的确认。 她指出，6月11日的抛售潮可能标志着贵金属市场的一个重要转折点，但无法确认是否形成了持久的底
 
 ## 正文
 
-尽管On Holding周二盘前交出了一份超预期的一季报，并同步上调了全年盈利指引，但公司股价却重挫逾5%，上演“业绩涨股价跌”的戏码。
+文章来源：财联社 受到美伊即将签订和平协议的利好消息提振，贵金属价格本周开局强劲，但这并不意味着风险已经消失。
 
-财报显示，这家瑞士跑鞋制造商业绩全面飘红。
+MarketGauge首席市场策略师Michele Schneider表示，黄金和白银之前的下跌代表着一个绝佳的长期买入机会，但投资者在重新进入市场之前应该等待技术面的确认。
 
-在截至3月31日的季度内，净销售额同比增长14.5%至8.319亿瑞士法郎，超出市场预期的8.185亿瑞士法郎；调整后每股收益达0.37瑞士法郎，远高于分析师平均预期的0.27瑞士法郎。
+她指出，6月11日的抛售潮可能标志着贵金属市场的一个重要转折点，但无法确认是否形成了持久的底部。
 
-公司毛利率从59.9%大幅提升至64.2%，净利润同比飙升82.2%至1.033亿瑞士法郎。
+要确认底部，需要在最初反弹之后有后续买盘。
 
-分地区看，亚太市场表现尤为亮眼，销售额同比大增44.4%；欧洲、中东及非洲市场增长22.8%；美洲市场仅微增3.1%。
+她补充称，理想情况下，黄金价格在反转后应该进入盘整阶段，或者成交量放大并收于前一日高点之上，这表明有新的买家正在进入期货市场，而不仅仅是在回补空头头寸。
 
-鞋类业务仍是收入支柱，贡献7.637亿瑞士法郎，而服装及配饰业务分别实现45%和71%的高速增长。
+就重要性而言，Schneider强调，白银的走势比黄金更为重要。
 
-展望未来，On Holding将全年净销售额增长预期维持在至少23%（按固定汇率计），同时将毛利率指引从63%上调至至少64.5%，调整后EBITDA利润率预计在19.5%至20.0%之间。
+长期趋势未破 Schneider表示，如果白银再次真正跑赢黄金，这在某种程度上预示着通胀即将到来。
 
-分析人士指出，股价逆势下跌主要反映了市场对关税风险的担忧。
+其次，由于白银的工业用途以及在人工智能、太阳能和其他技术领域的潜在应用，导致它的需求将会再次回升。
 
 ## 相关推荐
 
-- 2026-06-29 17:39 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 17:45 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 17:39 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 17:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 17:45 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 17:54 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 17:44 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 17:31 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 17:33 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 17:52 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 17:48 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 17:45 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 17:52 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 17:44 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 17:50 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 17:57 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 17:37 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 18:02 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 17:41 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 17:39 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 17:53 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 18:03 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 17:54 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 17:36 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 18:01 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 17:51 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 17:48 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 17:37 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/6091766146.shtml)
-- 2026-06-29 17:49 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/8084695.shtml)
-- 2026-06-29 17:51 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/374086.shtml)
-- 2026-06-29 17:35 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/410133.shtml)
-- 2026-06-29 17:48 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/2685283394.shtml)
-- 2026-06-29 17:42 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/245120682881.shtml)
-- 2026-06-29 17:36 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/72993607783.shtml)
-- 2026-06-29 17:32 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/481790.shtml)
-- 2026-06-29 17:54 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/06772486837.shtml)
-- 2026-06-29 17:39 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/058640.shtml)
-- 2026-06-29 17:40 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/177841739.shtml)
-- 2026-06-29 17:47 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/294013.shtml)
-- 2026-06-29 17:52 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/720794122.shtml)
-- 2026-06-29 17:43 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/547989243.shtml)
-- 2026-06-29 17:37 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/0836138489.shtml)
+- 2026-06-29 17:59 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/442549723444.shtml)
+- 2026-06-29 17:42 - [和周杰伦在演唱会合唱了](https://www.share.minike.top/Article/details/76352222343.shtml)
+- 2026-06-29 17:41 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/1808920883.shtml)
+- 2026-06-29 17:49 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/104641388159.shtml)
+- 2026-06-29 17:53 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/136047591673.shtml)
+- 2026-06-29 17:55 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/15417840.shtml)
+- 2026-06-29 18:03 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/87030605151.shtml)
+- 2026-06-29 17:58 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/3999509351.shtml)
+- 2026-06-29 17:50 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/80402.shtml)
+- 2026-06-29 17:36 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/73664.shtml)
+- 2026-06-29 17:48 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/1105855559.shtml)
+- 2026-06-29 17:44 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/1540258.shtml)
+- 2026-06-29 18:03 - [绘画区你赢了](https://www.share.minike.top/Article/details/44354587.shtml)
+- 2026-06-29 17:48 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/19495147791.shtml)
+- 2026-06-29 17:41 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/474466323.shtml)

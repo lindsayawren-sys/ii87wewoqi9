@@ -1,60 +1,47 @@
-# 传温迪汉堡收到私有化要约，股价盘前大涨逾9%
+# 美伊确认达成协议 国际油价显著下跌
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-温迪汉堡股价周二盘前大涨逾9%，此前媒体援引知情人士报道称，激进投资者纳尔逊·佩尔茨旗下的Trian基金管理公司正寻求投资者支持，拟对这家快餐连锁店发起私有化收购要约。 报道称，Trian已与包括中东地区在内的外部投资者就为潜在收购案提供资金进行了磋商。佩尔茨目前持有温迪汉堡约16.24%的股份，是该公司的最大股东。这并非佩尔茨首次考虑此类交易——他早在2022年就曾考虑过对这
+发布时间：2026年06月15日 13:48 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-温迪汉堡股价周二盘前大涨逾9%，此前媒体援引知情人士报道称，激进投资者纳尔逊·佩尔茨旗下的Trian基金管理公司正寻求投资者支持，拟对这家快餐连锁店发起私有化收购要约。
-
-报道称，Trian已与包括中东地区在内的外部投资者就为潜在收购案提供资金进行了磋商。
-
-佩尔茨目前持有温迪汉堡约16.24%的股份，是该公司的最大股东。
-
-这并非佩尔茨首次考虑此类交易——他早在2022年就曾考虑过对这家汉堡连锁店发起收购要约，今年2月又公开表示温迪的股价被低估。
-
-温迪汉堡近期基本面承压。
-
-公司上周公布的一季报显示，虽然每股收益0.12美元略高于预期的0.10美元，但较去年同期的0.20美元大幅下滑。
-
-受消费者支出趋于谨慎影响，该公司过去几个季度销售持续疲软。
-
-截至周一收盘，温迪汉堡股价年内已下跌约19%，过去一年累计跌幅超过45%。
+发布时间：2026年06月15日 13:48 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:49 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 17:48 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 17:50 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 17:52 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 17:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 17:51 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 17:48 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 17:37 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 17:40 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 17:56 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 17:34 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 17:58 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 17:53 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 17:48 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 17:36 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 17:45 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 17:42 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 17:44 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 17:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 17:40 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 17:44 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 17:55 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 17:40 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 17:56 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 17:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 17:39 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 17:55 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 18:01 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 17:38 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/87468.shtml)
-- 2026-06-29 17:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/9634024718.shtml)
-- 2026-06-29 17:40 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/8428911268.shtml)
-- 2026-06-29 17:38 - [NBA交易](http://www.share.kurohicncr.top/Article/details/1470468.shtml)
-- 2026-06-29 17:48 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/12182.shtml)
-- 2026-06-29 17:48 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/201308716.shtml)
-- 2026-06-29 17:31 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/00342618.shtml)
-- 2026-06-29 17:53 - [起风了](http://www.share.kurohicncr.top/Article/details/79760300582.shtml)
-- 2026-06-29 17:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/914855290393.shtml)
-- 2026-06-29 17:33 - [货车司机雨中帮交警挪树获表扬](https://www.blog.minike.top/Article/details/852232995077.shtml)
-- 2026-06-29 17:45 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/348687114504.shtml)
-- 2026-06-29 17:42 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/2575471.shtml)
-- 2026-06-29 17:33 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/8362745.shtml)
-- 2026-06-29 17:59 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/919085.shtml)
-- 2026-06-29 17:56 - [女心理师](https://www.blog.minike.top/Article/details/73221.shtml)
+- 2026-06-29 18:01 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/98482389.shtml)
+- 2026-06-29 17:36 - [韩国小学生都来吐槽了](https://www.blog.minike.top/Article/details/843269.shtml)
+- 2026-06-29 17:46 - [和周杰伦在演唱会合唱了](http://www.blog.kurohicncr.top/Article/details/521275.shtml)
+- 2026-06-29 18:04 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/034290857130.shtml)
+- 2026-06-29 18:01 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/419551.shtml)
+- 2026-06-29 17:46 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/860624.shtml)
+- 2026-06-29 18:05 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/12941794.shtml)
+- 2026-06-29 17:37 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/1514007.shtml)
+- 2026-06-29 18:05 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/4697352059.shtml)
+- 2026-06-29 17:41 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/4980705442.shtml)
+- 2026-06-29 17:42 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/22275432950.shtml)
+- 2026-06-29 18:03 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/451243269409.shtml)
+- 2026-06-29 17:51 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/66786214223.shtml)
+- 2026-06-29 18:01 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/1271450463.shtml)
+- 2026-06-29 17:56 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/583421372504.shtml)

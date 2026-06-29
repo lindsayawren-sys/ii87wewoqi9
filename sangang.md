@@ -1,47 +1,60 @@
-# 科创50指数续创历史新高
+# “特种兵式”参赛的伊朗队，美加墨世界杯之旅有多难？
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新网5月12日电 5月12日早盘，科创50指数一路走高，现涨超1%报1746.77点，续创历史新高。
+中新网北京6月16日电(记者 国璇 邢翀) 当地时间6月15日，历经签证受阻、驻地变更、跨境参赛等层层关卡，伊朗队终于站上了2026年美加墨世界杯的赛场。球队头号球星塔雷米坦言，首次落地美国，让全队处处感受到“压抑和紧张”。此前六次出征世界杯的伊朗队有着较为丰富的杯赛参赛经验，在世界足坛留下“波斯铁骑”的名号。但受战争影响，伊朗队此次的参赛前景在相当长一段时间内被地缘政治阴霾所
 
 ## 正文
 
-中新网5月12日电 5月12日早盘，科创50指数一路走高，现涨超1%报1746.77点，续创历史新高。
+中新网北京6月16日电(记者 国璇 邢翀) 当地时间6月15日，历经签证受阻、驻地变更、跨境参赛等层层关卡，伊朗队终于站上了2026年美加墨世界杯的赛场。
+
+球队头号球星塔雷米坦言，首次落地美国，让全队处处感受到“压抑和紧张”。
+
+此前六次出征世界杯的伊朗队有着较为丰富的杯赛参赛经验，在世界足坛留下“波斯铁骑”的名号。
+
+但受战争影响，伊朗队此次的参赛前景在相当长一段时间内被地缘政治阴霾所笼罩。
+
+这是1930年世界杯开始举办以来，首次出现参赛国与东道主国交战的情况。
+
+本次杯赛，伊朗队与新西兰、比利时和埃及队同处G组，三场小组赛比赛地均在美国境内，前两场在洛杉矶，第三场在西雅图。
+
+伊朗方面曾提出将其小组赛地点由美国更换至墨西哥，但该提议被国际足联否决。
+
+5月下旬经国际足联批准，伊朗队的驻地从美国亚利桑那州图森市改为墨西哥蒂华纳市。
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 17:34 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 17:51 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 17:31 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 17:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 17:32 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 17:40 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 17:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 17:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 17:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 17:52 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 17:51 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 17:30 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 17:57 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 17:43 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 17:59 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 17:42 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 17:38 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 17:44 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 17:53 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 17:45 - [人形机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 17:58 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 17:47 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 18:01 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 18:02 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 17:49 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 17:56 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 17:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 17:51 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:33 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/97943.shtml)
-- 2026-06-29 17:54 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.minike.top/Article/details/5343845734.shtml)
-- 2026-06-29 17:39 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/6754802.shtml)
-- 2026-06-29 17:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/196306956.shtml)
-- 2026-06-29 17:59 - [央视曝光涉黄App诈骗陷阱](https://www.blog.kurohicncr.top/Article/details/350106.shtml)
-- 2026-06-29 17:48 - [税务总局披露5起合规申报个税案例](http://www.blog.minike.top/Article/details/8487173971.shtml)
-- 2026-06-29 17:45 - [花万元相亲对象是50元雇的演员](http://www.share.kurohicncr.top/Article/details/15827805808.shtml)
-- 2026-06-29 17:39 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/28023.shtml)
-- 2026-06-29 17:48 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/13941538.shtml)
-- 2026-06-29 17:50 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/91918.shtml)
-- 2026-06-29 17:56 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/31585428.shtml)
-- 2026-06-29 17:39 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/072029.shtml)
-- 2026-06-29 17:39 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/586409933528.shtml)
-- 2026-06-29 17:41 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/91183.shtml)
-- 2026-06-29 17:59 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/71761583.shtml)
+- 2026-06-29 17:47 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/754853161749.shtml)
+- 2026-06-29 18:01 - [起风了](https://www.blog.minike.top/Article/details/104265.shtml)
+- 2026-06-29 17:53 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/77716103.shtml)
+- 2026-06-29 17:47 - [首个靠AI躺赢的国家](https://www.share.kurohicncr.top/Article/details/025191528217.shtml)
+- 2026-06-29 18:04 - [当地回应林区违规放羊遭豹啃食](http://www.share.minike.top/Article/details/58480900938.shtml)
+- 2026-06-29 18:03 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/52667157.shtml)
+- 2026-06-29 18:00 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/4764695.shtml)
+- 2026-06-29 17:38 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/42588827.shtml)
+- 2026-06-29 17:40 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/684870228.shtml)
+- 2026-06-29 17:41 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/21061.shtml)
+- 2026-06-29 17:41 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/65962789520.shtml)
+- 2026-06-29 17:54 - [朱必达辞去湖南人大常委会委员职务](http://www.share.minike.top/Article/details/08744.shtml)
+- 2026-06-29 17:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/441471231.shtml)
+- 2026-06-29 17:42 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/6656897.shtml)
+- 2026-06-29 17:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/010973904170.shtml)

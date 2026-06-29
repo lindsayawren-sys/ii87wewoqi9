@@ -1,58 +1,59 @@
-# 相互交易、转移资金！私募基金经理的黄金期权“对敲”手法曝光
+# 溜溜梅上市首日大涨193%！曾因创始人获巨额分红惹争议
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-来源：国际金融报 上期所公告认定，栾琨操作的相互交易行为已构成违规，扰乱了市场秩序。律师分析指出，此类“对敲”行为在法律上构成典型的操纵期货市场，同时因涉及“转移资金”目的，可能带有利益输送性质，并引发民事赔偿责任。事件暴露了部分私募机构在人员管控与交易监控上的重大漏洞。 5月11日，上海期货交易所连发两则违规处理公告，对通琨盈享1号私募证券投资基金、通琨建信1号私募证券投资基
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 溜溜梅近年的业绩增长已显露疲态，业内认为其股价暴涨与供需失衡有关。 “你没事吧？没事就吃溜溜梅。” 凭借这句“洗脑”广告词火遍全国的零食品牌溜溜梅，正式登陆资本市场。 6月15日，溜溜梅股份有限公司（06658.HK，下称“溜溜梅”）正式登陆港交所，结束长达七年、四次冲击IPO的曲折上市之
 
 ## 正文
 
-来源：国际金融报 上期所公告认定，栾琨操作的相互交易行为已构成违规，扰乱了市场秩序。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-律师分析指出，此类“对敲”行为在法律上构成典型的操纵期货市场，同时因涉及“转移资金”目的，可能带有利益输送性质，并引发民事赔偿责任。
+来源：国际金融报 溜溜梅近年的业绩增长已显露疲态，业内认为其股价暴涨与供需失衡有关。
 
-事件暴露了部分私募机构在人员管控与交易监控上的重大漏洞。
+“你没事吧？
 
-5月11日，上海期货交易所连发两则违规处理公告，对通琨盈享1号私募证券投资基金、通琨建信1号私募证券投资基金及其基金经理栾琨给予纪律处分并处以罚款，为私募期货行业的合规风控敲响警钟。
+没事就吃溜溜梅。
 
-连开罚单 公告显示，2025年9月29日，栾琨操作通琨建信1号私募基金账户和其客户的账户在黄金期权合约上实施事先约定的相互交易、转移资金，扰乱市场秩序。
+” 凭借这句“洗脑”广告词火遍全国的零食品牌溜溜梅，正式登陆资本市场。
 
-对此，上期所认为，上述行为已构成《上海期货交易所违规处理办法》规定的违规行为，依据该办法，决定给予栾琨、通琨建信1号私募基金通报批评处分，并责令改正，处通琨建信1号私募基金罚款1万元，处栾琨罚款1.5万元，在违规案件处理决定书生效之日起5个交易日内如数缴纳至上期所指定账户。
+6月15日，溜溜梅股份有限公司（06658.HK，下称“溜溜梅”）正式登陆港交所，结束长达七年、四次冲击IPO的曲折上市之路。
 
-同日，栾琨还操作通琨盈享1号账户和他人账户在黄金期权合约上相互交易，同样扰乱了市场秩序。
+上市首日公司股价迎来大涨，发行价43.58港元/股，开盘跳涨117.99%至95港元/股；最终报收128港元，涨幅193.71%，总市值突破101亿港元，成为2026年港股消费新股热度最高标的之一。
 
-上期所也指出，上述行为已构成《上海期货交易所违规处理办法》规定的违规行为，依据该办法，决定给予栾琨、通琨盈享1号私募基金通报批评处分，并责令改正，处通琨盈享1号私募基金罚款3万元，处栾琨罚款6万元，在违规案件处理决定书生效之日起5个交易日内如数缴纳至上期所指定账户。
+在公开发售环节，溜溜梅的热度同样空前，超18万散户打新，超额认购约6586.73倍，创下近三年港股休闲零食新股超额认购纪录，甚至超过蜜雪集团（02097.HK）、布鲁可（00325.HK）等明星消费新股认购热度。
 
 ## 相关推荐
 
-- 2026-06-29 17:52 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 17:32 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 17:32 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 17:53 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 17:41 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 17:43 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 17:41 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 17:46 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 17:43 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 17:42 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 17:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 17:52 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 17:50 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 17:53 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 17:58 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 17:47 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 18:03 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 17:38 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 18:03 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 18:03 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 17:44 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 18:05 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 17:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 18:03 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 17:52 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:48 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/5147456825.shtml)
-- 2026-06-29 17:34 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/84184237.shtml)
-- 2026-06-29 17:57 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/6767740.shtml)
-- 2026-06-29 17:48 - [TTG KSG](http://www.share.minike.top/Article/details/90424.shtml)
-- 2026-06-29 17:35 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/89122285.shtml)
-- 2026-06-29 17:34 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/227560932.shtml)
-- 2026-06-29 17:40 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/19347792176.shtml)
-- 2026-06-29 17:31 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/34962319.shtml)
-- 2026-06-29 17:59 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/844724580778.shtml)
-- 2026-06-29 17:55 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/49476876688.shtml)
-- 2026-06-29 17:43 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/792523.shtml)
-- 2026-06-29 17:54 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/62923.shtml)
-- 2026-06-29 17:31 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/665208.shtml)
-- 2026-06-29 17:31 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/6487488.shtml)
-- 2026-06-29 17:43 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/47131622637.shtml)
+- 2026-06-29 18:02 - [货车司机雨中帮交警挪树获表扬](http://www.blog.kurohicncr.top/Article/details/072604.shtml)
+- 2026-06-29 17:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/468986746.shtml)
+- 2026-06-29 17:53 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/83181.shtml)
+- 2026-06-29 18:01 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/170322148746.shtml)
+- 2026-06-29 17:52 - [急先锋](https://www.blog.kurohicncr.top/Article/details/50364.shtml)
+- 2026-06-29 17:50 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/10521971.shtml)
+- 2026-06-29 17:45 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/5392925857.shtml)
+- 2026-06-29 18:05 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/772476313.shtml)
+- 2026-06-29 17:47 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/58599.shtml)
+- 2026-06-29 17:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/44993474.shtml)
+- 2026-06-29 18:02 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/795548.shtml)
+- 2026-06-29 17:43 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/49878.shtml)
+- 2026-06-29 18:03 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/803814688.shtml)
+- 2026-06-29 17:46 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/04207388.shtml)
+- 2026-06-29 18:02 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/615723508156.shtml)

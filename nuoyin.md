@@ -1,61 +1,48 @@
-# 英国政治危机进一步加剧 国债与英镑双双重挫
+# 特朗普：霍尔木兹海峡永久开放后 将免费通行
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-英国政治危机周二进一步加剧，首相基尔·斯塔默正面临日益高涨的下台呼声。投资者担忧政权更迭可能导致财政纪律松懈，英国30年期国债收益率飙升至1998年以来最高水平，英镑汇率跌至一周低点。 债市遭遇抛售：长期国债收益率创28年新高 市场对政治不稳定性的担忧直接体现在长期国债上。30年期英债收益率一度攀升至5.802%，创下1998年以来的最高纪录。10年期国债收益率上涨11个基点至
+特朗普表示，霍尔木兹海峡“一旦永久开放”，将免费通行。 “将免收过路费，”他在法国对记者说。责任编辑：江学思
 
 ## 正文
 
-英国政治危机周二进一步加剧，首相基尔·斯塔默正面临日益高涨的下台呼声。
+特朗普表示，霍尔木兹海峡“一旦永久开放”，将免费通行。
 
-投资者担忧政权更迭可能导致财政纪律松懈，英国30年期国债收益率飙升至1998年以来最高水平，英镑汇率跌至一周低点。
+“将免收过路费，”他在法国对记者说。
 
-债市遭遇抛售：长期国债收益率创28年新高 市场对政治不稳定性的担忧直接体现在长期国债上。
-
-30年期英债收益率一度攀升至5.802%，创下1998年以来的最高纪录。
-
-10年期国债收益率上涨11个基点至5.116%，为七周新高。
-
-分析人士指出，投资者不仅担忧斯塔默的去留，更恐惧其潜在继任者可能采取更左倾的财政政策，导致政府支出扩大、公共财政恶化。
-
-英镑走弱：政治溢价侵蚀汇率 与债市同步，英镑在外汇市场也遭遇抛售。
-
-英镑兑美元汇率下跌0.7%至1.3510，兑欧元汇率跌至近三周低点0.8697英镑。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 17:46 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 17:36 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 17:31 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 17:37 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 17:33 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 17:41 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 17:53 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 17:50 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 17:57 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 17:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 17:55 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 17:58 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 17:40 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 17:40 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 17:31 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 18:05 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 17:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 17:55 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 17:36 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 17:55 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 17:58 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 17:46 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 18:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 18:01 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 17:42 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 18:04 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 17:36 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/74817145.shtml)
-- 2026-06-29 17:44 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/701830003913.shtml)
-- 2026-06-29 17:48 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/359025796210.shtml)
-- 2026-06-29 17:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/42619.shtml)
-- 2026-06-29 17:47 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/00957216574.shtml)
-- 2026-06-29 17:49 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/86340694.shtml)
-- 2026-06-29 17:43 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/4570225.shtml)
-- 2026-06-29 17:43 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/1505066011.shtml)
-- 2026-06-29 17:53 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/16238478.shtml)
-- 2026-06-29 17:33 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/901748.shtml)
-- 2026-06-29 17:30 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/012845.shtml)
-- 2026-06-29 17:59 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/570754109.shtml)
-- 2026-06-29 17:49 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/89390013.shtml)
-- 2026-06-29 17:51 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/892797.shtml)
-- 2026-06-29 17:44 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/150877183534.shtml)
+- 2026-06-29 17:43 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/366507354.shtml)
+- 2026-06-29 17:59 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/394978036.shtml)
+- 2026-06-29 18:01 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/05014.shtml)
+- 2026-06-29 17:43 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/393022042013.shtml)
+- 2026-06-29 17:43 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/31372663258.shtml)
+- 2026-06-29 18:03 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/33313551.shtml)
+- 2026-06-29 17:47 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/96805793987.shtml)
+- 2026-06-29 17:43 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/72724.shtml)
+- 2026-06-29 18:04 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/9993245033.shtml)
+- 2026-06-29 18:04 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/09287126068.shtml)
+- 2026-06-29 17:51 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/2364677259.shtml)
+- 2026-06-29 17:50 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/0982578.shtml)
+- 2026-06-29 17:41 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/8743479585.shtml)
+- 2026-06-29 18:03 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/14973603442.shtml)
+- 2026-06-29 17:44 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/1982919.shtml)

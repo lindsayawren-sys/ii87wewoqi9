@@ -1,57 +1,56 @@
-# 外交部：世界上一切爱好和平的国家和日本人民都应共同遏制日本“新型军国主义”成势为患
+# 茅台1935回应产地标签疑问：按国标要求标注，符合规定
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-5月13日，外交部发言人郭嘉昆主持例行记者会。有记者问：自从高市政府宣布推动修宪以来，日本各界出现大量反对声音，甚至出现几十年来规模最大的反战抗议活动。“恐惧”“担忧”“警惕”“愤怒”成为受访民众的高频词。媒体评论称，修改宪法第9条将撼动日本“和平国家”的自我认同，引发社会撕裂。发言人对此有何评论？郭嘉昆表示，历史是一面镜子，20世纪上半叶，日本民众目睹自己的国家一步步走向军国
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 21世纪经济报道记者肖夏 关于茅台酱香系列酒大单品“茅台1935”，近期又出现了讨论。 有网友针对其包装上标出的产地提出疑问：“茅台1935产自习酒镇，为什么标注为茅台镇？”有媒体跟进相关选题时，则以“茅台1935基酒产自习水，包装却标茅台镇”为标题加以强调。 对此，茅台酱香酒公司第一时间给予详细回应。 6月15日傍晚，
 
 ## 正文
 
-5月13日，外交部发言人郭嘉昆主持例行记者会。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 21世纪经济报道记者肖夏 关于茅台酱香系列酒大单品“茅台1935”，近期又出现了讨论。
 
-有记者问：自从高市政府宣布推动修宪以来，日本各界出现大量反对声音，甚至出现几十年来规模最大的反战抗议活动。
+有网友针对其包装上标出的产地提出疑问：“茅台1935产自习酒镇，为什么标注为茅台镇？
 
-“恐惧”“担忧”“警惕”“愤怒”成为受访民众的高频词。
+”有媒体跟进相关选题时，则以“茅台1935基酒产自习水，包装却标茅台镇”为标题加以强调。
 
-媒体评论称，修改宪法第9条将撼动日本“和平国家”的自我认同，引发社会撕裂。
+对此，茅台酱香酒公司第一时间给予详细回应。
 
-发言人对此有何评论？
+6月15日傍晚，茅台酱香酒公司官方账号“茅台酱香芳华”发布《关于茅台酱香系列酒产品外包装产地、厂址标注的说明》（下称《说明》）。
 
-郭嘉昆表示，历史是一面镜子，20世纪上半叶，日本民众目睹自己的国家一步步走向军国主义，沦为战争机器，饱尝战争恶果，最懂得日本政府承诺永不再战的意义。
+茅台1935是茅台酒股份公司2022年推出的产品，次年销售额就达到百亿规模，成为茅台酱香系列酒的核心大单品。
 
-如今高市政府却企图抛弃和平主义，背弃战后国际社会接纳日本的根本前提，撕毁日本民众世代珍视的“和平国家”共识。
+对于茅台酒股份公司而言，茅台酱香系列酒是茅台酒之外的第二大业务板块，也是近年发展较快的第二增长曲线。
 
-日本右翼势力推动扩军备武，突破和平宪法和国际法、国内法规制是要打造所谓“战争国家”吗？
+和质疑声称的“产自习酒镇，标注茅台镇”不同，茅台1935的外包装其实进行了准确标注。
 
 ## 相关推荐
 
-- 2026-06-29 17:53 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 17:45 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 17:30 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 17:38 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 18:00 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 17:31 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 17:36 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 17:57 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 17:55 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 17:56 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 17:46 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 17:49 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 17:53 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 17:50 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 17:52 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 17:58 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 17:47 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 17:54 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 17:57 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 17:43 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 17:42 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:58 - [起风了](https://www.share.kurohicncr.top/Article/details/9360269.shtml)
-- 2026-06-29 17:40 - [一见倾心](https://www.share.minike.top/Article/details/16522924.shtml)
-- 2026-06-29 17:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/237016.shtml)
-- 2026-06-29 17:44 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/26712201943.shtml)
-- 2026-06-29 17:52 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/2857856057.shtml)
-- 2026-06-29 17:45 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/161797072354.shtml)
-- 2026-06-29 17:48 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/67820388258.shtml)
-- 2026-06-29 17:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/803046.shtml)
-- 2026-06-29 17:49 - [绘画区你赢了](http://www.blog.minike.top/Article/details/81381.shtml)
-- 2026-06-29 17:56 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/050398.shtml)
-- 2026-06-29 17:59 - [金牌调解](https://www.share.minike.top/Article/details/711291862.shtml)
-- 2026-06-29 17:35 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/798880134.shtml)
-- 2026-06-29 17:42 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/82532582.shtml)
-- 2026-06-29 17:49 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/16332.shtml)
-- 2026-06-29 17:43 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/9565693729.shtml)
+- 2026-06-29 17:38 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/133990.shtml)
+- 2026-06-29 18:03 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/64071234.shtml)
+- 2026-06-29 17:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/671968.shtml)
+- 2026-06-29 17:49 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/8332172999.shtml)
+- 2026-06-29 18:02 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/29498.shtml)
+- 2026-06-29 17:59 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/0551357023.shtml)
+- 2026-06-29 18:03 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/299137515054.shtml)
+- 2026-06-29 17:59 - [扫黑风暴](http://www.share.minike.top/Article/details/9940759.shtml)
+- 2026-06-29 17:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/500415646812.shtml)
+- 2026-06-29 17:39 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/331517001222.shtml)
+- 2026-06-29 17:54 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/94367038595.shtml)
+- 2026-06-29 17:46 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/96908.shtml)
+- 2026-06-29 17:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/7607410214.shtml)
+- 2026-06-29 17:44 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.minike.top/Article/details/2019780936.shtml)
+- 2026-06-29 18:02 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/59200283721.shtml)

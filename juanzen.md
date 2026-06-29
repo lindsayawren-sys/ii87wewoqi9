@@ -1,56 +1,56 @@
-# 从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？
+# 台湾小吃业者冀“小摊位”撬动两岸“大市场”
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-露西先是宠物主人，想给自己的小狗做点合身的衣服，继而拿起棒针，用上3D打印纺线机，成了织物主理人；紫悠本是古风爱好者，因找不到喜欢的拼豆图样，转而拿起平板，成了拼豆设计师…… 从手工编织到拼豆定制，从自动锁边机到自动烫画机，这场“自己造”的变迁，正在重新定义制造与消费的边界——当消费者开始亲手创造，全新的需求、工具与消费空间，也都随之生长。 “造物”的需求，从何而来 杭州开往上
+中新社北京6月16日电 (张杨彬 姜姿屹)在16日北京一场台湾小吃市集上，“新北深坑臭豆腐”摊位前始终围着人，食客好奇打量着与长沙黑色臭豆腐迥异的金黄色豆腐。台湾摊主苏明和介绍，他在福州大学城的档口生意不错，这次专程赶来，是首次在北京设摊。 当日开市的“美丽乡村·洽洽GO”六月市集汇聚了三十多家台湾小吃摊，摊主大多在台湾夜市设有固定摊位，这次希望用“小摊位”探一探大陆的“大市场
 
 ## 正文
 
-露西先是宠物主人，想给自己的小狗做点合身的衣服，继而拿起棒针，用上3D打印纺线机，成了织物主理人；紫悠本是古风爱好者，因找不到喜欢的拼豆图样，转而拿起平板，成了拼豆设计师…… 从手工编织到拼豆定制，从自动锁边机到自动烫画机，这场“自己造”的变迁，正在重新定义制造与消费的边界——当消费者开始亲手创造，全新的需求、工具与消费空间，也都随之生长。
+中新社北京6月16日电 (张杨彬 姜姿屹)在16日北京一场台湾小吃市集上，“新北深坑臭豆腐”摊位前始终围着人，食客好奇打量着与长沙黑色臭豆腐迥异的金黄色豆腐。
 
-“造物”的需求，从何而来 杭州开往上海的高铁上，五个并排的年轻女孩，都保持着相似的姿势——低头，双手翻飞，织针在指间穿梭，五彩的毛线在小桌板和膝头间跳跃。
+台湾摊主苏明和介绍，他在福州大学城的档口生意不错，这次专程赶来，是首次在北京设摊。
 
-车厢仿佛被划出了一个专属“手作区”，安静、专注，富有魔力。
+当日开市的“美丽乡村·洽洽GO”六月市集汇聚了三十多家台湾小吃摊，摊主大多在台湾夜市设有固定摊位，这次希望用“小摊位”探一探大陆的“大市场”。
 
-露西正是其中之一。
+在苏明和摊位不远处，24岁的林宗延和父亲林柏均正忙着烤制香葱肉卷。
 
-这是近一年来她第三次去上海。
+“去年第一次来北京，产品特别火，今年就又来了。
 
-不同的是，这次是和伙伴们一起，奔赴一个共同的目的地——在HAI550举办的“织女的聚会”。
+”林宗延说，这款小吃在台湾拥有专利认证，是林家父子打开市场的“利器”。
 
-到了现场，聚会的“热闹”程度远超她的想象。
+如今，林家“小摊位”背后，一个“大市场”初具规模。
 
-有人用毛线复刻了东方明珠，形态逼真，诙谐好玩；有人织出了一整个“花店”，铃兰、松果、水仙等栩栩如生；还有人为自己的玩偶织了一顶朱迪警官的帽子。
+林柏均在厦门、贵阳开设合作工厂，开放加盟，统一发货。
 
 ## 相关推荐
 
-- 2026-06-29 17:39 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 17:48 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 17:53 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 17:57 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 17:38 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 17:32 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 17:54 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 17:57 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 17:53 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 17:50 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 17:48 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 17:56 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 18:00 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 18:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 17:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 17:53 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 17:53 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 18:04 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 17:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 17:51 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/1782874179.shtml)
-- 2026-06-29 17:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/1981610875.shtml)
-- 2026-06-29 17:55 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/116725468752.shtml)
-- 2026-06-29 17:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/333814551.shtml)
-- 2026-06-29 17:59 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/3318767152.shtml)
-- 2026-06-29 17:34 - [起风了](https://www.blog.minike.top/Article/details/415842825481.shtml)
-- 2026-06-29 17:43 - [章若楠包场白敬亭特立独行](http://www.blog.kurohicncr.top/Article/details/80996135368.shtml)
-- 2026-06-29 17:53 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/658982588.shtml)
-- 2026-06-29 17:49 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/5593657.shtml)
-- 2026-06-29 17:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/655208693.shtml)
-- 2026-06-29 17:35 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/4791436.shtml)
-- 2026-06-29 17:56 - [沙丘](http://www.share.kurohicncr.top/Article/details/526773.shtml)
-- 2026-06-29 17:56 - [爱很美味](http://www.share.kurohicncr.top/Article/details/74883280.shtml)
-- 2026-06-29 17:36 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/9616394823.shtml)
-- 2026-06-29 18:00 - [日本前锋言论激怒巴西](http://www.blog.kurohicncr.top/Article/details/77517.shtml)
+- 2026-06-29 18:04 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/545384.shtml)
+- 2026-06-29 18:01 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/819721851501.shtml)
+- 2026-06-29 17:52 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/64000296.shtml)
+- 2026-06-29 17:58 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/56799045.shtml)
+- 2026-06-29 17:54 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/957004586618.shtml)
+- 2026-06-29 17:52 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/05946329.shtml)
+- 2026-06-29 17:37 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/678766.shtml)
+- 2026-06-29 17:40 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.kurohicncr.top/Article/details/99350723.shtml)
+- 2026-06-29 17:46 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/29509.shtml)
+- 2026-06-29 17:40 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/4743285942.shtml)
+- 2026-06-29 18:03 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/02074998339.shtml)
+- 2026-06-29 17:55 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/143913538619.shtml)
+- 2026-06-29 17:42 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/6588947337.shtml)
+- 2026-06-29 18:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/157855472860.shtml)
+- 2026-06-29 17:45 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/5567680857.shtml)

@@ -1,57 +1,57 @@
-# 澳门与韩国旅游机构签署友好协议 深化文旅联动
+# 政策预期落空，多晶硅期货重回弱现实交易
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新网澳门5月12日电 (记者 郑嘉伟)澳门旅游商会、澳门酒店旅业商会与韩国济州特别自治道观光协会12日在澳门举行交流座谈会暨友好合作协议签署仪式，共同推动两地文旅深度联动。 在澳门特区政府旅游局代局长程卫东、横琴粤澳深度合作区经济发展局文旅会展商贸处处长林衍杰的见证下，澳门旅游商会、澳门酒店旅业商会分别与济州特别自治道观光协会签署合作协议，内容涵盖产业合作、联合营销推广、资源
+来源：广发期货研究证监许可【2011】1292号 纪元菲 Z0013180 | 2026年6月16日 星期二 行情点评： 2026年6月16日，多晶硅期货大幅下跌，主力合约跌幅超7%，下跌2770元/吨至35420元/吨。前期炒作供给侧反内卷、能效指标的热情减退，期价向现货回归，大幅下跌。 下跌主要驱动因素1：炒作热情减退，期货价格向现货均价收敛 上周多晶硅再次表现出弱现实，强
 
 ## 正文
 
-中新网澳门5月12日电 (记者 郑嘉伟)澳门旅游商会、澳门酒店旅业商会与韩国济州特别自治道观光协会12日在澳门举行交流座谈会暨友好合作协议签署仪式，共同推动两地文旅深度联动。
+来源：广发期货研究证监许可【2011】1292号 纪元菲 Z0013180 | 2026年6月16日 星期二 行情点评： 2026年6月16日，多晶硅期货大幅下跌，主力合约跌幅超7%，下跌2770元/吨至35420元/吨。
 
-在澳门特区政府旅游局代局长程卫东、横琴粤澳深度合作区经济发展局文旅会展商贸处处长林衍杰的见证下，澳门旅游商会、澳门酒店旅业商会分别与济州特别自治道观光协会签署合作协议，内容涵盖产业合作、联合营销推广、资源联动等多个领域，并将建立常态化联络机制，为两地客源互送、研学旅游的发展奠定良好基础。
+前期炒作供给侧反内卷、能效指标的热情减退，期价向现货回归，大幅下跌。
 
-济州特别自治道观光协会会长姜东勋表示，济州作为韩国知名旅游胜地，向来重视与澳门的文旅交流。
+下跌主要驱动因素1：炒作热情减退，期货价格向现货均价收敛 上周多晶硅再次表现出弱现实，强预期走势。
 
-希望双方以协议为基础，加强旅游市场信息交流，推进民间互访机制建设，联合开展市场宣传推广，强化产业合作，让更多澳门市民走进济州领略自然生态之美，也让更多韩国游客来澳感受中西交融的人文魅力。
+现货价格承压下跌近3%，但期货价格上涨约4.5%。
 
-交流座谈会上，来自澳门与济州的旅游业界代表亲切交流，共同探讨文旅合作发展机遇，积极缔结友好合作关系。
+期货上涨，现货下跌，主力套利窗口持续扩大至4015元/吨。
 
-澳门酒店旅业商会会长、澳门旅游发展智库会长张健中说，澳门与济州文旅资源互补性强，民众旅游互访基础坚实。
+多重供给侧反内卷消息传出，主要涉及组件、逆变器、单晶硅环节的能耗/能效指标有望在近期发布，市场预计多晶硅的能耗指标也即将发布带动多晶硅期货价格大幅上涨。
 
-随着澳门与横琴文旅融合加速推进，建议依托澳琴深度合作，共同构建“一程多站”黄金旅游目的地，丰富澳门文旅内容，拓展国际文旅合作新空间，推动澳门世界旅游休闲中心建设。
+单纯的从消息面来看，能效等级落地助力光伏产业提升产品质量，淘汰落后产能，高能效的产品产能将更有优势。
 
-(完)
+但是站在多晶硅的角度来看，短期内预计影响较小，即便有减产预期，主要涉及下游需求方反而利空需求。
 
 ## 相关推荐
 
-- 2026-06-29 17:43 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 17:31 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 17:33 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 17:50 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 17:57 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 17:59 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 17:43 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 17:59 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 17:48 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 17:42 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 17:55 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 17:39 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 17:49 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 17:49 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 18:04 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 17:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 17:45 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 18:02 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 17:56 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 17:54 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 17:36 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 17:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:45 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/544789.shtml)
-- 2026-06-29 17:42 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/9653020394.shtml)
-- 2026-06-29 17:53 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/125823852499.shtml)
-- 2026-06-29 17:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/81672817.shtml)
-- 2026-06-29 17:58 - [流金岁月](http://www.blog.minike.top/Article/details/47043864733.shtml)
-- 2026-06-29 17:34 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/911778740.shtml)
-- 2026-06-29 17:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/68696300637.shtml)
-- 2026-06-29 17:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/87017145.shtml)
-- 2026-06-29 17:56 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/779725.shtml)
-- 2026-06-29 17:40 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/157475814558.shtml)
-- 2026-06-29 17:42 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/45209266.shtml)
-- 2026-06-29 17:40 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/69907678464.shtml)
-- 2026-06-29 17:47 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/01074417012.shtml)
-- 2026-06-29 17:54 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/9748809.shtml)
-- 2026-06-29 17:53 - [谢依霖夸杨幂靠谱](https://www.share.kurohicncr.top/Article/details/3336500.shtml)
+- 2026-06-29 17:44 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/83778.shtml)
+- 2026-06-29 17:57 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/1475031.shtml)
+- 2026-06-29 18:01 - [天道](http://www.share.kurohicncr.top/Article/details/052564226.shtml)
+- 2026-06-29 18:02 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/1062662202.shtml)
+- 2026-06-29 17:45 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/3439365.shtml)
+- 2026-06-29 17:59 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/7155898232.shtml)
+- 2026-06-29 17:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/5340193.shtml)
+- 2026-06-29 17:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/311153532661.shtml)
+- 2026-06-29 18:05 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/8303362251.shtml)
+- 2026-06-29 17:48 - [税务总局披露5起合规申报个税案例](https://www.blog.kurohicncr.top/Article/details/682256286.shtml)
+- 2026-06-29 17:42 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/0901831.shtml)
+- 2026-06-29 18:00 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/931512657.shtml)
+- 2026-06-29 18:03 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/0504381505.shtml)
+- 2026-06-29 17:56 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/17716730.shtml)
+- 2026-06-29 17:43 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/849020.shtml)

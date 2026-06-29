@@ -1,59 +1,55 @@
-# 珠江委西江局全力保障南宁江北中堤水毁段修复
+# 江苏南通如东发生汽车倒车操作不当事故 致1死7伤
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新网广州5月13日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)13日消息，南宁市江北中堤二坑口水毁段应急抢险工程12日实现堤防封顶，标志着该段水毁堤防基本恢复挡水防洪功能，邕江重点防洪屏障得到有效加固，为主汛期安全度汛筑牢坚实工程基础。 珠江委介绍，去年9月下旬至10月上旬，受台风“博罗依”“麦德姆”叠加影响，广西西部和南部、云南东南部等地遭遇极端强降雨过程，珠
+中新网南通6月15日电(记者 谷华)15日，江苏南通如东县一辆小汽车因驾驶人倒车操作不当致人员受伤。当日，大豫镇人民政府发布情况通报称，事故已致1人死亡，1人伤势较重，其余6人伤情平稳，无生命危险。 6月15日8时40分左右，南通如东县大豫镇巩王村某村民家门口一辆小汽车因驾驶人倒车时操作不当致人员受伤。 通报称，事故发生后，公安、消防、卫健等部门第一时间赶赴现场，将伤者及时送往
 
 ## 正文
 
-中新网广州5月13日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)13日消息，南宁市江北中堤二坑口水毁段应急抢险工程12日实现堤防封顶，标志着该段水毁堤防基本恢复挡水防洪功能，邕江重点防洪屏障得到有效加固，为主汛期安全度汛筑牢坚实工程基础。
+中新网南通6月15日电(记者 谷华)15日，江苏南通如东县一辆小汽车因驾驶人倒车操作不当致人员受伤。
 
-珠江委介绍，去年9月下旬至10月上旬，受台风“博罗依”“麦德姆”叠加影响，广西西部和南部、云南东南部等地遭遇极端强降雨过程，珠江流域内44条河流发生超警洪水，在洪水持续多日的冲击和浸泡下，郁江南宁段(邕江)江北中堤北大桥右侧堤外二坑口防洪闸出现侧向渗漏、堤身破损等险情，严重威胁南宁市防洪安全。
+当日，大豫镇人民政府发布情况通报称，事故已致1人死亡，1人伤势较重，其余6人伤情平稳，无生命危险。
 
-险情发生后，当地政府高度重视，在水利部统一部署下，珠江委西江局第一时间派出防汛工作组赶赴现场，协助指导险情处置工作，并全程提供专业技术支撑，针对性制定抢险施工方案、攻克现场技术难点，保障抢险施工科学规范、高效有序推进。
+6月15日8时40分左右，南通如东县大豫镇巩王村某村民家门口一辆小汽车因驾驶人倒车时操作不当致人员受伤。
 
-据介绍，本次水毁抢险工程主要对70米水毁堤段、二坑口防洪闸及箱涵等设施实施拆除重建，同步开展堤防基础防渗灌浆加固等配套工程。
+通报称，事故发生后，公安、消防、卫健等部门第一时间赶赴现场，将伤者及时送往医院救治。
 
-施工期间，珠江委西江局与参建各方紧密配合、协同发力，克服工期紧张、施工条件复杂等诸多难题，如期完成堤防封顶关键节点任务。
+截至当日18时，1人经抢救无效死亡，1人伤势较重，其余6人伤情平稳，无生命危险。
 
-珠江委表示，下一步，珠江委西江局将按照水利部统一部署，围绕主汛期防汛备汛工作职责，在全力保障水毁修复工程安全稳定投用的同时，全面开展风险隐患排查整治，以扎实有力的举措筑牢防汛安全防线，为地方经济社会高质量发展提供坚实的水安全保障。
+目前，涉事驾驶人已被控制，事故调查和相关善后工作正在进行中。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 17:44 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 17:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 17:46 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 17:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 17:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 17:41 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 17:35 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 17:51 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 17:56 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 17:30 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 17:54 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 17:52 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 17:55 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 17:44 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 17:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 17:48 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 17:49 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 18:00 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 17:41 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 18:03 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 17:38 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 17:55 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 17:53 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 17:43 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 17:44 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 17:39 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:40 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/022901.shtml)
-- 2026-06-29 17:53 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/921149954.shtml)
-- 2026-06-29 17:33 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/96599828.shtml)
-- 2026-06-29 17:35 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/0201488.shtml)
-- 2026-06-29 17:33 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/971072.shtml)
-- 2026-06-29 17:37 - [明星大侦探第四季](http://www.share.minike.top/Article/details/01558633.shtml)
-- 2026-06-29 17:32 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/570329329316.shtml)
-- 2026-06-29 17:55 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/39124102.shtml)
-- 2026-06-29 17:36 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/31333912.shtml)
-- 2026-06-29 17:40 - [苹果ultra2阔折叠已开模测试](http://www.blog.minike.top/Article/details/0923934.shtml)
-- 2026-06-29 17:57 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/0386999611.shtml)
-- 2026-06-29 17:58 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/42980.shtml)
-- 2026-06-29 17:52 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/206889.shtml)
-- 2026-06-29 17:48 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/76747236.shtml)
-- 2026-06-29 17:51 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/174695099721.shtml)
+- 2026-06-29 17:58 - [看大国重器“云端穿针引线”](http://www.blog.kurohicncr.top/Article/details/55775.shtml)
+- 2026-06-29 17:51 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/60683431.shtml)
+- 2026-06-29 18:01 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/275896456558.shtml)
+- 2026-06-29 17:56 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/027119669.shtml)
+- 2026-06-29 17:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/880105424.shtml)
+- 2026-06-29 17:48 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/94971146.shtml)
+- 2026-06-29 17:38 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/21418486.shtml)
+- 2026-06-29 17:46 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/2467988880.shtml)
+- 2026-06-29 18:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/5891625062.shtml)
+- 2026-06-29 17:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/46144.shtml)
+- 2026-06-29 17:44 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/11848229.shtml)
+- 2026-06-29 17:54 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/5391091.shtml)
+- 2026-06-29 17:50 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/8769243436.shtml)
+- 2026-06-29 17:36 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.minike.top/Article/details/354552155.shtml)
+- 2026-06-29 18:03 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/682185.shtml)

@@ -1,48 +1,57 @@
-# NTSB审查边疆航空公司航空疏散事件
+# 20260612 5月份CPI总体平稳，PPI继续上涨
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-美国国家运输安全委员会（NTSB）已加入对边疆航空公司（Frontier Airlines）4345航班在丹佛发生跑道撞人致死事故后的紧急疏散事件的调查，评估有关部分乘客携带随身行李撤离的报告。责任编辑：张俊 SF065
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（6月5日）银行间流动性边际收敛，主要资金价格有所上升，当日央行净投放920亿元。此外，当日央行开展5000亿元3个月期逆回购操作，本月有8000亿元3个月期逆回购到期，净回笼为3000亿元。本周一银行间流动性边际收敛，主要资金价格有所上升，当日央行净投放1775亿元。本周二银行间流动性小幅收敛，主要资金价格有所上升，当日
 
 ## 正文
 
-美国国家运输安全委员会（NTSB）已加入对边疆航空公司（Frontier Airlines）4345航班在丹佛发生跑道撞人致死事故后的紧急疏散事件的调查，评估有关部分乘客携带随身行李撤离的报告。
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（6月5日）银行间流动性边际收敛，主要资金价格有所上升，当日央行净投放920亿元。
 
-责任编辑：张俊 SF065
+此外，当日央行开展5000亿元3个月期逆回购操作，本月有8000亿元3个月期逆回购到期，净回笼为3000亿元。
+
+本周一银行间流动性边际收敛，主要资金价格有所上升，当日央行净投放1775亿元。
+
+本周二银行间流动性小幅收敛，主要资金价格有所上升，当日央行净投放1528亿元。
+
+本周三银行间流动性整体持稳，主要资金价格变化不大，当日央行净投放1590亿元。
+
+本周四银行间流动性小幅收敛，主要资金价格略有上升，当日央行净投放1885亿元。
+
+本周四（6月11日）相较于上周五，DR001上行6bp收于1.40%，DR007上行6bp收于 1.44%。
+
+海外方面，美国5月未季调CPI同比升4.2%，预期升4.2%，前值升3.8%；季调后CPI环比升0.5%，预期升0.5%，前值升0.6%；未季调核心CPI同比升2.9%，预期升2.9%，前值升2.8%；季调后核心CPI环比升0.2%，预期升0.3%，前值升0.4%。
 
 ## 相关推荐
 
-- 2026-06-29 17:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 17:30 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 17:38 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 17:47 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 17:39 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 17:57 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 17:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 17:37 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 17:53 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 17:46 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 17:58 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 17:59 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 17:49 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 17:48 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 17:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 17:52 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 17:43 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 17:43 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 17:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 17:38 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 17:57 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 17:57 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 17:38 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 17:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 18:05 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/510980173456.shtml)
-- 2026-06-29 17:40 - [看大国重器“云端穿针引线”](http://www.blog.minike.top/Article/details/731838150.shtml)
-- 2026-06-29 17:48 - [博主：黄金和原油回落不等于风险消失](http://www.share.minike.top/Article/details/847413689859.shtml)
-- 2026-06-29 17:31 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/007556345424.shtml)
-- 2026-06-29 17:44 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/9234134.shtml)
-- 2026-06-29 17:33 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/0742330.shtml)
-- 2026-06-29 17:55 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/793875096.shtml)
-- 2026-06-29 17:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/758784708.shtml)
-- 2026-06-29 17:39 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/272477623972.shtml)
-- 2026-06-29 17:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/40859166876.shtml)
-- 2026-06-29 17:43 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/4016970.shtml)
-- 2026-06-29 17:49 - [毒液2](http://www.share.kurohicncr.top/Article/details/298512.shtml)
-- 2026-06-29 17:32 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/0083512739.shtml)
-- 2026-06-29 17:36 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/977101737.shtml)
-- 2026-06-29 17:59 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/462216505749.shtml)
+- 2026-06-29 17:48 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/5914735205.shtml)
+- 2026-06-29 17:39 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/8298454.shtml)
+- 2026-06-29 17:39 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/85588.shtml)
+- 2026-06-29 17:59 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/222871940.shtml)
+- 2026-06-29 17:48 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/70705.shtml)
+- 2026-06-29 18:00 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.kurohicncr.top/Article/details/695806.shtml)
+- 2026-06-29 17:48 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/42956.shtml)
+- 2026-06-29 18:04 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/24911334.shtml)
+- 2026-06-29 17:37 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/5107862.shtml)
+- 2026-06-29 17:41 - [一生一世](https://www.blog.kurohicncr.top/Article/details/7277361.shtml)
+- 2026-06-29 18:02 - [恋与深空 731](http://www.share.minike.top/Article/details/020094.shtml)
+- 2026-06-29 17:49 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/81774122.shtml)
+- 2026-06-29 17:40 - [四川地震前夕 街头电线上站满燕子](http://www.blog.kurohicncr.top/Article/details/2443497547.shtml)
+- 2026-06-29 18:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/22425565046.shtml)
+- 2026-06-29 17:57 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/76992989533.shtml)

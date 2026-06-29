@@ -1,56 +1,59 @@
-# 溯源南岛语族 共续海洋文脉：2026两岸海洋文化交流平台走进平潭
+# 税收数据显示，前5月中国工业企业销售收入实现较快增长
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新网福建平潭5月12日电 (李百加)2026两岸海洋文化交流平台主场活动12日在福建省平潭综合实验区举行。活动以“越山向海 潮汇一脉”为主题，吸引岛内政党、社会团体代表，阿美、泰雅等10余个族群代表以及在陆台商台青等近300人参与。 全国政协副主席、台盟中央主席苏辉致辞指出，福建平潭是南岛语族的“起锚之地”。2026年两岸海洋文化交流平台主场活动落地平潭，围绕南岛语族溯源、中
+中新社北京6月16日电 (记者 赵建华)中国国家税务总局16日公布的发票数据显示，今年1至5月，全国工业企业销售收入同比增长6.8%，实现较快增长。其中，装备制造持续发挥“压舱石”作用，人工智能助推工业智能化发展，绿色能源加快转型步伐。数据显示，1至5月，全国装备制造业销售收入同比增长8%，占制造业比重46.8%，持续发挥“压舱石”作用。其中，计算机通信设备制造、仪器仪表制造、
 
 ## 正文
 
-中新网福建平潭5月12日电 (李百加)2026两岸海洋文化交流平台主场活动12日在福建省平潭综合实验区举行。
+中新社北京6月16日电 (记者 赵建华)中国国家税务总局16日公布的发票数据显示，今年1至5月，全国工业企业销售收入同比增长6.8%，实现较快增长。
 
-活动以“越山向海 潮汇一脉”为主题，吸引岛内政党、社会团体代表，阿美、泰雅等10余个族群代表以及在陆台商台青等近300人参与。
+其中，装备制造持续发挥“压舱石”作用，人工智能助推工业智能化发展，绿色能源加快转型步伐。
 
-全国政协副主席、台盟中央主席苏辉致辞指出，福建平潭是南岛语族的“起锚之地”。
+数据显示，1至5月，全国装备制造业销售收入同比增长8%，占制造业比重46.8%，持续发挥“压舱石”作用。
 
-2026年两岸海洋文化交流平台主场活动落地平潭，围绕南岛语族溯源、中华海洋文化传承等议题开展交流，有助于两岸同胞把握潮流大势、坚守民族大义、厚植历史自信。
+其中，计算机通信设备制造、仪器仪表制造、专用设备制造销售收入分别增长15.6%、10.5%和8.8%，制造业高端化进程持续推进。
 
-台盟坚持继承和弘扬台湾同胞爱国爱乡光荣传统，矢志推动两岸关系和平发展、推进祖国统一大业，通过搭建海洋文化交流平台等举措，促进两岸交流交往交融。
+1至5月，全国机器人、智能车载设备制造销售收入同比分别增长27.7%和46.3%，人工智能赋能工业智能化水平持续提升。
 
-她期盼本次活动助力平潭建设两岸共同市场先行区域，加快建成经济发展、社会和谐、环境优美、独具特色的两岸同胞共同家园。
+同时，高端电子制造加快发展，持续夯实智能制造根基。
 
-全国政协常委、港澳台侨委员会主任刘赐贵表示，全国政协港澳台侨委员会始终把深化两岸各领域交流合作、促进两岸同胞心灵契合作为重要履职方向。
+1至5月，集成电路、光电子器件、半导体器件制造业销售收入分别增长57.7%、32.6%和24.4%。
 
-委员会坚定支持台盟等民主党派发挥特色优势，开展形式多样的对台交流活动，为两岸同胞交流交往交融搭建更多平台、创造更好条件。
+同期，全国电力热力燃气及水生产和供应业销售收入同比增长4.2%。
 
 ## 相关推荐
 
-- 2026-06-29 17:40 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 17:57 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 17:39 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 17:36 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 17:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 17:46 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 17:49 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 17:44 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 17:55 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 17:59 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 17:55 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 18:05 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 17:45 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 17:59 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 17:38 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 17:39 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 17:58 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 18:03 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 17:57 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 17:54 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 17:39 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 18:05 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 17:42 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/679192.shtml)
-- 2026-06-29 17:44 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/4455626934.shtml)
-- 2026-06-29 17:37 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/35030.shtml)
-- 2026-06-29 17:51 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/40994795749.shtml)
-- 2026-06-29 17:42 - [我和我的家乡](http://www.share.minike.top/Article/details/08374.shtml)
-- 2026-06-29 17:47 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/8465050.shtml)
-- 2026-06-29 17:58 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/02716362.shtml)
-- 2026-06-29 17:36 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/6909220.shtml)
-- 2026-06-29 17:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/741614375638.shtml)
-- 2026-06-29 17:47 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/9873214213.shtml)
-- 2026-06-29 17:57 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/83053567.shtml)
-- 2026-06-29 17:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/31393459.shtml)
-- 2026-06-29 17:53 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/45909477288.shtml)
-- 2026-06-29 17:39 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/8949598.shtml)
-- 2026-06-29 17:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/359215.shtml)
+- 2026-06-29 17:50 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/742252.shtml)
+- 2026-06-29 17:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/02797.shtml)
+- 2026-06-29 17:49 - [挪威王储妃长子两次强奸获刑](http://www.share.minike.top/Article/details/5981368780.shtml)
+- 2026-06-29 18:04 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/877008436.shtml)
+- 2026-06-29 17:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/42609.shtml)
+- 2026-06-29 17:39 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/82032737.shtml)
+- 2026-06-29 18:03 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/326339.shtml)
+- 2026-06-29 17:41 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.minike.top/Article/details/4239749958.shtml)
+- 2026-06-29 17:46 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/31507.shtml)
+- 2026-06-29 18:04 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/944008171.shtml)
+- 2026-06-29 18:05 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/10179430627.shtml)
+- 2026-06-29 18:05 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/717599.shtml)
+- 2026-06-29 18:01 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/5771150496.shtml)
+- 2026-06-29 17:55 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/7032847.shtml)
+- 2026-06-29 17:41 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.kurohicncr.top/Article/details/74282465099.shtml)

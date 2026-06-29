@@ -1,59 +1,60 @@
-# 前4个月粤港澳大湾区内地9市外贸连续保持两位数增长
+# 南新制药（688189）被预处罚，股民索赔可期
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-据海关统计，今年前4个月，粤港澳大湾区内地9市进出口3.37万亿元，同比增长18.4%，占全国进出口总值的比重较去年同期提升0.6个百分点至20.7%，对全国增长的贡献度达24.9%。其中，出口2万亿元，增长11.4%；进口1.37亿元，增长30.4%。主要有以下5方面的特点：一是连续4个月保持两位数增长。单4月，大湾区内地9市进出口9118.6亿元，增长15.3%，今年以来保
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月10日，湖南南新制药股份有限公司（简称：南新制药，代码：688189）发布《关于收到行政处罚事先告知书的公告》。 经中国证监会湖南证监局查明：2023年，南新制药控股子公司广州南新制药有限公司（以下简称广州南新） 在部分客户退货后，未冲减当期收入和利润，导致南新制药2023年年度报告虚增营业收入4435.88万元，
 
 ## 正文
 
-据海关统计，今年前4个月，粤港澳大湾区内地9市进出口3.37万亿元，同比增长18.4%，占全国进出口总值的比重较去年同期提升0.6个百分点至20.7%，对全国增长的贡献度达24.9%。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月10日，湖南南新制药股份有限公司（简称：南新制药，代码：688189）发布《关于收到行政处罚事先告知书的公告》。
 
-其中，出口2万亿元，增长11.4%；进口1.37亿元，增长30.4%。
+经中国证监会湖南证监局查明：2023年，南新制药控股子公司广州南新制药有限公司（以下简称广州南新） 在部分客户退货后，未冲减当期收入和利润，导致南新制药2023年年度报告虚增营业收入4435.88万元，占当期营业收入5.96%；虚增利润总额908.77万元，占当期利润总额119.46%。
 
-主要有以下5方面的特点：一是连续4个月保持两位数增长。
+2023年，广州南新与部分客户分别签订《应收账款协议》，在《应收账款协议》约定的现金折扣生效后，未冲减当期收入和利润，导致南新制药2023年年度报告虚增营业收入2032.40万元，占当期营业收入2.73%；虚增利润总额286.45万元，占当期利润总额37.65%。
 
-单4月，大湾区内地9市进出口9118.6亿元，增长15.3%，今年以来保持连续4个月两位数增长。
+以上事项，导致南新制药共计虚增2023年度营业收入6468.28万元，占当期营业收入8.69%；虚增利润总额1195.22万元，占当期利润总额157.11%。
 
-二是民营企业是增长“主引擎”。
+故中国证监会湖南证监局拟决定：对南新制药及其相关责任人员给予警告，并各处以罚款。
 
-前4个月，大湾区内地9市民营企业进出口2.26万亿元，增长24.2%，占67.1%，对同期大湾区内地9市整体进出口增长的贡献度达84%。
+之前，2025年10月1日，南新制药发布《关于收到中国证券监督管理委员会立案告知书的公告》。
 
-外商投资企业延续增长趋势，进出口1万亿元，增长12.4%，占29.8%。
+根据《民法典》、《证券法》及最高人民法院的关于虚假陈述民事赔偿司法解释的规定，上市公司、控股股东、实际控制人、董监高人员及其中介机构等因虚假陈述等的证券欺诈行为导致证券投资者权益受损的，应承担民事赔偿责任，赔偿范围包括：投资差额、佣金、印花税等。
 
-三是多元化市场拓展成效显著。
+权益受损的证券投资者可以向有管辖权的法院提起民事赔偿诉讼。
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 17:53 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 17:40 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 17:57 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 17:52 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 17:57 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 17:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 17:46 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 17:55 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 17:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 17:43 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 17:48 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 17:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 17:46 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 17:36 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 18:03 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 17:46 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 17:38 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 17:39 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 17:54 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 18:05 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 17:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 17:59 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 17:52 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 17:43 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 17:47 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 18:05 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:40 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/48413232552.shtml)
-- 2026-06-29 17:46 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/8579178.shtml)
-- 2026-06-29 17:53 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/267612665995.shtml)
-- 2026-06-29 17:47 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/87799817958.shtml)
-- 2026-06-29 17:46 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.minike.top/Article/details/9281560.shtml)
-- 2026-06-29 17:46 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.kurohicncr.top/Article/details/70015528.shtml)
-- 2026-06-29 17:32 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/21279712.shtml)
-- 2026-06-29 17:39 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.kurohicncr.top/Article/details/3285228170.shtml)
-- 2026-06-29 17:38 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/231959520.shtml)
-- 2026-06-29 17:56 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/443629090997.shtml)
-- 2026-06-29 17:51 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/534688.shtml)
-- 2026-06-29 17:39 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/76281906.shtml)
-- 2026-06-29 17:35 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/92604206.shtml)
-- 2026-06-29 17:37 - [T1 KC](https://www.blog.minike.top/Article/details/703901.shtml)
-- 2026-06-29 17:57 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/03112085132.shtml)
+- 2026-06-29 18:03 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/334023584.shtml)
+- 2026-06-29 18:03 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/8880687484.shtml)
+- 2026-06-29 17:39 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/14461475.shtml)
+- 2026-06-29 17:42 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/709869359425.shtml)
+- 2026-06-29 18:05 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.kurohicncr.top/Article/details/34205151.shtml)
+- 2026-06-29 18:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/954968.shtml)
+- 2026-06-29 17:36 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/95473915011.shtml)
+- 2026-06-29 17:54 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/7626280532.shtml)
+- 2026-06-29 18:01 - [官方通报一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/66322783827.shtml)
+- 2026-06-29 17:53 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.minike.top/Article/details/0720387.shtml)
+- 2026-06-29 17:40 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/828244796296.shtml)
+- 2026-06-29 18:03 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/135722392107.shtml)
+- 2026-06-29 17:42 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/2862941428.shtml)
+- 2026-06-29 17:48 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/52401415540.shtml)
+- 2026-06-29 17:52 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/484966.shtml)

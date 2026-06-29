@@ -1,58 +1,58 @@
-# 辽宁大连开启2026年“邮轮季”
+# 苹果：磨底阶段
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 14:01 来源：中国新闻网 5月12日，今年首艘以大连港为母港的大型邮轮“理想”号靠泊大连港国际邮轮码头，标志着大连2026年邮轮季正式拉开序幕。 作为首艘以大连为母港的10万吨级以上大型邮轮，“理想”号船长272米、船宽35米，设17层甲板，满载可接待旅客3470余名。该邮轮开辟了“大连—仁川—济州”邮轮航线，填补了大连始发邮轮直航仁川的空
+来源：NB的农产品 观点小结 核心观点：震荡新季苹果来看，苹果主产区已经陆续进入套袋后期。天气整体平稳，未出现大范围持续性的倒春寒、冰雹等恶劣天气，盘面缺乏向上驱动，月差呈现C结构，01合约对应节日季节性消费旺季。有少数极早熟品种率先采摘上市，但早采果口感一般、体量极小，无法对冷库苹果形成实质性竞争。冷库苹果方面，6月中旬已正式步入清库收尾阶段，西部冷库余货所剩无极，但品质落差
 
 ## 正文
 
-发布时间：2026年05月13日 14:01 来源：中国新闻网 5月12日，今年首艘以大连港为母港的大型邮轮“理想”号靠泊大连港国际邮轮码头，标志着大连2026年邮轮季正式拉开序幕。
+来源：NB的农产品 观点小结 核心观点：震荡新季苹果来看，苹果主产区已经陆续进入套袋后期。
 
-作为首艘以大连为母港的10万吨级以上大型邮轮，“理想”号船长272米、船宽35米，设17层甲板，满载可接待旅客3470余名。
+天气整体平稳，未出现大范围持续性的倒春寒、冰雹等恶劣天气，盘面缺乏向上驱动，月差呈现C结构，01合约对应节日季节性消费旺季。
 
-该邮轮开辟了“大连—仁川—济州”邮轮航线，填补了大连始发邮轮直航仁川的空白。
+有少数极早熟品种率先采摘上市，但早采果口感一般、体量极小，无法对冷库苹果形成实质性竞争。
 
-当日上午，约3300名旅客完成出境通关并顺利登上邮轮。
+冷库苹果方面，6月中旬已正式步入清库收尾阶段，西部冷库余货所剩无极，但品质落差大导致市场报价混乱。
 
-随后，该批游客将搭乘“理想”号邮轮驶往韩国仁川，开启5天4夜的“文化+旅行”海上体验。
+本周苹果走货量较上周略有减缓，应季水果品类丰富、价格亲民，分流了不少消费需求，挤占苹果销售空间。
 
-针对此次邮轮客流密度大、管控标准高，对口岸保障是一次全方位考验。
+价格表现：中性 栖霞一二级80#纸袋3.2元/斤，洛川半商品70#3.75元/斤。
 
-大连边检站现场全面启用智慧查验系统，推行潮汐式通道管控，动态增减查验通道，运用“大指挥、大后台、大数据”模式实现关口前置。
+上周五AP主力收于7698元/吨，主力基差-1198元/吨。
 
-随着北方邮轮旅游市场持续升温，在各项政策利好带动下，大连港的邮轮到访数量持续增长。
+供应：中性偏空 2025年我国苹果产量3431.32万吨（同比-6.0%），种植面积1744.84千公顷。
 
 ## 相关推荐
 
-- 2026-06-29 17:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 17:57 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 17:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 17:58 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 17:34 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 17:42 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 17:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 17:44 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 17:54 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 17:43 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 17:42 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 17:42 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 17:42 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 17:56 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 18:03 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 17:36 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 17:41 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 18:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 17:48 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 18:00 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 17:56 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 17:55 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 17:36 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 17:36 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:33 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/8841982.shtml)
-- 2026-06-29 17:43 - [金刚川](http://www.share.minike.top/Article/details/990882.shtml)
-- 2026-06-29 17:31 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/968506.shtml)
-- 2026-06-29 17:31 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/903148664461.shtml)
-- 2026-06-29 17:49 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/9629797.shtml)
-- 2026-06-29 17:37 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/35988729286.shtml)
-- 2026-06-29 17:36 - [东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/4791608361.shtml)
-- 2026-06-29 17:56 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/0045514029.shtml)
-- 2026-06-29 17:41 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/22280455.shtml)
-- 2026-06-29 17:46 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/59698.shtml)
-- 2026-06-29 17:55 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/029410231.shtml)
-- 2026-06-29 17:53 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/02759608667.shtml)
-- 2026-06-29 17:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/28299246.shtml)
-- 2026-06-29 17:45 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/06390.shtml)
-- 2026-06-29 17:41 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/5283295.shtml)
+- 2026-06-29 18:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/8748224.shtml)
+- 2026-06-29 17:59 - [7款高价创新药有望降价](https://www.blog.kurohicncr.top/Article/details/7267326064.shtml)
+- 2026-06-29 18:02 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/23189.shtml)
+- 2026-06-29 17:55 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/043969624.shtml)
+- 2026-06-29 18:01 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/73823558188.shtml)
+- 2026-06-29 17:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/9353022208.shtml)
+- 2026-06-29 17:50 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/4636131720.shtml)
+- 2026-06-29 17:50 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/4927954708.shtml)
+- 2026-06-29 18:01 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/2445536456.shtml)
+- 2026-06-29 17:48 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/4945177.shtml)
+- 2026-06-29 17:53 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/573848596.shtml)
+- 2026-06-29 17:38 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/055581623415.shtml)
+- 2026-06-29 17:50 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/01441.shtml)
+- 2026-06-29 17:36 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/749252269.shtml)
+- 2026-06-29 17:39 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/258648298902.shtml)

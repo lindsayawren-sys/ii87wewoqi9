@@ -1,60 +1,60 @@
-# Coherus目标2026年LOQTORZI季度销售额达1500万美元，管线数据年中密集读出
+# 科学守护世界最高峰：珠峰站助攀“科技高峰”创造“精神高峰”
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-Coherus Oncology周二公布一季度财报，重申2026年核心产品LOQTORZI季度销售额目标为约1500万美元，同时预计年中将迎来多项关键管线数据读出，包括casdozokitug和tagmokitug的临床进展。 LOQTORZI：一季度销售环比回落，新启动患者创新高 财报显示，LOQTORZI第一季度净销售额为1180万美元，较去年第四季度的1240万美元有所回
+中新网西藏珠峰站6月15日电 (记者 孙自法)“在高原上工作，最稀缺的是氧气，最宝贵的是精神”“缺氧不缺信仰”“这里开展观测研究，不仅是科研发现，更在于科学守护”…… 在中国科学院青藏高原研究所西藏珠穆朗玛特殊大气过程与环境变化国家野外科学观测研究站(珠峰站)，这是科研人员最常说的几句话。 珠峰站位于西藏自治区日喀则市定日县扎西宗乡附近绒布河畔，海拔4276米，距离珠峰登山大本
 
 ## 正文
 
-Coherus Oncology周二公布一季度财报，重申2026年核心产品LOQTORZI季度销售额目标为约1500万美元，同时预计年中将迎来多项关键管线数据读出，包括casdozokitug和tagmokitug的临床进展。
+中新网西藏珠峰站6月15日电 (记者 孙自法)“在高原上工作，最稀缺的是氧气，最宝贵的是精神”“缺氧不缺信仰”“这里开展观测研究，不仅是科研发现，更在于科学守护”…… 在中国科学院青藏高原研究所西藏珠穆朗玛特殊大气过程与环境变化国家野外科学观测研究站(珠峰站)，这是科研人员最常说的几句话。
 
-LOQTORZI：一季度销售环比回落，新启动患者创新高 财报显示，LOQTORZI第一季度净销售额为1180万美元，较去年第四季度的1240万美元有所回落，但同比增长61%。
+珠峰站位于西藏自治区日喀则市定日县扎西宗乡附近绒布河畔，海拔4276米，距离珠峰登山大本营约30公里，是喜马拉雅山中段、珠峰北坡唯一的长期综合观测研究站。
 
-公司首席商务官Sameer Goregaoker将环比下滑归因于正常的一季度季节性和恶劣天气影响。
+历经20多年持续建设，珠峰站现已发展成为中国在喜马拉雅地区最重要的综合观测与科学研究平台之一。
 
-尽管销售额环比回落，LOQTORZI新启动患者数仍创下历史新高，订购账户宽度和深度均增长21%。
+珠峰地区自然环境极端恶劣，低氧、低温、强风、高辐射是标配。
 
-公司重申全年季度需求增长预期为10%至15%，2026年目标季度销售额约为1500万美元，2027年目标提升至3000万至3500万美元，2028年峰值季度销售额预计达约4400万美元。
+记者近日探访珠峰站，对此就有切身感受：步伐快了一点，都要喘上几喘；盛夏时节，穿着抓绒冲锋衣还有些凉意；午后强风来袭，脸被吹得生疼；到站上刚半天时间，皮肤颜色肉眼可见地变深。
 
-管线进展：casdozokitug与tagmokitug年中数据读出在即 公司管线进展备受市场关注。
+不过，这一切对于珠峰站的科研工作人员来说，早已司空见惯。
 
-Casdozokitug联合toripalimab和贝伐珠单抗一线治疗不可切除肝细胞癌的随机二期试验已完成患者入组，预计于2026年年中首次数据读出。
+他们更关心的是科研观测仪器设备运行情况、数据采集传输效果和如何科学守护好世界最高峰。
 
-此前公布的数据显示，在标准治疗基础上加入casdozokitug后，总缓解率达38%，完全缓解率达17%。
+在珠峰站创站站长、现任学术站长马耀明研究员看来，珠峰站不仅是一座科研观测站，也是一种精神象征，代表着中国科学家攀登“科技高峰”、创造“精神高峰”的追求，也体现出中国科学家在极端环境中坚持自主创新、长期观测和服务国家需求的科学品格。
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 17:43 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 17:33 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 17:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 17:54 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 17:44 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 17:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 17:33 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 17:49 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 17:49 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 17:41 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 17:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 17:48 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 17:37 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 17:44 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 17:37 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 17:41 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 17:46 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 17:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 17:53 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 17:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 17:36 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 17:57 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 17:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 18:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 18:03 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 17:59 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 17:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:00 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/364544737199.shtml)
-- 2026-06-29 17:44 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/55428.shtml)
-- 2026-06-29 17:46 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/27491712663.shtml)
-- 2026-06-29 17:34 - [金刚川](https://www.blog.minike.top/Article/details/48984.shtml)
-- 2026-06-29 17:47 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/5407095.shtml)
-- 2026-06-29 17:48 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/157694.shtml)
-- 2026-06-29 17:36 - [看大国重器“云端穿针引线”](https://www.blog.minike.top/Article/details/3004028.shtml)
-- 2026-06-29 17:59 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/581037.shtml)
-- 2026-06-29 17:47 - [NBA交易](http://www.share.minike.top/Article/details/88767942.shtml)
-- 2026-06-29 17:33 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/63494765107.shtml)
-- 2026-06-29 17:51 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/688499.shtml)
-- 2026-06-29 17:56 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/082972217.shtml)
-- 2026-06-29 17:42 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/59276590.shtml)
-- 2026-06-29 17:44 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/351358.shtml)
-- 2026-06-29 17:33 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/6842122.shtml)
+- 2026-06-29 17:57 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/5575891910.shtml)
+- 2026-06-29 18:02 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/4634260.shtml)
+- 2026-06-29 17:44 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/01658.shtml)
+- 2026-06-29 17:57 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/47418.shtml)
+- 2026-06-29 17:45 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/3118259544.shtml)
+- 2026-06-29 17:37 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/2618355.shtml)
+- 2026-06-29 17:57 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/86999589.shtml)
+- 2026-06-29 17:48 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/29069365643.shtml)
+- 2026-06-29 18:01 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/34825670.shtml)
+- 2026-06-29 17:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/2132521.shtml)
+- 2026-06-29 17:49 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/7019773183.shtml)
+- 2026-06-29 17:46 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/417583687624.shtml)
+- 2026-06-29 17:55 - [起风了](https://www.blog.kurohicncr.top/Article/details/401555678985.shtml)
+- 2026-06-29 18:04 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/425634526306.shtml)
+- 2026-06-29 18:03 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/537556709.shtml)

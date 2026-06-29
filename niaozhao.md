@@ -1,59 +1,56 @@
-# 东西问丨达巍：今年有机会为“调适”中美关系构建新基础
+# 月底截止，事关收入！个税汇算抓紧办理→
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 题：今年有机会为“调适”中美关系构建新基础 ——专访清华大学战略与安全研究中心主任达巍 中新社记者 王梦瑶 美国总统特朗普将于5月13日至15日对中国进行国事访问。对于当前动荡的国际秩序而言，此次中美两个大国间的元首会晤意义非凡。 近日，清华大学战略与安全研究中心主任达巍就中美关系、中东局势等国际热点议题接受中新社“东西问”专访。他认为，当前中美关系核心
+原标题：月底截止，事关收入！个税汇算抓紧办理→ 2025年度综合所得个税汇算将于6月30日结束。国家税务总局日前发布的最新数据显示，截至5月底，已有超过1.6亿人完成汇算申报，超过1.1亿人办理了退税，退税规模较去年同比增加超过17%。 你办理退税了吗？在办理过程中，哪些专项附加扣除项目容易出错？被陌生人冒用信息又该怎么办？ 这两类人群需要依法办理个税汇算 眼下个税汇算办理即将
 
 ## 正文
 
-中新社北京5月12日电 题：今年有机会为“调适”中美关系构建新基础 ——专访清华大学战略与安全研究中心主任达巍 中新社记者 王梦瑶 美国总统特朗普将于5月13日至15日对中国进行国事访问。
+原标题：月底截止，事关收入！
 
-对于当前动荡的国际秩序而言，此次中美两个大国间的元首会晤意义非凡。
+个税汇算抓紧办理→ 2025年度综合所得个税汇算将于6月30日结束。
 
-近日，清华大学战略与安全研究中心主任达巍就中美关系、中东局势等国际热点议题接受中新社“东西问”专访。
+国家税务总局日前发布的最新数据显示，截至5月底，已有超过1.6亿人完成汇算申报，超过1.1亿人办理了退税，退税规模较去年同比增加超过17%。
 
-他认为，当前中美关系核心任务是“调适”，今年有很好的机会构建两国关系新基础；从当前国际局势来看，尽管冲突风险有所上升，但对世界来说，核威慑与经济相互依存仍是重要的和平“压舱石”；而中国发展的最大定力，始终源于自身。
+你办理退税了吗？
 
-现将访谈实录整理如下： 中新社记者：全球化智库近期将中美关系描述为“战略稳定”，您怎么看当前的中美关系？
+在办理过程中，哪些专项附加扣除项目容易出错？
 
-即将到来的中美元首会晤将对双边关系带来何种影响？
+被陌生人冒用信息又该怎么办？
 
-达巍：战略稳定这个概念有不同的含义。
+这两类人群需要依法办理个税汇算 眼下个税汇算办理即将截止，不过，对于不少人来说，还有一些不知如何填写的“难题”。
 
-在学术上，这个词是有固定意义的，这是指两个或多个核大国之间，各方都没有强烈动机首先使用核武器、发动战略打击，或通过扩军来获得决定性优势的一种安全状态。
+比如，有人会疑惑，“每个月单位都扣个人所得税，是不是就不用办个税汇算了？
 
 ## 相关推荐
 
-- 2026-06-29 17:36 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 17:56 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 17:50 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 17:31 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 17:35 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 17:38 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 17:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 17:44 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 17:40 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 17:40 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 17:44 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 17:58 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 17:52 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 17:44 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 17:46 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 17:51 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 18:00 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 18:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 17:41 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 17:47 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 17:57 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 17:59 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 17:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:36 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/0056134680.shtml)
-- 2026-06-29 17:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/719607869.shtml)
-- 2026-06-29 17:56 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/856180.shtml)
-- 2026-06-29 17:46 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/998100340749.shtml)
-- 2026-06-29 17:35 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/197285.shtml)
-- 2026-06-29 17:49 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/011041.shtml)
-- 2026-06-29 17:48 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/35554861143.shtml)
-- 2026-06-29 17:48 - [金牌调解](http://www.share.minike.top/Article/details/43539.shtml)
-- 2026-06-29 17:39 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/62063549372.shtml)
-- 2026-06-29 17:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/32548.shtml)
-- 2026-06-29 17:34 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/27402575.shtml)
-- 2026-06-29 17:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/675077626044.shtml)
-- 2026-06-29 17:39 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.kurohicncr.top/Article/details/3985267180.shtml)
-- 2026-06-29 17:43 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/616454559.shtml)
-- 2026-06-29 17:43 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/91503738.shtml)
+- 2026-06-29 17:40 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/0908917.shtml)
+- 2026-06-29 17:42 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/268791032.shtml)
+- 2026-06-29 17:48 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/62111418.shtml)
+- 2026-06-29 17:40 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/45543508.shtml)
+- 2026-06-29 17:55 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/518715684.shtml)
+- 2026-06-29 17:56 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/0452256.shtml)
+- 2026-06-29 17:49 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/73662015.shtml)
+- 2026-06-29 17:53 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/053767.shtml)
+- 2026-06-29 18:03 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/323344173.shtml)
+- 2026-06-29 18:05 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/171805.shtml)
+- 2026-06-29 17:37 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/31404093.shtml)
+- 2026-06-29 18:01 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/4406524573.shtml)
+- 2026-06-29 17:59 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/231248518305.shtml)
+- 2026-06-29 17:43 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/766422.shtml)
+- 2026-06-29 17:54 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/82647342343.shtml)

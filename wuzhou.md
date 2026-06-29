@@ -1,56 +1,57 @@
-# 美丽中国行丨我的家园，越来越美——美丽中国建设成效观察
+# 永辉首家“全健康场景调改店”开业 两天销售额超306万
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-新华社北京5月11日电 题：我的家园，越来越美——美丽中国建设成效观察 开栏的话： 建设美丽中国，是全面建设社会主义现代化国家的重要目标，更关系着亿万人民群众的获得感幸福感安全感。习近平总书记强调，我们必须以更高站位、更宽视野、更大力度来谋划和推进新征程生态环境保护工作，谱写新时代生态文明建设新篇章。 “十五五”开局之年，美丽中国建设提质扩面、有声有色。新华社即日起推出“美丽中
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日下午消息，永辉超市全国首家“全健康场景调改店”于6月13日在重庆生活广场开业。永辉超市官方披露，该店开业两天总销售额超306万元，较去年同期增长282%，累计客流超4万人次，同比增长269%，业绩表现超预期。 据介绍，该门店是永辉在胖东来模式基础上打造的全国首家“全健康场景调改店”，为第二阶段调改
 
 ## 正文
 
-新华社北京5月11日电 题：我的家园，越来越美——美丽中国建设成效观察 开栏的话： 建设美丽中国，是全面建设社会主义现代化国家的重要目标，更关系着亿万人民群众的获得感幸福感安全感。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-习近平总书记强调，我们必须以更高站位、更宽视野、更大力度来谋划和推进新征程生态环境保护工作，谱写新时代生态文明建设新篇章。
+6月15日下午消息，永辉超市全国首家“全健康场景调改店”于6月13日在重庆生活广场开业。
 
-“十五五”开局之年，美丽中国建设提质扩面、有声有色。
+永辉超市官方披露，该店开业两天总销售额超306万元，较去年同期增长282%，累计客流超4万人次，同比增长269%，业绩表现超预期。
 
-新华社即日起推出“美丽中国行”系列报道，展现各地践行习近平生态文明思想的生动实践，建设美丽家园取得的突出成效，反映人民群众实实在在的生态环境获得感，讲好中国的绿色发展故事。
+据介绍，该门店是永辉在胖东来模式基础上打造的全国首家“全健康场景调改店”，为第二阶段调改树立了差异化标杆。
 
-新华社记者 环境就是民生，青山就是美丽，蓝天也是幸福。
+同时，该门店也完成了外广场改造，以永辉为圆心的便民生活圈全面升级。
 
-习近平总书记指出，必须牢固树立和践行绿水青山就是金山银山的理念，站在人与自然和谐共生的高度谋划发展。
-
-立夏过后，芳菲正盛，草木葱茏。
-
-记者在采访调研中看到，近年来，各地努力建设望得见山、看得见水、记得住乡愁的美丽中国，让自然生态美景永驻人间。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 17:40 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 17:32 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 17:54 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 17:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 17:52 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 17:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 17:53 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 17:54 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 17:56 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 17:55 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 18:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 17:44 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 18:00 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 17:57 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 17:38 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 17:53 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 17:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 17:59 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 17:48 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 17:58 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 17:46 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 17:37 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 17:54 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 17:39 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 18:03 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/99033150.shtml)
-- 2026-06-29 17:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/368310504791.shtml)
-- 2026-06-29 17:44 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/0508880816.shtml)
-- 2026-06-29 17:58 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/0751080.shtml)
-- 2026-06-29 17:38 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/7773237476.shtml)
-- 2026-06-29 17:37 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/6812045.shtml)
-- 2026-06-29 17:33 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/849667.shtml)
-- 2026-06-29 17:58 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/155294.shtml)
-- 2026-06-29 17:31 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/56027733655.shtml)
-- 2026-06-29 17:43 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/32837770685.shtml)
-- 2026-06-29 17:39 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/10270430867.shtml)
-- 2026-06-29 17:50 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/3180113.shtml)
-- 2026-06-29 17:55 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/09162613853.shtml)
-- 2026-06-29 17:46 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/056711.shtml)
-- 2026-06-29 17:53 - [起风了](https://www.blog.minike.top/Article/details/824735947.shtml)
+- 2026-06-29 17:46 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/324347.shtml)
+- 2026-06-29 18:02 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/204699.shtml)
+- 2026-06-29 17:52 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/382982.shtml)
+- 2026-06-29 17:38 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/0964780413.shtml)
+- 2026-06-29 18:05 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/99527.shtml)
+- 2026-06-29 17:51 - [挪威王储妃长子2次强奸被判4年](https://www.share.kurohicncr.top/Article/details/68448877640.shtml)
+- 2026-06-29 18:00 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/36824.shtml)
+- 2026-06-29 17:46 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/8696320.shtml)
+- 2026-06-29 17:58 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/82615.shtml)
+- 2026-06-29 17:59 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/60622081.shtml)
+- 2026-06-29 17:51 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/31651194.shtml)
+- 2026-06-29 17:51 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/06772219.shtml)
+- 2026-06-29 17:51 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/8933577.shtml)
+- 2026-06-29 18:05 - [叠纸客服回应恋与深空新角色争议](https://www.share.minike.top/Article/details/1360080659.shtml)
+- 2026-06-29 17:43 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/355200412.shtml)

@@ -1,56 +1,59 @@
-# 你的AI求职“搭子”靠谱吗？
+# 政策赋能提质升级 沈阳综合保税区打造对外开放新高地
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-一项面向2040名2026届毕业生发起的问卷调查显示，超过86%的受访毕业生在今年春招中使用过生成式AI工具。越来越多毕业生用AI改简历、为面试“押题”甚至“反向背调”企业，提升效率的同时，简历同质化、过度依赖AI、“赛博小抄”等问题却也无法忽视。AI写简历、辅导面试到底靠不靠谱？哪些场景适合用AI提效，哪些必须自己把关？希望网友和专业人士以及智能软件的回答，能给大家提供一些思
+中新网沈阳6月16日电 (记者 韩宏)由沈阳海关、沈阳市商务局联合主办的沈阳综合保税区(加工贸易产业园)扩能提质政策宣讲会16日在沈阳举行。 会议现场解读《关于促进综合保税区扩能提质的若干措施》，同步推介沈阳综合保税区桃仙园区、辽中园区发展优势，并介绍TIR沈阳集结中心业务情况，为园区抢抓政策机遇、实现高质量发展明确方向、凝聚合力。 会上，沈阳海关自贸处处长朱姝对《关于促进综合
 
 ## 正文
 
-一项面向2040名2026届毕业生发起的问卷调查显示，超过86%的受访毕业生在今年春招中使用过生成式AI工具。
+中新网沈阳6月16日电 (记者 韩宏)由沈阳海关、沈阳市商务局联合主办的沈阳综合保税区(加工贸易产业园)扩能提质政策宣讲会16日在沈阳举行。
 
-越来越多毕业生用AI改简历、为面试“押题”甚至“反向背调”企业，提升效率的同时，简历同质化、过度依赖AI、“赛博小抄”等问题却也无法忽视。
+会议现场解读《关于促进综合保税区扩能提质的若干措施》，同步推介沈阳综合保税区桃仙园区、辽中园区发展优势，并介绍TIR沈阳集结中心业务情况，为园区抢抓政策机遇、实现高质量发展明确方向、凝聚合力。
 
-AI写简历、辅导面试到底靠不靠谱？
+会上，沈阳海关自贸处处长朱姝对《关于促进综合保税区扩能提质的若干措施》进行系统解读。
 
-哪些场景适合用AI提效，哪些必须自己把关？
+本次新政以四转四提升为核心框架，推出四大维度24项改革举措，推动综合保税区全方位转型升级。
 
-希望网友和专业人士以及智能软件的回答，能给大家提供一些思路和帮助。
+支持保税维修、保税检测、再制造、跨境电商等“保税+”新业态发展，推动产业形态向多元化、高端化转变。
 
-欢迎到《中国青年报》知乎账号或者邮箱(qnsxyjb@163.com)留下你的问题。
+朱姝说，本次新政支持优化重点商品管理、实施差异化合格评定等措施，推动功能作用向突出国家战略需求转变。
 
-知乎网友@唐安妮：春招竞争激烈，毕业生要准备简历、投递岗位、准备面试，时间紧、任务重，AI可以帮你梳理逻辑、修正语病，提高效率，节省时间。
+支持综合保税区和口岸联动发展、出口产品转内销等，推动发展模式向服务国内国际双循环转变。
 
-但问题的关键在于，很多同学把AI当成了“万能神器”，完全依赖AI，自己不思考、不核对，甚至连AI写的内容是什么意思都不清楚，这就本末倒置了。
+支持建设智慧监管体系、完善全生命周期管理等，推动监管方式向数智化、协同化转变。
 
 ## 相关推荐
 
-- 2026-06-29 17:45 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 17:35 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 17:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 17:37 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 17:37 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 17:38 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 17:48 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 17:53 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 17:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 17:52 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 17:43 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 17:43 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 17:45 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 17:50 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 17:44 - [恋与深空 731](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 17:37 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 17:41 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 17:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 17:40 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 17:50 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 17:51 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 17:45 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 17:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [两老人多次到一洗车店泼粪](https://www.share.minike.top/Article/details/499671314.shtml)
-- 2026-06-29 17:39 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/94339802919.shtml)
-- 2026-06-29 17:59 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/255503.shtml)
-- 2026-06-29 17:54 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/91905.shtml)
-- 2026-06-29 17:34 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/225748530.shtml)
-- 2026-06-29 17:59 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/501769.shtml)
-- 2026-06-29 17:40 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/670604.shtml)
-- 2026-06-29 17:37 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/51034415080.shtml)
-- 2026-06-29 17:44 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/408396895.shtml)
-- 2026-06-29 17:52 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/986357604.shtml)
-- 2026-06-29 17:42 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/2265624.shtml)
-- 2026-06-29 17:54 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/88944911508.shtml)
-- 2026-06-29 17:56 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/20996718.shtml)
-- 2026-06-29 17:59 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/7717836.shtml)
-- 2026-06-29 17:52 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/8224883.shtml)
+- 2026-06-29 17:37 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/9806024.shtml)
+- 2026-06-29 17:44 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/41988911048.shtml)
+- 2026-06-29 17:48 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.minike.top/Article/details/73373416.shtml)
+- 2026-06-29 18:02 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/18514.shtml)
+- 2026-06-29 17:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/538654948.shtml)
+- 2026-06-29 17:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/74105.shtml)
+- 2026-06-29 17:36 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/0777663.shtml)
+- 2026-06-29 17:59 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/9646330358.shtml)
+- 2026-06-29 17:40 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/16323533178.shtml)
+- 2026-06-29 17:37 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/863160746206.shtml)
+- 2026-06-29 18:05 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/6919374.shtml)
+- 2026-06-29 17:47 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/4644088.shtml)
+- 2026-06-29 17:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/218080793422.shtml)
+- 2026-06-29 17:51 - [斛珠夫人](https://www.blog.minike.top/Article/details/605125324440.shtml)
+- 2026-06-29 17:46 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/766868266715.shtml)

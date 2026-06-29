@@ -1,59 +1,48 @@
-# 大幅下挫！工业硅会重回跌势吗？
+# 倪宏宇获批出任葫芦岛银行董事、董事长
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-作者：曾翔/F0307622、Z0003110/ 一德期货分析师 要点速览版 基本面 需求端：多晶硅产量仍处相对低位，仅有机硅开工提升至偏高水平； 库存端：虽持续去化且近期加快，但整体库存仍处于高位； 核心压力：丰水季前夕西南产区复产预期明确，后续供应压力巨大。 关注点 丰水季西南产区提产情况，下游多晶硅大厂6月复产情况。 工业硅五一假期前后放量上行后，一举突破原震荡区间（80
+6月15日金融一线消息，辽宁金融监管局发布批复，核准倪宏宇葫芦岛银行董事、董事长任职资格。 公开信息显示，倪宏宇历任中行丹东分行行长、辽宁省分行公司金融部总经理、抚顺分行行、盘锦分行行长。2024年10月，倪宏宇任葫芦岛银行行长。责任编辑：秦艺
 
 ## 正文
 
-作者：曾翔/F0307622、Z0003110/ 一德期货分析师 要点速览版 基本面 需求端：多晶硅产量仍处相对低位，仅有机硅开工提升至偏高水平； 库存端：虽持续去化且近期加快，但整体库存仍处于高位； 核心压力：丰水季前夕西南产区复产预期明确，后续供应压力巨大。
+6月15日金融一线消息，辽宁金融监管局发布批复，核准倪宏宇葫芦岛银行董事、董事长任职资格。
 
-关注点 丰水季西南产区提产情况，下游多晶硅大厂6月复产情况。
+公开信息显示，倪宏宇历任中行丹东分行行长、辽宁省分行公司金融部总经理、抚顺分行行、盘锦分行行长。
 
-工业硅五一假期前后放量上行后，一举突破原震荡区间（8000-9000元/吨），最高逼近9300元/吨。
+2024年10月，倪宏宇任葫芦岛银行行长。
 
-资金增仓较多拉动行情，然而基本面并无明显变化。
-
-主要是大厂生产变化带来的供应担忧，其中一厂家节前出现安全事故（但目前了解暂未对生产造成实质影响）；以及大厂东部由于自备电厂检修而导致停炉，但持续时间不长，预计13台停产10天左右，产量减少8500吨左右。
-
-基本面分析 供应变化不大，下游需求有边际改善，其中多晶硅产量有所增加，但仍处在相对偏低水平。
-
-有机硅开工已提升至相对偏高水平。
-
-铝合金变化不大。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 17:58 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 17:52 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 17:43 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 17:33 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 17:44 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 17:47 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 17:51 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 17:55 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 17:39 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 17:34 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 17:55 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 17:59 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 17:32 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 17:57 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 17:37 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 17:42 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 17:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 17:58 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 17:46 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 17:44 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 17:36 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 17:53 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 17:38 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:41 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/1038381.shtml)
-- 2026-06-29 17:34 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/690618240209.shtml)
-- 2026-06-29 17:48 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/2650376544.shtml)
-- 2026-06-29 17:36 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/4301814596.shtml)
-- 2026-06-29 17:51 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.minike.top/Article/details/11547079.shtml)
-- 2026-06-29 17:58 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/38478.shtml)
-- 2026-06-29 17:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/47537742499.shtml)
-- 2026-06-29 17:32 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/6272505867.shtml)
-- 2026-06-29 17:36 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/33510.shtml)
-- 2026-06-29 17:38 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/0700652095.shtml)
-- 2026-06-29 17:37 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/1802060.shtml)
-- 2026-06-29 17:44 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/839202289.shtml)
-- 2026-06-29 17:46 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/0458478187.shtml)
-- 2026-06-29 17:39 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/859979776.shtml)
-- 2026-06-29 17:40 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.minike.top/Article/details/8399742442.shtml)
+- 2026-06-29 17:44 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/919256240477.shtml)
+- 2026-06-29 17:55 - [叠纸](http://www.share.kurohicncr.top/Article/details/031483.shtml)
+- 2026-06-29 17:38 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/31936.shtml)
+- 2026-06-29 17:39 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/67646.shtml)
+- 2026-06-29 18:02 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/662773799.shtml)
+- 2026-06-29 17:42 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/77042.shtml)
+- 2026-06-29 17:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/3616231.shtml)
+- 2026-06-29 17:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/2891189626.shtml)
+- 2026-06-29 17:55 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/5805131784.shtml)
+- 2026-06-29 18:05 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/141401679.shtml)
+- 2026-06-29 17:55 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/892741.shtml)
+- 2026-06-29 17:52 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/1864172.shtml)
+- 2026-06-29 17:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/97908.shtml)
+- 2026-06-29 18:01 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/652788871731.shtml)
+- 2026-06-29 17:46 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/247121.shtml)

@@ -1,59 +1,61 @@
-# 越秀商管黄钰麟：越秀商管已搭建两套数字化系统
+# 山西千年壁画，启示何在？
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-专题：2026观点商办暨资管大会 2026观点商办暨资管大会·现场快讯：5月12日，2026观点商办暨资管大会在北京召开，会议主题为“破局重构·长效共生”。 活动现场，越秀商管写字楼事业部总经理黄钰麟在演讲中表示，当前办公楼行业面临两大核心问题：一是存量项目如何从巅峰期回落中巩固竞争优势，二是新增项目如何保障资产收益、提升资本回报率。 针对存量项目，越秀商管主要通过数字化管理，
+中新社记者 杨杰英 在中国历史的长卷中，山西是一部记录民族融合的“地下史书”。从魏晋南北朝到宋辽金元，跨越千年，这片农耕与游牧文明交汇的土地，用墓葬壁画无声镌刻了多民族交往交流交融的鲜活历程。近期，中新社“东西问”就此专访山西大学美术学院教授王志俊。 现将访谈实录摘要如下： 中新社记者：在山西墓葬壁画中，哪一类图像最直观体现了多民族共存？如何挑战传统历史叙事？ 王志俊：最具代表
 
 ## 正文
 
-专题：2026观点商办暨资管大会 2026观点商办暨资管大会·现场快讯：5月12日，2026观点商办暨资管大会在北京召开，会议主题为“破局重构·长效共生”。
+中新社记者 杨杰英 在中国历史的长卷中，山西是一部记录民族融合的“地下史书”。
 
-活动现场，越秀商管写字楼事业部总经理黄钰麟在演讲中表示，当前办公楼行业面临两大核心问题：一是存量项目如何从巅峰期回落中巩固竞争优势，二是新增项目如何保障资产收益、提升资本回报率。
+从魏晋南北朝到宋辽金元，跨越千年，这片农耕与游牧文明交汇的土地，用墓葬壁画无声镌刻了多民族交往交流交融的鲜活历程。
 
-针对存量项目，越秀商管主要通过数字化管理，以及精准定位，来巩固存量项目优势。
+近期，中新社“东西问”就此专访山西大学美术学院教授王志俊。
 
-“越秀在全国布局多个项目，单一城市内多个项目易出现客户重叠、竞争加剧的情况，数字化管理成为提升运营效能的关键。
+现将访谈实录摘要如下： 中新社记者：在山西墓葬壁画中，哪一类图像最直观体现了多民族共存？
 
-”黄钰麟透露，越秀商管目前已搭建两套数字化系统，分别赋能招商管理与资产管理。
+如何挑战传统历史叙事？
 
-其中，招商管理系统聚焦商机全流程管控，记录客户来访、需求等信息，精准筛选优质客户。
+王志俊：最具代表性的场景，当属山西忻州九原岗北朝壁画墓的墓道壁画。
 
-同时，通过系统数据可精准分析项目问题，所有商业决策均以系统数据为支撑。
+西壁是气势恢宏的《狩猎图》：骑士策马奔腾，弯弓射猎，队伍中可见深目高鼻的中亚人形象与身着鲜卑服饰者共同驰骋，充满草原“尚武”精神。
 
-另外，在差异化特色方面，当前市场竞争加剧，各项目需明确自身定位、客户属性，深耕细分领域，将有限资源聚焦目标客户，形成差异化竞争力。
+然而，仅一壁之隔的北壁，却绘有一座结构严谨、斗拱清晰的汉式庑殿顶门楼，代表着中原高度的礼制建筑成就。
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 17:46 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 17:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 17:49 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 17:31 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 17:57 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 17:40 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 17:30 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 17:33 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 17:54 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 17:36 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 17:46 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 17:55 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 17:55 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 17:36 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 18:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 17:36 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 17:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 17:44 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 18:04 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 17:52 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 17:52 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 18:04 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 18:03 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 17:44 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 17:59 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 17:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 18:00 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [小鹏MONAL03预售定档7月2日](https://www.blog.kurohicncr.top/Article/details/54010087.shtml)
-- 2026-06-29 17:36 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/2651903.shtml)
-- 2026-06-29 17:53 - [2026年，如果你有100万，你会怎么投资？](http://www.share.kurohicncr.top/Article/details/00448192.shtml)
-- 2026-06-29 17:55 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/87649.shtml)
-- 2026-06-29 17:32 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/507774074654.shtml)
-- 2026-06-29 17:35 - [博主：黄金和原油回落不等于风险消失](http://www.share.minike.top/Article/details/74775385.shtml)
-- 2026-06-29 17:35 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/2509911087.shtml)
-- 2026-06-29 17:34 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/358265.shtml)
-- 2026-06-29 17:59 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/09428.shtml)
-- 2026-06-29 17:47 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/458610731.shtml)
-- 2026-06-29 17:35 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/9684302.shtml)
-- 2026-06-29 17:30 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/14342123900.shtml)
-- 2026-06-29 17:56 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/25658614.shtml)
-- 2026-06-29 17:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/46206946.shtml)
-- 2026-06-29 17:40 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/54205.shtml)
+- 2026-06-29 17:49 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/5722295907.shtml)
+- 2026-06-29 17:51 - [机器人学校开学了](http://www.share.minike.top/Article/details/180707215552.shtml)
+- 2026-06-29 17:47 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/730320531.shtml)
+- 2026-06-29 17:39 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/633672.shtml)
+- 2026-06-29 17:57 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.kurohicncr.top/Article/details/8989238189.shtml)
+- 2026-06-29 17:40 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/50079133820.shtml)
+- 2026-06-29 18:05 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/82797.shtml)
+- 2026-06-29 18:01 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/960526.shtml)
+- 2026-06-29 18:00 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/208060058020.shtml)
+- 2026-06-29 18:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/58725283.shtml)
+- 2026-06-29 17:49 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/292028105955.shtml)
+- 2026-06-29 17:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/06528.shtml)
+- 2026-06-29 17:56 - [徐昕暂不参加NBA夏季联赛](http://www.blog.minike.top/Article/details/9654076093.shtml)
+- 2026-06-29 17:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/68686.shtml)
+- 2026-06-29 17:47 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/5228766649.shtml)

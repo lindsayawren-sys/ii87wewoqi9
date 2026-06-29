@@ -1,60 +1,59 @@
-# Anthropic警示：多家平台无权交易其股票
+# 美国盟友借七国集团峰会，重新将特朗普的视线拉回乌克兰问题
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-眼下各类投资者都争相抢购各行各业人工智能企业的股份，Anthropic本周在官网发布警示：一大批私募及二级市场投资平台号称可交易该公司股份，但实际上均未获得官方授权。 Anthropic点名列出以下无权经手其股份买卖的平台：Open Doors Partners、Unicorns Exchange、Pachamama Capital、Lionheart Ventures、Hii
+过去四个月，特朗普总统的外交重心一直放在美伊战事上，但本次七国集团峰会迫使他不得不重新将注意力转回乌克兰冲突。 本届年度峰会由法国总统马克龙主办，他将乌克兰议题置于科技、全球经济等议题之前，列为优先讨论事项。马克龙邀请乌克兰总统泽连斯基作为特邀嘉宾参会，让他当面向特朗普陈情，主张这场战争必须按照有利于基辅的条件结束。泽连斯基希望修复两国早已紧张的关系，并推动美国更深地介入乌克兰
 
 ## 正文
 
-眼下各类投资者都争相抢购各行各业人工智能企业的股份，Anthropic本周在官网发布警示：一大批私募及二级市场投资平台号称可交易该公司股份，但实际上均未获得官方授权。
+过去四个月，特朗普总统的外交重心一直放在美伊战事上，但本次七国集团峰会迫使他不得不重新将注意力转回乌克兰冲突。
 
-Anthropic点名列出以下无权经手其股份买卖的平台：Open Doors Partners、Unicorns Exchange、Pachamama Capital、Lionheart Ventures、Hiive（新发份额）、Forge Global（新发份额）、Sydecar、Upmarket。
+本届年度峰会由法国总统马克龙主办，他将乌克兰议题置于科技、全球经济等议题之前，列为优先讨论事项。
 
-公司官方支持页面写道：“由上述机构发起的任何Anthropic股票、股权权益的出售或转让均属无效，公司股东名册将不予认可、不予登记。
+马克龙邀请乌克兰总统泽连斯基作为特邀嘉宾参会，让他当面向特朗普陈情，主张这场战争必须按照有利于基辅的条件结束。
 
-” Forge Global称自己属于被错误列入名单。
+泽连斯基希望修复两国早已紧张的关系，并推动美国更深地介入乌克兰对俄防御事务。
 
-该平台表示：“我们正与Anthropic沟通，将从警示名单中移除Forge。
+特朗普上任之初，曾将结束这场持续四年的冲突列为第二任期外交政策核心，还吹嘘自己能在24小时内促成和平协议。
 
-在未获得企业明确许可前，Forge从不协助任何非上市公司股份交易。
+但他一边拉拢俄罗斯总统普京、一边施压泽连斯基签署协议的策略最终落空，俄乌两国领导人都不愿做出让步。
 
-” Sydecar则表示自身仅承担行政服务角色。
+此后特朗普基本搁置相关外交斡旋，削减对乌军事援助，转而由欧洲主导，采购美制武器输送乌克兰。
 
-该公司在邮件声明中称：“本公司不买卖证券，也不招揽任何非上市公司交易。
+数月来，欧洲各国领导人，尤其是马克龙，一直试图说服特朗普：援助乌克兰符合美国利益，也能为他留下正面政治遗产。
 
 ## 相关推荐
 
-- 2026-06-29 17:53 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 17:46 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 17:33 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 17:58 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 17:39 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 17:35 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 17:30 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 17:53 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 17:49 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 17:32 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 17:50 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 17:59 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 17:36 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 17:32 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 17:37 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 17:40 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 17:50 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 17:47 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 17:55 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 17:52 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 17:47 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 17:36 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 17:57 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 17:42 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 17:36 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 17:49 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 17:49 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/041928.shtml)
-- 2026-06-29 17:46 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/485366995.shtml)
-- 2026-06-29 17:47 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/570975.shtml)
-- 2026-06-29 17:31 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/971276474060.shtml)
-- 2026-06-29 17:37 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/475804979.shtml)
-- 2026-06-29 17:30 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/463859.shtml)
-- 2026-06-29 17:38 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/175837.shtml)
-- 2026-06-29 17:55 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/187295456998.shtml)
-- 2026-06-29 17:53 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/9062616.shtml)
-- 2026-06-29 17:35 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/420692.shtml)
-- 2026-06-29 17:50 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/70607611268.shtml)
-- 2026-06-29 17:59 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/8542390981.shtml)
-- 2026-06-29 17:44 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/82750.shtml)
-- 2026-06-29 17:49 - [斛珠夫人](https://www.share.minike.top/Article/details/058927143.shtml)
-- 2026-06-29 17:42 - [叠纸](http://www.share.kurohicncr.top/Article/details/90460740.shtml)
+- 2026-06-29 17:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/32797605619.shtml)
+- 2026-06-29 17:53 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/17442785.shtml)
+- 2026-06-29 17:49 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/40026.shtml)
+- 2026-06-29 17:56 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/03885.shtml)
+- 2026-06-29 17:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/26779396215.shtml)
+- 2026-06-29 17:37 - [范志毅看好日本淘汰巴西](https://www.share.kurohicncr.top/Article/details/10725237.shtml)
+- 2026-06-29 18:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/4892814931.shtml)
+- 2026-06-29 17:50 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/418291.shtml)
+- 2026-06-29 17:43 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/514369.shtml)
+- 2026-06-29 17:52 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/616285907885.shtml)
+- 2026-06-29 18:00 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/95801.shtml)
+- 2026-06-29 18:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/58400151.shtml)
+- 2026-06-29 18:05 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/96246.shtml)
+- 2026-06-29 18:05 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/3293974989.shtml)
+- 2026-06-29 17:51 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/167678333032.shtml)

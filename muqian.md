@@ -1,56 +1,52 @@
-# “入境游2.0时代”：外国游客有了新偏好与新需求
+# 瑞士外交部确认美伊框架协议签署地点
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-5月10日，在一条关于中国旅行的短视频里，TikTok旅行博主Christian Grossi没有把镜头只对准传统景点，而是记录了自己在桂林一家乡村民宿的体验：山水之间，一杯出人意料的咖啡，成为他理解中国旅行的新入口。这条视频发布一天内就获得了接近2万次点赞。类似内容正在海外社交媒体上不断出现——越来越多外国游客镜头里的中国，不再只是长城、故宫、外滩等传统地标，而是高铁站里的跨
+中新网6月17日电 据瑞士广播电视公司17日报道，瑞士外交部证实，美国和伊朗的框架协议将于19日在瑞士中部卢塞恩附近的比尔根山签署。据报道，签署地是比尔根山的一家豪华度假村。 报道还援引瑞士外交部说法称，会谈地点是由巴基斯坦、卡塔尔、美国、伊朗共同提议的。瑞士正在为会谈提供便利，并为此创造外交条件。 美国总统特朗普14日宣布与伊朗达成停战谅解备忘录，正式签字仪式将于19日在瑞士
 
 ## 正文
 
-5月10日，在一条关于中国旅行的短视频里，TikTok旅行博主Christian Grossi没有把镜头只对准传统景点，而是记录了自己在桂林一家乡村民宿的体验：山水之间，一杯出人意料的咖啡，成为他理解中国旅行的新入口。
+中新网6月17日电 据瑞士广播电视公司17日报道，瑞士外交部证实，美国和伊朗的框架协议将于19日在瑞士中部卢塞恩附近的比尔根山签署。
 
-这条视频发布一天内就获得了接近2万次点赞。
+据报道，签署地是比尔根山的一家豪华度假村。
 
-类似内容正在海外社交媒体上不断出现——越来越多外国游客镜头里的中国，不再只是长城、故宫、外滩等传统地标，而是高铁站里的跨城出行、街边小店的扫码点餐、夜市里的烟火气、县城民宿里的生活感，甚至是一杯奶茶、一顿火锅、一次移动支付。
+报道还援引瑞士外交部说法称，会谈地点是由巴基斯坦、卡塔尔、美国、伊朗共同提议的。
 
-这种变化折射出入境游的新趋势：外国游客来华的兴趣，正在从“我想看看中国是什么样”，转向“我想像当地人一样体验中国”。
+瑞士正在为会谈提供便利，并为此创造外交条件。
 
-刚刚过去的“五一”假期，则为这种趋势提供了一个观察窗口。
-
-国家移民管理局、文化和旅游部5月6日发布的数据显示，假期5天内，外国人出入境人次达126万，同比增长12.5%，其中免签入境人数同比增长14.7%。
-
-热度背后，更值得关注的是游客需求的升级。
-
-随着国际游客对中国旅行的关注持续升温，社交媒体不断放大真实体验，中国正从一个曾被认为距离遥远、理解门槛较高的目的地，转变为一个更便利、更具未来感，也更适合深度体验的旅行选择。
+美国总统特朗普14日宣布与伊朗达成停战谅解备忘录，正式签字仪式将于19日在瑞士举行。
 
 ## 相关推荐
 
-- 2026-06-29 17:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 17:51 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 17:42 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 17:32 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 17:36 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 17:41 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 17:38 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 17:49 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 17:56 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 17:32 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 17:54 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 17:36 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 17:45 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 17:52 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 17:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 17:40 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 17:37 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 17:40 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 17:43 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 17:50 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 17:58 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 18:04 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:36 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/14181049.shtml)
-- 2026-06-29 17:30 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/022500097.shtml)
-- 2026-06-29 17:43 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/46903618.shtml)
-- 2026-06-29 17:31 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/37405213030.shtml)
-- 2026-06-29 17:48 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/85801612605.shtml)
-- 2026-06-29 17:58 - [T1 KC](http://www.share.kurohicncr.top/Article/details/6673793917.shtml)
-- 2026-06-29 17:46 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/1295492.shtml)
-- 2026-06-29 17:30 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/1675596731.shtml)
-- 2026-06-29 17:50 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/123357.shtml)
-- 2026-06-29 17:49 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/153424151519.shtml)
-- 2026-06-29 17:47 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/314081269416.shtml)
-- 2026-06-29 17:33 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/3126529.shtml)
-- 2026-06-29 17:34 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/7557020.shtml)
-- 2026-06-29 17:46 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/700925712657.shtml)
-- 2026-06-29 17:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/746859934.shtml)
+- 2026-06-29 17:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/124720821669.shtml)
+- 2026-06-29 17:50 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/571635018389.shtml)
+- 2026-06-29 18:03 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/562582802.shtml)
+- 2026-06-29 17:42 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/3695755.shtml)
+- 2026-06-29 17:37 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/21799431.shtml)
+- 2026-06-29 17:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/063007649210.shtml)
+- 2026-06-29 18:04 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/589110192.shtml)
+- 2026-06-29 17:42 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/658447.shtml)
+- 2026-06-29 17:53 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/36942794722.shtml)
+- 2026-06-29 17:45 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/929986.shtml)
+- 2026-06-29 17:44 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/7681598861.shtml)
+- 2026-06-29 17:59 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/59254.shtml)
+- 2026-06-29 17:53 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/329469465043.shtml)
+- 2026-06-29 17:48 - [博主：AI泡沫必须破灭](https://www.blog.minike.top/Article/details/245157850551.shtml)
+- 2026-06-29 17:51 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/856569074232.shtml)

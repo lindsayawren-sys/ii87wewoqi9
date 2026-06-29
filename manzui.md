@@ -1,56 +1,59 @@
-# 阿联酋穆巴达拉公司投资3.25亿美元入股英国Hornsea 3海上风电项目
+# 计划上市前夕，OpenAI去年支出达340亿美元
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-总部位于阿布扎比的国有主权投资者穆巴达拉投资公司已投资3.25亿美元，与Apollo基金牵头的财团共同入股丹麦海上风电公司沃旭能源在英国开发的Hornsea 3海上风电项目。 位于诺福克海岸附近的Hornsea 3项目预计将于2028年投运，届时将成为全球最大的单体海上风电场。 该项目由丹麦海上风电公司沃旭能源开发，预计装机容量为2.9吉瓦，足以为超过300万户英国家庭供电。
+ChatGPT开发商OpenAI去年全年支出达340亿美元。为抢占高速增长的人工智能市场主导权，公司在筹备上市前夕持续大手笔投入。 知情人士证实的经审计财务数据显示，2025年该公司研发投入约190亿美元，销售与营销支出近60亿美元，此外还有各类其他运营成本。 相较于前一年，OpenAI开支大幅飙升，这份数据罕见地揭开了人工智能行业繁荣背后的财务真相，尤其是OpenAI在大模型
 
 ## 正文
 
-总部位于阿布扎比的国有主权投资者穆巴达拉投资公司已投资3.25亿美元，与Apollo基金牵头的财团共同入股丹麦海上风电公司沃旭能源在英国开发的Hornsea 3海上风电项目。
+ChatGPT开发商OpenAI去年全年支出达340亿美元。
 
-位于诺福克海岸附近的Hornsea 3项目预计将于2028年投运，届时将成为全球最大的单体海上风电场。
+为抢占高速增长的人工智能市场主导权，公司在筹备上市前夕持续大手笔投入。
 
-该项目由丹麦海上风电公司沃旭能源开发，预计装机容量为2.9吉瓦，足以为超过300万户英国家庭供电。
+知情人士证实的经审计财务数据显示，2025年该公司研发投入约190亿美元，销售与营销支出近60亿美元，此外还有各类其他运营成本。
 
-穆巴达拉表示，此项投资反映了由电气化和数据中心基础设施扩张所驱动的长期电力需求增长。
+相较于前一年，OpenAI开支大幅飙升，这份数据罕见地揭开了人工智能行业繁荣背后的财务真相，尤其是OpenAI在大模型研发、数据中心建设、顶尖科研人才招聘上的巨额投入。
 
-该公司指出，此项投资是穆巴达拉战略的一部分，即与经验丰富的合作伙伴共同投资于与能源转型相关的基础设施资产。
+独立记者埃德・齐特龙率先向媒体披露了上述财务数据，数据显示OpenAI营收规模已跟不上成本上涨的速度。
 
-作为回顾，沃旭能源于2025年底将其Hornsea 3海上风电项目50%的股权剥离给Apollo管理的基金，该交易估值约为61亿美元。
+公司2025年全年营收约130亿美元；截至2025年末，月营收达到20亿美元，对比2024年末季度10亿美元的收入实现翻倍，使其成为史上增长速度最快的企业之一。
 
-该交易支持了沃旭能源更广泛的融资计划和合作伙伴战略，旨在加强其资本结构，同时保持对大规模海上风电开发的运营控制。
+但巨额投入也导致OpenAI归属净亏损同比扩大近7倍，从2024年的50亿美元飙升至2025年约390亿美元。
 
-根据协议，Apollo收购了该项目50%的股权，并承诺承担工程、采购和建设合同项下半数的付款，以及海上输电资产的相关出资。
+知情人士表示，亏损大幅增长绝大部分源于一笔非现金会计调整，和公司此前特殊的股权架构相关，并非日常主营业务亏损。
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 17:55 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 17:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 17:55 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 17:36 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 17:55 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 17:34 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 17:37 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 17:36 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 17:47 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 17:36 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 17:48 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 17:52 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 17:51 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 17:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 17:59 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 18:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 17:49 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 17:56 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 17:38 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 17:51 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 17:45 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 18:01 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/681689.shtml)
-- 2026-06-29 17:39 - [谢依霖夸杨幂靠谱](https://www.blog.minike.top/Article/details/0945934.shtml)
-- 2026-06-29 17:37 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/38689750.shtml)
-- 2026-06-29 17:51 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/17943158.shtml)
-- 2026-06-29 17:59 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/2355806303.shtml)
-- 2026-06-29 17:39 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/3014379.shtml)
-- 2026-06-29 17:33 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/86822167.shtml)
-- 2026-06-29 17:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/826469015.shtml)
-- 2026-06-29 17:37 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/290097557591.shtml)
-- 2026-06-29 17:36 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/08538916828.shtml)
-- 2026-06-29 17:50 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/5002602.shtml)
-- 2026-06-29 17:32 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/579239540865.shtml)
-- 2026-06-29 17:31 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/789968019733.shtml)
-- 2026-06-29 17:30 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.kurohicncr.top/Article/details/141369.shtml)
-- 2026-06-29 17:48 - [挪威王储妃长子两次强奸获刑](http://www.blog.minike.top/Article/details/1611395.shtml)
+- 2026-06-29 17:36 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/3019875.shtml)
+- 2026-06-29 17:50 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/49293712978.shtml)
+- 2026-06-29 17:54 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/85249.shtml)
+- 2026-06-29 17:47 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/1861821.shtml)
+- 2026-06-29 17:43 - [AG 宫斗](http://www.share.minike.top/Article/details/950845184.shtml)
+- 2026-06-29 17:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/049003.shtml)
+- 2026-06-29 17:44 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/578667697420.shtml)
+- 2026-06-29 17:39 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/91228640.shtml)
+- 2026-06-29 17:54 - [毒液2](https://www.blog.minike.top/Article/details/88754410981.shtml)
+- 2026-06-29 18:05 - [7款高价创新药有望降价](https://www.blog.minike.top/Article/details/524834.shtml)
+- 2026-06-29 17:55 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/72982058.shtml)
+- 2026-06-29 17:39 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/07652569.shtml)
+- 2026-06-29 17:54 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/6481693.shtml)
+- 2026-06-29 18:04 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/271978566.shtml)
+- 2026-06-29 17:50 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/409097.shtml)

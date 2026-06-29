@@ -1,61 +1,56 @@
-# 中外青年广西南宁联谊共促交流
+# 操盘必读：影响股市利好或利空消息_2026年6月16日_财经新闻
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新社南宁5月12日电(陈秋霞)“青春同心·侨见东盟——2026新时代南宁中外青年联谊活动”12日在广西南宁举行。新侨代表、侨企青年骨干、东盟国家在邕留学生代表等70余人欢聚一堂，共话友谊、共促交流。 活动现场，“破冰”游戏让中外青年迅速拉近距离。新侨代表分享创业与服务家乡的初心，非遗扎染、壮锦体验让大家沉浸式感受中国传统文化魅力。夜幕降临，文艺环节歌声悠扬、舞姿灵动，展现多元
+登录新浪财经APP 搜索【信披】查看更多考评等级 宏观新闻 1、今日出版的第12期《求是》杂志将发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《一体推进教育科技人才发展》。文章强调，教育、科技、人才是全面建设社会主义现代化国家的基础性、战略性支撑。建设教育强国、科技强国、人才强国具有内在一致性和相互支撑性。要增强系统观念，坚持教育优先发展、科技自立自强、人才引领驱动
 
 ## 正文
 
-中新社南宁5月12日电(陈秋霞)“青春同心·侨见东盟——2026新时代南宁中外青年联谊活动”12日在广西南宁举行。
+登录新浪财经APP 搜索【信披】查看更多考评等级 宏观新闻 1、今日出版的第12期《求是》杂志将发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《一体推进教育科技人才发展》。
 
-新侨代表、侨企青年骨干、东盟国家在邕留学生代表等70余人欢聚一堂，共话友谊、共促交流。
+文章强调，教育、科技、人才是全面建设社会主义现代化国家的基础性、战略性支撑。
 
-活动现场，“破冰”游戏让中外青年迅速拉近距离。
+建设教育强国、科技强国、人才强国具有内在一致性和相互支撑性。
 
-新侨代表分享创业与服务家乡的初心，非遗扎染、壮锦体验让大家沉浸式感受中国传统文化魅力。
+要增强系统观念，坚持教育优先发展、科技自立自强、人才引领驱动，统筹推进教育科技人才体制机制一体改革，实现科教兴国战略、人才强国战略、创新驱动发展战略有效联动，形成推动高质量发展的倍增效应。
 
-夜幕降临，文艺环节歌声悠扬、舞姿灵动，展现多元文化交融之美。
+2、昨日，美伊达成和平协议。
 
-老挝青年蒙萌演唱了一首泰国歌曲传递快乐。
+对此，外交部发言人林剑表示，中方希望美伊如期签署第一阶段谅解备忘录，也希望相关各方坚持和平选择，通过对话谈判解决问题。
 
-他表示看好老中铁路带来的发展机遇，希望学成后归国创业，从事国际贸易工作。
+3、美国总统特朗普14日对《纽约时报》说，伊朗将被允许进行有限的低水平铀浓缩活动，并称美伊新协议将确保“伊朗的铀浓缩永远只能用于非军事目的”。
 
-印尼华裔青年关美雪与同伴表演了融合印尼多地特色的传统舞蹈。
+4、美国高级官员当地时间15日表示，美国已与伊朗签署谅解备忘录。
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 17:48 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 17:44 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 17:32 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 17:57 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 17:37 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 17:40 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 17:32 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 17:30 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 17:40 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 17:53 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 17:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 17:38 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 17:49 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 17:44 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 17:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 17:38 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 17:40 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 18:02 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 17:53 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 17:51 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 17:55 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 17:40 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 17:59 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 17:38 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/30454.shtml)
-- 2026-06-29 17:36 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/011607769204.shtml)
-- 2026-06-29 17:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/20768837792.shtml)
-- 2026-06-29 17:56 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/9497690.shtml)
-- 2026-06-29 17:30 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/20496397889.shtml)
-- 2026-06-29 17:31 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/89837.shtml)
-- 2026-06-29 17:52 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/664051068.shtml)
-- 2026-06-29 17:58 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/688174415784.shtml)
-- 2026-06-29 17:58 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/84118092864.shtml)
-- 2026-06-29 17:41 - [王楚钦开门红](http://www.blog.minike.top/Article/details/556445292272.shtml)
-- 2026-06-29 17:40 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/457721986.shtml)
-- 2026-06-29 17:45 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/5314359.shtml)
-- 2026-06-29 17:59 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/340205838444.shtml)
-- 2026-06-29 17:30 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/24434229142.shtml)
-- 2026-06-29 17:34 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/9260416484.shtml)
+- 2026-06-29 17:42 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/47127572223.shtml)
+- 2026-06-29 18:00 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/3094548976.shtml)
+- 2026-06-29 17:46 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/2109620.shtml)
+- 2026-06-29 17:56 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/491766.shtml)
+- 2026-06-29 17:54 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/42605690110.shtml)
+- 2026-06-29 17:49 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/87057.shtml)
+- 2026-06-29 17:48 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/38159.shtml)
+- 2026-06-29 17:45 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/472901343931.shtml)
+- 2026-06-29 17:53 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/3481770410.shtml)
+- 2026-06-29 17:38 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/24622.shtml)
+- 2026-06-29 17:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/911910105.shtml)
+- 2026-06-29 17:55 - [人类对空调和其他家电有多双标](https://www.share.minike.top/Article/details/4490379914.shtml)
+- 2026-06-29 17:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/3115682.shtml)
+- 2026-06-29 18:06 - [金刚川](http://www.blog.minike.top/Article/details/01468419.shtml)
+- 2026-06-29 17:59 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/392824909.shtml)

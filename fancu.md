@@ -1,60 +1,57 @@
-# 两位华侨文化学者剖析铁路华工、侨批银信等背后的民族智慧
+# 【新思想引领新征程】持续增进民生福祉 托起百姓稳稳的幸福
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新网广州5月12日电 (记者 程景伟)岭南文化新讲第三十九讲日前在广州市楠枫书院举行，两位华侨史与侨乡文化研究学者沈卫红、张国雄以“从《金钉》到侨批”为主题进行分享对话，共同剖析铁路华工、侨批银信等背后蕴藏的民族智慧、民族精神。 1869年，美国第一条横贯大陆铁路(即太平洋铁路)在犹他州汇合，金色道钉敲下的历史性一刻，标志着连接太平洋、大西洋的“美国梦”终成现实。而撑起这条铁
+央视网消息(新闻联播)：习近平总书记指出，中国式现代化，民生为大。党和政府的一切工作，都是为了老百姓过上更加幸福的生活。“十五五”开局之年，各地坚持以人民为中心的发展思想，持续加大保障和改善民生力度，不断增强人民群众的获得感幸福感安全感。 这段时间，天津市新一批口袋公园面向市民开放。在这里，健身器械、亲水绿道一应俱全，这些利用街角地块、闲置空地建成的口袋公园让周边居民推窗见绿、
 
 ## 正文
 
-中新网广州5月12日电 (记者 程景伟)岭南文化新讲第三十九讲日前在广州市楠枫书院举行，两位华侨史与侨乡文化研究学者沈卫红、张国雄以“从《金钉》到侨批”为主题进行分享对话，共同剖析铁路华工、侨批银信等背后蕴藏的民族智慧、民族精神。
+央视网消息(新闻联播)：习近平总书记指出，中国式现代化，民生为大。
 
-1869年，美国第一条横贯大陆铁路(即太平洋铁路)在犹他州汇合，金色道钉敲下的历史性一刻，标志着连接太平洋、大西洋的“美国梦”终成现实。
+党和政府的一切工作，都是为了老百姓过上更加幸福的生活。
 
-而撑起这条铁路最艰险路段的，是一万余名沉默、坚韧的广东籍华工。
+“十五五”开局之年，各地坚持以人民为中心的发展思想，持续加大保障和改善民生力度，不断增强人民群众的获得感幸福感安全感。
 
-他们在合恩角的悬崖绝壁上凿石架轨，在唐纳峰的暴风雪中掘进隧道，将汗血乃至生命浇筑进每一英里的枕木。
+这段时间，天津市新一批口袋公园面向市民开放。
 
-与此同时，华工的血汗化作一件件侨批银信，漂洋过海回到家乡，变成了碉楼、工厂、学校、图书馆、医院，为祖国的近代化增添砝码，铺就了一条连接太平洋两岸的“金山之路”。
+在这里，健身器械、亲水绿道一应俱全，这些利用街角地块、闲置空地建成的口袋公园让周边居民推窗见绿、出门进园。
 
-作为《金钉：寻找中国人的美国记忆》作者，沈卫红早在2014年就从旧金山出发，沿着太平洋铁路沿线多个关键城市和重大事件发生地，一路寻找当年华工的足迹开展田野调查，之后用了两年半的时间进行资料梳理，并查询诸多历史文献，遂写成这本著作。
+目前，天津已建成近400个口袋公园，实现了从零星分布到全域覆盖。
 
-“到今天美国公众和官方对铁路华工都有非常正面的评价，甚至为他们树碑立传。
+让人民生活幸福是“国之大者”。
 
-”沈卫红表示，修建太平洋铁路是美国几代人的“美国梦”，这条铁路打通了美国东西部交通大动脉，使得美国成为连接太平洋和大西洋的世界大国。
+党的十八大以来，以习近平同志为核心的党中央始终把人民放在心中最高位置。
 
 ## 相关推荐
 
-- 2026-06-29 17:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 17:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 17:57 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 17:51 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 17:43 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 17:59 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 17:55 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 17:50 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 17:51 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 17:33 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 17:48 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 17:41 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 17:40 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 17:54 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 17:53 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 17:41 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 17:57 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 17:55 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 17:36 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 18:03 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 17:37 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 17:46 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 18:01 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 18:01 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 17:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/406469.shtml)
-- 2026-06-29 17:59 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.minike.top/Article/details/03072.shtml)
-- 2026-06-29 17:43 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/94864.shtml)
-- 2026-06-29 17:30 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/219356516281.shtml)
-- 2026-06-29 17:46 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/27087766.shtml)
-- 2026-06-29 17:34 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/22122813890.shtml)
-- 2026-06-29 17:50 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/21445.shtml)
-- 2026-06-29 17:32 - [请回答王牌2019](https://www.share.minike.top/Article/details/4413587.shtml)
-- 2026-06-29 17:39 - [绘画区你赢了](http://www.blog.minike.top/Article/details/22512.shtml)
-- 2026-06-29 17:54 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/34337606.shtml)
-- 2026-06-29 17:56 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/011132.shtml)
-- 2026-06-29 17:57 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/807951436.shtml)
-- 2026-06-29 17:46 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/97309.shtml)
-- 2026-06-29 17:30 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/9507491358.shtml)
-- 2026-06-29 17:40 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/891850037.shtml)
+- 2026-06-29 17:41 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/03931.shtml)
+- 2026-06-29 17:52 - [爱很美味](https://www.share.kurohicncr.top/Article/details/626143959.shtml)
+- 2026-06-29 18:01 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/787161213.shtml)
+- 2026-06-29 17:56 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/7813290.shtml)
+- 2026-06-29 17:39 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/4112218172.shtml)
+- 2026-06-29 17:59 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/659968272.shtml)
+- 2026-06-29 17:58 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/71406072317.shtml)
+- 2026-06-29 17:49 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/88447087939.shtml)
+- 2026-06-29 17:46 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/65396.shtml)
+- 2026-06-29 17:44 - [一生一世](http://www.share.kurohicncr.top/Article/details/82497.shtml)
+- 2026-06-29 17:58 - [四川达州发生一起交通事故致2死](https://www.share.kurohicncr.top/Article/details/51682721219.shtml)
+- 2026-06-29 17:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/834846669.shtml)
+- 2026-06-29 17:47 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/010217005429.shtml)
+- 2026-06-29 17:46 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/62826420280.shtml)
+- 2026-06-29 17:59 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/5347382.shtml)

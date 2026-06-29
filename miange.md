@@ -1,46 +1,53 @@
-# 国金证券：海底捞给予“买入”评级 目标价18.94港元
+# 2026年“春招”共提供超1268万个岗位
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-国金证券发布研报称，预测2026/2027/2028年海底捞（06862）实现营业收入475.5/502.5/531.1亿元，同比+10.0%/+5.7%/+5.7%；归母净利润46.0/50.6/55.4亿元，同比+13.5%/+10.0%/+9.6%，对应EPS为0.82/0.91/0.99元。该行认为海底捞为餐饮行业龙头公司，应适当给予一定估值溢价，给予公司2026年20
+记者从人力资源社会保障部了解到，2026年全国城市联合招聘高校毕业生春季专场活动日前结束，共提供超1268万个岗位信息。 活动期间，各地聚焦人工智能、低空经济、绿色低碳、先进制造、数字经济等重点领域，加大优质岗位开发力度。举办西部地区、雄安新区等区域性专场招聘活动，运用AI、大数据，为毕业生提供个性化、精准化的求职服务。线上线下共举办2.3万场招聘会，67.4万家用人单位提供岗
 
 ## 正文
 
-国金证券发布研报称，预测2026/2027/2028年海底捞（06862）实现营业收入475.5/502.5/531.1亿元，同比+10.0%/+5.7%/+5.7%；归母净利润46.0/50.6/55.4亿元，同比+13.5%/+10.0%/+9.6%，对应EPS为0.82/0.91/0.99元。
+记者从人力资源社会保障部了解到，2026年全国城市联合招聘高校毕业生春季专场活动日前结束，共提供超1268万个岗位信息。
 
-该行认为海底捞为餐饮行业龙头公司，应适当给予一定估值溢价，给予公司2026年20倍PE，对应目标价18.94港元，给予“买入”评级。
+活动期间，各地聚焦人工智能、低空经济、绿色低碳、先进制造、数字经济等重点领域，加大优质岗位开发力度。
 
-责任编辑：卢昱君
+举办西部地区、雄安新区等区域性专场招聘活动，运用AI、大数据，为毕业生提供个性化、精准化的求职服务。
+
+线上线下共举办2.3万场招聘会，67.4万家用人单位提供岗位信息1268.1万个，吸引1352.4万人次高校毕业生参与求职。
+
+(总台央视记者 陈钰洁 唐蕾)
 
 ## 相关推荐
 
-- 2026-06-29 17:39 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 17:34 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 17:53 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 17:44 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 17:42 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 17:33 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 17:51 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 17:43 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 17:49 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 17:51 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 17:36 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 17:58 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 17:37 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 17:51 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 18:03 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 17:47 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 18:02 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 17:50 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 17:37 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 17:54 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 17:36 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 17:53 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 17:39 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/454066129.shtml)
-- 2026-06-29 17:44 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/6239470.shtml)
-- 2026-06-29 17:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/70848.shtml)
-- 2026-06-29 17:58 - [娜扎搂着我的腰和我合照](http://www.blog.minike.top/Article/details/16916.shtml)
-- 2026-06-29 17:37 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/232041.shtml)
-- 2026-06-29 17:35 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/044568.shtml)
-- 2026-06-29 17:37 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/587623.shtml)
-- 2026-06-29 17:32 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/67164818.shtml)
-- 2026-06-29 17:30 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/3371785473.shtml)
-- 2026-06-29 17:41 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/44167337.shtml)
-- 2026-06-29 17:48 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/900278.shtml)
-- 2026-06-29 17:59 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/465504428865.shtml)
-- 2026-06-29 17:31 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/423103.shtml)
-- 2026-06-29 17:51 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/829646541668.shtml)
-- 2026-06-29 17:54 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/06655875242.shtml)
+- 2026-06-29 17:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/284759.shtml)
+- 2026-06-29 17:54 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/570288573107.shtml)
+- 2026-06-29 17:42 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/2066818521.shtml)
+- 2026-06-29 17:56 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/5553931754.shtml)
+- 2026-06-29 17:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/7088165705.shtml)
+- 2026-06-29 17:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/74764.shtml)
+- 2026-06-29 17:54 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/91369002953.shtml)
+- 2026-06-29 17:56 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/36638.shtml)
+- 2026-06-29 17:50 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/7190182.shtml)
+- 2026-06-29 17:55 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/7849687575.shtml)
+- 2026-06-29 17:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/666226.shtml)
+- 2026-06-29 17:49 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/24296503164.shtml)
+- 2026-06-29 17:42 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/34010.shtml)
+- 2026-06-29 17:48 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/108457742288.shtml)
+- 2026-06-29 17:54 - [毒液2](http://www.blog.minike.top/Article/details/548437177.shtml)

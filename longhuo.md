@@ -1,57 +1,58 @@
-# 天降钢管砸中男子头部缝8针 事发数日肇事者尚未找到
+# 【钢材半年报】看原料眼色行事
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-原标题：天降钢管 砸中男子头部缝8针 事发数日伤者仍在住院治疗，肇事者一直未找到 “如果钢管的位置稍微偏一点，自己命都没有了，想想都后怕。”5月7日晚，成都某小区，一根钢管从天而降，出门接娃的杜先生被砸倒在地，送医后头部缝合了8针。 事发数日，伤者仍在医院接受治疗，肇事者也一直未找到。5月11日，华西都市报、封面新闻记者前往事发小区走访，目前该小区单元门上方已装上防护棚，墙上贴
+紫金天风期货 摘要 2026年上半年钢材行情呈现宽幅震荡状态，整体宏观预期较弱，但受到各方因素影响，底部抬升相对明显。2026年2月28日，中东地区发生军事冲突，直接导致原油价格暴涨，后期推动工业品价格均有不同幅度的上涨。2026年5月底受到煤矿安全事故影响，盘面黑色行情出现大幅反弹后回归基本面。国家发展改革委等部门发布开展重点行业节能降碳改造攻坚三年行动的通知：决定组织开展钢
 
 ## 正文
 
-原标题：天降钢管 砸中男子头部缝8针 事发数日伤者仍在住院治疗，肇事者一直未找到 “如果钢管的位置稍微偏一点，自己命都没有了，想想都后怕。
+紫金天风期货 摘要 2026年上半年钢材行情呈现宽幅震荡状态，整体宏观预期较弱，但受到各方因素影响，底部抬升相对明显。
 
-”5月7日晚，成都某小区，一根钢管从天而降，出门接娃的杜先生被砸倒在地，送医后头部缝合了8针。
+2026年2月28日，中东地区发生军事冲突，直接导致原油价格暴涨，后期推动工业品价格均有不同幅度的上涨。
 
-事发数日，伤者仍在医院接受治疗，肇事者也一直未找到。
+2026年5月底受到煤矿安全事故影响，盘面黑色行情出现大幅反弹后回归基本面。
 
-5月11日，华西都市报、封面新闻记者前往事发小区走访，目前该小区单元门上方已装上防护棚，墙上贴着“禁止高空抛物”的提示。
+国家发展改革委等部门发布开展重点行业节能降碳改造攻坚三年行动的通知：决定组织开展钢铁、电解铝、水泥、平板玻璃、炼油、乙烯、合成氨、甲醇、煤电等重点行业节能降碳改造攻坚三年行动。
 
-男子出门接娃 天降钢管将其砸倒在地 杜先生住在该小区21楼。
+基本面来看，供应端根据Mysteel及富宝数据计算，2026年1-5月粗钢同比下降约0.97%，其中铁水累计同比下降约为0.63%，废钢累计同比下降约2.62%，全年预期保持小幅波动，约下降0.49%。
 
-5月7日晚7点40分左右，他下楼出门接孩子回家，刚走出单元门没几步，一根从天而降的钢管砸在杜先生头上。
+需求端2026年粗钢需求预计将有所下降，其中房建部分仍为预期内下降状态，但整体下降幅度有所减缓，制造业中汽车产销情况转弱，主要受到购置税政策影响，机械、船舶、电力等需求稳定增加，家电部分中空调排产同比有所回落。
 
-“我当场被砸倒在地，头上的血不停往外冒，脑袋感觉嗡嗡响。
+2026年1-5月钢材累计出口4455万吨，累计同比下降8.1%，1-4月钢坯累计出口494万吨，累计同比增长47.77%。
 
-”杜先生说，当时自己躺在地上，一手捂着伤口，一手给家人打电话求救，事发时周围还有不少业主经过。
+2026年上半年利润情况同比转差，4-5月份利润相对较高，6月开始转差。
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 17:38 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 17:43 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 17:39 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 17:43 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 17:36 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 17:41 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 17:57 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 17:32 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 17:52 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 17:48 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 17:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 17:53 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 17:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 17:54 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 17:47 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 17:58 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 17:43 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 18:05 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 18:05 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 17:50 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 18:04 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 18:02 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/565520978400.shtml)
-- 2026-06-29 17:53 - [爱很美味](https://www.share.minike.top/Article/details/7858825.shtml)
-- 2026-06-29 17:51 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/97911366308.shtml)
-- 2026-06-29 17:49 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/27473390.shtml)
-- 2026-06-29 17:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/91110.shtml)
-- 2026-06-29 17:52 - [T1 KC](https://www.blog.minike.top/Article/details/057099262.shtml)
-- 2026-06-29 17:42 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.kurohicncr.top/Article/details/007769107.shtml)
-- 2026-06-29 17:58 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/18604595208.shtml)
-- 2026-06-29 17:32 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/528713.shtml)
-- 2026-06-29 17:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/185803605459.shtml)
-- 2026-06-29 17:37 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/244894361482.shtml)
-- 2026-06-29 17:56 - [95后小伙突然确诊癌症 医生提醒](https://www.share.minike.top/Article/details/367339153181.shtml)
-- 2026-06-29 17:55 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/73294.shtml)
-- 2026-06-29 17:38 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/28952421.shtml)
-- 2026-06-29 17:55 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/220028655719.shtml)
+- 2026-06-29 17:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/84940.shtml)
+- 2026-06-29 17:39 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/8923330720.shtml)
+- 2026-06-29 17:57 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/75500878261.shtml)
+- 2026-06-29 18:02 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/060101.shtml)
+- 2026-06-29 17:53 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/40294295.shtml)
+- 2026-06-29 18:02 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/242077259.shtml)
+- 2026-06-29 18:01 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/653905.shtml)
+- 2026-06-29 17:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/2985902512.shtml)
+- 2026-06-29 17:52 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/9820087.shtml)
+- 2026-06-29 17:39 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/511013.shtml)
+- 2026-06-29 17:51 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/0959463.shtml)
+- 2026-06-29 17:38 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/28277894.shtml)
+- 2026-06-29 17:52 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/87545086.shtml)
+- 2026-06-29 17:45 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/99644802.shtml)
+- 2026-06-29 17:51 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/55018.shtml)

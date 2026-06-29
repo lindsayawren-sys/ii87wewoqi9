@@ -1,56 +1,48 @@
-# 伊朗停火岌岌可危、油价小幅回落
+# 中国金石授出927万份购股权及100万股奖励股份
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-周三，国际油价下跌，终结三日连涨走势。市场投资者关注中东脆弱停火的后续进展。 格林尼治标准时间 08：09，布伦特原油期货下跌 86 美分，跌幅 0.8%，报每桶 106.91 美元；美国西德克萨斯轻质原油（WTI）期货下跌 1.04 美元，跌幅 1%，报每桶 101.14 美元。 自 2 月底美以联军对伊朗开战、伊朗实际封锁霍尔木兹海峡以来，两大原油基准价格基本维持在每桶 1
+中国金石（01380）公布，于2026年6月15日，公司向3名全职雇员授出927万份购股权，每份购股权行使价0.566港元；向1名全职僱员授出100万股奖励股份。责任编辑：卢昱君
 
 ## 正文
 
-周三，国际油价下跌，终结三日连涨走势。
+中国金石（01380）公布，于2026年6月15日，公司向3名全职雇员授出927万份购股权，每份购股权行使价0.566港元；向1名全职僱员授出100万股奖励股份。
 
-市场投资者关注中东脆弱停火的后续进展。
-
-格林尼治标准时间 08：09，布伦特原油期货下跌 86 美分，跌幅 0.8%，报每桶 106.91 美元；美国西德克萨斯轻质原油（WTI）期货下跌 1.04 美元，跌幅 1%，报每桶 101.14 美元。
-
-自 2 月底美以联军对伊朗开战、伊朗实际封锁霍尔木兹海峡以来，两大原油基准价格基本维持在每桶 100 美元关口或上方。
-
-菲利普・诺瓦公司高级市场分析师普里扬卡・萨赫德瓦表示：“尽管交易商难以明确油价走向，但对供应中断的担忧及中东局势的不确定性，为油价提供了强劲支撑。
-
-” “市场对该地区的每一条消息都高度敏感，意味着油价大概率延续剧烈波动。
-
-若冲突进一步升级或供应通道遭遇直接威胁，布伦特与 WTI 原油价格或将迅速重启强势上涨动能。
-
-” 周二，美伊持久停火希望破灭，油价上涨超 3%，延续此前涨势。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:40 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 17:46 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 17:31 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 17:45 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 17:34 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 17:33 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 17:55 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 17:38 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 17:45 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 17:47 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 17:58 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 17:47 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 17:43 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 17:53 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 17:51 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 17:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 17:55 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 17:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 18:06 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 17:56 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 17:36 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 17:49 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 17:59 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 17:38 - [V8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/73705.shtml)
-- 2026-06-29 17:42 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/8948397622.shtml)
-- 2026-06-29 17:44 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/526348694.shtml)
-- 2026-06-29 17:38 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/45988492.shtml)
-- 2026-06-29 17:49 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/514482002.shtml)
-- 2026-06-29 17:58 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/748610775954.shtml)
-- 2026-06-29 17:55 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/869407436.shtml)
-- 2026-06-29 17:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/008092049880.shtml)
-- 2026-06-29 17:54 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/244806436.shtml)
-- 2026-06-29 17:47 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/647513769439.shtml)
-- 2026-06-29 17:35 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/42225768.shtml)
-- 2026-06-29 17:30 - [T1 KC](https://www.share.kurohicncr.top/Article/details/02527.shtml)
-- 2026-06-29 17:39 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/11931493930.shtml)
-- 2026-06-29 17:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/1350469.shtml)
-- 2026-06-29 17:38 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/028960966455.shtml)
+- 2026-06-29 17:59 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/298914135080.shtml)
+- 2026-06-29 17:45 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/0039329.shtml)
+- 2026-06-29 17:58 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/9219433.shtml)
+- 2026-06-29 17:38 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/7308963594.shtml)
+- 2026-06-29 17:50 - [青春环游记第三季](https://www.blog.minike.top/Article/details/12122397.shtml)
+- 2026-06-29 17:52 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/57272.shtml)
+- 2026-06-29 17:50 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/163927015.shtml)
+- 2026-06-29 17:36 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/7034574926.shtml)
+- 2026-06-29 17:49 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/108221.shtml)
+- 2026-06-29 17:43 - [扬名立万](https://www.blog.minike.top/Article/details/35614546.shtml)
+- 2026-06-29 18:04 - [滚石点名酒店员工说有急救培训](https://www.share.minike.top/Article/details/48654.shtml)
+- 2026-06-29 18:03 - [我和我的家乡](http://www.share.minike.top/Article/details/822694.shtml)
+- 2026-06-29 18:02 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/81903261695.shtml)
+- 2026-06-29 17:39 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/68422.shtml)
+- 2026-06-29 17:53 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/157999593826.shtml)

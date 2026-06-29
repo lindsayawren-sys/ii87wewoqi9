@@ -1,57 +1,60 @@
-# 豆粕价格震荡格局不改 棕榈油调整不改韧性
+# 《跨国公司在中国：创新协同筑生态 产业融合向未来》在山东青岛发布
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-（来源：市场资讯） 研报正文 【豆粕】 周二，豆粕 09 合约收涨 0.33%，报 3033 元/吨；广东豆粕现货涨 20 收于 2910 元/吨；菜粕 09 合约收跌 0.63%，报 2376 元/吨；广西菜粕现货跌 10 收于 2310 元/吨；CBOT 美豆 7 月合约涨 14.25 收于 1225.25 美分/蒲式耳。新季作物 USDA 报告发布，2026/27 年度美
+中新网青岛6月16日电 (王禹 张孝鹏)《跨国公司在中国：创新协同筑生态产业融合向未来》研究报告(简称“报告”)16日在第七届跨国公司领导人青岛峰会开幕式上发布。报告指出，“十五五”期间，中国将抓住新一轮科技革命和产业变革历史机遇，推动科技创新和产业创新深度融合，不断催生新质生产力，这将为跨国公司深度参与中国创新链产业链、共享发展红利开辟新空间。 报告显示，2025年，中国实际
 
 ## 正文
 
-（来源：市场资讯） 研报正文 【豆粕】 周二，豆粕 09 合约收涨 0.33%，报 3033 元/吨；广东豆粕现货涨 20 收于 2910 元/吨；菜粕 09 合约收跌 0.63%，报 2376 元/吨；广西菜粕现货跌 10 收于 2310 元/吨；CBOT 美豆 7 月合约涨 14.25 收于 1225.25 美分/蒲式耳。
+中新网青岛6月16日电 (王禹 张孝鹏)《跨国公司在中国：创新协同筑生态产业融合向未来》研究报告(简称“报告”)16日在第七届跨国公司领导人青岛峰会开幕式上发布。
 
-新季作物 USDA 报告发布，2026/27 年度美豆产量为 44.35 亿蒲式耳，上一年度为 42.62 亿蒲式耳；压榨需求为 27.5 亿蒲，上一年度为 26.3 亿蒲，出口需求为 16.3 亿蒲，上一年度为 15.3 亿蒲；期末库存为 3.1 亿蒲式耳，上一年度为 3.5 亿蒲；2026/27 年度巴西大豆产量预估为 1.86 亿吨，阿根廷大豆产量预估为 5000 万吨，上一年度为 4800 万吨。
+报告指出，“十五五”期间，中国将抓住新一轮科技革命和产业变革历史机遇，推动科技创新和产业创新深度融合，不断催生新质生产力，这将为跨国公司深度参与中国创新链产业链、共享发展红利开辟新空间。
 
-巴西全国谷物出口商协会（Anec）预计，巴西 5 月大豆出口量料达 1，600 万吨，上周预估值为 1，453 万吨。
+报告显示，2025年，中国实际使用外资1046.8亿美元，连续16年保持在千亿美元以上；新设外资企业数量突破7万家，同比增长19.1%，反映出跨国公司对中国市场的坚定信心和长期布局意愿。
 
-美国与伊朗在结束中东战争的提议上存在巨大分歧，这引发了市场担忧，即扰乱全球石油市场的供应中断可能将持续更长时间；由于霍尔木兹海峡关闭，燃料和化肥价格攀升，增加了美国农户的生产成本，给那些已因美国关税战引发的贸易扰动而受到冲击的种植户带来更大压力。
+报告指出，跨国公司深度嵌入中国经济产业体系。
 
-天气预报显示，未来 15 天，美豆产区累计降水量略高于均值。
+外资企业通过关键环节本地化、绿色化、智能化升级，服务业与高技术产业加码投资以及梯度投资布局，有力支撑了中国现代化产业体系建设和区域协调发展。
 
-新季作物 USDA 报告发布，2026/27 年度美豆产量 44.35 亿蒲，压榨需求为 27.5 亿蒲，出口需求为 16.3 亿蒲，期末库存为 3.1 亿蒲，较上年度下滑；巴西大豆产量预估 1.86 亿吨，阿根廷预估为 5000 万吨； 整体来看，报告影响偏利多。
+报告显示，跨国公司与中国的创新合作进入双向赋能、生态共建的协同发展新阶段。
 
-油价高位震荡，化肥燃料成本价格抬升逐步传导，同时近端大豆供应充足，基差承压。
+2025年，跨国公司对华绿地投资中，研发投入为37.3亿美元，占跨国公司全球研发总投入的14.3%。
 
-预计短期连粕区间震荡运行。
+同期，中国科学研究和技术服务领域新设立的外资企业达1.4万家，同比增长27.2%。
 
 ## 相关推荐
 
-- 2026-06-29 17:39 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 17:33 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 17:34 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 17:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 17:34 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 17:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 17:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 17:32 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 17:55 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 17:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 17:48 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 17:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 17:59 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 17:42 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 17:58 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 17:48 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 17:52 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 17:36 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 17:56 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 17:37 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 18:05 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 17:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 17:44 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 17:57 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 18:00 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:49 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/489173772.shtml)
-- 2026-06-29 17:42 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/107274.shtml)
-- 2026-06-29 17:56 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/3392021.shtml)
-- 2026-06-29 17:58 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/10126.shtml)
-- 2026-06-29 17:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/78949440.shtml)
-- 2026-06-29 17:32 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/39579.shtml)
-- 2026-06-29 17:30 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/506984.shtml)
-- 2026-06-29 17:52 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/49171595.shtml)
-- 2026-06-29 17:32 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/875429025911.shtml)
-- 2026-06-29 17:48 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/2139899.shtml)
-- 2026-06-29 17:38 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/685982.shtml)
-- 2026-06-29 17:52 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/28432899271.shtml)
-- 2026-06-29 17:56 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/67900828.shtml)
-- 2026-06-29 17:55 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/2398199.shtml)
-- 2026-06-29 17:44 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/868086.shtml)
+- 2026-06-29 17:48 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/411559948412.shtml)
+- 2026-06-29 17:39 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/8313984.shtml)
+- 2026-06-29 17:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/678135.shtml)
+- 2026-06-29 17:46 - [流金岁月](https://www.share.minike.top/Article/details/96125289161.shtml)
+- 2026-06-29 18:02 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/725433803.shtml)
+- 2026-06-29 17:49 - [美人鱼](http://www.blog.minike.top/Article/details/9738376979.shtml)
+- 2026-06-29 17:56 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/77937806.shtml)
+- 2026-06-29 18:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/8292940807.shtml)
+- 2026-06-29 17:53 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/72723784.shtml)
+- 2026-06-29 17:37 - [斗破苍穹](https://www.blog.minike.top/Article/details/145420500.shtml)
+- 2026-06-29 17:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/381491.shtml)
+- 2026-06-29 17:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/69996.shtml)
+- 2026-06-29 17:54 - [乔家的儿女](https://www.blog.minike.top/Article/details/437596719148.shtml)
+- 2026-06-29 17:56 - [扬名立万](https://www.blog.minike.top/Article/details/748487602.shtml)
+- 2026-06-29 17:58 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/8904531504.shtml)

@@ -1,56 +1,53 @@
-# 白酒年报| 白酒行业整体盈利能力下滑 酒鬼酒亏损、水井坊、洋河股份净利润降幅超60%
+# 青海海西州发生6.3级地震 省消防救援总队火速集结响应
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：郝显 2025年，白酒行业迎来至暗时刻！ 去年19家白酒上市公司实现营业收入总额3618.1亿元，同比减少18.13%；实现归母净利润1266.32亿元，同比减少24.1%。 在这场行业性的调整中，没有企业能够独善其身。去年18家上市白酒公司营收出现下滑，仅山西汾酒营收在增长。17家上市白酒公司去年净利润出现下滑，仅金种子酒和山西汾酒出现增长
+中新网6月16日 据“青海消防”微信公众号消息，中国地震台网正式测定：2026年6月16日17时06分在青海省海西州大柴旦(北纬37.80度，东经95.56度)发生6.3级地震，震源深度10公里。 青海省消防救援总队立即启动地震跨区域救援预案，共集结9支陆地搜救中型队，631名指站员、41条搜救犬、151辆消防车，以及装备器材物资5.7万件套。 地震发生后，大柴旦大队前突小队1
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：郝显 2025年，白酒行业迎来至暗时刻！
+中新网6月16日 据“青海消防”微信公众号消息，中国地震台网正式测定：2026年6月16日17时06分在青海省海西州大柴旦(北纬37.80度，东经95.56度)发生6.3级地震，震源深度10公里。
 
-去年19家白酒上市公司实现营业收入总额3618.1亿元，同比减少18.13%；实现归母净利润1266.32亿元，同比减少24.1%。
+青海省消防救援总队立即启动地震跨区域救援预案，共集结9支陆地搜救中型队，631名指站员、41条搜救犬、151辆消防车，以及装备器材物资5.7万件套。
 
-在这场行业性的调整中，没有企业能够独善其身。
+地震发生后，大柴旦大队前突小队1车5人已到达震中，现场无人员被困。
 
-去年18家上市白酒公司营收出现下滑，仅山西汾酒营收在增长。
+大柴旦大队接警1起，派出4车20人到达大柴旦镇，在一民房救出1名被困人员。
 
-17家上市白酒公司去年净利润出现下滑，仅金种子酒和山西汾酒出现增长。
-
-今年一季度绝大部分酒企仍在延续下滑。
-
-造成这一现象的主要原因是过去依靠向渠道压货维持的繁荣的增长模式走到了尽头，2025年6月，中国酒业协会联合毕马威发布的《2025中国白酒市场中期研究报告》显示，“经销商普遍面临库存压力，部分经销商库存周期延长，市场价格倒挂现象普遍。
-
-这使得经销商资金周转困难，对后续进货变得更加谨慎。
+目前，海西、海北、海南支队4支陆地搜救中型队320人、78车、10犬，已出动增援。
 
 ## 相关推荐
 
-- 2026-06-29 17:52 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 17:44 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 17:56 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 17:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 17:47 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 17:47 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 17:40 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 17:38 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 17:46 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 17:54 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 17:38 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 17:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 17:49 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 17:56 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 17:58 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 18:03 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 18:01 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 17:51 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 18:01 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 17:41 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 17:46 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 17:52 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 17:58 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:39 - [谢依霖夸杨幂靠谱](http://www.blog.minike.top/Article/details/4661732.shtml)
-- 2026-06-29 17:39 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/691818048.shtml)
-- 2026-06-29 17:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/65990252734.shtml)
-- 2026-06-29 17:42 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/4001555216.shtml)
-- 2026-06-29 17:46 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/534896740.shtml)
-- 2026-06-29 17:37 - [叠纸](https://www.share.kurohicncr.top/Article/details/54910146.shtml)
-- 2026-06-29 17:51 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/076462647.shtml)
-- 2026-06-29 17:40 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/094654590.shtml)
-- 2026-06-29 17:54 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/623899383226.shtml)
-- 2026-06-29 17:51 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/18162162680.shtml)
-- 2026-06-29 17:57 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/45251860696.shtml)
-- 2026-06-29 17:49 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/480467602.shtml)
-- 2026-06-29 17:32 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/93635090868.shtml)
-- 2026-06-29 17:49 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/51559.shtml)
-- 2026-06-29 17:48 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/5889827.shtml)
+- 2026-06-29 17:38 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/30592945077.shtml)
+- 2026-06-29 17:46 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/28309.shtml)
+- 2026-06-29 17:46 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/7881526.shtml)
+- 2026-06-29 17:43 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/77506992.shtml)
+- 2026-06-29 17:46 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/9639853.shtml)
+- 2026-06-29 17:58 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/70866811.shtml)
+- 2026-06-29 17:38 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/45954.shtml)
+- 2026-06-29 17:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/23901.shtml)
+- 2026-06-29 17:51 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/12636483.shtml)
+- 2026-06-29 17:44 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/249440.shtml)
+- 2026-06-29 17:39 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/575509659001.shtml)
+- 2026-06-29 17:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/69532599444.shtml)
+- 2026-06-29 17:42 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/615680.shtml)
+- 2026-06-29 18:03 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/44095409.shtml)
+- 2026-06-29 18:02 - [业内：全球市场迎来结构性投资窗口](https://www.share.kurohicncr.top/Article/details/394544.shtml)

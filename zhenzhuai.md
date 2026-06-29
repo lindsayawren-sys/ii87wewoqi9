@@ -1,52 +1,57 @@
-# 瑞典EQT公司拟以94亿英镑提高报价收购英国天祥集团
+# 200亿银业巨头盛达资源“爆雷”！公司及实控人均被立案
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-瑞典私募股权巨头EQT公司（EQT AB）12日宣布，已向英国质量与安全服务巨头天祥集团（Intertek）提交了一份价值94亿英镑（约合127.4亿美元）的最新收购要约。 根据披露的最新方案，EQT拟以每股60英镑的价格现金收购天祥集团股权，并预计股东在2025财年可获得每股1.1英镑的股息。此前，由于天祥集团认为相关报价低估了公司的业务价值，EQT的前三次收购申请均被拒绝。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月15日晚间，国内白银龙头企业盛达资源（维权）（000603）发布公告称，因涉嫌信息披露违法违规，中国证监会决定对盛达资源及公司实际控制人赵满堂立案调查。 盛达资源主营贵金属、有色金属矿的采选和销售，是国内银业龙头企业，其白银储备量在A股上市公司中居前列。 这一消息让这家市值超200亿元的上市公司瞬间站在了风口浪尖。
 
 ## 正文
 
-瑞典私募股权巨头EQT公司（EQT AB）12日宣布，已向英国质量与安全服务巨头天祥集团（Intertek）提交了一份价值94亿英镑（约合127.4亿美元）的最新收购要约。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月15日晚间，国内白银龙头企业盛达资源（维权）（000603）发布公告称，因涉嫌信息披露违法违规，中国证监会决定对盛达资源及公司实际控制人赵满堂立案调查。
 
-根据披露的最新方案，EQT拟以每股60英镑的价格现金收购天祥集团股权，并预计股东在2025财年可获得每股1.1英镑的股息。
+盛达资源主营贵金属、有色金属矿的采选和销售，是国内银业龙头企业，其白银储备量在A股上市公司中居前列。
 
-此前，由于天祥集团认为相关报价低估了公司的业务价值，EQT的前三次收购申请均被拒绝。
+这一消息让这家市值超200亿元的上市公司瞬间站在了风口浪尖。
 
-据悉，EQT必须在5月14日前正式宣布其是否有明确的收购意向。
+今日开盘（6月16日）公司股价跌停，不少投资者遭受损失。
 
-目前，天祥集团尚未对这一调高后的报价作出正式回应。
+存在7.92亿巨额资金占用 此次立案调查并非毫无端倪。
 
-责任编辑：龙运翔
+据公告显示，监管机构的立案原因直指上市公司涉嫌信息披露违法违规，而这背后牵出的是控股股东长达近一年的非经营性资金占用问题。
+
+盛达资源在2025年4月29日披露的一则《自查报告》。
+
+报告显示，公司在自查中发现，2024年2月至12月期间，控股股东甘肃盛达集团有限公司及其附属企业存在间歇性非经营性占用上市公司资金的情形。
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 17:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 17:41 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 17:35 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 17:50 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 17:50 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 17:46 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 17:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 17:43 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 17:33 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 18:03 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 17:44 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 17:50 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 17:44 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 17:41 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 17:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 18:01 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 17:56 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 17:47 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 17:58 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 17:49 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [TTG KSG](http://www.blog.minike.top/Article/details/525594544.shtml)
-- 2026-06-29 17:40 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/76832644.shtml)
-- 2026-06-29 17:58 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/724269251.shtml)
-- 2026-06-29 17:34 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/48715397520.shtml)
-- 2026-06-29 17:43 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/18009.shtml)
-- 2026-06-29 17:56 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/8448597.shtml)
-- 2026-06-29 17:42 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/96774863876.shtml)
-- 2026-06-29 17:36 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/0385122893.shtml)
-- 2026-06-29 17:44 - [送你一朵小红花](https://www.blog.minike.top/Article/details/67295.shtml)
-- 2026-06-29 17:53 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/84947489770.shtml)
-- 2026-06-29 17:49 - [第一炉香](https://www.blog.minike.top/Article/details/02371326004.shtml)
-- 2026-06-29 17:45 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/64449587717.shtml)
-- 2026-06-29 17:38 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/532536239983.shtml)
-- 2026-06-29 17:59 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/877999633.shtml)
-- 2026-06-29 17:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/3062976.shtml)
+- 2026-06-29 18:03 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/26236.shtml)
+- 2026-06-29 17:45 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/5013102.shtml)
+- 2026-06-29 17:56 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/0276884571.shtml)
+- 2026-06-29 17:39 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/05472349090.shtml)
+- 2026-06-29 17:43 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/6404929.shtml)
+- 2026-06-29 17:42 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/723965.shtml)
+- 2026-06-29 17:57 - [小娘惹](https://www.share.minike.top/Article/details/93006239398.shtml)
+- 2026-06-29 17:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/02929.shtml)
+- 2026-06-29 17:56 - [12所大学更正招生目录](http://www.share.minike.top/Article/details/9582086727.shtml)
+- 2026-06-29 17:41 - [叠纸客服回应恋与深空新角色争议](http://www.share.kurohicncr.top/Article/details/6459370.shtml)
+- 2026-06-29 17:39 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/8753828178.shtml)
+- 2026-06-29 18:04 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/696229838434.shtml)
+- 2026-06-29 17:56 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/860712898087.shtml)
+- 2026-06-29 17:40 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/4212919.shtml)
+- 2026-06-29 17:55 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/00068.shtml)

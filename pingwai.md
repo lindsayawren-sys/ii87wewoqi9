@@ -1,58 +1,60 @@
-# 半年涨超4倍！京投发展“退房换芯”后遭问询
+# 埃博拉病毒病防控方案发布 明确密接者判定范围
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-（来源：财闻） 5月12日，京投发展股价整体震荡攀升。午后开盘不久，便成功涨停10.03%，收盘报价20.85元/股。 5月11日，北京国资委旗下上市房企京投发展（600683.SH）公告称，正在筹划以现金方式收购控股股东京投公司旗下基金所持的西安奇芯光电科技有限公司（简称“奇芯光电”）部分股权，资金来源为自有或自筹资金。从市场层面反馈，5月12日，京投发展股价整体震荡攀升。午
+中新网6月16日电 据国家疾控局网站消息，为指导各地科学有效做好埃博拉病毒病防控工作，保护人民群众身体健康，国家疾控局组织制定了《埃博拉病毒病防控方案(2026年版)》。具体内容如下： 埃博拉病毒病防控方案(2026年版) 埃博拉病毒病是由埃博拉病毒引起的一种急性传染病。主要通过接触患者或感染动物的血液、体液、分泌物和排泄物及其污染物等而感染，临床表现主要为发热、极度乏力、呕吐
 
 ## 正文
 
-（来源：财闻） 5月12日，京投发展股价整体震荡攀升。
+中新网6月16日电 据国家疾控局网站消息，为指导各地科学有效做好埃博拉病毒病防控工作，保护人民群众身体健康，国家疾控局组织制定了《埃博拉病毒病防控方案(2026年版)》。
 
-午后开盘不久，便成功涨停10.03%，收盘报价20.85元/股。
+具体内容如下： 埃博拉病毒病防控方案(2026年版) 埃博拉病毒病是由埃博拉病毒引起的一种急性传染病。
 
-5月11日，北京国资委旗下上市房企京投发展（600683.SH）公告称，正在筹划以现金方式收购控股股东京投公司旗下基金所持的西安奇芯光电科技有限公司（简称“奇芯光电”）部分股权，资金来源为自有或自筹资金。
+主要通过接触患者或感染动物的血液、体液、分泌物和排泄物及其污染物等而感染，临床表现主要为发热、极度乏力、呕吐、腹泻、出血和多脏器损害，病死率可高达50%-90%。
 
-从市场层面反馈，5月12日，京投发展股价整体震荡攀升。
+本病于1976年在非洲首次发现，主要发生于刚果民主共和国、刚果共和国、乌干达、加蓬、苏丹(南)、几内亚、利比里亚、塞拉利昂、尼日利亚、科特迪瓦、南非等非洲国家，世界多个国家曾发现输入性病例。
 
-午后开盘不久，便成功涨停10.03%，收盘报价20.85元/股。
+目前仅有扎伊尔埃博拉病毒疫苗及抗病毒药物研发成功，且获批在疫情防控中应急使用，病例早发现、早诊断、严格隔离、规范管理以及密切接触者科学管理仍是埃博拉病毒病疫情防控的关键。
 
-据了解，标的公司是由中科院西安光机所科转孵化而来，创始人兼董事长程东，1998年博士毕业于芬兰赫尔辛基工业大学光通信专业，曾在诺基亚、北方电讯、Fiberxon（飞博创）等诸多海外光通信巨头任职多年。
+一、疾病概述(一)病原学 埃博拉病毒为有包膜单股负链RNA病毒，属丝状病毒科正埃博拉病毒属，病毒呈长丝状体，可呈杆状、丝状或“L”形等。
 
-2013年受光机所邀请回国，2014年创办奇芯光电。
+病毒颗粒长度不一，典型丝状颗粒长约数百至1000nm，直径约80nm。
 
-经过十余年发展，奇芯光电不仅成长为全球大规模光子集成领域中极为稀缺的IDM生态企业之一，于2025年获国家级专精特新“小巨人”企业认证；更是在行业首创8通道Mux/Demux芯片和组件，拥有从光子芯片到光器件、光模块、子系统全系列产品的垂直整合能力。
+病毒外覆脂质包膜，表面分布由病毒糖蛋白组成的刷状突起。
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 17:32 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 17:55 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 17:39 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 17:37 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 17:31 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 17:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 17:59 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 17:46 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 17:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 17:59 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 17:59 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 17:50 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 18:00 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 17:45 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 18:01 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 17:48 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 17:48 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 17:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 17:38 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 18:02 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 17:37 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 17:45 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 17:55 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 17:40 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 17:40 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/14468604084.shtml)
-- 2026-06-29 17:34 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/706159951870.shtml)
-- 2026-06-29 17:54 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/450666540.shtml)
-- 2026-06-29 17:44 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/671116563418.shtml)
-- 2026-06-29 17:52 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/2229391014.shtml)
-- 2026-06-29 17:51 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/717576453513.shtml)
-- 2026-06-29 17:41 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/41320.shtml)
-- 2026-06-29 17:55 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/57681371.shtml)
-- 2026-06-29 17:37 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/06328123373.shtml)
-- 2026-06-29 17:35 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/5139012140.shtml)
-- 2026-06-29 17:37 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/662295.shtml)
-- 2026-06-29 17:51 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/868213592.shtml)
-- 2026-06-29 17:40 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/72344205140.shtml)
-- 2026-06-29 17:39 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/79970.shtml)
-- 2026-06-29 17:36 - [金刚川](https://www.share.kurohicncr.top/Article/details/4483683.shtml)
+- 2026-06-29 17:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/1024334.shtml)
+- 2026-06-29 17:46 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/25122840408.shtml)
+- 2026-06-29 18:00 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/65565213302.shtml)
+- 2026-06-29 18:02 - [NBA交易](https://www.blog.minike.top/Article/details/0033565.shtml)
+- 2026-06-29 18:02 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/3001691.shtml)
+- 2026-06-29 17:47 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/7132212.shtml)
+- 2026-06-29 17:53 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/03312720.shtml)
+- 2026-06-29 17:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/338225305556.shtml)
+- 2026-06-29 17:57 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/5085575236.shtml)
+- 2026-06-29 17:49 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/7105738.shtml)
+- 2026-06-29 17:38 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/3119068042.shtml)
+- 2026-06-29 17:40 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/30847.shtml)
+- 2026-06-29 18:03 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/49845944.shtml)
+- 2026-06-29 17:40 - [未成年少女长期吸毒导致卧床不起](https://www.blog.kurohicncr.top/Article/details/88929100323.shtml)
+- 2026-06-29 18:02 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/13944850178.shtml)

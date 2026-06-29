@@ -1,60 +1,57 @@
-# 赖亚文当选新一届中国排球协会主席
+# 各地端午民俗活动轮番上演打造消费“盛宴” “文体旅”融合成为新亮点
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 中国排球协会第八届会员大会12日在北京举行，赖亚文当选新一届中国排球协会主席。 会议完成了协会换届选举工作，按照国家有关社会团体管理相关规定，赖亚文当选中国排协主席，薛辉、陈少军、乔云萍、张欣、陈东升、盖洋当选副主席，袁磊当选副主席兼秘书长。 赖亚文总结了第七届委员会工作，代表中国排协对为中国排球作出杰出贡献的前辈和第七届委员会成员表示衷心感谢，并对协会
+央视网消息：端午将至，13日，在浙江湖州市南浔区民当村，一场端午民俗文化活动开幕，上万名游客齐聚于此，观看龙舟竞渡，体验端午民俗。 龙舟竞渡是活动的重头戏。在民当村新港河道上，来自和孚镇、八里店镇、道场乡等地的6支龙舟队开展竞渡。队员们奋臂挥桨，动作整齐划一、向前飞驰。 此外，“潞荻市集”同样人头攒动，作为“潞村—荻港片区”首次举办的大型民俗活动，本次盛会汇聚了湖州两区三镇17
 
 ## 正文
 
-中新社北京5月12日电 中国排球协会第八届会员大会12日在北京举行，赖亚文当选新一届中国排球协会主席。
+央视网消息：端午将至，13日，在浙江湖州市南浔区民当村，一场端午民俗文化活动开幕，上万名游客齐聚于此，观看龙舟竞渡，体验端午民俗。
 
-会议完成了协会换届选举工作，按照国家有关社会团体管理相关规定，赖亚文当选中国排协主席，薛辉、陈少军、乔云萍、张欣、陈东升、盖洋当选副主席，袁磊当选副主席兼秘书长。
+龙舟竞渡是活动的重头戏。
 
-赖亚文总结了第七届委员会工作，代表中国排协对为中国排球作出杰出贡献的前辈和第七届委员会成员表示衷心感谢，并对协会下一步工作进行了展望。
+在民当村新港河道上，来自和孚镇、八里店镇、道场乡等地的6支龙舟队开展竞渡。
 
-公开资料显示，赖亚文出生于1970年，是中国女排的功勋球员和教练员。
+队员们奋臂挥桨，动作整齐划一、向前飞驰。
 
-运动员时期，她曾担任中国女排队长，1996年帮助中国女排拿到亚特兰大奥运会银牌。
+此外，“潞荻市集”同样人头攒动，作为“潞村—荻港片区”首次举办的大型民俗活动，本次盛会汇聚了湖州两区三镇17村的特色资源，现场设置了绿色养生、文创村礼、乡村旅游等五大市集板块，还以端午民俗体验为主线，设置了趣味游戏及风俗展示活动，吸引村民游客打卡体验、休闲逛游。
 
-退役后，赖亚文从1999年开始转型为中国女排助理教练，经历胡进、陈忠和、蔡斌、俞觉敏、郎平等主教练，协助中国女排夺得2003年、2015年两届世界杯冠军以及2004年、2016年两届奥运会冠军。
+潞村的钱山漾遗址被誉为“世界丝绸之源”，荻港村拥有全球重要农业文化遗产——桑基鱼塘系统，今年，湖州市谋划了“潞村—荻港”跨区域片区组团发展的蓝图。
 
-2017年，赖亚文被任命为国家体育总局排球运动管理中心副主任，2023年出任国家体育总局排球运动管理中心主任。
+湖州市委宣传部副部长钱振宇介绍，今年在民当村的活动，集聚了片区里3个乡镇17个村的文化资源以及旅游资源，通过“潞荻集市”把这些资源展示出来。
 
-(完)
+一方面，主要考虑让民俗文化活动能进一步得到振兴。
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 17:53 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 17:59 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 17:45 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 17:53 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 17:48 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 17:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 17:59 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 17:40 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 17:48 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 17:58 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 17:40 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 17:56 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 17:50 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 17:42 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 17:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 17:49 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 17:48 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 17:39 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 17:45 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 17:54 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 17:58 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 17:53 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 17:38 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 17:57 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:49 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/144848787.shtml)
-- 2026-06-29 17:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/137368497150.shtml)
-- 2026-06-29 17:52 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/779941.shtml)
-- 2026-06-29 17:32 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/33332127.shtml)
-- 2026-06-29 17:37 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/373700.shtml)
-- 2026-06-29 17:40 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/48078.shtml)
-- 2026-06-29 17:58 - [天道](https://www.share.kurohicncr.top/Article/details/793095.shtml)
-- 2026-06-29 17:40 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/174188.shtml)
-- 2026-06-29 17:40 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/6402584.shtml)
-- 2026-06-29 17:51 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/875343.shtml)
-- 2026-06-29 17:41 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/567589465499.shtml)
-- 2026-06-29 17:58 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/789572533428.shtml)
-- 2026-06-29 17:56 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/294462055789.shtml)
-- 2026-06-29 17:39 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/728133.shtml)
-- 2026-06-29 17:51 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.minike.top/Article/details/895827454904.shtml)
+- 2026-06-29 17:38 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/0693646.shtml)
+- 2026-06-29 17:39 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/3798051.shtml)
+- 2026-06-29 17:58 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/5618304367.shtml)
+- 2026-06-29 17:56 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/67235525.shtml)
+- 2026-06-29 17:36 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/453661303121.shtml)
+- 2026-06-29 17:50 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/603460.shtml)
+- 2026-06-29 17:40 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/0943524.shtml)
+- 2026-06-29 18:04 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/63405.shtml)
+- 2026-06-29 17:48 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/512894167263.shtml)
+- 2026-06-29 17:37 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/052929355.shtml)
+- 2026-06-29 17:40 - [请回答王牌2019](http://www.share.minike.top/Article/details/21213918.shtml)
+- 2026-06-29 17:39 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/204130.shtml)
+- 2026-06-29 17:47 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/159903644.shtml)
+- 2026-06-29 18:02 - [人形机器人](http://www.blog.minike.top/Article/details/05406980896.shtml)
+- 2026-06-29 18:02 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/768831075974.shtml)

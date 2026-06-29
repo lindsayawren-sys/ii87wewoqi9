@@ -1,53 +1,60 @@
-# 金斯瑞生物科技盘中涨超5% 联营传奇生物一季度亏损收窄
+# 国际金价，再度大涨！“牛回，速归”，怎么个事？
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-金斯瑞生物科技（01548）盘中涨超5%，截至发稿，股价上涨3.03%，报14.94港元，成交额6033.73万港元。 金斯瑞生物科技联营传奇生物隔夜股价大涨超10%。传奇生物昨日公布了2026年第一季度未经审计的财务业绩及公司主要重点，与2025年第一季度相比，CARVYKTI®在2026年第一季度的净销售额增长62%，达到约5.97亿美元。其中美国市场净销售额增长36%，美
+来源：期货日报 6月15日，国际金价跳空高开，再度大涨，站上4300美元/盎司。黄金市场情绪快速复苏，于是又有人喊“牛回，速归”。这到底怎么个事？ 据期货日报记者了解，从1月末突破5594.77美元/盎司的历史高点，到6月11日一度跌至4022.59美元/盎司的年内低位，国际金价步入“下半场”，显露出一定疲态。在金价回落的背景下，黄金市场正呈现出罕见的资金分化格局：一边是全球黄
 
 ## 正文
 
-金斯瑞生物科技（01548）盘中涨超5%，截至发稿，股价上涨3.03%，报14.94港元，成交额6033.73万港元。
+来源：期货日报 6月15日，国际金价跳空高开，再度大涨，站上4300美元/盎司。
 
-金斯瑞生物科技联营传奇生物隔夜股价大涨超10%。
+黄金市场情绪快速复苏，于是又有人喊“牛回，速归”。
 
-传奇生物昨日公布了2026年第一季度未经审计的财务业绩及公司主要重点，与2025年第一季度相比，CARVYKTI®在2026年第一季度的净销售额增长62%，达到约5.97亿美元。
+这到底怎么个事？
 
-其中美国市场净销售额增长36%，美国以外的市场净销售额增长222%。
+据期货日报记者了解，从1月末突破5594.77美元/盎司的历史高点，到6月11日一度跌至4022.59美元/盎司的年内低位，国际金价步入“下半场”，显露出一定疲态。
 
-此外，公司截至2026年3月31日止三个月的净亏损收窄至5430万美元，而去年同期净亏损为1.010亿美元。
+在金价回落的背景下，黄金市场正呈现出罕见的资金分化格局：一边是全球黄金ETF遭遇净流出，基金规模明显缩水；另一边则是全球央行逆势增持黄金，官方储备需求持续释放。
 
-责任编辑：卢昱君
+与此同时，此前借助金价上涨热销的挂钩黄金结构性存款也开始降温。
+
+短期交易资金加速撤离与长期战略资金持续流入并存，成为当前黄金市场最突出的结构性特征。
+
+加速流出，黄金ETF规模缩水 世界黄金协会6月公布的报告显示，5月全球实物黄金ETF结束了此前持续净流入的态势，转为净流出约20亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 17:39 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 17:38 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 17:57 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 17:39 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 17:42 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 17:58 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 17:31 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 17:46 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 17:39 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 17:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 17:55 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 17:53 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 17:56 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 17:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 17:48 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 17:44 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 17:49 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 17:58 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 18:05 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 17:41 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 17:45 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 18:04 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 17:50 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 17:43 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 17:44 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:40 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/19080.shtml)
-- 2026-06-29 17:39 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/1558405.shtml)
-- 2026-06-29 17:57 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/92511.shtml)
-- 2026-06-29 17:46 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/567233.shtml)
-- 2026-06-29 17:31 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/757218409894.shtml)
-- 2026-06-29 17:39 - [这一刀 会很帅](https://www.share.minike.top/Article/details/19392725.shtml)
-- 2026-06-29 17:30 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/92844.shtml)
-- 2026-06-29 17:43 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/714480806334.shtml)
-- 2026-06-29 17:44 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/161676515.shtml)
-- 2026-06-29 17:35 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/44098364166.shtml)
-- 2026-06-29 17:59 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/945933682847.shtml)
-- 2026-06-29 17:38 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/721852.shtml)
-- 2026-06-29 17:50 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/233652938.shtml)
-- 2026-06-29 17:38 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/38500859.shtml)
-- 2026-06-29 17:59 - [两老人多次到一洗车店泼粪](http://www.share.minike.top/Article/details/642492196862.shtml)
+- 2026-06-29 17:55 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/78750415.shtml)
+- 2026-06-29 17:48 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/45533153.shtml)
+- 2026-06-29 17:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/56565458.shtml)
+- 2026-06-29 18:05 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/39136797.shtml)
+- 2026-06-29 17:51 - [沉睡花园](http://www.blog.minike.top/Article/details/7696006.shtml)
+- 2026-06-29 17:39 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/619187.shtml)
+- 2026-06-29 17:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/62425.shtml)
+- 2026-06-29 17:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/05459143.shtml)
+- 2026-06-29 17:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/827478916.shtml)
+- 2026-06-29 17:43 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/021103.shtml)
+- 2026-06-29 17:53 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/000475646.shtml)
+- 2026-06-29 17:53 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/9954580694.shtml)
+- 2026-06-29 17:50 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/438581.shtml)
+- 2026-06-29 17:43 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/22559.shtml)
+- 2026-06-29 18:03 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/0649118777.shtml)

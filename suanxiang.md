@@ -1,61 +1,61 @@
-# 借助AI作弊的现象日益普遍 美国普林斯顿大学强制推行监考
+# 湖北将进入梅雨期 发布农业气象灾害风险预警
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-一个多世纪以来，普林斯顿大学（Princeton University）一直以其备受推崇的荣誉规章为傲。这项规章备受推崇，连考试监考都被禁止，仅凭学生们不作弊的承诺便已足够。这样的日子一去不复返了，很大程度上要归咎于AI。本周初，教职员工投票决定，从今年夏天开始所有线下考试都必须有监考。此举推翻了普林斯顿大学1893年推出荣誉规章时定下的政策。 普林斯顿大学学院院长迈克尔．戈登
+中新网武汉6月16日电 (记者 马芙蓉)湖北省气象局、湖北省农业农村厅16日晚联合发布农业气象灾害风险预警，预计6月18日湖北将进入梅雨期，雨水集中、强度大、致灾风险高。 根据天气预报，预计18日至19日，鄂西南、江汉平原、鄂东有大雨到暴雨，局地大暴雨；20日至22日，鄂东南、江汉平原南部有中雨到大雨，局地暴雨；24日前后，鄂东南有中雨到大雨，局地暴雨。 目前，湖北早稻、再生稻
 
 ## 正文
 
-一个多世纪以来，普林斯顿大学（Princeton University）一直以其备受推崇的荣誉规章为傲。
+中新网武汉6月16日电 (记者 马芙蓉)湖北省气象局、湖北省农业农村厅16日晚联合发布农业气象灾害风险预警，预计6月18日湖北将进入梅雨期，雨水集中、强度大、致灾风险高。
 
-这项规章备受推崇，连考试监考都被禁止，仅凭学生们不作弊的承诺便已足够。
+根据天气预报，预计18日至19日，鄂西南、江汉平原、鄂东有大雨到暴雨，局地大暴雨；20日至22日，鄂东南、江汉平原南部有中雨到大雨，局地暴雨；24日前后，鄂东南有中雨到大雨，局地暴雨。
 
-这样的日子一去不复返了，很大程度上要归咎于AI。
+目前，湖北早稻、再生稻为孕穗期，中稻为移栽返青-分蘖期，春玉米为大喇叭口-抽雄吐丝期，夏玉米、夏大豆为苗期，棉花为苗期至现蕾期，此次降水过程可能导致南部、东部部分农田渍涝。
 
-本周初，教职员工投票决定，从今年夏天开始所有线下考试都必须有监考。
+预警信息提醒说，南部降水强度较大可能导致即将抽穗扬花的早稻遭遇“雨洗禾花”、影响后期产量形成，还可能引起鱼塘水环境剧变或漫塘，导致鱼虾蟹应激反应、缺氧死亡或逃逸损失。
 
-此举推翻了普林斯顿大学1893年推出荣誉规章时定下的政策。
+此外，梅雨期天气形势利于稻飞虱、稻纵卷叶螟、草贪夜蛾迁入为害，持续阴雨造成的高湿适温环境利于稻瘟病、纹枯病的发生发展。
 
-普林斯顿大学学院院长迈克尔．戈登（Michael Gordin）在一封信中表示，此前有“大量”本科生和教职员工提出了这一要求，“因为他们认为课堂考试作弊现象已经变得很普遍”。
+预警信息建议，种植业抓好抢收、抢排、抢修、抢管、抢种，雨前及时抢收成熟果蔬，雨后抢排田间积水，疏通沟渠。
 
-戈登写道，AI不仅让作弊变得更容易，也让其更难被察觉。
+针对畜禽要提前加固圈舍，检查修缮屋顶、墙体及排水系统，防止雨水倒灌和圈舍坍塌；做好饲草饲料储备及暴雨后消毒工作。
 
-学生们不愿举报作弊行为，生怕在社交媒体上遭到公开指责。
+此外，要抓好渔业生产管理，在强降雨前提前加固塘埂堤坝和进排水系统，检修增氧设备，适时降低养殖水位，设置拦鱼网具，防范漫塘逃鱼。
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 17:41 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 17:49 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 17:55 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 17:45 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 17:40 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 17:30 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 17:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 17:34 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 17:44 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 17:35 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 17:36 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 17:57 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 17:34 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 17:59 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 17:48 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 17:49 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 17:58 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 17:56 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 18:01 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 17:47 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 17:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 17:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 18:00 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 17:51 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 17:53 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 17:56 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 17:44 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 17:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 17:54 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [黄金也扛不住了](http://www.share.minike.top/Article/details/3423271.shtml)
-- 2026-06-29 17:35 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/145254652.shtml)
-- 2026-06-29 17:53 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/8203875954.shtml)
-- 2026-06-29 17:50 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/15514412.shtml)
-- 2026-06-29 17:45 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/58197348.shtml)
-- 2026-06-29 17:52 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/94765.shtml)
-- 2026-06-29 17:38 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/961568.shtml)
-- 2026-06-29 17:55 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/6751287512.shtml)
-- 2026-06-29 17:40 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/7211505.shtml)
-- 2026-06-29 17:55 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/48510.shtml)
-- 2026-06-29 17:57 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/4720970783.shtml)
-- 2026-06-29 17:43 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/3464433.shtml)
-- 2026-06-29 17:59 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/841867749.shtml)
-- 2026-06-29 17:43 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/3568079.shtml)
-- 2026-06-29 17:54 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/85800.shtml)
+- 2026-06-29 17:40 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/95890.shtml)
+- 2026-06-29 17:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/23739003.shtml)
+- 2026-06-29 17:46 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/902724733822.shtml)
+- 2026-06-29 17:39 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/33474573.shtml)
+- 2026-06-29 17:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/2938485057.shtml)
+- 2026-06-29 17:40 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/74136394.shtml)
+- 2026-06-29 17:49 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/74179896442.shtml)
+- 2026-06-29 18:04 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/98202070.shtml)
+- 2026-06-29 17:38 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/724152029.shtml)
+- 2026-06-29 18:02 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/10727.shtml)
+- 2026-06-29 17:37 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/953693541.shtml)
+- 2026-06-29 17:49 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/734105659495.shtml)
+- 2026-06-29 17:46 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/4232818.shtml)
+- 2026-06-29 17:42 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/31012762077.shtml)
+- 2026-06-29 17:40 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/51441052.shtml)

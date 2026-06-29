@@ -1,57 +1,47 @@
-# 5月13日收盘：美股涨跌不一 纳指收跌0.7%
+# 江苏宁沪高速公路将于7月13日派发末期股息每股0.56港元
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-北京时间5月13日凌晨，美股周二收盘涨跌不一，道指小幅收高，纳指与标普500指数收跌。美国4月消费者价格同比上涨3.8%，创2023年5月以来新高。原油价格继续攀升。市场继续关注美伊局势的发展。 道指涨56.09点，涨幅为0.11%，报49760.56点；纳指跌185.92点，跌幅为0.71%，报26088.20点；标普500指数跌11.88点，跌幅为0.16%，报7400.9
+江苏宁沪高速公路（00177）公布，将于2026年7月13日派发末期股息每股0.56港元。责任编辑：卢昱君
 
 ## 正文
 
-北京时间5月13日凌晨，美股周二收盘涨跌不一，道指小幅收高，纳指与标普500指数收跌。
+江苏宁沪高速公路（00177）公布，将于2026年7月13日派发末期股息每股0.56港元。
 
-美国4月消费者价格同比上涨3.8%，创2023年5月以来新高。
-
-原油价格继续攀升。
-
-市场继续关注美伊局势的发展。
-
-道指涨56.09点，涨幅为0.11%，报49760.56点；纳指跌185.92点，跌幅为0.71%，报26088.20点；标普500指数跌11.88点，跌幅为0.16%，报7400.96点。
-
-西得克萨斯中质原油期货周二上涨2%，突破每桶100美元。
-
-布伦特原油上涨3%，站上每桶107美元。
-
-此前，美国总统特朗普称美伊之间实施了一个月的停火协议“弱得令人难以置信”，并表示在拒绝了德黑兰方面提出的“不可接受的”反提案后，该协议已“处于命悬一线的状态”。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:54 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 17:58 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 17:58 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 17:58 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 17:51 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 17:59 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 17:53 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 17:57 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 17:30 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 17:52 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 17:53 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 17:54 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 17:59 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 17:44 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 17:54 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 17:37 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 17:52 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 18:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 17:38 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 17:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 17:55 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 18:00 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 18:03 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 17:46 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/064591.shtml)
-- 2026-06-29 17:55 - [美国大满贯首日国乒主力均取胜](https://www.blog.minike.top/Article/details/95200965748.shtml)
-- 2026-06-29 17:50 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/71995201189.shtml)
-- 2026-06-29 17:55 - [明星大侦探第四季](http://www.share.minike.top/Article/details/76639700.shtml)
-- 2026-06-29 17:30 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/140694336814.shtml)
-- 2026-06-29 17:40 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/62646406783.shtml)
-- 2026-06-29 17:50 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/1321131.shtml)
-- 2026-06-29 17:53 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/1923854406.shtml)
-- 2026-06-29 17:48 - [周生如故](http://www.share.minike.top/Article/details/78722741115.shtml)
-- 2026-06-29 17:58 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/2249740660.shtml)
-- 2026-06-29 17:54 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/269924464.shtml)
-- 2026-06-29 17:47 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/74184213787.shtml)
-- 2026-06-29 17:32 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/284858.shtml)
-- 2026-06-29 17:46 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/66936.shtml)
-- 2026-06-29 17:58 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/8543281.shtml)
+- 2026-06-29 17:54 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/141364818.shtml)
+- 2026-06-29 17:56 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/18961887289.shtml)
+- 2026-06-29 17:58 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/732586578.shtml)
+- 2026-06-29 18:05 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/09270.shtml)
+- 2026-06-29 17:40 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/85319.shtml)
+- 2026-06-29 18:05 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/0952604374.shtml)
+- 2026-06-29 17:46 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/945851.shtml)
+- 2026-06-29 17:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/841236.shtml)
+- 2026-06-29 17:51 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/4007094.shtml)
+- 2026-06-29 17:48 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.kurohicncr.top/Article/details/824666852580.shtml)
+- 2026-06-29 17:49 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/66398.shtml)
+- 2026-06-29 17:36 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/3039270.shtml)
+- 2026-06-29 17:44 - [东方风云榜](http://www.share.minike.top/Article/details/960980653.shtml)
+- 2026-06-29 17:55 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/514546.shtml)
+- 2026-06-29 17:46 - [起风了](https://www.blog.minike.top/Article/details/013299181.shtml)

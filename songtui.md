@@ -1,57 +1,58 @@
-# 博雷顿拟受让上海星秒光电科技有限公司股权
+# 盘前：纳指期货涨0.25% SpaceX续涨自上市以来累计涨50%
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-博雷顿（01333）发布公告，于2026年5月11日，本公司、陈方明先生、刘焱先生与出让方陈杰先生、张帅先生、云部落易津及目标公司共同签署《关于上海星秒光电科技有限公司之股权转让协议》。本公司同意以自有资金人民币 1399.7632万元，受让云部落易津创持有的目标公司6.8281%股权。 同时，陈方明先生同意合计以人民币820万元受让陈杰先生及张帅先生持有的目标公司4.0% 股
+全球股市周二小幅上涨，此前一个交易日因美国与伊朗达成和平协议的消息出现反弹；美国股市在连续三日上涨后暂停涨势，与此同时，SpaceX延续强劲上涨势头，自上市以来涨幅有望超过50%。另一方面，日本央行加息至31年来高位后，投资者将注意力转向本周密集的央行政策决议。 截至发稿，道指期货涨0.12%，标普500指数期货涨0.09%，纳指期货涨0.25%。 随着市场对美伊初步协议的乐观
 
 ## 正文
 
-博雷顿（01333）发布公告，于2026年5月11日，本公司、陈方明先生、刘焱先生与出让方陈杰先生、张帅先生、云部落易津及目标公司共同签署《关于上海星秒光电科技有限公司之股权转让协议》。
+全球股市周二小幅上涨，此前一个交易日因美国与伊朗达成和平协议的消息出现反弹；美国股市在连续三日上涨后暂停涨势，与此同时，SpaceX延续强劲上涨势头，自上市以来涨幅有望超过50%。
 
-本公司同意以自有资金人民币 1399.7632万元，受让云部落易津创持有的目标公司6.8281%股权。
+另一方面，日本央行加息至31年来高位后，投资者将注意力转向本周密集的央行政策决议。
 
-同时，陈方明先生同意合计以人民币820万元受让陈杰先生及张帅先生持有的目标公司4.0% 股权（其中：以人民币574万元受让陈杰先生持有的目标公司2.8%股权，以人民币246万元受让张帅先生持有的目标公司1.2%股权）；行远智晟同意以合计人民币420万元受让张帅先生及云部落易津持有的目标公司2.0488%股权（其中：以人民币205万元受让张帅先生持有的1%目标公司股权，以人民币215万元受让云部落易津持有的目标公司1.0488%股权）；刘焱先生同意以人民币717.5万元受让云部落易津持有的目标公司3.5%股权。
+截至发稿，道指期货涨0.12%，标普500指数期货涨0.09%，纳指期货涨0.25%。
 
-本次受让完成后，本公司将持有目标公司6.8281%股权，目标公司将成为本公司的参股公司，其财务业绩将不会并入本集团的合并财务报表。
+随着市场对美伊初步协议的乐观情绪逐渐消退，围绕海湾局势的交易情绪趋于谨慎，整体市场进入更为温和的整理状态。
 
-目标公司自研皮秒级时间测量芯片、单光子探测、激光雷达等核心技术，可直接赋能本公司无人驾驶电动矿卡的高精度测距、环境感知、自主避障、定位导航，显著提升智能化与安全性。
+欧洲市场方面，STOXX 600指数上涨0.6%，接近周一创下的历史高点，主要受到施耐德电气与ASML等权重股上涨推动，两者分别上涨2.7%和0.6%。
 
-本次投资有利于强化公司在新能源装备智能化、光电感知、量子精密测量、激光雷达等核心技术布局，完善公司无人驾驶电动矿卡解决方案，提升本公司在智慧矿山场景的技术壁垒与产品竞争力。
+英国富时100指数上涨0.2%，德国DAX指数上涨0.2%，法国CAC 40指数上涨0.3%，意大利FTSE MIB上涨0.6%，西班牙IBEX 35上涨0.3%。
 
-责任编辑：卢昱君
+亚洲股指小幅走高。
+
+日本日经225指数收涨0.1%至69404.50点，盘中一度突破70000点，为历史首次，此前日本央行加息至31年来高位。
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 17:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 17:41 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 17:47 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 17:51 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 17:47 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 17:51 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 17:52 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 17:34 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 17:37 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 17:35 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 17:40 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 17:47 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 17:50 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 17:56 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 17:58 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 17:47 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 17:57 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 18:01 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 17:51 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 18:02 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 18:03 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 17:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 17:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 18:03 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:52 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/24156738675.shtml)
-- 2026-06-29 17:50 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/52787077.shtml)
-- 2026-06-29 17:34 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/03487.shtml)
-- 2026-06-29 17:49 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/594909.shtml)
-- 2026-06-29 17:43 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/504489.shtml)
-- 2026-06-29 17:53 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/76809487.shtml)
-- 2026-06-29 17:41 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/37097.shtml)
-- 2026-06-29 17:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/596090224.shtml)
-- 2026-06-29 17:56 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/901364.shtml)
-- 2026-06-29 17:56 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/971687.shtml)
-- 2026-06-29 17:30 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/971726004.shtml)
-- 2026-06-29 17:52 - [急先锋](http://www.blog.kurohicncr.top/Article/details/377800067836.shtml)
-- 2026-06-29 17:31 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/6015932749.shtml)
-- 2026-06-29 17:36 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/838837243449.shtml)
-- 2026-06-29 17:57 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/20447273311.shtml)
+- 2026-06-29 18:01 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/526096901494.shtml)
+- 2026-06-29 17:58 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/8502610222.shtml)
+- 2026-06-29 17:38 - [逆天祖国人](https://www.share.minike.top/Article/details/83607.shtml)
+- 2026-06-29 17:59 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/81891.shtml)
+- 2026-06-29 17:46 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/865855.shtml)
+- 2026-06-29 18:00 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/08020546970.shtml)
+- 2026-06-29 17:53 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/35304205.shtml)
+- 2026-06-29 17:44 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/46449674.shtml)
+- 2026-06-29 18:04 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.kurohicncr.top/Article/details/84367053.shtml)
+- 2026-06-29 18:02 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/39820561.shtml)
+- 2026-06-29 17:56 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/796834113982.shtml)
+- 2026-06-29 17:36 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/51456288033.shtml)
+- 2026-06-29 17:55 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/57677.shtml)
+- 2026-06-29 17:48 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/42194456.shtml)
+- 2026-06-29 17:46 - [花万元相亲对象是50元雇的演员](http://www.blog.minike.top/Article/details/26492083757.shtml)

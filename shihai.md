@@ -1,56 +1,58 @@
-# 长江有色：美股科技股集体走强叠加供需缺口 12日锡价或大涨
+# 美伊和平框架降低通胀担忧，美联储加息预期降温推动黄金小幅反弹
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-长江有色金属网 期货市场：美股科技股集体走强叠加供需缺口，隔夜伦锡收涨2.31%；最新收盘报55250美元/吨，上涨1250美元，涨幅为2.31%，成交量为868手，持仓量22088万手；国内市场，夜盘沪锡最新收报431530元/吨，上涨7620元，涨幅为1.8%。 伦敦金属交易所（LME）5月11日伦锡库存量8360吨，较前一交易日库存量减少90吨。长江锡业网讯：今日沪锡期货
+文章来源：汇通财经 现货黄金（XAU/USD）周二亚洲早盘维持温和上涨走势，延续前一个交易日的反弹节奏。随着美国与伊朗就结束长期军事冲突达成全面框架协议，市场对于能源供应中断和全球通胀持续走高的担忧明显缓和，避险资金逐步重新调整仓位。由于油价回落、美元走弱以及美国国债收益率下降，黄金作为传统避险资产重新获得一定买盘支撑。 美国总统特朗普和副总统万斯已经与伊朗方面签署电子版谅解备
 
 ## 正文
 
-长江有色金属网 期货市场：美股科技股集体走强叠加供需缺口，隔夜伦锡收涨2.31%；最新收盘报55250美元/吨，上涨1250美元，涨幅为2.31%，成交量为868手，持仓量22088万手；国内市场，夜盘沪锡最新收报431530元/吨，上涨7620元，涨幅为1.8%。
+文章来源：汇通财经 现货黄金（XAU/USD）周二亚洲早盘维持温和上涨走势，延续前一个交易日的反弹节奏。
 
-伦敦金属交易所（LME）5月11日伦锡库存量8360吨，较前一交易日库存量减少90吨。
+随着美国与伊朗就结束长期军事冲突达成全面框架协议，市场对于能源供应中断和全球通胀持续走高的担忧明显缓和，避险资金逐步重新调整仓位。
 
-长江锡业网讯：今日沪锡期货全线低开为主，主力月2606合约开盘报429500元/吨较前一日收盘涨5590元/吨，9：20分沪锡主力2606合约报437950元/吨，上涨14040元，涨幅为3.31%，沪期锡高开高走，盘面维持高位运行；宏观面：美伊局势骤然恶化推升国际油价，不仅抬高了基本金属的冶炼成本，更引发了全球金属贸易航线与区域产能的中断担忧。
+由于油价回落、美元走弱以及美国国债收益率下降，黄金作为传统避险资产重新获得一定买盘支撑。
 
-与此同时，全球科技股强势上涨，AI 和半导体行业景气度持续攀升，为金属市场注入了强劲的需求动力。
+美国总统特朗普和副总统万斯已经与伊朗方面签署电子版谅解备忘录。
 
-精炼锡供需现状：供给刚性收缩，库存历史低位 供给端持续收紧是本轮锡价上涨的核心支撑。
+特朗普表示，霍尔木兹海峡已经部分恢复开放，并预计将在本周五实现全面通航。
 
-缅甸佤邦复产进度远低于市场预期，产能恢复程度有限，进入 5 月传统雨季后，当地矿山开采和原料运输环节进一步受阻。
+不过，协议细节仍存在一定不确定性。
 
-印尼作为全球最大精炼锡出口国，今年严格执行开采配额管控，同时正在酝酿出台出口暴利税政策，近期出口量较正常水平出现大幅下滑。
+伊朗方面计划在该关键航道征收部分通行费用，而美国方面则表示海峡将在无额外收费的情况下恢复正常运输。
 
-全球锡显性库存已降至历史极低区间，仅能满足极短时间的市场消费，现货市场供应紧张格局持续加剧。
+同时，特朗普警告称，若伊朗未能与美国最终达成核协议，美国可能恢复军事行动，使市场对中东局势的长期稳定仍保持谨慎。
 
 ## 相关推荐
 
-- 2026-06-29 17:59 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 17:53 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 17:58 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 17:39 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 17:54 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 17:54 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 17:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 17:46 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 17:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 17:33 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 17:38 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 17:41 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 17:49 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 18:04 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 18:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 17:50 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 17:40 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 17:47 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 17:59 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 17:38 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 17:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 17:49 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:40 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/39576890.shtml)
-- 2026-06-29 17:57 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/977503898281.shtml)
-- 2026-06-29 17:43 - [业内：全球市场迎来结构性投资窗口](http://www.share.kurohicncr.top/Article/details/5228348911.shtml)
-- 2026-06-29 17:51 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/130673973.shtml)
-- 2026-06-29 17:57 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/412056.shtml)
-- 2026-06-29 17:56 - [爱很美味](http://www.blog.minike.top/Article/details/122474.shtml)
-- 2026-06-29 17:49 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/2035444.shtml)
-- 2026-06-29 17:41 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/462396263184.shtml)
-- 2026-06-29 17:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/701211.shtml)
-- 2026-06-29 17:38 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/453836.shtml)
-- 2026-06-29 17:31 - [爱很美味](http://www.share.kurohicncr.top/Article/details/514893981017.shtml)
-- 2026-06-29 17:46 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/18950003405.shtml)
-- 2026-06-29 17:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/00224.shtml)
-- 2026-06-29 17:46 - [速度与激情9](https://www.share.minike.top/Article/details/2198593.shtml)
-- 2026-06-29 17:48 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/04682606.shtml)
+- 2026-06-29 17:48 - [A股割裂行情有变化了吗](https://www.share.minike.top/Article/details/213709732229.shtml)
+- 2026-06-29 17:48 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/2195415594.shtml)
+- 2026-06-29 18:01 - [看大国重器“云端穿针引线”](http://www.share.kurohicncr.top/Article/details/388779.shtml)
+- 2026-06-29 17:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/0780208.shtml)
+- 2026-06-29 17:54 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.minike.top/Article/details/58880.shtml)
+- 2026-06-29 18:02 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/546464.shtml)
+- 2026-06-29 18:05 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/640092713.shtml)
+- 2026-06-29 17:38 - [未成年少女长期吸毒导致卧床不起](https://www.blog.kurohicncr.top/Article/details/717226670.shtml)
+- 2026-06-29 17:43 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/8314173.shtml)
+- 2026-06-29 17:59 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/67485.shtml)
+- 2026-06-29 17:38 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/80544546556.shtml)
+- 2026-06-29 18:02 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/395612560251.shtml)
+- 2026-06-29 18:05 - [首个靠AI躺赢的国家](https://www.share.kurohicncr.top/Article/details/4759036.shtml)
+- 2026-06-29 18:04 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/68882129301.shtml)
+- 2026-06-29 17:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/967388991581.shtml)

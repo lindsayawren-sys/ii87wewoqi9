@@ -1,59 +1,52 @@
-# 最后一刻，黄仁勋背着包，随特朗普访华！知情人：特朗普在看到报道其缺席代表团后，致电邀请
+# 厦门高崎国际机场口岸今年以来出入境旅客破200万人次
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-据央视网昨日消息，白宫11日公布了将随特朗普一同访华的商界领袖名单。据悉，总共将有16位美国商界代表来到北京，他们代表的美国企业涵盖科技、金融、航空和农业等多个领域，名单内没有黄仁勋。 不过，最新消息显示，全球市值最高的AI芯片龙头英伟达CEO黄仁勋临时更改行程，将随美国总统特朗普访华。 随后，英伟达向多家媒体证实，其首席执行官黄仁勋将随特朗普访问中国。 据一位知情人士透露，特
+发布时间：2026年06月15日 20:18 来源：中国新闻网 据厦门边检总站高崎边检站统计，6月15日，厦门高崎国际机场口岸今年出入境旅客量突破200万人次，同比增长6%，创同期历史新高。随着跨境商务洽谈、活动交流、旅游出行活动日益频繁，出入境外籍旅客数量显著增加。截至6月15日，今年以来经由厦门高崎国际机场出入境的外籍旅客近60万人次，同比增长超17%，免签入境的外籍旅客超
 
 ## 正文
 
-据央视网昨日消息，白宫11日公布了将随特朗普一同访华的商界领袖名单。
+发布时间：2026年06月15日 20:18 来源：中国新闻网 据厦门边检总站高崎边检站统计，6月15日，厦门高崎国际机场口岸今年出入境旅客量突破200万人次，同比增长6%，创同期历史新高。
 
-据悉，总共将有16位美国商界代表来到北京，他们代表的美国企业涵盖科技、金融、航空和农业等多个领域，名单内没有黄仁勋。
+随着跨境商务洽谈、活动交流、旅游出行活动日益频繁，出入境外籍旅客数量显著增加。
 
-不过，最新消息显示，全球市值最高的AI芯片龙头英伟达CEO黄仁勋临时更改行程，将随美国总统特朗普访华。
+截至6月15日，今年以来经由厦门高崎国际机场出入境的外籍旅客近60万人次，同比增长超17%，免签入境的外籍旅客超17万人次，同比增长超35%。
 
-随后，英伟达向多家媒体证实，其首席执行官黄仁勋将随特朗普访问中国。
+目前，厦门高崎国际机场执飞国际(地区)客运航线27条，平均每周出入境客运航班500余架次。
 
-据一位知情人士透露，特朗普是在看到媒体报道黄仁勋缺席代表团后，致电黄仁勋，邀请他加入访华代表团。
-
-英伟达在声明中称，黄仁勋应特朗普的邀请出席峰会，以支持美国和本届政府的目标。
-
-据社交媒体流传的一张照片，黄仁勋在“空军一号”于阿拉斯加经停加油期间登上了飞机，与特朗普一同前往中国，并附上了一张他身穿皮衣，背着背包候机的照片。
-
-▲黄仁勋在阿拉斯加机场等待登上空军一号 此前，美国白宫公布了将随特朗普一同访华的商界领袖名单。
+(记者 李思源 视频来源 厦门边检总站高崎边检站） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 17:49 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 17:38 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 17:59 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 17:56 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 17:37 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 17:47 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 17:50 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 17:32 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 17:43 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 17:38 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 17:53 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 17:36 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 17:40 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 17:50 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 17:42 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 17:37 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 18:03 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 17:51 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 17:40 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 17:36 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 17:49 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 17:58 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 17:50 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 17:59 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 18:00 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/46839230061.shtml)
-- 2026-06-29 17:44 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/56610916.shtml)
-- 2026-06-29 17:55 - [差点没看懂白鹿丞磊这段意识流](http://www.share.minike.top/Article/details/68838673.shtml)
-- 2026-06-29 17:52 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/576983985.shtml)
-- 2026-06-29 17:35 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/69801431070.shtml)
-- 2026-06-29 17:52 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/051330.shtml)
-- 2026-06-29 17:58 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/984248289.shtml)
-- 2026-06-29 17:33 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/7786058870.shtml)
-- 2026-06-29 17:47 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/1286353.shtml)
-- 2026-06-29 17:52 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/643960482.shtml)
-- 2026-06-29 17:50 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/19990072761.shtml)
-- 2026-06-29 17:31 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/31261.shtml)
-- 2026-06-29 17:50 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/2166141805.shtml)
-- 2026-06-29 17:39 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/754555726.shtml)
-- 2026-06-29 17:59 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.minike.top/Article/details/1177184.shtml)
+- 2026-06-29 17:59 - [小娘惹](https://www.blog.minike.top/Article/details/40829.shtml)
+- 2026-06-29 17:58 - [急先锋](http://www.blog.minike.top/Article/details/740541881.shtml)
+- 2026-06-29 17:54 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/86467336769.shtml)
+- 2026-06-29 17:50 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.kurohicncr.top/Article/details/683462.shtml)
+- 2026-06-29 17:44 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/16856.shtml)
+- 2026-06-29 17:58 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/295561.shtml)
+- 2026-06-29 17:43 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.kurohicncr.top/Article/details/4489965884.shtml)
+- 2026-06-29 17:41 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/4270159.shtml)
+- 2026-06-29 17:54 - [金牌调解](http://www.blog.minike.top/Article/details/12984983282.shtml)
+- 2026-06-29 17:56 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/84881.shtml)
+- 2026-06-29 17:55 - [叠纸](https://www.share.minike.top/Article/details/66967.shtml)
+- 2026-06-29 18:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/759778109.shtml)
+- 2026-06-29 17:54 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/21832463049.shtml)
+- 2026-06-29 17:46 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/807336.shtml)
+- 2026-06-29 17:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/9534119585.shtml)

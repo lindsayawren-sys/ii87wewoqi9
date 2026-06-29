@@ -1,54 +1,53 @@
-# 台气象部门：台湾东部海域发生5.6级地震
+# 西安东站完成装饰装修工作 已具备开通条件
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新社台北5月12日电 (记者 陈建新)据台当局气象部门消息，台湾东部海域12日14时53分发生里氏5.6级地震。 此次地震震源深度为22.9公里，震中位于台东县政府东北方向66.8公里的海域。台东、花莲县震度最大，达4级。台湾多个县市有感，台中捷运短暂暂停行驶后降速慢行。 另据中国地震台网测定，5月12日14时53分在台湾台东县海域发生5.1级地震，震中位于北纬23.27度，
+发布时间：2026年06月15日 21:55 来源：中国新闻网 6月15日，中国铁路西安局集团有限公司对外披露，西安东站内外部装饰装修工作全面完成，标志着这座西北地区大型综合交通枢纽进入最后收尾阶段。据悉，项目投用后可实现西安东站、西安北站互联互通，进一步完善全国高速铁路网，为区域经济社会高质量发展注入新动能。 据了解，西安东站位于陕西省西安市灞桥区高铁东城核心区，站房建筑面积
 
 ## 正文
 
-中新社台北5月12日电 (记者 陈建新)据台当局气象部门消息，台湾东部海域12日14时53分发生里氏5.6级地震。
+发布时间：2026年06月15日 21:55 来源：中国新闻网 6月15日，中国铁路西安局集团有限公司对外披露，西安东站内外部装饰装修工作全面完成，标志着这座西北地区大型综合交通枢纽进入最后收尾阶段。
 
-此次地震震源深度为22.9公里，震中位于台东县政府东北方向66.8公里的海域。
+据悉，项目投用后可实现西安东站、西安北站互联互通，进一步完善全国高速铁路网，为区域经济社会高质量发展注入新动能。
 
-台东、花莲县震度最大，达4级。
+据了解，西安东站位于陕西省西安市灞桥区高铁东城核心区，站房建筑面积达10万平方米，车场总规模13台27线，其中西渝高速场5台9线，西武高速场4台8线，西康普速场4台10线，预留城际场。
 
-台湾多个县市有感，台中捷运短暂暂停行驶后降速慢行。
-
-另据中国地震台网测定，5月12日14时53分在台湾台东县海域发生5.1级地震，震中位于北纬23.27度，东经121.49度。
-
-(完)
+(梅镱泷 刘一江 薛心如 视频来源 西安铁路局） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 17:43 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 17:57 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 17:55 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 17:36 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 17:38 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 17:30 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 17:44 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 17:45 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 17:40 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 17:59 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 17:46 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 17:55 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 18:00 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 17:54 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 18:02 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 17:39 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 17:58 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 17:56 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 17:37 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 17:39 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 17:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 17:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 17:57 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 17:47 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 17:56 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 17:57 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/9701091051.shtml)
-- 2026-06-29 17:46 - [沙特外交大臣将访华](http://www.blog.minike.top/Article/details/00844140325.shtml)
-- 2026-06-29 17:37 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/51176493239.shtml)
-- 2026-06-29 17:46 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/2743142195.shtml)
-- 2026-06-29 17:45 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/8493482.shtml)
-- 2026-06-29 17:46 - [毒液2](https://www.share.minike.top/Article/details/480074.shtml)
-- 2026-06-29 17:50 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/1557644.shtml)
-- 2026-06-29 17:56 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.kurohicncr.top/Article/details/9068839.shtml)
-- 2026-06-29 17:58 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/663219482.shtml)
-- 2026-06-29 17:42 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/4634752410.shtml)
-- 2026-06-29 17:34 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/9469987.shtml)
-- 2026-06-29 17:32 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/726417484769.shtml)
-- 2026-06-29 17:39 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/0667525424.shtml)
-- 2026-06-29 17:50 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/33655185143.shtml)
-- 2026-06-29 17:56 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/030510014.shtml)
+- 2026-06-29 18:01 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/683680.shtml)
+- 2026-06-29 17:41 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/661646692.shtml)
+- 2026-06-29 17:51 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/621830181552.shtml)
+- 2026-06-29 17:56 - [货车司机雨中帮交警挪树获表扬](https://www.share.minike.top/Article/details/56867179235.shtml)
+- 2026-06-29 17:59 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/3050700.shtml)
+- 2026-06-29 17:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/513864.shtml)
+- 2026-06-29 17:47 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/30578534.shtml)
+- 2026-06-29 17:50 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/56336099.shtml)
+- 2026-06-29 17:53 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/60820090817.shtml)
+- 2026-06-29 18:05 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/03037094714.shtml)
+- 2026-06-29 17:54 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/6749476.shtml)
+- 2026-06-29 17:38 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/723788526557.shtml)
+- 2026-06-29 17:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/6173098.shtml)
+- 2026-06-29 18:06 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/4334547.shtml)
+- 2026-06-29 17:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/581793139259.shtml)

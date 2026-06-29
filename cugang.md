@@ -1,43 +1,47 @@
-# 我国牵头制定5项天然气国际标准发布
+# 浙江义乌“端午系产品”畅销海内外 宋锦元素成就爆款
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 09:07 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月16日 18:52 来源：中国新闻网 临近端午节，位于浙江的义乌国际商贸城相关产品销售火爆，五彩绳、香囊等传统时令好物走俏。据悉，当地今年多款端午产品融入国潮元素，特别是融入入选第一批国家级非物质文化遗产名录——宋锦织造技艺的相关产品成为爆款。(董易鑫 刘富城 宋继添） 责任编辑：【李季】
 
 ## 正文
 
-发布时间：2026年05月12日 09:07 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月16日 18:52 来源：中国新闻网 临近端午节，位于浙江的义乌国际商贸城相关产品销售火爆，五彩绳、香囊等传统时令好物走俏。
+
+据悉，当地今年多款端午产品融入国潮元素，特别是融入入选第一批国家级非物质文化遗产名录——宋锦织造技艺的相关产品成为爆款。
+
+(董易鑫 刘富城 宋继添） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 17:40 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 17:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 17:30 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 17:30 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 17:40 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 17:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 17:53 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 17:33 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 17:35 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 17:58 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 17:46 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 18:04 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 17:41 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 17:53 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 18:02 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 17:56 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 17:52 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 17:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 17:54 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 18:01 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 18:04 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 17:45 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:41 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/021593390.shtml)
-- 2026-06-29 17:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/3265253402.shtml)
-- 2026-06-29 17:36 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/223838698.shtml)
-- 2026-06-29 17:43 - [女心理师](https://www.share.kurohicncr.top/Article/details/6058198880.shtml)
-- 2026-06-29 17:36 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/23082409.shtml)
-- 2026-06-29 17:41 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/44729561223.shtml)
-- 2026-06-29 17:45 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/0385303.shtml)
-- 2026-06-29 17:30 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/1274489.shtml)
-- 2026-06-29 17:44 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/714853942563.shtml)
-- 2026-06-29 17:40 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/09785.shtml)
-- 2026-06-29 17:48 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/725550.shtml)
-- 2026-06-29 17:31 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/69420.shtml)
-- 2026-06-29 17:43 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/26412662.shtml)
-- 2026-06-29 17:49 - [四川达州发生一起交通事故致2死](https://www.share.minike.top/Article/details/9883927420.shtml)
-- 2026-06-29 17:56 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/1778251.shtml)
+- 2026-06-29 17:58 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/8114655188.shtml)
+- 2026-06-29 17:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/512360424641.shtml)
+- 2026-06-29 17:37 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/68009866.shtml)
+- 2026-06-29 17:49 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/55274949.shtml)
+- 2026-06-29 17:37 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/0297212.shtml)
+- 2026-06-29 17:40 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/495556.shtml)
+- 2026-06-29 17:51 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/75033153976.shtml)
+- 2026-06-29 17:50 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/9882371.shtml)
+- 2026-06-29 17:52 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/24155.shtml)
+- 2026-06-29 17:44 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/41412782.shtml)
+- 2026-06-29 17:47 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/39137.shtml)
+- 2026-06-29 17:57 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/41708547.shtml)
+- 2026-06-29 17:39 - [韩国小学生都来吐槽了](http://www.share.kurohicncr.top/Article/details/33097032502.shtml)
+- 2026-06-29 17:36 - [王俊凯命名方式](http://www.share.minike.top/Article/details/55447.shtml)
+- 2026-06-29 17:57 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/10992.shtml)

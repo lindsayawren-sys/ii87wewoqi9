@@ -1,60 +1,60 @@
-# 东部候鸟迁飞通道：中国多省联动织密跨国生态保护网
+# 为更多技能人才铺展“星光大道”
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月12日电 (记者 史轶夫)作为全球最繁忙的候鸟迁徙路线之一，东亚——澳大利西亚迁飞通道的保护正进入中国多省协同新阶段。 “2026年东部候鸟迁徙监测与迁飞通道保护研讨会”12日在东北林业大学举办，中国13个省份林草局、保护区及科研机构40名代表参加。东部候鸟迁徙路线沿线省份首次以跨区域联防、科技赋能、栖息地修复等内容进行研讨，为每年数千万只候鸟筑牢“空中生命走廊
+原标题：马上评｜为更多技能人才铺展“星光大道” 在AI突飞猛进、高等教育愈发普及的今天，或许很多人会疑惑：当人工智能越来越聪明，人的手艺还有没有价值？现在的孩子选择职业教育，会有前途吗？100天后将于上海举办的一项全球顶尖赛事，将给出肯定答案。 国务院新闻办12日召开新闻发布会，介绍第48届世界技能大赛筹备情况。世界技能大赛(下简称“世赛”)是最高层级的世界性职业技能赛事，被誉
 
 ## 正文
 
-中新网哈尔滨5月12日电 (记者 史轶夫)作为全球最繁忙的候鸟迁徙路线之一，东亚——澳大利西亚迁飞通道的保护正进入中国多省协同新阶段。
+原标题：马上评｜为更多技能人才铺展“星光大道” 在AI突飞猛进、高等教育愈发普及的今天，或许很多人会疑惑：当人工智能越来越聪明，人的手艺还有没有价值？
 
-“2026年东部候鸟迁徙监测与迁飞通道保护研讨会”12日在东北林业大学举办，中国13个省份林草局、保护区及科研机构40名代表参加。
+现在的孩子选择职业教育，会有前途吗？
 
-东部候鸟迁徙路线沿线省份首次以跨区域联防、科技赋能、栖息地修复等内容进行研讨，为每年数千万只候鸟筑牢“空中生命走廊”。
+100天后将于上海举办的一项全球顶尖赛事，将给出肯定答案。
 
-黑龙江、安徽、辽宁、山西、吉林等省份均地处这条跨国通道关键节点，是候鸟北归南徙的必经停歇地与能量补给站。
+国务院新闻办12日召开新闻发布会，介绍第48届世界技能大赛筹备情况。
 
-各地依托自然保护地体系，已建成覆盖湿地、森林、草原的候鸟栖息地网络，中华秋沙鸭、青头潜鸭、东方白鹳等珍稀物种种群数量持续回升。
+世界技能大赛(下简称“世赛”)是最高层级的世界性职业技能赛事，被誉为“世界技能奥林匹克”，每两年举办一届。
 
-跨区域协同成为本次会议核心。
+今年9月22日，这项世界技能盛会将来到中国上海。
 
-多地提出建立省际信息共享、联合巡护、协同执法机制，破解候鸟迁徙无界与保护分治难题。
+在为期5天的比赛中，预计有70多个国家和地区、超过1400名选手将齐聚一堂，参与64个项目的角逐，有望创下比赛项目数、新增项目数、参赛国家和地区数、参赛选手数“四个之最”。
 
-安徽探索毗邻省份联防联控，辽宁与多国保护区开展跨国协作，吉林倡议共建迁徙档案与应急响应机制，推动“途中停歇有保障、跨区飞行无盲区”。
+“技能改变世界、技能照亮前程”。
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 17:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 17:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 17:51 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 17:52 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 17:56 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 17:50 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 17:39 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 17:31 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 17:48 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 17:42 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 17:55 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 17:44 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 17:53 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 17:53 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 18:05 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 17:57 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 17:59 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 17:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 17:43 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 18:02 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 17:49 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 17:44 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 17:46 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 18:00 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 17:56 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 18:02 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 17:45 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:47 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/70703771.shtml)
-- 2026-06-29 17:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/415974579392.shtml)
-- 2026-06-29 17:46 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/90634978780.shtml)
-- 2026-06-29 17:37 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/8170751816.shtml)
-- 2026-06-29 17:32 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/266580.shtml)
-- 2026-06-29 17:49 - [两老人多次到一洗车店泼粪](http://www.share.minike.top/Article/details/6416339.shtml)
-- 2026-06-29 17:58 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/5851983440.shtml)
-- 2026-06-29 17:57 - [官方通报一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/2456695.shtml)
-- 2026-06-29 17:33 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/432207078.shtml)
-- 2026-06-29 18:00 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/34403.shtml)
-- 2026-06-29 17:30 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/44814.shtml)
-- 2026-06-29 17:52 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/76843380685.shtml)
-- 2026-06-29 17:42 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/3180131422.shtml)
-- 2026-06-29 17:49 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/622325.shtml)
-- 2026-06-29 17:45 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/1665338209.shtml)
+- 2026-06-29 17:58 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/1618257.shtml)
+- 2026-06-29 17:49 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/878428784.shtml)
+- 2026-06-29 17:43 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/93653613728.shtml)
+- 2026-06-29 17:48 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/27604.shtml)
+- 2026-06-29 17:59 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/751695.shtml)
+- 2026-06-29 17:55 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/81086805421.shtml)
+- 2026-06-29 17:41 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/4754911932.shtml)
+- 2026-06-29 17:59 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/188639940.shtml)
+- 2026-06-29 17:45 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/666034.shtml)
+- 2026-06-29 18:05 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/215986284.shtml)
+- 2026-06-29 17:38 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/976801909067.shtml)
+- 2026-06-29 17:56 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/98320.shtml)
+- 2026-06-29 17:51 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/607777322324.shtml)
+- 2026-06-29 18:01 - [千与千寻](https://www.blog.minike.top/Article/details/87584.shtml)
+- 2026-06-29 17:50 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/840449036963.shtml)

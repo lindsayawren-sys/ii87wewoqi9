@@ -1,59 +1,56 @@
-# 受需求疲软影响，印度 4 月棕榈油进口量大跌 26%，降至四个月新低
+# 更换套餐阻碍重重 运营商“新老用户不同权”问题如何破解
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-印度知名行业机构表示，受机构需求疲软叠加棕榈油价格上涨、与竞品油脂价差收窄影响，棕榈油性价比优势减弱，精炼企业不愿加大采购，印度4月棕榈油进口量暴跌26%，创下四个月新低。 作为全球最大植物油进口国，印度进口量下滑，可能令印尼、马来西亚等主产国库存积压，并拖累马来西亚棕榈油基准期货（FCPOc3）行情。 总部位于孟买的印度溶剂萃取商协会（SEA）周三发布声明称： 印度4月棕榈油
+近日，多地消费者投诉，三大电信运营商普遍存在“新老用户不同权”现象。大量网友发文吐槽三大电信运营商的“杀熟”行为，反映办理低价套餐时，客服频繁使用“系统不支持”“套餐已下线”“只能线下办理”等话术反复推诿。只有反复交涉，甚至明确表态要“携号转网”或“向工信部投诉”，运营商才会“勉为其难地抛出一点优惠把你留住”。 有网友提出，“运营商将低价套餐仅限新用户办理，老用户却无法同权获取
 
 ## 正文
 
-印度知名行业机构表示，受机构需求疲软叠加棕榈油价格上涨、与竞品油脂价差收窄影响，棕榈油性价比优势减弱，精炼企业不愿加大采购，印度4月棕榈油进口量暴跌26%，创下四个月新低。
+近日，多地消费者投诉，三大电信运营商普遍存在“新老用户不同权”现象。
 
-作为全球最大植物油进口国，印度进口量下滑，可能令印尼、马来西亚等主产国库存积压，并拖累马来西亚棕榈油基准期货（FCPOc3）行情。
+大量网友发文吐槽三大电信运营商的“杀熟”行为，反映办理低价套餐时，客服频繁使用“系统不支持”“套餐已下线”“只能线下办理”等话术反复推诿。
 
-总部位于孟买的印度溶剂萃取商协会（SEA）周三发布声明称： 印度4月棕榈油进口量从3月的68.9462万吨，降至51.3403万吨，为2025年12月以来最低值。
+只有反复交涉，甚至明确表态要“携号转网”或“向工信部投诉”，运营商才会“勉为其难地抛出一点优惠把你留住”。
 
-同期豆油进口量大增25%，至36.035万吨，创四个月新高；葵花籽油进口量飙升约121%，达43.424万吨，创下22个月最高水平。
+有网友提出，“运营商将低价套餐仅限新用户办理，老用户却无法同权获取，算不算价格歧视？
 
-声明补充称，受葵花籽油、豆油采购量大幅提振，印度植物油总进口量环比上升10%，至131万吨。
+”“客服以‘系统不支持’‘套餐已下线’为由拒绝老用户降档，但新用户却能正常办理同款套餐，这是否涉嫌欺诈？
 
-印度棕榈油主要从印尼、马来西亚进口；豆油与葵花籽油则主要进口自阿根廷、巴西、俄罗斯及乌克兰。
+”还有网友提出，“如果当时办理月租时没有特殊约定的话，这种‘新老用户不同权’的做法，是否已经违反了消费者权益保护法中关于知情权、选择权和公平交易权的规定？
 
-孟买某全球贸易商从业人士表示：目前精炼利润为负，精炼企业正观望棕榈油价格回调，暂不进行大额采购。
+”“消费者可以通过何种途径维护自己的权益？
 
-该交易员称，印度目前遭遇食用油供应短缺，餐饮行业尤为明显，直接压低了棕榈油消费需求。
+” 老用户要更换优惠套餐被设置各种阻碍 大量消费者投诉的“新老用户不同权”的一个主要问题就是：高性价比优惠套餐只向新用户或升档用户开放，老用户想改更便宜的套餐，却变得很难。
 
 ## 相关推荐
 
-- 2026-06-29 17:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 17:50 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 17:48 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 17:45 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 17:57 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 17:36 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 17:34 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 17:48 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 17:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 17:38 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 17:51 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 17:32 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 17:46 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 17:58 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 18:05 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 17:44 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 18:05 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 17:42 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 17:52 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 18:05 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 17:46 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 17:55 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 17:43 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:32 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/57873.shtml)
-- 2026-06-29 17:55 - [5万块的威力](http://www.share.minike.top/Article/details/99989.shtml)
-- 2026-06-29 17:51 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/022420113.shtml)
-- 2026-06-29 17:36 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/559468287461.shtml)
-- 2026-06-29 17:48 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/28313003.shtml)
-- 2026-06-29 17:55 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/731358685854.shtml)
-- 2026-06-29 17:44 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/88297987151.shtml)
-- 2026-06-29 17:42 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/54607.shtml)
-- 2026-06-29 17:49 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/5285583.shtml)
-- 2026-06-29 17:37 - [啊啊啊](http://www.blog.minike.top/Article/details/4419220.shtml)
-- 2026-06-29 17:58 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/94997347.shtml)
-- 2026-06-29 17:46 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/06960849597.shtml)
-- 2026-06-29 17:44 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/12011939.shtml)
-- 2026-06-29 17:36 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/052393964732.shtml)
-- 2026-06-29 17:55 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/4696590222.shtml)
+- 2026-06-29 17:44 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/05445911093.shtml)
+- 2026-06-29 17:42 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/43109319.shtml)
+- 2026-06-29 17:46 - [斛珠夫人](https://www.blog.minike.top/Article/details/712762875.shtml)
+- 2026-06-29 17:36 - [流金岁月](http://www.blog.minike.top/Article/details/884227949592.shtml)
+- 2026-06-29 18:00 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/2628672447.shtml)
+- 2026-06-29 17:58 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/20729250.shtml)
+- 2026-06-29 17:51 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/93565555.shtml)
+- 2026-06-29 17:46 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/8877875.shtml)
+- 2026-06-29 17:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/875887055584.shtml)
+- 2026-06-29 17:39 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/30413546.shtml)
+- 2026-06-29 17:59 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/5226447993.shtml)
+- 2026-06-29 17:57 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/127475.shtml)
+- 2026-06-29 17:41 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/96985.shtml)
+- 2026-06-29 18:05 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/44910319694.shtml)
+- 2026-06-29 17:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/83720764.shtml)

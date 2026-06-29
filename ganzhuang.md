@@ -1,57 +1,59 @@
-# 串联粤BA粤超，佛山打造“不落幕”的城市体验
+# 推动青春经济高质量发展
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-原标题：串联粤BA粤超，佛山打造“不落幕”的城市体验 以“赛”为媒 以“食”聚人 南方日报记者 白桦 5月10日晚，粤BA第七轮上演广佛同城德比，主场作战的佛山队最终以5分之差不敌广州队。比赛结束了，但球赛带来的烟火气却并未“打烊”。从赛场内赠送莫氏鸡煲汤料、臭屁醋等特色美食，到赛场外的“寻味佛山美食地图”，佛山借助粤BA和粤超的办赛契机，打造流动的“世界美食之都”文化新窗口，
+【光明论坛】 作者：高惠芳(北京联合大学教授) 青年兴则国家兴，青年强则国家强。青年是经济社会发展中最具活力、最富潜力的群体，是推动高质量发展的重要力量。当前，以青年为创新创业主体和核心消费群体的青春经济加快发展，正成为激活内需、推动产业升级的新动能。近期，共青团中央等15个部门联合印发《关于深化青年发展型城市建设助力建设现代化人民城市的意见》，明确提出培育发展青春经济。在新发
 
 ## 正文
 
-原标题：串联粤BA粤超，佛山打造“不落幕”的城市体验 以“赛”为媒 以“食”聚人 南方日报记者 白桦 5月10日晚，粤BA第七轮上演广佛同城德比，主场作战的佛山队最终以5分之差不敌广州队。
+【光明论坛】 作者：高惠芳(北京联合大学教授) 青年兴则国家兴，青年强则国家强。
 
-比赛结束了，但球赛带来的烟火气却并未“打烊”。
+青年是经济社会发展中最具活力、最富潜力的群体，是推动高质量发展的重要力量。
 
-从赛场内赠送莫氏鸡煲汤料、臭屁醋等特色美食，到赛场外的“寻味佛山美食地图”，佛山借助粤BA和粤超的办赛契机，打造流动的“世界美食之都”文化新窗口，推动球迷在比赛结束后从看台转场至餐桌，让赛事的热度转化为城市的消费热度。
+当前，以青年为创新创业主体和核心消费群体的青春经济加快发展，正成为激活内需、推动产业升级的新动能。
 
-从赛场到舌尖 擦亮“体育+美食”城市新名片 有着“世界美食之都”“中国粤菜美食名城”等美誉的佛山，将广东人“以食会友”的日常哲学，移植到体育场景中，把粤BA和粤超赛场变成了一座流动的城市美食文化“新秀场”。
+近期，共青团中央等15个部门联合印发《关于深化青年发展型城市建设助力建设现代化人民城市的意见》，明确提出培育发展青春经济。
 
-不妨回溯几组镜头：粤BA第四轮，佛山队主场迎战中山队，爆火全网的莫氏鸡煲老板老莫现身赛场，为中山队送上鸡煲同款汤料；在粤超佛山首个主场，阳江球迷为佛山送上一条咸鱼，佛山则用一锅臭屁醋回礼，并用“越臭越进球”互相喊话；粤BA第七轮，客队广州带来庆丰腊味礼盒，佛山则回赠两筐本土时令特色——大顶苦瓜，清苦回甘，恰如竞技场上的拼搏滋味。
+在新发展阶段，需准确把握青春经济发展规律，强化政策引导、优化市场供给、激发青年活力，推动青春经济高质量发展。
 
-佛山送出的特色美食，都是当地人再熟悉不过的生活符号。
+青春经济的蓬勃兴起，根植于我国超大规模市场禀赋与近4亿青年的人口基础。
 
-虽然带点“土味”，但当它们出现在省级赛事的聚光灯下，便成为最具辨识度的城市名片——这不仅是地方美食文化的集中展示，更是城市间以美食传情的双向互动。
+据预测，2030年我国14至35岁青年总量仍将保持在3.5亿左右，其中Z世代群体(1995—2009年出生)规模约2.6亿人。
 
-球场周围，一批美食摊位在赛前就开始撩动观众的味蕾。
+相关调研显示，这一群体以不足20%的人口占比贡献了全国约40%的消费额，成为拉动内需的主力军。
 
 ## 相关推荐
 
-- 2026-06-29 17:42 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 17:45 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 17:53 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 17:54 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 17:48 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 17:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 17:58 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 17:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 17:32 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 17:54 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 17:33 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 17:51 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 17:58 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 17:37 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 17:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 17:45 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 18:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 17:53 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 17:40 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 17:43 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 17:51 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 18:01 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 17:52 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 17:51 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [学者：建设性战略稳定重塑中美关系](http://www.blog.minike.top/Article/details/7612026537.shtml)
-- 2026-06-29 17:55 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/91102579057.shtml)
-- 2026-06-29 17:33 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/050297432.shtml)
-- 2026-06-29 17:52 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/93582143.shtml)
-- 2026-06-29 17:42 - [沙丘](https://www.blog.kurohicncr.top/Article/details/39505476953.shtml)
-- 2026-06-29 17:42 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/1826584471.shtml)
-- 2026-06-29 17:34 - [机器人学校开学了](https://www.share.minike.top/Article/details/407975.shtml)
-- 2026-06-29 17:42 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/2753881474.shtml)
-- 2026-06-29 17:41 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/8564654.shtml)
-- 2026-06-29 17:38 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/421857.shtml)
-- 2026-06-29 17:35 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/212076.shtml)
-- 2026-06-29 17:48 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/16135409.shtml)
-- 2026-06-29 17:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/914151991.shtml)
-- 2026-06-29 17:32 - [花万元相亲对象是50元雇的演员](http://www.share.minike.top/Article/details/407145253003.shtml)
-- 2026-06-29 17:31 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/295553.shtml)
+- 2026-06-29 17:48 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/61016.shtml)
+- 2026-06-29 17:41 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/84522895.shtml)
+- 2026-06-29 17:55 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/683601.shtml)
+- 2026-06-29 17:44 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.minike.top/Article/details/8207069056.shtml)
+- 2026-06-29 17:42 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/363366935.shtml)
+- 2026-06-29 17:43 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/13624.shtml)
+- 2026-06-29 17:51 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/213564.shtml)
+- 2026-06-29 17:54 - [沙特外交大臣将访华](http://www.share.minike.top/Article/details/508224.shtml)
+- 2026-06-29 18:00 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/6626849414.shtml)
+- 2026-06-29 18:02 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/21253.shtml)
+- 2026-06-29 17:43 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/79442365814.shtml)
+- 2026-06-29 17:54 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/20313.shtml)
+- 2026-06-29 17:47 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/8858888952.shtml)
+- 2026-06-29 17:46 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/683856300026.shtml)
+- 2026-06-29 17:37 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/33569.shtml)

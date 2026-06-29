@@ -1,56 +1,59 @@
-# 袁隆平带了5年的邝翡婷博士 在新疆沙漠盐碱地种的小黑麦比人还高
+# 盘前交易阶段SpaceX股价大涨11%，上涨动能持续增强
 
-> 更新时间：2026-06-29 18:00:02 UTC+8
+> 更新时间：2026-06-29 18:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 14:58 来源：中国新闻网 近日，袁隆平院士带了5年的邝翡婷博士发视频介绍了团队的研究成果。视频里，一片在新疆沙漠盐碱地上种植的小黑麦，长得郁郁葱葱，植株高度超过一人。 邝翡婷博士介绍了小黑麦的特性：“小黑麦是粮饲兼用的农作物，它耐贫瘠、耐寒、耐旱、耐盐碱、抗风沙！”更令人振奋的是数据：“在新开荒的沙漠盐碱地里，种普通小麦可能出苗都困难，要改
+专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 周二 SpaceX 股价暴涨 11%。这家由埃隆・马斯克创立的航天企业在上周五完成创纪录 IPO 后，股价持续一路飙升。 继上市首日全线大涨 20% 之后，这家航天与人工智能企业的股票在盘前交易阶段再度大幅冲高。 SpaceX 首席执行官马斯克周日在社交平台 X 发文称，公司 “有望在 2030 年实现约 1
 
 ## 正文
 
-发布时间：2026年05月12日 14:58 来源：中国新闻网 近日，袁隆平院士带了5年的邝翡婷博士发视频介绍了团队的研究成果。
+专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 周二 SpaceX 股价暴涨 11%。
 
-视频里，一片在新疆沙漠盐碱地上种植的小黑麦，长得郁郁葱葱，植株高度超过一人。
+这家由埃隆・马斯克创立的航天企业在上周五完成创纪录 IPO 后，股价持续一路飙升。
 
-邝翡婷博士介绍了小黑麦的特性：“小黑麦是粮饲兼用的农作物，它耐贫瘠、耐寒、耐旱、耐盐碱、抗风沙！
+继上市首日全线大涨 20% 之后，这家航天与人工智能企业的股票在盘前交易阶段再度大幅冲高。
 
-”更令人振奋的是数据：“在新开荒的沙漠盐碱地里，种普通小麦可能出苗都困难，要改造两三年后才有效益。
+SpaceX 首席执行官马斯克周日在社交平台 X 发文称，公司 “有望在 2030 年实现约 1 万亿美元营收”。
 
-但是小黑麦第一年亩产饲草量就可以达到3吨甚至4吨，当年就可以实现丰收。
+SpaceX 成立于 2002 年，依托星链（Starlink）业务和可回收火箭技术，在卫星领域占据绝对主导地位。
 
-” (贾志鹏 制作 乐小敏 来源 疆沙莎张一元） 责任编辑：【刘湃】
+2025 年，马斯克已将人工智能初创公司 xAI 与社交平台 X 完成整合；今年 2 月，他又推动 SpaceX 与 xAI 完成合并。
+
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 17:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 17:51 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 17:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 17:32 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 17:31 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 17:42 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 17:38 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 17:54 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 17:44 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 17:33 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 17:56 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 17:57 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 17:47 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 17:40 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 17:49 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 17:39 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 17:43 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 17:47 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 17:44 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 17:46 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 17:57 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 17:37 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 18:03 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 17:48 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 17:36 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 17:58 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 17:57 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 17:54 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 17:49 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/4009710638.shtml)
-- 2026-06-29 17:43 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/922678090391.shtml)
-- 2026-06-29 17:34 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/7599584385.shtml)
-- 2026-06-29 17:48 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/00469772.shtml)
-- 2026-06-29 17:47 - [抓特务票房破亿](http://www.blog.kurohicncr.top/Article/details/1708036.shtml)
-- 2026-06-29 17:54 - [流金岁月](http://www.blog.minike.top/Article/details/78961.shtml)
-- 2026-06-29 17:30 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/851062037.shtml)
-- 2026-06-29 17:31 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/761911645.shtml)
-- 2026-06-29 17:44 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/230226075.shtml)
-- 2026-06-29 17:42 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/71411.shtml)
-- 2026-06-29 17:38 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/5445824.shtml)
-- 2026-06-29 17:55 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.minike.top/Article/details/62272329.shtml)
-- 2026-06-29 17:48 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/419202227.shtml)
-- 2026-06-29 17:40 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/385911220090.shtml)
-- 2026-06-29 17:59 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/154545891998.shtml)
+- 2026-06-29 17:49 - [急先锋](http://www.share.minike.top/Article/details/5019113539.shtml)
+- 2026-06-29 17:44 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/63183.shtml)
+- 2026-06-29 17:46 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/04941248183.shtml)
+- 2026-06-29 17:52 - [扬名立万](https://www.share.kurohicncr.top/Article/details/97554.shtml)
+- 2026-06-29 17:47 - [韩国小学生都来吐槽了](https://www.share.minike.top/Article/details/416616172.shtml)
+- 2026-06-29 18:03 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/6860899094.shtml)
+- 2026-06-29 17:55 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/98206.shtml)
+- 2026-06-29 17:57 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/60384.shtml)
+- 2026-06-29 17:52 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/0098280869.shtml)
+- 2026-06-29 17:48 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/829430415213.shtml)
+- 2026-06-29 17:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/7037738.shtml)
+- 2026-06-29 17:43 - [千与千寻](https://www.blog.minike.top/Article/details/27272280647.shtml)
+- 2026-06-29 17:51 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/475395472669.shtml)
+- 2026-06-29 17:37 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/2808279267.shtml)
+- 2026-06-29 17:55 - [扫黑风暴](http://www.share.minike.top/Article/details/5077807.shtml)
