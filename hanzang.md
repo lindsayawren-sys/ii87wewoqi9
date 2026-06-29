@@ -1,60 +1,60 @@
-# CBCX:油气回落预期仍待供给验证
+# 瑞慈医疗拟回购不超过1亿港元股份
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-6月9日，围绕油气价格后续走势，CBCX表示，市场开始出现对未来几个月回落的预期，但这类判断仍需要供给恢复与物流修复配合验证。Investing.com报道提到，部分官方观点认为当前高位价格难以长期维持，后续随着更多西半球供应补位，油气价格有望逐步回落。 CBCX认为，预期之所以尚未完全落地，是因为现阶段市场仍处在供应受限与库存消耗的组合之中。只要替代供应到位速度慢于需求端调整
+瑞慈医疗（01526）发布公告，公司董事会已获公司股东于2026年6月17日举行之公司股东周年大会上授予一般授权，可回购最多不超过公司于2026年股东周年大会当日已发行股份总数（不包括公司库存股）的10%。 董事会通过一项决议案，批准公司在股份回购授权范围内以自有资金（不包括公司于香港联合交易所有限公司主板上市所筹集的任何所得款项）回购股份，回购总金额不超过港币1亿元。回购期限
 
 ## 正文
 
-6月9日，围绕油气价格后续走势，CBCX表示，市场开始出现对未来几个月回落的预期，但这类判断仍需要供给恢复与物流修复配合验证。
+瑞慈医疗（01526）发布公告，公司董事会已获公司股东于2026年6月17日举行之公司股东周年大会上授予一般授权，可回购最多不超过公司于2026年股东周年大会当日已发行股份总数（不包括公司库存股）的10%。
 
-Investing.com报道提到，部分官方观点认为当前高位价格难以长期维持，后续随着更多西半球供应补位，油气价格有望逐步回落。
+董事会通过一项决议案，批准公司在股份回购授权范围内以自有资金（不包括公司于香港联合交易所有限公司主板上市所筹集的任何所得款项）回购股份，回购总金额不超过港币1亿元。
 
-CBCX认为，预期之所以尚未完全落地，是因为现阶段市场仍处在供应受限与库存消耗的组合之中。
+回购期限自董事会批准之日起至公司将于2027年举行之应届股东周年大会结束时止。
 
-只要替代供应到位速度慢于需求端调整，价格就可能维持高位震荡，回落节奏也会慢于市场最初设想。
+公司拟将所购回的股份作为库存股处理，未来可根据需要予以注销、出售或转让（包括根据股权激励计划进行转让）。
 
-从交易逻辑看，未来价格中枢是否下移，取决于两个变量是否同步改善：一是跨区域供应补充是否稳定，二是终端对高价的适应是否逐步增强。
+董事会已综合考量公司当前业务运营的稳定性、其财务盈利的可持续性、其对未来发展前景的坚定信心以及公司的股票市场表现及估值。
 
-若两项条件仅兑现其一，价格更可能表现为反复震荡而非趋势性回落。
+董事会认为，公司股份的当前市值已低于其内在价值。
 
-综合来看，CBCX分析称，油气市场当前仍处在预期修正阶段。
+为有效维护公司的价值及全体股东的权益，以及传递管理层对公司长期发展的信心，董事会建议实施股份回购。
 
-短期内虽然出现回落设想，但真正能否兑现，还要看替代供应、库存变化与运输恢复能否持续给出更明确的支持信号。
+董事会认为，股份回购不仅体现了对公司内在价值的高度认可，亦彰显了对业务长远前景的充足信心。
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 01:22 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 01:25 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 01:05 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 01:01 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 01:28 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 01:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 01:20 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 01:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 01:10 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 01:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 01:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 01:25 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 01:27 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 01:11 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 01:27 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 01:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 01:11 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 01:25 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 01:32 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 01:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 01:35 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 01:20 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 01:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 01:22 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 01:17 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 01:35 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 01:10 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/05782243491.shtml)
-- 2026-06-30 01:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/71186612021.shtml)
-- 2026-06-30 01:15 - [千与千寻](http://www.share.kurohicncr.top/Article/details/20267048402.shtml)
-- 2026-06-30 01:25 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/623321749.shtml)
-- 2026-06-30 01:07 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/262821.shtml)
-- 2026-06-30 01:10 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/8653756757.shtml)
-- 2026-06-30 01:28 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/355295430585.shtml)
-- 2026-06-30 01:29 - [毒液2](http://www.share.kurohicncr.top/Article/details/302121435428.shtml)
-- 2026-06-30 01:12 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/232604.shtml)
-- 2026-06-30 01:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/26012.shtml)
-- 2026-06-30 01:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/405953.shtml)
-- 2026-06-30 01:29 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/66448796.shtml)
-- 2026-06-30 01:06 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/75408695.shtml)
-- 2026-06-30 01:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/74589255.shtml)
-- 2026-06-30 01:07 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/501623938.shtml)
+- 2026-06-30 01:15 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/911338377819.shtml)
+- 2026-06-30 01:17 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/419209.shtml)
+- 2026-06-30 01:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/33002259.shtml)
+- 2026-06-30 01:16 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/43039.shtml)
+- 2026-06-30 01:28 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/18066702565.shtml)
+- 2026-06-30 01:32 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/46456430864.shtml)
+- 2026-06-30 01:34 - [青春环游记第三季](https://www.share.minike.top/Article/details/559175.shtml)
+- 2026-06-30 01:21 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/96107937635.shtml)
+- 2026-06-30 01:24 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/72081316.shtml)
+- 2026-06-30 01:11 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/465150087.shtml)
+- 2026-06-30 01:34 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/776595.shtml)
+- 2026-06-30 01:20 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/39752706.shtml)
+- 2026-06-30 01:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/3428137610.shtml)
+- 2026-06-30 01:16 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/75490299.shtml)
+- 2026-06-30 01:11 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/84603.shtml)

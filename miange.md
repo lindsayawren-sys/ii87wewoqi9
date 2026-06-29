@@ -1,56 +1,60 @@
-# 韩元大跌之际 韩国当局敦促银行业加强管控
+# 美联储按兵不动但释放鹰派信号 年内利率变化预期由降息变加息
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-受中东紧张局势升级以及有关美联储（Federal Reserve）可能在年底前加息的猜测影响，韩元汇率跌至2009年以来最低水平。此后，韩国当局敦促银行业加强措施，打击其所称的“投机性市场扰乱行为“。 韩国金融监管机构金融监督院（Financial Supervisory Service）周一与韩国央行（Bank of Korea）官员以及KB Kookmin Bank、Shi
+来源：财联社 北京时间周四（6月18日）凌晨，美联储宣布将联邦基金利率目标区间维持在3.5%至3.75%之间不变，符合市场预期。 这一决定是美联储连续第四次维持利率不变，上一次降息还要追溯到2025年12月。 声明写道，联邦公开市场委员会（FOMC）以12票赞成、0票反对的投票结果决定将联邦基金利率目标区间维持在3.5%至3.75%，以支持央行实现促进充分就业和稳定物价的双重使
 
 ## 正文
 
-受中东紧张局势升级以及有关美联储（Federal Reserve）可能在年底前加息的猜测影响，韩元汇率跌至2009年以来最低水平。
+来源：财联社 北京时间周四（6月18日）凌晨，美联储宣布将联邦基金利率目标区间维持在3.5%至3.75%之间不变，符合市场预期。
 
-此后，韩国当局敦促银行业加强措施，打击其所称的“投机性市场扰乱行为“。
+这一决定是美联储连续第四次维持利率不变，上一次降息还要追溯到2025年12月。
 
-韩国金融监管机构金融监督院（Financial Supervisory Service）周一与韩国央行（Bank of Korea）官员以及KB Kookmin Bank、Shinhan Bank、Hana Bank和Woori Bank等主要国内银行的高管举行了紧急会议。
+声明写道，联邦公开市场委员会（FOMC）以12票赞成、0票反对的投票结果决定将联邦基金利率目标区间维持在3.5%至3.75%，以支持央行实现促进充分就业和稳定物价的双重使命。
 
-根据一份声明，韩国央行和金融监督院将进行检查，如有必要将采取严厉措施。
+FOMC重申，将继续维持银行体系中充裕的准备金水平。
 
-当局还警告，不要利用韩元走软进行获利了结。
+尽管中东冲突等因素导致不确定性加剧，美国经济活动仍以稳健步伐扩张。
 
-金融监督院表示，与会者讨论了需密切分析离岸无本金交割远期（NDF）交易对国内汇市影响的问题。
+生产率增长和资本投资表现强劲。
 
-该监管机构补充称，已要求与会银行积极配合这项工作。
+就业增长与劳动力规模保持同步，失业率变化不大。
 
-金融监督院称，汇丰（HSBC）和渣打集团（Standard Chartered）的韩国分行也参加了此次会议。
+声明写道，通胀水平仍高于委员会设定的2%目标，部分原因是供应冲击推高了部分行业的价格，包括能源领域，FOMC将致力于实现物价稳定。
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 01:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 01:07 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 01:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 01:06 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 01:23 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 01:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 01:23 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 01:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 01:28 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 01:27 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 01:26 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 01:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 01:17 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 01:28 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 01:16 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 01:08 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 01:09 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 01:23 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 01:09 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 01:08 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 01:19 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 01:21 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 01:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/38021955016.shtml)
-- 2026-06-30 01:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/0095558.shtml)
-- 2026-06-30 01:25 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/4362774.shtml)
-- 2026-06-30 01:23 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/82569788813.shtml)
-- 2026-06-30 01:10 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/313167.shtml)
-- 2026-06-30 01:29 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/94464.shtml)
-- 2026-06-30 01:13 - [斗破苍穹](https://www.blog.minike.top/Article/details/93138.shtml)
-- 2026-06-30 01:04 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/979840591.shtml)
-- 2026-06-30 01:26 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/63110368481.shtml)
-- 2026-06-30 01:10 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/6188908.shtml)
-- 2026-06-30 01:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/762747449899.shtml)
-- 2026-06-30 01:02 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/3547731.shtml)
-- 2026-06-30 01:20 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/7003230.shtml)
-- 2026-06-30 01:25 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/22585660.shtml)
-- 2026-06-30 01:22 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/686330060697.shtml)
+- 2026-06-30 01:24 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/14326057.shtml)
+- 2026-06-30 01:12 - [扬名立万](https://www.share.minike.top/Article/details/649029810.shtml)
+- 2026-06-30 01:14 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/36955797298.shtml)
+- 2026-06-30 01:29 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/4736298.shtml)
+- 2026-06-30 01:10 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/486619610.shtml)
+- 2026-06-30 01:21 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/621685940715.shtml)
+- 2026-06-30 01:15 - [扬名立万](https://www.share.minike.top/Article/details/64885.shtml)
+- 2026-06-30 01:06 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/7235572.shtml)
+- 2026-06-30 01:10 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/240194.shtml)
+- 2026-06-30 01:08 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/373417.shtml)
+- 2026-06-30 01:12 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/80540268333.shtml)
+- 2026-06-30 01:10 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/0696148467.shtml)
+- 2026-06-30 01:30 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/389687790190.shtml)
+- 2026-06-30 01:15 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/50109.shtml)
+- 2026-06-30 01:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/02795812239.shtml)

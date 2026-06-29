@@ -1,59 +1,57 @@
-# 青春华章 丝路逐光丨“请到民勤种棵树”：返乡青年仲麟和三万志愿者的沙漠绿色接力
+# 减负？景顺长城老将余广三只产品同日增聘基金经理 已无单独管理产品
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-凌晨五点，武威市民勤县，天还没亮。仲麟已经发动了水车，准备出发接水。 两个小时后，他出现在县城集合点，组织来自全国各地的志愿者上车，奔赴沙漠深处的公益林基地。白天，他在种树现场巡查指导，保障安全、规范流程；晚上，还要统计数据、对接安排次日工作。 这样的日子，要一直持续到整个种植季结束。 仲麟是民勤县种林公益发展中心负责人，也是“请到民勤种棵树”活动的重要发起人。今年3月以来，各
+6月18日，景顺长城基金发布公告，公司知名基金经理余广在管的3只产品同日增聘基金经理。其中，景顺长城核心竞争力混合增聘农冰立，景顺长城核心优选一年持有混合增聘张靖，景顺长城核心招景混合增聘周寒颖。加上此前已在3月底增聘董晗的景顺长城核心中景一年持有，余广已无单独管理的公募产品。 16年公募老将过往年化回报8.58%，四只产品均已配备共管搭档 余广是业内知名基金经理，公开资料显示
 
 ## 正文
 
-凌晨五点，武威市民勤县，天还没亮。
+6月18日，景顺长城基金发布公告，公司知名基金经理余广在管的3只产品同日增聘基金经理。
 
-仲麟已经发动了水车，准备出发接水。
+其中，景顺长城核心竞争力混合增聘农冰立，景顺长城核心优选一年持有混合增聘张靖，景顺长城核心招景混合增聘周寒颖。
 
-两个小时后，他出现在县城集合点，组织来自全国各地的志愿者上车，奔赴沙漠深处的公益林基地。
+加上此前已在3月底增聘董晗的景顺长城核心中景一年持有，余广已无单独管理的公募产品。
 
-白天，他在种树现场巡查指导，保障安全、规范流程；晚上，还要统计数据、对接安排次日工作。
+16年公募老将过往年化回报8.58%，四只产品均已配备共管搭档 余广是业内知名基金经理，公开资料显示，他是银行和金融工商管理硕士。
 
-这样的日子，要一直持续到整个种植季结束。
+中国注册会计师，曾先后担任蛇口中华会计师事务所审计项目经理、杭州中融投资管理有限公司财务顾问项目经理，后进入证券基金领域，任职于世纪证券综合研究所、中银国际（中国）证券。
 
-仲麟是民勤县种林公益发展中心负责人，也是“请到民勤种棵树”活动的重要发起人。
+2005年1月加入景顺长城基金，2010年5月起担任股票投资部基金经理，证券、基金行业从业经验长达22年。
 
-今年3月以来，各地志愿者跨越山海，奔赴这片被腾格里和巴丹吉林两大沙漠合围的土地，携手筑起绿色生态屏障。
+现任公司总经理助理、股票投资部总经理、基金经理，兼任投资经理。
 
-民勤位于武威市，地处河西走廊东北部，东、西、北三面被沙漠包围，是全国防沙治沙重点县。
+截至一季度末，余广在管产品规模超过70亿元。
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 01:28 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 01:27 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 01:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 01:26 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 01:11 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 01:02 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 01:04 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 01:26 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 01:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 01:26 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 01:19 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 01:00 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 01:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 01:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 01:10 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 01:13 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 01:30 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 01:34 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 01:28 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 01:11 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 01:32 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 01:15 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 01:11 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:25 - [逃狱兄弟](http://www.blog.minike.top/Article/details/0606726.shtml)
-- 2026-06-30 01:17 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/7807963668.shtml)
-- 2026-06-30 01:06 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/140048039277.shtml)
-- 2026-06-30 01:19 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/02347.shtml)
-- 2026-06-30 01:04 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/816284.shtml)
-- 2026-06-30 01:06 - [小娘惹](http://www.blog.minike.top/Article/details/17573080.shtml)
-- 2026-06-30 01:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/446454.shtml)
-- 2026-06-30 01:24 - [起风了](https://www.share.kurohicncr.top/Article/details/3314264776.shtml)
-- 2026-06-30 01:28 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/00222.shtml)
-- 2026-06-30 01:13 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/618876.shtml)
-- 2026-06-30 01:13 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/614027592909.shtml)
-- 2026-06-30 01:19 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/1497124.shtml)
-- 2026-06-30 01:15 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/80619733669.shtml)
-- 2026-06-30 01:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/833707733528.shtml)
-- 2026-06-30 01:12 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/17257368.shtml)
+- 2026-06-30 01:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/81671052599.shtml)
+- 2026-06-30 01:32 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/94834329.shtml)
+- 2026-06-30 01:22 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/0578398299.shtml)
+- 2026-06-30 01:17 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/5381912362.shtml)
+- 2026-06-30 01:06 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/9146855701.shtml)
+- 2026-06-30 01:19 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/082799554.shtml)
+- 2026-06-30 01:26 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/855416.shtml)
+- 2026-06-30 01:10 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/922848357.shtml)
+- 2026-06-30 01:26 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/893177009298.shtml)
+- 2026-06-30 01:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/88006294.shtml)
+- 2026-06-30 01:23 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/77555410.shtml)
+- 2026-06-30 01:12 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/912410.shtml)
+- 2026-06-30 01:30 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/586139.shtml)
+- 2026-06-30 01:34 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/0926534.shtml)
+- 2026-06-30 01:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/3448598.shtml)

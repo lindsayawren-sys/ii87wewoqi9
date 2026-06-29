@@ -1,57 +1,56 @@
-# 吴伯凡观影《AI世界杯》：在一次次 “不看好” 中，看见联想四十多年的长期主义
+# #AI支付#上热搜 网友：辛辛苦苦赚点钱就是给自己花的，没必要AI花
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-联想集团XFIFA国际足联《AI世界杯》纪录片专场观影沙龙于6月8日在北京举办，知名商业观察家、财经评论人吴伯凡出席并发言。 “看完这部纪录片，我感触最深的就是‘不看好’这三个字。”吴伯凡直言，项目初期，研发团队遭遇FIFA数据不予开放等难题，合作推进举步维艰，多亏联想从中斡旋，推动FIFA与央视顺利达成转播合作。而从困境到落地突破的全过程，也和联想一路走来的企业气质高度契合。
+6月17日金融一线消息，#AI支付#话题登上微博热搜，引发网友热议。 据悉，2026年6月中旬，微信和支付宝几乎同步亮出“AI支付”的底牌。6月17日，微信支付正式发布“AI专属卡”，该功能内嵌于微信零钱体系，专门适配各类AI智能体支付场景；AI版支付宝“阿宝”也于近日启动邀请测试，将首页升级为原生AI对话界面，支持用户右滑进入，通过一句话完成打车、挂号、转账等上万种服务。 不
 
 ## 正文
 
-联想集团XFIFA国际足联《AI世界杯》纪录片专场观影沙龙于6月8日在北京举办，知名商业观察家、财经评论人吴伯凡出席并发言。
+6月17日金融一线消息，#AI支付#话题登上微博热搜，引发网友热议。
 
-“看完这部纪录片，我感触最深的就是‘不看好’这三个字。
+据悉，2026年6月中旬，微信和支付宝几乎同步亮出“AI支付”的底牌。
 
-”吴伯凡直言，项目初期，研发团队遭遇FIFA数据不予开放等难题，合作推进举步维艰，多亏联想从中斡旋，推动FIFA与央视顺利达成转播合作。
+6月17日，微信支付正式发布“AI专属卡”，该功能内嵌于微信零钱体系，专门适配各类AI智能体支付场景；AI版支付宝“阿宝”也于近日启动邀请测试，将首页升级为原生AI对话界面，支持用户右滑进入，通过一句话完成打车、挂号、转账等上万种服务。
 
-而从困境到落地突破的全过程，也和联想一路走来的企业气质高度契合。
+不少网友质疑AI支付的必要性，有网友直言：“辛辛苦苦赚点钱就是给自己花的，没必要AI花”，还有网友打趣称该功能没必要，“除非花的钱是AI的不是我的”。
 
-他回顾经典商业案例，2004年联想宣布收购IBM PC业务时，这场“蛇吞象”式收购当时遭到外界普遍质疑。
+另有不少网友补充，“目前还没想到什么让AI帮我花钱的需求”，“啥时候出一个AI赚钱”。
 
-但二十余年过去，联想用亮眼成绩回应所有争议，一次次在“不被看好”的目光中悄然蜕变，交出令人惊喜的答卷。
-
-他回忆2010年南非世界杯，彼时中国元素虽随处可见，但当时中国企业大多零散亮相，未能形成影响力。
-
-时隔16年，联想正式成为世界杯官方技术合作伙伴，这样的跨越在当年看来难以想象，也正是中国企业出海之路不断进阶的真实缩影。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 01:24 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 01:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 01:03 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 01:24 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 01:06 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 01:20 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 01:00 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 01:09 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 01:01 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 01:13 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 01:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 01:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 01:10 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 01:06 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 01:17 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 01:30 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 01:09 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 01:34 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 01:10 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 01:14 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 01:33 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 01:29 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 01:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 01:20 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/2053637669.shtml)
-- 2026-06-30 01:27 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/0786110.shtml)
-- 2026-06-30 01:18 - [急先锋](http://www.blog.kurohicncr.top/Article/details/24314.shtml)
-- 2026-06-30 01:07 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/250266777.shtml)
-- 2026-06-30 01:08 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/944145.shtml)
-- 2026-06-30 01:21 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/6200500820.shtml)
-- 2026-06-30 01:29 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/197064128847.shtml)
-- 2026-06-30 01:28 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/3736897.shtml)
-- 2026-06-30 01:07 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/38498.shtml)
-- 2026-06-30 01:20 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/979379724.shtml)
-- 2026-06-30 01:17 - [急先锋](https://www.blog.kurohicncr.top/Article/details/78163022.shtml)
-- 2026-06-30 01:02 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/276995.shtml)
-- 2026-06-30 01:22 - [张凌赫 客串](https://www.blog.minike.top/Article/details/94717918378.shtml)
-- 2026-06-30 01:13 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/990635109.shtml)
-- 2026-06-30 01:18 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/095863700048.shtml)
+- 2026-06-30 01:14 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/527464.shtml)
+- 2026-06-30 01:35 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/8723851.shtml)
+- 2026-06-30 01:23 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/1785358535.shtml)
+- 2026-06-30 01:18 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/57058.shtml)
+- 2026-06-30 01:28 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/6935725923.shtml)
+- 2026-06-30 01:09 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/25688794246.shtml)
+- 2026-06-30 01:15 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/92208795.shtml)
+- 2026-06-30 01:25 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/70485.shtml)
+- 2026-06-30 01:34 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/564337.shtml)
+- 2026-06-30 01:21 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/1069567628.shtml)
+- 2026-06-30 01:22 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/26224100223.shtml)
+- 2026-06-30 01:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/68592512.shtml)
+- 2026-06-30 01:12 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/1973315.shtml)
+- 2026-06-30 01:10 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/7546237622.shtml)
+- 2026-06-30 01:06 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/4621988079.shtml)

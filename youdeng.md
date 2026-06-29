@@ -1,57 +1,56 @@
-# 从3个生活场景感受长三角民生温度
+# 武铁2026年端午假期预计发送旅客358万人次
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-公交“一卡通”贯通41城、异地就医备案结算联网定点医疗机构超2.6万家 从3个生活场景感受长三角民生温度 人民日报 本报记者 王崟欣 巨云鹏 人民网记者 唐小丽 马作鹏早上6点半，安徽马鞍山雨山东路地铁站，缪永挎着电脑包，“嘀”一声，熟练地刷开闸机。缪永是马鞍山人，在江苏南京上班。自打今年4月22日，南京到马鞍山的地铁开通，他每天都可以回家了。 近日，第八届长三角一体化发展高层
+中新网武汉6月18日电(苟飞 王琪 余哲)据中国铁路武汉局集团有限公司(以下简称“武铁”)消息，2026年端午小长假铁路运输期(6月18日至6月22日)，武铁预计共发送旅客358万人次左右，日均71.6万人次。6月21日将迎来出行最高峰，预计当日发送85万人次。 今年端午假期恰与全国多地中考时间重合，武铁客流整体较为平稳，呈现以管内各站间短途为主、全国各大中型城市间长途为辅的出
 
 ## 正文
 
-公交“一卡通”贯通41城、异地就医备案结算联网定点医疗机构超2.6万家 从3个生活场景感受长三角民生温度 人民日报 本报记者 王崟欣 巨云鹏 人民网记者 唐小丽 马作鹏早上6点半，安徽马鞍山雨山东路地铁站，缪永挎着电脑包，“嘀”一声，熟练地刷开闸机。
+中新网武汉6月18日电(苟飞 王琪 余哲)据中国铁路武汉局集团有限公司(以下简称“武铁”)消息，2026年端午小长假铁路运输期(6月18日至6月22日)，武铁预计共发送旅客358万人次左右，日均71.6万人次。
 
-缪永是马鞍山人，在江苏南京上班。
+6月21日将迎来出行最高峰，预计当日发送85万人次。
 
-自打今年4月22日，南京到马鞍山的地铁开通，他每天都可以回家了。
+今年端午假期恰与全国多地中考时间重合，武铁客流整体较为平稳，呈现以管内各站间短途为主、全国各大中型城市间长途为辅的出行格局。
 
-近日，第八届长三角一体化发展高层论坛在上海举行，一系列规划与新政同步落地；《上海大都市圈国土空间规划(2025—2035年)》草案已完成公示，引发热议；《长三角政务服务“一网通办”三年行动计划(2026—2028年)》也正式通过……随着一体化建设不断走深走实，民生福祉融入长三角居民衣食住行各方面。
+管内短途主要方向为汉十郑渝、汉宜宜万沿线，长途主要方向为广深、沪杭、北京、成渝等地。
 
-一趟车 双城变“同城”，工作更省心 走进地铁车厢，缪永找到座位坐下，戴上耳机。
+为最大限度满足旅客出行需求，武铁采取早晚套跑、压缩整备时间、优化交路等方式挖掘运输潜力，预计日均上线旅客列车348.5对，并在北京、广州、深圳、成都等热门方向和汉十高铁、汉宜铁路等线路上计划加开旅客列车100对。
 
-时间充裕，他还能眯一会儿。
+此外，武铁深入挖掘传统节日文化内涵，将车站、列车打造为文化传播的移动空间，组织开展“我的铁路风景：美好旅途‘粽’享端午”系列主题活动。
 
-2019年，缪永入职位于南京的中国电子科技集团公司第二十八研究所，从事硬件研发。
+武汉车站、汉口车站及武汉、襄阳客运段等重点站段，在列车和车站悬挂龙舟、粽子挂饰，张贴端午诗词与民俗介绍，摆放艾草、菖蒲，打造端午主题车厢，并通过有奖竞答、民俗手工课堂等活动与旅客互动，营造浓厚节日氛围。
 
-从那以后，他开始了双城生活，平时租住在南京，周末、节假日回马鞍山。
+针对宜昌举办2026屈原故里端午文化节及龙舟赛事，武铁在汉宜线上加开37.5对旅客列车，宜昌东站与汽车、网约车停车楼搭建“便捷通道”，保障游客和参赛队伍跨区域出行顺畅。
 
 ## 相关推荐
 
-- 2026-06-30 01:25 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 01:22 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 01:16 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 01:12 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 01:25 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 01:20 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 01:08 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 01:27 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 01:19 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 01:01 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 01:03 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 01:31 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 01:13 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 01:07 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 01:24 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 01:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 01:22 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 01:11 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 01:27 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 01:08 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 01:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [美股](http://www.blog.minike.top/Article/details/96313.shtml)
-- 2026-06-30 01:02 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/1302859.shtml)
-- 2026-06-30 01:24 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/641161753799.shtml)
-- 2026-06-30 01:27 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/213459.shtml)
-- 2026-06-30 01:10 - [逃狱兄弟](http://www.share.minike.top/Article/details/3943079.shtml)
-- 2026-06-30 01:07 - [扬名立万](https://www.share.minike.top/Article/details/77858761.shtml)
-- 2026-06-30 01:06 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/79048.shtml)
-- 2026-06-30 01:24 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/4175948679.shtml)
-- 2026-06-30 01:23 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/67333.shtml)
-- 2026-06-30 01:06 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/754201872302.shtml)
-- 2026-06-30 01:28 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/71077172.shtml)
-- 2026-06-30 01:09 - [啊啊啊](http://www.share.minike.top/Article/details/451505.shtml)
-- 2026-06-30 01:12 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/3366203894.shtml)
-- 2026-06-30 01:08 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/5228744.shtml)
-- 2026-06-30 01:12 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/478680775816.shtml)
+- 2026-06-30 01:35 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/413531688456.shtml)
+- 2026-06-30 01:24 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/79781.shtml)
+- 2026-06-30 01:20 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/68282.shtml)
+- 2026-06-30 01:26 - [美股](https://www.blog.kurohicncr.top/Article/details/2301794.shtml)
+- 2026-06-30 01:20 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/133057.shtml)
+- 2026-06-30 01:25 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/92804794053.shtml)
+- 2026-06-30 01:17 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/2629626.shtml)
+- 2026-06-30 01:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/392943.shtml)
+- 2026-06-30 01:25 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/1101185.shtml)
+- 2026-06-30 01:30 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/55037323248.shtml)
+- 2026-06-30 01:22 - [极限挑战第一季](http://www.share.minike.top/Article/details/094600407.shtml)
+- 2026-06-30 01:21 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/228252607.shtml)
+- 2026-06-30 01:32 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/0311537745.shtml)
+- 2026-06-30 01:11 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/61416624.shtml)
+- 2026-06-30 01:25 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/628617.shtml)

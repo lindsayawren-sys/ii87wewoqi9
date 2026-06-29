@@ -1,61 +1,49 @@
-# 世界杯揭幕日期临近，各队“模拟考”有何考量
+# 视频 | 特朗普G7峰会迟到后，向全场宣告：“我是老大”
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-揭幕日期临近，各队正通过热身赛磨合阵容和提升状态 世界杯“模拟考”有何考量 北京时间6月7日上午，世界杯卫冕冠军阿根廷队在美国得克萨斯进行的一场热身赛中，以2比0击败洪都拉斯队。此前腿部受伤的梅西并未登场。这是阿根廷队抵达美国备战世界杯后进行的首场热身赛。北京时间6月10日，阿根廷队还将迎战冰岛队，进行开赛前最后的热身。 将于北京时间6月12日凌晨揭幕的2026年美加墨世界杯，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：宋雅芳
 
 ## 正文
 
-揭幕日期临近，各队正通过热身赛磨合阵容和提升状态 世界杯“模拟考”有何考量 北京时间6月7日上午，世界杯卫冕冠军阿根廷队在美国得克萨斯进行的一场热身赛中，以2比0击败洪都拉斯队。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此前腿部受伤的梅西并未登场。
-
-这是阿根廷队抵达美国备战世界杯后进行的首场热身赛。
-
-北京时间6月10日，阿根廷队还将迎战冰岛队，进行开赛前最后的热身。
-
-将于北京时间6月12日凌晨揭幕的2026年美加墨世界杯，已进入最后的倒计时阶段，48支参赛队伍即将在美国、加拿大和墨西哥的赛场上展开激烈角逐。
-
-在世界杯正赛鸣哨之前，各支球队正利用热身赛机会检验阵容、磨合战术、调整状态。
-
-在连日来进行的多场热身赛中，传统强队的表现冷热不均。
-
-北京时间6月7日，德国队在世界杯前最后一场热身赛中2比1击败东道主美国队，以各项赛事9连胜的良好表现迎接即将开幕的世界杯正赛。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 01:26 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-30 01:23 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 01:00 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 01:12 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 01:19 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 01:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 01:13 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 01:16 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 01:28 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 01:07 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 01:03 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 01:16 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 01:17 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 01:12 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 01:21 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 01:07 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 01:21 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 01:13 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 01:17 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 01:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 01:31 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 01:27 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 01:17 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 01:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 01:27 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 01:23 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 01:08 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 01:26 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 01:08 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 01:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:23 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/821997750.shtml)
-- 2026-06-30 01:13 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/785818.shtml)
-- 2026-06-30 01:26 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/867452596.shtml)
-- 2026-06-30 01:03 - [存储三巨头被告了](https://www.share.minike.top/Article/details/78681830464.shtml)
-- 2026-06-30 01:02 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/14405.shtml)
-- 2026-06-30 01:15 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/6175492.shtml)
-- 2026-06-30 01:14 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/28315.shtml)
-- 2026-06-30 01:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/001293005278.shtml)
-- 2026-06-30 01:05 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/01159.shtml)
-- 2026-06-30 01:11 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/75157578309.shtml)
-- 2026-06-30 01:24 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/63072180623.shtml)
-- 2026-06-30 01:29 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/664351367.shtml)
-- 2026-06-30 01:26 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/1483393442.shtml)
-- 2026-06-30 01:04 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/00532.shtml)
-- 2026-06-30 01:12 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/364594333.shtml)
+- 2026-06-30 01:19 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/543946.shtml)
+- 2026-06-30 01:33 - [时光音乐会](https://www.blog.minike.top/Article/details/5441632086.shtml)
+- 2026-06-30 01:15 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/6156646.shtml)
+- 2026-06-30 01:20 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/549740096967.shtml)
+- 2026-06-30 01:27 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/259294.shtml)
+- 2026-06-30 01:31 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/28277020715.shtml)
+- 2026-06-30 01:17 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/95675528.shtml)
+- 2026-06-30 01:32 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/159517974.shtml)
+- 2026-06-30 01:07 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/799496576079.shtml)
+- 2026-06-30 01:35 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/66924798.shtml)
+- 2026-06-30 01:09 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/38126825478.shtml)
+- 2026-06-30 01:11 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/2729560.shtml)
+- 2026-06-30 01:10 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/7155897990.shtml)
+- 2026-06-30 01:31 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/251680.shtml)
+- 2026-06-30 01:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/50911879.shtml)

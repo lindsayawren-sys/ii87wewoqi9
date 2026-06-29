@@ -1,60 +1,58 @@
-# 一拔瓶盖，眼睛炸了！膳魔师被曝致命隐患，紧急召回400万件，用户抱怨“召回专线根本打不通！”| BUG
+# 北京市教育学会体教融合专业委员会成立
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-文 | 《BUG》栏目 张奥 “打开家里的食物罐，随手一拔塞子瞬间炸到眼睛”，这是膳魔师用户可能遇到的真实境况。 近日，膳魔师在国内紧急召回近400万件问题产品，称其可能导致消费者受伤。此前，相关产品已在美国引发了多起事故，导致3人失明。澳大利亚同期也启动召回程序。 截止目前，膳魔师官方旗舰店已搜索不到涉事产品。膳魔师官方客服强调：“请放心，国内没有收到任何因为使用这些产品导致
+中新网北京6月17日电 (记者 陈杭)北京市教育学会体教融合专业委员会成立仪式暨北京市健康学校建设校长研讨会16日在首都师范大学附属中学举行。 本次活动由北京市教育学会、首都体育学院、首都师范大学附属中学教育集团联合主办，《体育教学》编辑部、首都师范大学附属中学承办。 活动现场，北京市教育学会体教融合专业委员会正式揭牌。专委会由首都师范大学附属中学和首都体育学院联合发起，由首都
 
 ## 正文
 
-文 | 《BUG》栏目 张奥 “打开家里的食物罐，随手一拔塞子瞬间炸到眼睛”，这是膳魔师用户可能遇到的真实境况。
+中新网北京6月17日电 (记者 陈杭)北京市教育学会体教融合专业委员会成立仪式暨北京市健康学校建设校长研讨会16日在首都师范大学附属中学举行。
 
-近日，膳魔师在国内紧急召回近400万件问题产品，称其可能导致消费者受伤。
+本次活动由北京市教育学会、首都体育学院、首都师范大学附属中学教育集团联合主办，《体育教学》编辑部、首都师范大学附属中学承办。
 
-此前，相关产品已在美国引发了多起事故，导致3人失明。
+活动现场，北京市教育学会体教融合专业委员会正式揭牌。
 
-澳大利亚同期也启动召回程序。
+专委会由首都师范大学附属中学和首都体育学院联合发起，由首都师范大学附属中学教育集团提供基础教育实践基地、健康学校建设经验，首都体育学院提供学术支撑、运动健康专家资源。
 
-截止目前，膳魔师官方旗舰店已搜索不到涉事产品。
+专委会将立足首都基础教育发展需求，面向北京市各区教育教研单位、各级各类中小学、体育教师、体育教研工作者、教体领域科研人员提供专业服务；同时服务区域学校体育改革发展、青少年学生群体，对接北京教育学会及属地教体主管部门，搭建教体双向联动平台，服务首都体教融合事业高质量发展。
 
-膳魔师官方客服强调：“请放心，国内没有收到任何因为使用这些产品导致受伤的反馈，目前0客诉，0伤害。
+北京市教育学会会长方中雄表示，希望专委会找准定位、当好“参谋助手”，扎根一线、做好“桥梁纽带”，脚踏实地、协同聚力。
 
-” 但多位消费者表示“召回缓慢”，《BUG》栏目用多个手机号反复拨打召回专线，却均未有人接通。
+学会将始终秉持“学术立会、服务兴会”的宗旨，为专委会提供必要的支持与保障。
 
-对此，客服解释称：“系用户反映过多，建议错峰联系。
+首都体育学院院长张霞表示，学校将主动扛起高校社会责任，充分发挥专业优势，依托专委会平台，进一步加强与全市中小学的交流协作。
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 01:25 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 01:13 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 01:14 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 01:28 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 01:00 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 01:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 01:13 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 01:15 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 01:06 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 01:01 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 01:01 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 01:22 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 01:23 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 01:11 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 01:09 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 01:24 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 01:09 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 01:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 01:15 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 01:35 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 01:14 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 01:18 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 01:29 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 01:23 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 01:17 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/19498832.shtml)
-- 2026-06-30 01:17 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/22596858.shtml)
-- 2026-06-30 01:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/5146812.shtml)
-- 2026-06-30 01:18 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/5239995.shtml)
-- 2026-06-30 01:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/762441650.shtml)
-- 2026-06-30 01:12 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/2535390.shtml)
-- 2026-06-30 01:21 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/81432.shtml)
-- 2026-06-30 01:06 - [逃狱兄弟](http://www.blog.minike.top/Article/details/59237.shtml)
-- 2026-06-30 01:12 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/4122926930.shtml)
-- 2026-06-30 01:26 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/39995574.shtml)
-- 2026-06-30 01:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/339086525.shtml)
-- 2026-06-30 01:21 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/5527521918.shtml)
-- 2026-06-30 01:19 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/80488621587.shtml)
-- 2026-06-30 01:27 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/46322570.shtml)
-- 2026-06-30 01:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/013883257.shtml)
+- 2026-06-30 01:21 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/5695593925.shtml)
+- 2026-06-30 01:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/66423074459.shtml)
+- 2026-06-30 01:24 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/29762.shtml)
+- 2026-06-30 01:10 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/09438355993.shtml)
+- 2026-06-30 01:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/2787616786.shtml)
+- 2026-06-30 01:22 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/922500106851.shtml)
+- 2026-06-30 01:32 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/861008238317.shtml)
+- 2026-06-30 01:08 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/812739200.shtml)
+- 2026-06-30 01:19 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/009583.shtml)
+- 2026-06-30 01:18 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/31042.shtml)
+- 2026-06-30 01:26 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/65813196.shtml)
+- 2026-06-30 01:17 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/799624.shtml)
+- 2026-06-30 01:12 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/25067.shtml)
+- 2026-06-30 01:06 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/81483458.shtml)
+- 2026-06-30 01:30 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/5630159.shtml)

@@ -1,55 +1,60 @@
-# 海底珊瑚监测、废弃渔网回收 珠澳携手保护海洋生态
+# 白鸽在线今起招股 拟全球发售3334.44万股H股预计6月29日上市
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-6月8日是世界海洋日。这两天，珠澳联动开展了净滩护海、海底保育、跨境海洋科普研学等系列活动，推进粤港澳大湾区海洋生态共建共享，让海洋保护理念走进公众生活。 在珠海庙湾岛周边海域，由大湾区潜水员组成的海洋保育队伍，开展了鹿角珊瑚监测、废弃渔网等海洋垃圾水下回收。巡查过程中，潜水员还记录了珊瑚群落生长状态和海域生态数据，为近海生态修复和常态化监测提供资料。 此外，当地还开展了为期两
+白鸽在线（02672）于2026年6月18日-2026年6月24日招股，公司拟全球发售3334.44万股H股，香港公开发售占10%（可予重新分配），国际发售占90%（可予重新分配），另有15%超额配股权。每股发售价15.6-20.28港元，每手买卖单位200股H股，预期H股将于2026年6月29日（星期一）上午九时正开始在联交所买卖。 此外，公司已与GLY New Mobili
 
 ## 正文
 
-6月8日是世界海洋日。
+白鸽在线（02672）于2026年6月18日-2026年6月24日招股，公司拟全球发售3334.44万股H股，香港公开发售占10%（可予重新分配），国际发售占90%（可予重新分配），另有15%超额配股权。
 
-这两天，珠澳联动开展了净滩护海、海底保育、跨境海洋科普研学等系列活动，推进粤港澳大湾区海洋生态共建共享，让海洋保护理念走进公众生活。
+每股发售价15.6-20.28港元，每手买卖单位200股H股，预期H股将于2026年6月29日（星期一）上午九时正开始在联交所买卖。
 
-在珠海庙湾岛周边海域，由大湾区潜水员组成的海洋保育队伍，开展了鹿角珊瑚监测、废弃渔网等海洋垃圾水下回收。
+此外，公司已与GLY New Mobility 2． LP、柯家琪先生订立基石投资协议，基石投资者已同意认购合共约2000万港元发售股份。
 
-巡查过程中，潜水员还记录了珊瑚群落生长状态和海域生态数据，为近海生态修复和常态化监测提供资料。
+假设发售价为每股股份17.94港元且超额配股权未获行使，全球发售净筹约5.41亿港元。
 
-此外，当地还开展了为期两天的“海洋小卫士”亲子研学营，许多亲子家庭参与了海洋科普课堂、潜水知识分享、贝壳归海等研学活动，在沉浸式体验中学习珊瑚保护、海洋垃圾治理和生物多样性保护。
+约44.4%将用于投资解决方案及服务的研发、招募及留住相关研发人才以及改善基础设施；约20.0%将用于寻求同行业或上游及╱或下游生态合作伙伴的目标公司的收购及投资机会，以进一步加快业务发展及加强我们的竞争力；约15.6%将用于扩张中国及海外销售网络分公司；约10.0%加上自有资金约8380万港元，将用于建立研发中心及配有智能展厅的办公楼宇；及约10.0%将用作一般营运资金及一般企业用途，以支持日常业务营运及增长。
 
-未来，当地还将持续开展珊瑚监测、海底保育、海滩清洁和跨境海洋科普研学等公益行动，推动粤港澳大湾区海洋生态保护和生态文明建设不断深化。
+据悉，该公司是一家保险科技公司，主要从事为场景合作伙伴及保险公司提供科技赋能的保险中介服务。
+
+公司主要利用场景险作为工具，通过提供保险交易服务、精准营销及数字化解决方案以及第三方管理服务（TPA服务）获得收入。
+
+在公司的保险交易服务业务分部下，核心业务是向最终被保险人分销场景险产品。
 
 ## 相关推荐
 
-- 2026-06-30 01:06 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 01:15 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 01:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 01:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 01:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 01:16 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 01:27 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 01:29 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 01:04 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 01:04 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 01:29 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 01:16 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 01:08 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 01:32 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 01:09 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 01:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 01:23 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 01:27 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 01:23 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 01:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 01:06 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 01:14 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 01:17 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 01:09 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 01:18 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 01:14 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 01:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/1893447.shtml)
-- 2026-06-30 01:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/197935104683.shtml)
-- 2026-06-30 01:15 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/7071020823.shtml)
-- 2026-06-30 01:10 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/172923.shtml)
-- 2026-06-30 01:24 - [急先锋](http://www.blog.kurohicncr.top/Article/details/037223453.shtml)
-- 2026-06-30 01:03 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/5175943900.shtml)
-- 2026-06-30 01:05 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/77654.shtml)
-- 2026-06-30 01:27 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/84972.shtml)
-- 2026-06-30 01:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/7868880872.shtml)
-- 2026-06-30 01:18 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/96548401933.shtml)
-- 2026-06-30 01:08 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/26493415220.shtml)
-- 2026-06-30 01:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/326388996.shtml)
-- 2026-06-30 01:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/298234321.shtml)
-- 2026-06-30 01:23 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/710961.shtml)
-- 2026-06-30 01:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/00770.shtml)
+- 2026-06-30 01:14 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/63044020847.shtml)
+- 2026-06-30 01:29 - [送你一朵小红花](http://www.share.minike.top/Article/details/265902028.shtml)
+- 2026-06-30 01:31 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/95961671.shtml)
+- 2026-06-30 01:27 - [金刚川](http://www.share.minike.top/Article/details/006065.shtml)
+- 2026-06-30 01:26 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/980471113.shtml)
+- 2026-06-30 01:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/1729575558.shtml)
+- 2026-06-30 01:35 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/7735040.shtml)
+- 2026-06-30 01:33 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/178707514475.shtml)
+- 2026-06-30 01:10 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/9329614.shtml)
+- 2026-06-30 01:06 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/8656484.shtml)
+- 2026-06-30 01:14 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/0455115010.shtml)
+- 2026-06-30 01:11 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/12167274460.shtml)
+- 2026-06-30 01:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/944155899055.shtml)
+- 2026-06-30 01:18 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/51205642294.shtml)
+- 2026-06-30 01:35 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/4887817.shtml)

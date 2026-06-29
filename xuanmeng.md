@@ -1,57 +1,56 @@
-# 邦达亚洲:经济数据表现良好 欧元小幅收涨
+# Allbirds持续向AI赛道转型：再度更名并聘任新任CEO，股价应声暴涨
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-6月9日，欧洲央行本周即将召开议息会议，市场普遍预期将宣布加息。然而，多位经济学家发出警告：在欧元区经济已显疲态、美伊和平谈判仍在推进的背景下，欧央行急于出手捍卫抗通胀信誉，可能正在重蹈2011年的政策错误。 据彭周一报道，自美伊冲突爆发以来，欧央行官员此前一直按兵不动，但如今已明显倾向于通过加息阻止能源价格飙升引发更广泛的通胀蔓延。欧元区最新通胀率已升至3.2%，核心通胀压力
+核心要点 距离突然宣布全面押注人工智能、完成品牌更名仅过去两个月，原鞋履品牌 Allbirds 再度更名为 Smartbird，同时迎来新任首席执行官。 这家从制鞋企业转型为人工智能基础设施服务商的公司于周三官宣：任命纳迪娅・卡尔斯滕出任首席执行官兼董事会成员，接替现任 CEO 乔・维尔纳基奥。 卡尔斯滕曾执掌亚马逊云科技量子计算中心，还曾任职于美国国土安全部；加入本公司前，她
 
 ## 正文
 
-6月9日，欧洲央行本周即将召开议息会议，市场普遍预期将宣布加息。
+核心要点 距离突然宣布全面押注人工智能、完成品牌更名仅过去两个月，原鞋履品牌 Allbirds 再度更名为 Smartbird，同时迎来新任首席执行官。
 
-然而，多位经济学家发出警告：在欧元区经济已显疲态、美伊和平谈判仍在推进的背景下，欧央行急于出手捍卫抗通胀信誉，可能正在重蹈2011年的政策错误。
+这家从制鞋企业转型为人工智能基础设施服务商的公司于周三官宣：任命纳迪娅・卡尔斯滕出任首席执行官兼董事会成员，接替现任 CEO 乔・维尔纳基奥。
 
-据彭周一报道，自美伊冲突爆发以来，欧央行官员此前一直按兵不动，但如今已明显倾向于通过加息阻止能源价格飙升引发更广泛的通胀蔓延。
+卡尔斯滕曾执掌亚马逊云科技量子计算中心，还曾任职于美国国土安全部；加入本公司前，她担任人工智能基础设施企业 DCAI 的首席执行官，该企业近期与英伟达达成合作，旗下运营着名为 “盖菲昂” 的超级计算机。
 
-欧元区最新通胀率已升至3.2%，核心通胀压力也显著上移，企业和家庭的通胀预期均处于高位。
+受利好消息提振，BIRD 股价周三大涨 41.88%。
 
-欧央行执委会鹰派成员Isabel Schnabel上周警告称，“通胀预期脱锚的风险正在上升”。
+今年 4 月，Allbirds 突然向市场抛出重磅转型计划：彻底放弃鞋履生产业务，全面布局人工智能算力基础设施与硬件赛道，彼时公司更名为 NewBird AI，市值随即暴涨 7 倍。
 
-另外，衡量欧元区投资者信心的Sentix指数6月份回升幅度超出预期，此前因伊朗冲突和油价飙升引发的市场情绪低迷逐渐消退，市场对经济急剧放缓的担忧随之缓解。
+就在此次转型公告发布的一个月前，该公司以 3900 万美元的价格，将全部鞋类业务资产出售给品牌运营企业美国交易集团；今年 2 月，Allbirds 已经关停了美国所有正价线下门店。
 
-数据显示，综合指数上升3.0点至-13.4，而经济预期指数反弹更为强劲，上涨4.8点。
+Allbirds 是当下大批跟风转型 AI 赛道的企业之一，众多公司希望抓住 2022 年末 ChatGPT 问世掀起的科技行业红利。
 
-Sentix指出，“对经济急剧下滑的担忧已明显缓解”，并强调以美国和亚洲为首的全球经济状况正在改善。
+就在 Allbirds 官宣品牌更名的次日，社交媒体平台迈西姆也宣布全面转型布局人工智能业务。
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 01:24 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 01:05 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 01:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 01:14 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 01:14 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 01:05 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 01:21 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 01:24 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 01:20 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 01:12 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 01:13 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 01:22 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 01:32 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 01:33 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 01:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 01:16 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 01:15 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 01:20 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 01:15 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 01:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/56787.shtml)
-- 2026-06-30 01:20 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/459382156268.shtml)
-- 2026-06-30 01:16 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/51280387.shtml)
-- 2026-06-30 01:29 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/64566579140.shtml)
-- 2026-06-30 01:00 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/726598.shtml)
-- 2026-06-30 01:28 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/7294103.shtml)
-- 2026-06-30 01:10 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/13135350.shtml)
-- 2026-06-30 01:05 - [月亮](https://www.blog.minike.top/Article/details/41229.shtml)
-- 2026-06-30 01:05 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/94378.shtml)
-- 2026-06-30 01:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/11584676.shtml)
-- 2026-06-30 01:16 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/4112635284.shtml)
-- 2026-06-30 01:17 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/638418338607.shtml)
-- 2026-06-30 01:17 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/61435.shtml)
-- 2026-06-30 01:19 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/37618231.shtml)
-- 2026-06-30 01:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/643513340.shtml)
+- 2026-06-30 01:35 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/91458.shtml)
+- 2026-06-30 01:09 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/050279428.shtml)
+- 2026-06-30 01:08 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/2216376596.shtml)
+- 2026-06-30 01:13 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/318104206.shtml)
+- 2026-06-30 01:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/845020998629.shtml)
+- 2026-06-30 01:10 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/368779.shtml)
+- 2026-06-30 01:09 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/6181159.shtml)
+- 2026-06-30 01:10 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/382801059709.shtml)
+- 2026-06-30 01:32 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/266445030.shtml)
+- 2026-06-30 01:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/9648453320.shtml)
+- 2026-06-30 01:33 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/65746263.shtml)
+- 2026-06-30 01:14 - [极限挑战第一季](https://www.blog.minike.top/Article/details/558260196538.shtml)
+- 2026-06-30 01:28 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/625607.shtml)
+- 2026-06-30 01:08 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/0403219781.shtml)
+- 2026-06-30 01:19 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/3290744177.shtml)

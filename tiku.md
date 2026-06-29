@@ -1,57 +1,60 @@
-# SpaceX员工联合Choreo推出低费率财富管理方案，应对上市后财富规划需求
+# 央行流动性调控双升级：临时隔夜正逆回购规则调整，人民币FIMA工具正式亮相
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-核心要点 多位知晓该合作协议的消息人士透露，一批 SpaceX 在职与离职员工联合芝加哥理财机构 Choreo，打造了一套全新低费率财富咨询服务，用于管理公司上市后所持股权变现的资产。 不愿具名、谈论这份保密合作协议的知情人士表示，该员工团体现有成员超 100 人，名下潜在资产规模介于 10 亿至 50 亿美元之间。 消息人士向 CNBC 介绍，该团体最初只是一个交流公益慈善相
+华夏时报记者 刘佳 北京报道 央行双管齐下优化流动性调控工具。 6月17日，在2026陆家嘴论坛上，央行同步公布两项公开市场操作机制优化方案：一方面优化公开市场临时隔夜正、逆回购操作机制，降低市场利率异常波动风险；另一方面创设境外央行类机构回购工具，便利境外央行类机构人民币流动性管理。 两项举措均为公开市场操作机制性完善，不涉及存贷款基准利率调整，也未推出降准、降息等总量宽松货
 
 ## 正文
 
-核心要点 多位知晓该合作协议的消息人士透露，一批 SpaceX 在职与离职员工联合芝加哥理财机构 Choreo，打造了一套全新低费率财富咨询服务，用于管理公司上市后所持股权变现的资产。
+华夏时报记者 刘佳 北京报道 央行双管齐下优化流动性调控工具。
 
-不愿具名、谈论这份保密合作协议的知情人士表示，该员工团体现有成员超 100 人，名下潜在资产规模介于 10 亿至 50 亿美元之间。
+6月17日，在2026陆家嘴论坛上，央行同步公布两项公开市场操作机制优化方案：一方面优化公开市场临时隔夜正、逆回购操作机制，降低市场利率异常波动风险；另一方面创设境外央行类机构回购工具，便利境外央行类机构人民币流动性管理。
 
-消息人士向 CNBC 介绍，该团体最初只是一个交流公益慈善相关话题的非正式社群；随着 SpaceX 即将上市、全员将收获巨额股权收益，社群进一步拓展目标，希望依托集体巨额财富，获取更高效、优质的专业金融咨询服务。
+两项举措均为公开市场操作机制性完善，不涉及存贷款基准利率调整，也未推出降准、降息等总量宽松货币政策，核心发力点聚焦利率市场化纵深推进，以及人民币国际化配套基础设施完善。
 
-团体派出小型专项团队筛选多家理财机构，最终和 Choreo 定制专属财富管理方案，供全体成员自愿参与。
+在邮政储蓄银行研究员娄飞鹏看来，此次央行同步落地两项政策既提升了人民币作为国际储备货币的吸引力，又增强了国内货币政策的独立性与有效性，标志着中国央行流动性管理框架向现代化、国际化迈出关键一步。
 
-Choreo 是芝加哥持牌注册投资顾问机构，官网信息显示，其管理及咨询资产总规模超 280 亿美元，设有 40 余家线下网点，配备 200 名财富顾问。
+隔夜回购机制全面优化 本次临时隔夜正、逆回购机制调整，是该工具自2024年7月落地运行近两年后，央行结合市场实际运行情况做出的系统性修正。
 
-合作细则与具体条款仍处于保密状态，但知情人士向 CNBC 透露，该方案设有最低年度服务费，或是按管理资产规模收取低于 0.5% 的年度管理费。
+6月17日，央行公告称，为灵活高效运用公开市场临时隔夜正、逆回购工具，即日起优化操作要素，将操作时间调整为工作日15：00-15：30，操作利率分别调整为公开市场7天期逆回购操作利率减点25bp和加点25bp。
 
-行业常规管理费区间普遍为 0.5% 至 1%，0.5% 以下的费率具备极强价格优势；且 Choreo 这套收费标准为长期合作定价，并非短期促销优惠。
+央行还在公告中进一步明确了工具使用规则：当银行间市场隔夜利率（DR001）持续低于或高于相应工具操作利率时，央行将结合一级交易商（即与央行直接进行交易的金融机构）需求，启动相应操作。
 
-Choreo 方面暂未回应媒体置评请求。
+浙商证券宏观研究李超团队研报中指出，临时隔夜正、逆回购工具本质上是围绕隔夜资金利率构建上下限更加清晰的短端利率走廊。
 
 ## 相关推荐
 
-- 2026-06-30 01:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 01:12 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 01:30 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 01:26 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-30 01:17 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 01:16 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 01:09 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 01:08 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 01:27 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 01:24 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 01:19 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 01:29 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 01:06 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 01:06 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 01:27 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 01:18 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 01:06 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 01:17 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 01:35 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 01:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 01:25 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 01:21 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 01:34 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 01:18 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 01:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/33123429908.shtml)
-- 2026-06-30 01:12 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/366952402726.shtml)
-- 2026-06-30 01:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/293469.shtml)
-- 2026-06-30 01:04 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/29384043.shtml)
-- 2026-06-30 01:04 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/899664570.shtml)
-- 2026-06-30 01:23 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/8167071682.shtml)
-- 2026-06-30 01:16 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/5553474.shtml)
-- 2026-06-30 01:12 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/26538529511.shtml)
-- 2026-06-30 01:18 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/170072.shtml)
-- 2026-06-30 01:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/6179445.shtml)
-- 2026-06-30 01:04 - [美人鱼](http://www.share.minike.top/Article/details/9530188.shtml)
-- 2026-06-30 01:21 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/4984559.shtml)
-- 2026-06-30 01:20 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/7802399838.shtml)
-- 2026-06-30 01:04 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/12871.shtml)
-- 2026-06-30 01:19 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/1932726804.shtml)
+- 2026-06-30 01:27 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/53584968617.shtml)
+- 2026-06-30 01:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/8231869.shtml)
+- 2026-06-30 01:06 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/47571508.shtml)
+- 2026-06-30 01:23 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/8759428803.shtml)
+- 2026-06-30 01:10 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/71202.shtml)
+- 2026-06-30 01:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/287139422886.shtml)
+- 2026-06-30 01:27 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/84397872856.shtml)
+- 2026-06-30 01:09 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/1116714845.shtml)
+- 2026-06-30 01:31 - [天道](http://www.blog.kurohicncr.top/Article/details/713013.shtml)
+- 2026-06-30 01:14 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/521735.shtml)
+- 2026-06-30 01:32 - [流金岁月](https://www.share.kurohicncr.top/Article/details/859477369.shtml)
+- 2026-06-30 01:18 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/95453702.shtml)
+- 2026-06-30 01:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/9608183.shtml)
+- 2026-06-30 01:17 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/703773603.shtml)
+- 2026-06-30 01:23 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/304853.shtml)

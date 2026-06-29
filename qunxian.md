@@ -1,59 +1,60 @@
-# 历史首次！美国总统特朗普观战NBA总决赛
+# 工行、中行、中信等在列 六家银行获批试点离岸人民币外汇交易
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新网北京6月9日电(记者 刘星晨)北京时间6月9日，本赛季美职篮(NBA)总决赛继续进行。系列赛第三场比赛在纽约尼克斯队主场麦迪逊广场花园进行，目前他们以总比分2:0领先圣安东尼奥马刺队。本场比赛，美国总统特朗普来到现场观战。 由于尼克斯队与马刺队均阔别冠军之争许久，本次总决赛在社交媒体讨论度超高，不仅引起了特朗普的关注，票价也持续走高。总决赛第三战是尼克斯队时隔27年再次在
+21世纪经济报道记者张欣 6月17日，中国人民银行行长潘功胜在2026陆家嘴论坛上宣布，将在上海自贸试验区开展离岸人民币外汇交易试点，授权工商银行、农业银行、中国银行、建设银行、交通银行及中信银行等6家银行，利用中国外汇交易中心平台开展离岸人民币外汇交易。 本次试点直击在岸、离岸人民币市场长期分割痛点，推动两地市场互联互通与定价权回流，为人民币国际化和上海国际金融中心建设注入新
 
 ## 正文
 
-中新网北京6月9日电(记者 刘星晨)北京时间6月9日，本赛季美职篮(NBA)总决赛继续进行。
+21世纪经济报道记者张欣 6月17日，中国人民银行行长潘功胜在2026陆家嘴论坛上宣布，将在上海自贸试验区开展离岸人民币外汇交易试点，授权工商银行、农业银行、中国银行、建设银行、交通银行及中信银行等6家银行，利用中国外汇交易中心平台开展离岸人民币外汇交易。
 
-系列赛第三场比赛在纽约尼克斯队主场麦迪逊广场花园进行，目前他们以总比分2:0领先圣安东尼奥马刺队。
+本次试点直击在岸、离岸人民币市场长期分割痛点，推动两地市场互联互通与定价权回流，为人民币国际化和上海国际金融中心建设注入新动能。
 
-本场比赛，美国总统特朗普来到现场观战。
+据本报记者了解，工商银行、中国银行率先落地上海自贸区离岸人民币外汇试点首批业务。
 
-由于尼克斯队与马刺队均阔别冠军之争许久，本次总决赛在社交媒体讨论度超高，不仅引起了特朗普的关注，票价也持续走高。
+工商银行方面表示，率先开展双边做市报价并完成首批交易，交易对手涵盖中国香港、新加坡、英国伦敦等多个国家和地区的金融机构，交易品种包括外汇即期、远期和掉期全品类，交易货币覆盖离岸人民币对美元、欧元、日元、港币、新加坡元、土耳其里拉、澳大利亚元、泰国铢、南非兰特等，交易规模、对手数量和币种种类丰富度处行业前列。
 
-总决赛第三战是尼克斯队时隔27年再次在总决赛中主场作战，临近开场前后，知名票务平台TickPick仍有部分该场次门票在售，最低价格为3239美元(折合人民币约2.19万元)，最高价格为20525美元(折合人民币约13.9万元)。
+工商银行称，依托银行间各类市场核心做市商与全球一体化经营优势，持续助力人民币国际化与高水平对外开放。
 
-在转售平台StubHub上，有票价达到了486388美元(折合人民币约329万元)。
+首批试点机构中国银行亦完成试点首单，据中行官方披露，该行本次首批交易覆盖外汇即期、外汇掉期两大主流交易品种，交易币种涵盖多个发达经济体货币以及“一带一路”共建国家货币，且已成功与境外同业机构达成首笔相关交易。
 
-据媒体此前统计，本场比赛平均票价约为7768美元。
+中国银行方面表示，本次业务落地进一步丰富了离岸人民币外汇市场参与主体，拓宽市场交易渠道，助力离岸人民币市场规范化、规模化发展，持续推动人民币跨境交易生态完善。
 
-“(尼克斯队)总能找到办法，他们真的很棒。
+远东资信研究院副院长张林针对本次试点政策作出解读。
 
 ## 相关推荐
 
-- 2026-06-30 01:26 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 01:10 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 01:01 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 01:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 01:26 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 01:17 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 01:12 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 01:01 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 01:21 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 01:05 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 01:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 01:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 01:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 01:29 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 01:30 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 01:20 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 01:31 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 01:28 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 01:30 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 01:25 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 01:14 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 01:29 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 01:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 01:21 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 01:29 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 01:22 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 01:34 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:00 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/758777159.shtml)
-- 2026-06-30 01:08 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/2842451.shtml)
-- 2026-06-30 01:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/248918.shtml)
-- 2026-06-30 01:16 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/018939.shtml)
-- 2026-06-30 01:05 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/534044.shtml)
-- 2026-06-30 01:05 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/684745.shtml)
-- 2026-06-30 01:06 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/635515750474.shtml)
-- 2026-06-30 01:15 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/019369.shtml)
-- 2026-06-30 01:22 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/03186.shtml)
-- 2026-06-30 01:06 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/394126063097.shtml)
-- 2026-06-30 01:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/0261690194.shtml)
-- 2026-06-30 01:03 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/971926334000.shtml)
-- 2026-06-30 01:00 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/6978430.shtml)
-- 2026-06-30 01:24 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/741665.shtml)
-- 2026-06-30 01:07 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/797585333275.shtml)
+- 2026-06-30 01:28 - [毒液2](https://www.blog.kurohicncr.top/Article/details/80488.shtml)
+- 2026-06-30 01:30 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/293200.shtml)
+- 2026-06-30 01:33 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/70512017.shtml)
+- 2026-06-30 01:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/99278276437.shtml)
+- 2026-06-30 01:22 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/48330346280.shtml)
+- 2026-06-30 01:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/420972969494.shtml)
+- 2026-06-30 01:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/048336265178.shtml)
+- 2026-06-30 01:11 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/71734.shtml)
+- 2026-06-30 01:16 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/935889.shtml)
+- 2026-06-30 01:16 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/38160640406.shtml)
+- 2026-06-30 01:13 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/09709.shtml)
+- 2026-06-30 01:10 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/245239313.shtml)
+- 2026-06-30 01:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/404192.shtml)
+- 2026-06-30 01:10 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/944090804.shtml)
+- 2026-06-30 01:06 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/18065692151.shtml)

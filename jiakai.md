@@ -1,58 +1,54 @@
-# 刘强东的“不裁员承诺”与京东的“AI狂飙”
+# 交通银行获批开展离岸人民币外汇交易试点 首日达成多笔交易
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财熵 资料图。 刘强东的“不裁员承诺”与京东的“AI狂飙” 王琳 5月12日，京东集团发布一季度财报，AI技术投入带来大幅承压的利润表现，引发市场热议。几天之后，5月18日的京东618启动会上，京东管理层透露2026年京东体系在AI领域的研发投入将实现同比超200%的增长，投入规模位居行业第一梯队。
+来源：交通银行 6月17日，在上海自贸区离岸人民币外汇试点交易首日，交通银行通过中国外汇交易中心平台与境外机构达成多笔离岸人民币外汇交易，交易品种包括即期、远期、掉期，交易货币对包括离岸人民币对美元、欧元、英镑、瑞郎、新西兰元等。这是交行在陆家嘴论坛首日对人民银行政策部署的迅速响应。 交行直接开展离岸人民币外汇交易，能更加灵活地利用离在岸市场资源，提高外汇市场做市、交易、报价能
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：交通银行 6月17日，在上海自贸区离岸人民币外汇试点交易首日，交通银行通过中国外汇交易中心平台与境外机构达成多笔离岸人民币外汇交易，交易品种包括即期、远期、掉期，交易货币对包括离岸人民币对美元、欧元、英镑、瑞郎、新西兰元等。
 
-来源：财熵 资料图。
+这是交行在陆家嘴论坛首日对人民银行政策部署的迅速响应。
 
-刘强东的“不裁员承诺”与京东的“AI狂飙” 王琳 5月12日，京东集团发布一季度财报，AI技术投入带来大幅承压的利润表现，引发市场热议。
+交行直接开展离岸人民币外汇交易，能更加灵活地利用离在岸市场资源，提高外汇市场做市、交易、报价能力，助力人民币汇率在合理均衡水平上保持基本稳定。
 
-几天之后，5月18日的京东618启动会上，京东管理层透露2026年京东体系在AI领域的研发投入将实现同比超200%的增长，投入规模位居行业第一梯队。
+现阶段，人民币国际化稳步推进，对外收支中人民币结算占比稳步提升，交行将以此为契机，切实履行国有金融机构主力军职责，持续优化面向境内外市场主体的外汇综合服务，精准匹配实体经济各类金融需求。
 
-随后的5月27日，京东集团创始人刘强东内部讲话表示：“被机器人取代的一线员工，一个都不会开除”，与几乎全行业AI裁员降本的浪潮形成反差。
-
-一边是持续加码、大刀阔斧的AI布局，一边是坚守人本底线、反行业内卷的温情承诺，两个事件勾勒出京东不走“技术替代人力、牺牲员工换利润”捷径的独特发展逻辑。
-
-值得深思的是，刘强东此番表态或许不仅仅是情怀输出，更是行业环境、内部发展、战略布局多重因素下的选择，是2026年AI商业化落地深水区中，京东差异化竞争的必然布局。
-
-“一个都不会开除” 2026年，AI商业化落地进入深水区，“技术替代人力”不再是行业猜想，而是席卷全球的残酷现实。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 01:01 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 01:02 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 01:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 01:13 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 01:22 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 01:01 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 01:10 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 01:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 01:13 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 01:29 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 01:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 01:29 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 01:25 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 01:36 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 01:14 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 01:14 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 01:06 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 01:15 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 01:11 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 01:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 01:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 01:22 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 01:22 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 01:07 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 01:27 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 01:21 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/183096654.shtml)
-- 2026-06-30 01:17 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/194061366.shtml)
-- 2026-06-30 01:22 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/83095.shtml)
-- 2026-06-30 01:04 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/73175.shtml)
-- 2026-06-30 01:15 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/75505.shtml)
-- 2026-06-30 01:02 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/629042.shtml)
-- 2026-06-30 01:20 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/9060801460.shtml)
-- 2026-06-30 01:26 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/214777035818.shtml)
-- 2026-06-30 01:26 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/510438161011.shtml)
-- 2026-06-30 01:20 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/53416230403.shtml)
-- 2026-06-30 01:13 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/5339912.shtml)
-- 2026-06-30 01:21 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/75107170.shtml)
-- 2026-06-30 01:29 - [沙丘](https://www.share.minike.top/Article/details/94871.shtml)
-- 2026-06-30 01:05 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/380314.shtml)
-- 2026-06-30 01:02 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/195563.shtml)
+- 2026-06-30 01:22 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/580140573319.shtml)
+- 2026-06-30 01:19 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/70968139313.shtml)
+- 2026-06-30 01:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/68257785.shtml)
+- 2026-06-30 01:18 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/694434618667.shtml)
+- 2026-06-30 01:23 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/41660.shtml)
+- 2026-06-30 01:23 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/53173102.shtml)
+- 2026-06-30 01:20 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/34660405.shtml)
+- 2026-06-30 01:22 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/2759508.shtml)
+- 2026-06-30 01:06 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/7516748.shtml)
+- 2026-06-30 01:10 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/691076836303.shtml)
+- 2026-06-30 01:07 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/63459762824.shtml)
+- 2026-06-30 01:34 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/9845343377.shtml)
+- 2026-06-30 01:07 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/27822.shtml)
+- 2026-06-30 01:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/3517286143.shtml)
+- 2026-06-30 01:21 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/092756764.shtml)

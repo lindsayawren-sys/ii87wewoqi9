@@ -1,58 +1,56 @@
-# 陕西入境旅客综合服务平台正式启用
+# 德意志银行：沃什若避免释放政策信号 套利交易将迎来机会
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新网西安6月9日电 (记者 阿琳娜)陕西入境旅客综合服务平台启用仪式9日在西安咸阳国际机场举行。该平台设置入境事务、文旅综合、交通接驳、金融通信等功能板块，集成政策咨询、文旅预订、出行规划、外币兑换等服务。 此次落地西安咸阳国际机场T5航站楼的入境旅客综合服务平台，由陕西省文化和旅游厅牵头统筹，多方携手共建，打破部门与行业服务壁垒，打造线上线下协同、国内国际联动的一体化服务矩
+德意志银行全球外汇研究主管George Saravelos表示，美联储主席凯文·沃什的目标是“尽可能避免就今年的货币政策发表看法，从而将对市场定价的影响降至最低”。如果沃什能够做到这一点，那么美元很可能走弱，而“夏季套利交易的道路将完全打开”。 德银在周三发给客户的报告中表示，随着伊朗战争对市场造成的有限影响逐渐消退，“很难不看好”风险资产。 该行指出，自去年以来，全球经济增长
 
 ## 正文
 
-中新网西安6月9日电 (记者 阿琳娜)陕西入境旅客综合服务平台启用仪式9日在西安咸阳国际机场举行。
+德意志银行全球外汇研究主管George Saravelos表示，美联储主席凯文·沃什的目标是“尽可能避免就今年的货币政策发表看法，从而将对市场定价的影响降至最低”。
 
-该平台设置入境事务、文旅综合、交通接驳、金融通信等功能板块，集成政策咨询、文旅预订、出行规划、外币兑换等服务。
+如果沃什能够做到这一点，那么美元很可能走弱，而“夏季套利交易的道路将完全打开”。
 
-此次落地西安咸阳国际机场T5航站楼的入境旅客综合服务平台，由陕西省文化和旅游厅牵头统筹，多方携手共建，打破部门与行业服务壁垒，打造线上线下协同、国内国际联动的一体化服务矩阵，让远道而来的国际游客落地即享便捷服务，真切感受三秦大地的热情与温度。
+德银在周三发给客户的报告中表示，随着伊朗战争对市场造成的有限影响逐渐消退，“很难不看好”风险资产。
 
-据了解，平台坚守公益属性为主、市场化运营为辅的定位，建立标准化巡检、满意度考核等管理制度，后续还将联动各地市推出文旅消费活动，进一步激活入境旅游消费潜力。
+该行指出，自去年以来，全球经济增长预测几乎没有发生变化，而这种具有韧性的增长前景“并不是特别利好美元的信号”。
 
-陕西省文化和旅游厅党组书记、厅长高阳表示，建设入境旅客综合服务平台，是陕西聚力打造文化强省、培育万亿级文旅产业集群的务实举措，更是推动文旅与航空深度融合、提升涉外服务品质的生动实践。
+德银还认为，就未来几个月增长预期上修的空间而言，欧洲“拥有最大的潜力”。
 
-陕西将以平台为纽带，深化多方协同联动，持续丰富服务内涵、打磨服务细节、健全保障体系，致力将其打造为全国口岸入境服务标杆、中外人文交流的重要桥梁，让丝路古韵与时代新风借助文旅交流走向世界。
-
-(完)
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 01:28 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 01:05 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 01:27 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 01:20 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 01:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 01:29 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 01:13 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 01:27 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 01:07 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 01:06 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 01:24 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 01:10 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 01:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 01:34 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 01:10 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 01:16 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 01:16 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 01:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 01:29 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 01:35 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 01:26 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 01:13 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 01:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 01:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 01:33 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 01:06 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 01:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/25647080098.shtml)
-- 2026-06-30 01:10 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/396075899.shtml)
-- 2026-06-30 01:05 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/77241.shtml)
-- 2026-06-30 01:28 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/448575165592.shtml)
-- 2026-06-30 01:29 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/189765.shtml)
-- 2026-06-30 01:22 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/45872739014.shtml)
-- 2026-06-30 01:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/617682.shtml)
-- 2026-06-30 01:20 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/76303863.shtml)
-- 2026-06-30 01:23 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/3314522.shtml)
-- 2026-06-30 01:25 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/33409.shtml)
-- 2026-06-30 01:15 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/114397684.shtml)
-- 2026-06-30 01:23 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/469228512.shtml)
-- 2026-06-30 01:00 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/5485428.shtml)
-- 2026-06-30 01:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/952942325.shtml)
-- 2026-06-30 01:01 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/24691.shtml)
+- 2026-06-30 01:32 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/94933918.shtml)
+- 2026-06-30 01:18 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/14892.shtml)
+- 2026-06-30 01:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/0339784719.shtml)
+- 2026-06-30 01:14 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/188587032.shtml)
+- 2026-06-30 01:09 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/697542635566.shtml)
+- 2026-06-30 01:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/80707923012.shtml)
+- 2026-06-30 01:19 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/01347.shtml)
+- 2026-06-30 01:17 - [TOP Prada](http://www.blog.minike.top/Article/details/69580120930.shtml)
+- 2026-06-30 01:18 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/414957266774.shtml)
+- 2026-06-30 01:16 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/227294804191.shtml)
+- 2026-06-30 01:08 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/05497.shtml)
+- 2026-06-30 01:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/184921.shtml)
+- 2026-06-30 01:28 - [锐评T1零封KC](https://www.share.minike.top/Article/details/26515661347.shtml)
+- 2026-06-30 01:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/609687.shtml)
+- 2026-06-30 01:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/19349346.shtml)

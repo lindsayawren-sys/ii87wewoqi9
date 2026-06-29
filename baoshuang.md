@@ -1,48 +1,47 @@
-# 武警陕西总队西安支队组织多课目实弹射击考核
+# 厦门银行发布2025年年度权益分派实施公告：每股派利0.11元
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 17:26 来源：中国新闻网 近日，武警陕西总队西安支队组织多课目实弹射击考核，他们将战术背景融入全程，在快节奏、多课目连贯实施中检验官兵实战能力。 考核中，官兵全装快速跃进至射击位置，对随机出现的隐显目标实施打击。考核组打破课目界限，将精度射击与应用射击穿插结合，要求射手在规定时间内自主完成目标判断、运动射击，对动作熟练度和临场心理都提出了更
+6月17日金融一线消息，厦门银行公布2025年年度权益分派实施公告，本次利润分配以方案实施前的公司总股本2，639，127，888股为基数，每股派发现金红利0.11元（含税），共计派发现金红利290，304，067.68元。 本次权益分派股权登记日为：2026年6月25日，除权除息日为：2026年6月26日。 责任编辑：李琳琳
 
 ## 正文
 
-发布时间：2026年06月09日 17:26 来源：中国新闻网 近日，武警陕西总队西安支队组织多课目实弹射击考核，他们将战术背景融入全程，在快节奏、多课目连贯实施中检验官兵实战能力。
+6月17日金融一线消息，厦门银行公布2025年年度权益分派实施公告，本次利润分配以方案实施前的公司总股本2，639，127，888股为基数，每股派发现金红利0.11元（含税），共计派发现金红利290，304，067.68元。
 
-考核中，官兵全装快速跃进至射击位置，对随机出现的隐显目标实施打击。
+本次权益分派股权登记日为：2026年6月25日，除权除息日为：2026年6月26日。
 
-考核组打破课目界限，将精度射击与应用射击穿插结合，要求射手在规定时间内自主完成目标判断、运动射击，对动作熟练度和临场心理都提出了更高要求。
-
-(记者 梅镱泷 视频来源 武警陕西总队西安支队) 责任编辑：【刘湃】
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 01:05 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 01:08 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 01:21 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 01:26 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 01:04 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 01:28 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 01:03 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 01:25 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 01:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 01:23 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 01:07 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 01:16 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 01:06 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 01:09 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 01:20 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 01:21 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 01:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 01:31 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 01:12 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 01:15 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/6873623163.shtml)
-- 2026-06-30 01:07 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/667113163936.shtml)
-- 2026-06-30 01:12 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/15504.shtml)
-- 2026-06-30 01:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/08816734589.shtml)
-- 2026-06-30 01:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/68360851.shtml)
-- 2026-06-30 01:11 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/05861.shtml)
-- 2026-06-30 01:21 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/21247098425.shtml)
-- 2026-06-30 01:22 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/53660442009.shtml)
-- 2026-06-30 01:14 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/293340.shtml)
-- 2026-06-30 01:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/08770.shtml)
-- 2026-06-30 01:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/0115727.shtml)
-- 2026-06-30 01:00 - [急先锋](https://www.blog.minike.top/Article/details/75395.shtml)
-- 2026-06-30 01:26 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/57802.shtml)
-- 2026-06-30 01:09 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/64052585136.shtml)
-- 2026-06-30 01:30 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/533306975062.shtml)
+- 2026-06-30 01:13 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/05970103.shtml)
+- 2026-06-30 01:21 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/303966882.shtml)
+- 2026-06-30 01:31 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/55409021616.shtml)
+- 2026-06-30 01:19 - [起风了](http://www.blog.minike.top/Article/details/229168.shtml)
+- 2026-06-30 01:15 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/4481423.shtml)
+- 2026-06-30 01:29 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/992057428397.shtml)
+- 2026-06-30 01:23 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/1305459.shtml)
+- 2026-06-30 01:23 - [急先锋](https://www.blog.minike.top/Article/details/11010.shtml)
+- 2026-06-30 01:33 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/225357076.shtml)
+- 2026-06-30 01:07 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/0051879.shtml)
+- 2026-06-30 01:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/3874675.shtml)
+- 2026-06-30 01:13 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/73050.shtml)
+- 2026-06-30 01:18 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/7961198.shtml)
+- 2026-06-30 01:34 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/217625116.shtml)
+- 2026-06-30 01:07 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/944943.shtml)

@@ -1,58 +1,59 @@
-# 消费前先查一查，别被食品标签的宣传忽悠了
+# 长城击鼓引争议，百亿lululemon遇考
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-最近，一条关于盒马麻薯的热搜让不少消费者心头一紧——有消费者在盒马APP上购买了一款双拼麻薯，商品详情页醒目标注着“58%纯脂黑巧克力”，但孩子吃下后仔细查看配料表，才发现里面写的却是“代可可脂”。 事件曝光后，媒体跟进调查发现，这款售价23.9元的双拼麻薯，详情页中“纯脂黑巧克力”的字样格外醒目，而“原料含代可可脂黑巧克力”的标注字号却小得几乎看不见。盒马客服回应称“无法解答
+因为一面鼓，lululemon又上热搜了。 6月16日，lululemon针对一场瑜伽活动的失误，发布致歉声明，下架所有宣传内容。 此事涉品牌大使朱一龙的一场鼓演出，宣传文案写着“擂响中华大鼓”。随后，多位打击乐从业者指出，现场所用鼓具从形制到演奏方式，均与日本太鼓高度吻合。 这般重大失误，发生在所倚重的高增长市场。 2025财年，lululemon在中国内地收入达17.55亿
 
 ## 正文
 
-最近，一条关于盒马麻薯的热搜让不少消费者心头一紧——有消费者在盒马APP上购买了一款双拼麻薯，商品详情页醒目标注着“58%纯脂黑巧克力”，但孩子吃下后仔细查看配料表，才发现里面写的却是“代可可脂”。
+因为一面鼓，lululemon又上热搜了。
 
-事件曝光后，媒体跟进调查发现，这款售价23.9元的双拼麻薯，详情页中“纯脂黑巧克力”的字样格外醒目，而“原料含代可可脂黑巧克力”的标注字号却小得几乎看不见。
+6月16日，lululemon针对一场瑜伽活动的失误，发布致歉声明，下架所有宣传内容。
 
-盒马客服回应称“无法解答”详情页图文和成分列表有出入的问题，只能“如实记录反馈”。
+此事涉品牌大使朱一龙的一场鼓演出，宣传文案写着“擂响中华大鼓”。
 
-这可不是小事。
+随后，多位打击乐从业者指出，现场所用鼓具从形制到演奏方式，均与日本太鼓高度吻合。
 
-“纯脂”指天然可可脂，成本较高，口感好；而“代可可脂”是氢化植物油，可能含有反式脂肪酸，成本仅为可可脂的十分之一。
+这般重大失误，发生在所倚重的高增长市场。
 
-根据国家标准，代可可脂添加量超过5%的产品就不能直接称为“巧克力”，必须明确标示为“代可可脂巧克力”。
+2025财年，lululemon在中国内地收入达17.55亿美元，约合人民币120亿元，增长约三成。
 
-详情页大字写“纯脂”，配料表小字写“代可可脂”，这种标注方式，已有律师指出可能涉嫌虚假宣传。
+今年1-3月，内地营收占比已升至19%。
 
-消费前多做一步，能省不少麻烦 盒马麻薯事件并非个例。
+大鼓的“翻车”，对其精心构建的社群圈层，可能造成微妙的扰动。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 01:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 01:15 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 01:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 01:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 01:02 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 01:26 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 01:07 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 01:05 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 01:05 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 01:21 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 01:03 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 01:18 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 01:31 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 01:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 01:24 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 01:18 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 01:23 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 01:12 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 01:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 01:13 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 01:32 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 01:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 01:32 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 01:12 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:19 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/72430866.shtml)
-- 2026-06-30 01:03 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/1022707744.shtml)
-- 2026-06-30 01:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/82263813.shtml)
-- 2026-06-30 01:16 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/26072.shtml)
-- 2026-06-30 01:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/7152534.shtml)
-- 2026-06-30 01:25 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/87347.shtml)
-- 2026-06-30 01:25 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/618185.shtml)
-- 2026-06-30 01:17 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/316123298.shtml)
-- 2026-06-30 01:02 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/086997.shtml)
-- 2026-06-30 01:28 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/94353140.shtml)
-- 2026-06-30 01:24 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/783796193.shtml)
-- 2026-06-30 01:04 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/3135097131.shtml)
-- 2026-06-30 01:08 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/595481519421.shtml)
-- 2026-06-30 01:11 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/51999671987.shtml)
-- 2026-06-30 01:25 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/531172.shtml)
+- 2026-06-30 01:21 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/19630.shtml)
+- 2026-06-30 01:06 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/613547279107.shtml)
+- 2026-06-30 01:35 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/1514463410.shtml)
+- 2026-06-30 01:12 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/5488638398.shtml)
+- 2026-06-30 01:06 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/9377867.shtml)
+- 2026-06-30 01:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/82823265.shtml)
+- 2026-06-30 01:07 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/975568649161.shtml)
+- 2026-06-30 01:10 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/598925845.shtml)
+- 2026-06-30 01:17 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/2314112697.shtml)
+- 2026-06-30 01:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/617371978.shtml)
+- 2026-06-30 01:30 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/5420881.shtml)
+- 2026-06-30 01:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/2974168186.shtml)
+- 2026-06-30 01:15 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/37011019062.shtml)
+- 2026-06-30 01:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/0719981529.shtml)
+- 2026-06-30 01:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/3188208040.shtml)

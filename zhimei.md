@@ -1,60 +1,60 @@
-# 大华继显：近期地产股回调创造买入机会 首选新鸿基地产及领展房产基金
+# 重庆签约164个优质林业产业项目 总投资达331.47亿元
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-大华继显发布研报称，新的对外投资规定将抑制来自中国内地的投资需求，但不会影响在香港工作/生活的专业人才。住宅市场价格动能强劲。零售销售复苏支持租金回稳。该行维持香港地产行业“与大市同步”评级。重申预测住宅价格将上涨7%。将零售销售增长预测从2.5%上调至5%。近期地产股回调创造买入机会。首选新鸿基地产（00016）及领展房产基金（00823），目标价分别143.8港元及44.3
+发布时间：2026年06月17日 20:39 来源：中国新闻网 6月17日，“万企重庆行·渝林惠八方”林业产业对接活动在重庆璧山举行。活动现场，164个优质项目成功签约，总投资额达331.47亿元。除了现场签约项目外，另有34个项目处于深度洽谈阶段，投资额达73.11亿元。 这些项目遍布重庆各区县，覆盖国储林、特色经济林、木竹加工、林下经济、森林康养、自然教育六大核心赛道。其中
 
 ## 正文
 
-大华继显发布研报称，新的对外投资规定将抑制来自中国内地的投资需求，但不会影响在香港工作/生活的专业人才。
+发布时间：2026年06月17日 20:39 来源：中国新闻网 6月17日，“万企重庆行·渝林惠八方”林业产业对接活动在重庆璧山举行。
 
-住宅市场价格动能强劲。
+活动现场，164个优质项目成功签约，总投资额达331.47亿元。
 
-零售销售复苏支持租金回稳。
+除了现场签约项目外，另有34个项目处于深度洽谈阶段，投资额达73.11亿元。
 
-该行维持香港地产行业“与大市同步”评级。
+这些项目遍布重庆各区县，覆盖国储林、特色经济林、木竹加工、林下经济、森林康养、自然教育六大核心赛道。
 
-重申预测住宅价格将上涨7%。
+其中，既有百亿级全产业链龙头项目，适合大型集团系统布局；也有百千万级特色精品项目，适配中小企业深耕细作。
 
-将零售销售增长预测从2.5%上调至5%。
+重庆市林业局党组书记、局长曹春华推介了重庆林业的发展机遇。
 
-近期地产股回调创造买入机会。
+重庆全市林草空间6325万亩，林草补充空间525万亩，可多元化开发利用林地超3600万亩；31个优势产业树种，适配全品类林业项目。
 
-首选新鸿基地产（00016）及领展房产基金（00823），目标价分别143.8港元及44.3港元，均予“买入”评级。
+(记者 肖江川） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 01:26 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 01:26 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 01:25 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 01:29 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 01:25 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 01:29 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 01:24 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 01:10 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 01:16 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 01:20 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 01:28 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 01:17 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 01:10 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 01:09 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 01:14 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 01:17 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 01:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 01:25 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 01:23 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 01:24 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 01:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 01:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 01:21 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 01:35 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 01:23 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 01:30 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 01:15 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 01:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/57430582.shtml)
-- 2026-06-30 01:18 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/0505712887.shtml)
-- 2026-06-30 01:19 - [巴西vs日本](http://www.share.minike.top/Article/details/9189450980.shtml)
-- 2026-06-30 01:13 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/312839778542.shtml)
-- 2026-06-30 01:14 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/59210261778.shtml)
-- 2026-06-30 01:23 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/4217092497.shtml)
-- 2026-06-30 01:08 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/2892466.shtml)
-- 2026-06-30 01:24 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/068210369.shtml)
-- 2026-06-30 01:02 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/80683.shtml)
-- 2026-06-30 01:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/17601952.shtml)
-- 2026-06-30 01:23 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/2072709427.shtml)
-- 2026-06-30 01:09 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/25037525833.shtml)
-- 2026-06-30 01:19 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/50838.shtml)
-- 2026-06-30 01:21 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/5453530251.shtml)
-- 2026-06-30 01:14 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/985005497888.shtml)
+- 2026-06-30 01:33 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/42449022.shtml)
+- 2026-06-30 01:29 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/93485.shtml)
+- 2026-06-30 01:10 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/6919278526.shtml)
+- 2026-06-30 01:14 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/24785.shtml)
+- 2026-06-30 01:09 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/6933267.shtml)
+- 2026-06-30 01:28 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/655703.shtml)
+- 2026-06-30 01:16 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/32148672019.shtml)
+- 2026-06-30 01:11 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/64274749618.shtml)
+- 2026-06-30 01:20 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/10269256.shtml)
+- 2026-06-30 01:29 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/11815562314.shtml)
+- 2026-06-30 01:20 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/322128.shtml)
+- 2026-06-30 01:18 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/68593.shtml)
+- 2026-06-30 01:09 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/14127198.shtml)
+- 2026-06-30 01:27 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/457480340759.shtml)
+- 2026-06-30 01:27 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/3641464.shtml)

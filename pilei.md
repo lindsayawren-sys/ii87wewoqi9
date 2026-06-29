@@ -1,57 +1,54 @@
-# 早盘异动！002361，3分钟涨停
+# 阿联酋部长：正朝着完全不依赖霍尔木兹海峡的目标推进
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-6月8日早盘，A股商业航天板块拉升，神剑股份（002361）3分钟涨停，走出2连板。此前一个交易日“30cm”涨停的创远信科（920961）今日开盘继续大涨，盘中最高涨超18%。能科科技、七丰精工、中天火箭、华体科技等个股跟涨。 消息面上，垣信卫星6月5日披露，当日14时34分，垣信卫星在海南国际商业航天发射场，使用长征八号运载火箭，成功将18颗千帆卫星送入预定轨道，所有卫星状
+美伊临时和平协议签署后，全球正静待霍尔木兹海峡全面恢复通航，与此同时，阿联酋正在推进一项宏大规划，力求彻底摆脱对这一关键航运要道的依赖。 阿联酋外贸部长萨尼・阿尔・扎尤迪在采访中表示：“我们正朝着完全不依赖霍尔木兹海峡的目标推进，无论该航道是否恢复通行。海峡终将开放，我们也期待这一天尽快到来，但相关新建配套规划不会因此停滞。” 扎尤迪表示，阿联酋该规划的核心内容是大规模扩建迪巴
 
 ## 正文
 
-6月8日早盘，A股商业航天板块拉升，神剑股份（002361）3分钟涨停，走出2连板。
+美伊临时和平协议签署后，全球正静待霍尔木兹海峡全面恢复通航，与此同时，阿联酋正在推进一项宏大规划，力求彻底摆脱对这一关键航运要道的依赖。
 
-此前一个交易日“30cm”涨停的创远信科（920961）今日开盘继续大涨，盘中最高涨超18%。
+阿联酋外贸部长萨尼・阿尔・扎尤迪在采访中表示：“我们正朝着完全不依赖霍尔木兹海峡的目标推进，无论该航道是否恢复通行。
 
-能科科技、七丰精工、中天火箭、华体科技等个股跟涨。
+海峡终将开放，我们也期待这一天尽快到来，但相关新建配套规划不会因此停滞。
 
-消息面上，垣信卫星6月5日披露，当日14时34分，垣信卫星在海南国际商业航天发射场，使用长征八号运载火箭，成功将18颗千帆卫星送入预定轨道，所有卫星状态正常，发射任务取得圆满成功。
+” 扎尤迪表示，阿联酋该规划的核心内容是大规模扩建迪巴、富查伊拉、豪尔费坎三座东部港口，这些港口坐落于阿曼湾沿岸，地处霍尔木兹海峡之外。
 
-至此，“千帆星座”卫星数量增至200颗，AIS卫星系统完成组网，“千帆星座”达成重要里程碑。
+他透露，阿联酋还将在同一片海岸线上至少新建一座港口。
 
-（详见此前报道《200颗！
+他表示，阿联酋还将大手笔投资新建管道、铁路与公路路网，以此打通东部港口和国内油气田、石油设施之间的运输通道。
 
-“千帆星座”迎重要里程碑》） 近日，创远信科公告，公司重大资产重组财务数据更新工作已顺利完成，公司重大重组事项正在有序、稳步推进。
-
-此前，创远信科宣布拟通过发行股份及支付现金的方式购买微宇天导100%股权，并向符合条件的特定对象发行股票募集配套资金，交易构成重大资产重组。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 01:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 01:08 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 01:17 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 01:28 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 01:11 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 01:00 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 01:24 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 01:05 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 01:13 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 01:07 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 01:04 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 01:32 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 01:12 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 01:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 01:06 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 01:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 01:16 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 01:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 01:07 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 01:20 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 01:33 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/7556681905.shtml)
-- 2026-06-30 01:23 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/7690673826.shtml)
-- 2026-06-30 01:19 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/83163726711.shtml)
-- 2026-06-30 01:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/65327.shtml)
-- 2026-06-30 01:16 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/642020167.shtml)
-- 2026-06-30 01:26 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/85013.shtml)
-- 2026-06-30 01:23 - [世界杯](https://www.blog.kurohicncr.top/Article/details/3138706.shtml)
-- 2026-06-30 01:27 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/8142274973.shtml)
-- 2026-06-30 01:05 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/406208.shtml)
-- 2026-06-30 01:01 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/18516043804.shtml)
-- 2026-06-30 01:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/62097858.shtml)
-- 2026-06-30 01:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/5905590.shtml)
-- 2026-06-30 01:25 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/013754.shtml)
-- 2026-06-30 01:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/916548246279.shtml)
-- 2026-06-30 01:25 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/37736827.shtml)
+- 2026-06-30 01:35 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/951203.shtml)
+- 2026-06-30 01:21 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/45535054763.shtml)
+- 2026-06-30 01:16 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/398803.shtml)
+- 2026-06-30 01:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/807294.shtml)
+- 2026-06-30 01:33 - [扫黑风暴](https://www.share.minike.top/Article/details/2883544.shtml)
+- 2026-06-30 01:18 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/754107.shtml)
+- 2026-06-30 01:06 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/78011.shtml)
+- 2026-06-30 01:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/63572643.shtml)
+- 2026-06-30 01:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/3074589338.shtml)
+- 2026-06-30 01:09 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/541147.shtml)
+- 2026-06-30 01:13 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/224819057.shtml)
+- 2026-06-30 01:18 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/12529600.shtml)
+- 2026-06-30 01:29 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/44857522036.shtml)
+- 2026-06-30 01:22 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/0244835.shtml)
+- 2026-06-30 01:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/022257473825.shtml)

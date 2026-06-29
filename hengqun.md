@@ -1,61 +1,59 @@
-# NCE平台:暗船航行放大盲区
+# 中方：高市早苗一边喊着对话一边忙着对抗，完全是自相矛盾
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-6月8日，霍尔木兹相关海域的油轮“暗船化”现象正在加重，越来越多商业船只关闭识别信号后再完成装卸和穿越，NCE平台表示，这让市场对真实供应流向的把握明显变难。油市波动放大的原因，也由此不只是地缘事件本身。 在NCE平台看来，运输透明度下降会直接削弱市场对原油、液化气和液化天然气流向的实时判断能力。过去依靠船期和公开信号就能建立的大致供需轮廓，如今需要更多库存和到港数据来交叉验证
+中新网北京6月18日电 (记者 谢雁冰 张素)中国外交部发言人林剑18日主持例行记者会。 有记者提问：据报道，在近日七国集团领导人会议上，日本首相高市早苗称中国对日本的稀土出口限制等措施对G7和相关国家的供应链可能产生影响，对此非常担心。高市在会议结束后会见记者称，将构筑对华建设性稳定关系，对于同中方对话持开放态度，今后将基于国家利益冷静妥善应对。请问中方对此有何评论？ 林剑：
 
 ## 正文
 
-6月8日，霍尔木兹相关海域的油轮“暗船化”现象正在加重，越来越多商业船只关闭识别信号后再完成装卸和穿越，NCE平台表示，这让市场对真实供应流向的把握明显变难。
+中新网北京6月18日电 (记者 谢雁冰 张素)中国外交部发言人林剑18日主持例行记者会。
 
-油市波动放大的原因，也由此不只是地缘事件本身。
+有记者提问：据报道，在近日七国集团领导人会议上，日本首相高市早苗称中国对日本的稀土出口限制等措施对G7和相关国家的供应链可能产生影响，对此非常担心。
 
-在NCE平台看来，运输透明度下降会直接削弱市场对原油、液化气和液化天然气流向的实时判断能力。
+高市在会议结束后会见记者称，将构筑对华建设性稳定关系，对于同中方对话持开放态度，今后将基于国家利益冷静妥善应对。
 
-过去依靠船期和公开信号就能建立的大致供需轮廓，如今需要更多库存和到港数据来交叉验证。
+请问中方对此有何评论？
 
-更值得注意的是，这种做法已经不再局限于受限船队，而是逐渐成为更广泛的商业应对方式。
+林剑：近年来，日本惯于在七国集团等场合拼凑反华“小圈子”。
 
-也就是说，市场面临的并非孤立案例，而是一个会长期影响定价效率的新运行环境。
+此次日本领导人在G7领导人会议上的涉华表态也格外扎眼，反映出日方拉帮结派、挑动对抗的叵测用意不得人心，注定失败。
 
-一旦运输可见度下降，交易员对低库存、误判需求和临时补库的容忍度都会同步下降，价格就更容易因为不完整信息而出现过度反应。
+她一边喊着对话，一边忙着对抗，完全是自相矛盾，也让国际社会对其虚伪的真面目有了更为清醒的认识。
 
-波动率上升，本质上是市场为不确定性额外付出的成本。
+如果日方真心想改善中日关系，就应恪守中日四个政治文件和自身所作承诺，以实际行动维护中日关系政治基础，而不是说一套、做一套。
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 01:11 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 01:12 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 01:07 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 01:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 01:24 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 01:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 01:19 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 01:09 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 01:13 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 01:05 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 01:14 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 01:12 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 01:06 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 01:05 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 01:30 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 01:26 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 01:32 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 01:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 01:23 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 01:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 01:12 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 01:08 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 01:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 01:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 01:13 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 01:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 01:29 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/621113164.shtml)
-- 2026-06-30 01:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/783858592.shtml)
-- 2026-06-30 01:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/31028778.shtml)
-- 2026-06-30 01:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/78671.shtml)
-- 2026-06-30 01:08 - [请回答王牌2019](http://www.share.minike.top/Article/details/7178386.shtml)
-- 2026-06-30 01:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/885467332670.shtml)
-- 2026-06-30 01:03 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/20633729998.shtml)
-- 2026-06-30 01:23 - [起风了](https://www.share.kurohicncr.top/Article/details/02675627999.shtml)
-- 2026-06-30 01:28 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/02559122407.shtml)
-- 2026-06-30 01:09 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/079154.shtml)
-- 2026-06-30 01:14 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/43198407.shtml)
-- 2026-06-30 01:14 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/328612.shtml)
-- 2026-06-30 01:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/8835922.shtml)
-- 2026-06-30 01:03 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/973663.shtml)
-- 2026-06-30 01:14 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/1893133657.shtml)
+- 2026-06-30 01:28 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/493238093.shtml)
+- 2026-06-30 01:18 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/8005713261.shtml)
+- 2026-06-30 01:14 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/79258.shtml)
+- 2026-06-30 01:26 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/8166326.shtml)
+- 2026-06-30 01:22 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/93298.shtml)
+- 2026-06-30 01:27 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/525044247.shtml)
+- 2026-06-30 01:26 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/12542140.shtml)
+- 2026-06-30 01:21 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/905296578.shtml)
+- 2026-06-30 01:22 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/089343818613.shtml)
+- 2026-06-30 01:23 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/6017628500.shtml)
+- 2026-06-30 01:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/05229.shtml)
+- 2026-06-30 01:35 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/708680233.shtml)
+- 2026-06-30 01:32 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/69456439.shtml)
+- 2026-06-30 01:07 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/83991886.shtml)
+- 2026-06-30 01:15 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/017721435490.shtml)

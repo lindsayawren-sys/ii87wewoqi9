@@ -1,56 +1,49 @@
-# 住建部：各地要系统推进“好房子”等“四好”建设
+# 拾光纪·习近平党建思想内涵要义
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新网6月8日电 国新办6月8日举行国务院政策例行吹风会，介绍《城市更新“十五五”规划》有关情况。住房城乡建设部副部长秦海翔在会上表示，《城市更新“十五五”规划》从建设好房子、好小区、好社区、好城区四个方面，对提高居民居住和生活品质作出了部署。在好房子建设方面，重点是实施房屋品质提升工程，建设改造安全舒适绿色智慧的好房子。一方面，提高新建房屋品质，全链条提升住房标准、设计、材料
+习近平党建思想是加强新时代党的建设的根本遵循。一支视频，了解习近平党建思想内涵要义。
 
 ## 正文
 
-中新网6月8日电 国新办6月8日举行国务院政策例行吹风会，介绍《城市更新“十五五”规划》有关情况。
+习近平党建思想是加强新时代党的建设的根本遵循。
 
-住房城乡建设部副部长秦海翔在会上表示，《城市更新“十五五”规划》从建设好房子、好小区、好社区、好城区四个方面，对提高居民居住和生活品质作出了部署。
-
-在好房子建设方面，重点是实施房屋品质提升工程，建设改造安全舒适绿色智慧的好房子。
-
-一方面，提高新建房屋品质，全链条提升住房标准、设计、材料、建造和运维水平，落实《住宅项目规范》，优化住房设计，完善户型功能。
-
-另一方面，抓好老旧房屋更新改造，鼓励居民对住房进行装修和改造，推广装配式装修和适老化、无障碍改造，支持老旧住房的自主更新。
-
-同时，还部署一批提升住房品质的科技项目，突破一批关键技术，以科技赋能好房子建设。
-
-在好小区方面，实施城镇老旧小区改造工程，“十五五”期间将新开工改造城镇老旧小区11.5万个。
-
-在小区的设施上，要改造提升燃气、供水、热力、道路等配套基础设施，支持具备条件的楼栋加装电梯。
+一支视频，了解习近平党建思想内涵要义。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 01:17 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 01:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 01:19 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 01:17 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 01:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 01:21 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 01:11 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 01:11 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 01:24 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 01:23 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 01:06 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 01:26 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 01:22 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 01:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 01:13 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 01:31 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 01:32 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 01:07 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 01:22 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 01:14 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 01:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 01:10 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 01:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 01:26 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/3512698.shtml)
-- 2026-06-30 01:20 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/29088.shtml)
-- 2026-06-30 01:19 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/54171129.shtml)
-- 2026-06-30 01:10 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/0168469611.shtml)
-- 2026-06-30 01:10 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/1568357083.shtml)
-- 2026-06-30 01:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/02048786.shtml)
-- 2026-06-30 01:22 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/0497008.shtml)
-- 2026-06-30 01:28 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/688909602.shtml)
-- 2026-06-30 01:00 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/25653.shtml)
-- 2026-06-30 01:20 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/50242.shtml)
-- 2026-06-30 01:04 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/06562067894.shtml)
-- 2026-06-30 01:02 - [扫黑风暴](http://www.share.minike.top/Article/details/914266763.shtml)
-- 2026-06-30 01:22 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/158097632210.shtml)
-- 2026-06-30 01:26 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/61661092161.shtml)
-- 2026-06-30 01:07 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/7106624286.shtml)
+- 2026-06-30 01:09 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/798288.shtml)
+- 2026-06-30 01:15 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/4151047.shtml)
+- 2026-06-30 01:10 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/179850065880.shtml)
+- 2026-06-30 01:08 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/42739901.shtml)
+- 2026-06-30 01:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/468696.shtml)
+- 2026-06-30 01:34 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/8964848576.shtml)
+- 2026-06-30 01:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/069648732500.shtml)
+- 2026-06-30 01:26 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/37599.shtml)
+- 2026-06-30 01:11 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/2108127146.shtml)
+- 2026-06-30 01:35 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/58325.shtml)
+- 2026-06-30 01:13 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/664593271.shtml)
+- 2026-06-30 01:27 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/43878079676.shtml)
+- 2026-06-30 01:13 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/33091275.shtml)
+- 2026-06-30 01:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/67843557.shtml)
+- 2026-06-30 01:24 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/186231177.shtml)

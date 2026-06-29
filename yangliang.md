@@ -1,61 +1,56 @@
-# 阿拉比卡咖啡豆相对于罗布斯塔咖啡豆的溢价降至2025年初以来的最低水平
+# （活力中国调研行）以天津为样板 中国探路“新三样”固废回收利用
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-阿拉比卡咖啡的 优质的 由于优质罗布斯塔咖啡豆的供应前景改善，其交易价格接近一年多以来的最低水平。 受星巴克等连锁咖啡店青睐的咖啡豆价格上周下跌约7%，原因是市场预测2026-2027年度巴西咖啡豆将迎来创纪录的丰收，提振了人们对咖啡豆价格的预期。 全球盈余周五，阿拉比卡咖啡豆和罗布斯塔咖啡豆之间的价差收窄至每磅约94美分，为2025年1月以来的最小价差。 去年，由于巴西咖啡产
+中新社天津6月17日电 题：以天津为样板 中国探路“新三样”固废回收利用 中新社记者 周亚强 随着新能源产业快速发展，逐步迎来退役高峰的光伏组件、动力电池、风机叶片等“新三样”固废的回收利用备受关注。中新社记者近日走进位于天津的中国资源循环集团(下称“中国资环”)绿色低碳循环经济示范基地，探访相关产业实践。 这片占地26.6万平方米的基地由闲置厂房改造而成。2025年，中国资环
 
 ## 正文
 
-阿拉比卡咖啡的 优质的 由于优质罗布斯塔咖啡豆的供应前景改善，其交易价格接近一年多以来的最低水平。
+中新社天津6月17日电 题：以天津为样板 中国探路“新三样”固废回收利用 中新社记者 周亚强 随着新能源产业快速发展，逐步迎来退役高峰的光伏组件、动力电池、风机叶片等“新三样”固废的回收利用备受关注。
 
-受星巴克等连锁咖啡店青睐的咖啡豆价格上周下跌约7%，原因是市场预测2026-2027年度巴西咖啡豆将迎来创纪录的丰收，提振了人们对咖啡豆价格的预期。
+中新社记者近日走进位于天津的中国资源循环集团(下称“中国资环”)绿色低碳循环经济示范基地，探访相关产业实践。
 
-全球盈余周五，阿拉比卡咖啡豆和罗布斯塔咖啡豆之间的价差收窄至每磅约94美分，为2025年1月以来的最小价差。
+这片占地26.6万平方米的基地由闲置厂房改造而成。
 
-去年，由于巴西咖啡产量减少，阿拉比卡咖啡价格创下历史新高。
+2025年，中国资环仅用百余天将其建成国内首个资源循环领域国家级示范基地，集资源循环、能源循环、数字循环、资产循环于一体。
 
-虽然今年两种咖啡的价格均有所回落，但阿拉比卡咖啡的跌幅更大，下降了约28%。
+“我们正加快建设兼具回收储运与综合利用功能的大型区域回收利用中心，目标是形成千亿级循环经济产业集群。
 
-罗布斯塔咖啡的价格跌幅则较为温和，因为过去一年阿拉比卡咖啡价格高企，导致市场需求依然强劲。
+”中资环绿投循环科技投资(深圳)有限公司董事长罗晓光说，目前基地已集聚多家产业链上下游企业，推进从绿色分拣、梯级利用到再生循环的完整链条构建。
 
-这促使许多烘焙商在拼配咖啡中增加了价格更低的罗布斯塔咖啡豆的比例。
+罗晓光介绍，常规光伏板多为黑色或深蓝色，中国资环创新了全彩化涂层技术，使退役组件变身彩色发电建材，“既做建筑立面装饰，又能发电支持园区照明”，发电效率可达到标准光伏板的90%左右。
 
-责任编辑：江学思
+基地已应用此类组件10296块，其中彩色化应用7171块；覆盖面积约2.7万平方米，年发电量约550万千瓦时。
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 01:07 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 01:10 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 01:06 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 01:15 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 01:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 01:18 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 01:01 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 01:27 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 01:00 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 01:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 01:28 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 01:19 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 01:20 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 01:25 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 01:09 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 01:20 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 01:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 01:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 01:17 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 01:13 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 01:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 01:35 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 01:25 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 01:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/0062500.shtml)
-- 2026-06-30 01:17 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/6216785949.shtml)
-- 2026-06-30 01:12 - [扬名立万](https://www.blog.minike.top/Article/details/52224.shtml)
-- 2026-06-30 01:17 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/246747.shtml)
-- 2026-06-30 01:23 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/52462472.shtml)
-- 2026-06-30 01:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/532613093.shtml)
-- 2026-06-30 01:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/8124992.shtml)
-- 2026-06-30 01:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/107747.shtml)
-- 2026-06-30 01:12 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/020938407064.shtml)
-- 2026-06-30 01:27 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/21123.shtml)
-- 2026-06-30 01:27 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/821293054583.shtml)
-- 2026-06-30 01:24 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/04397080.shtml)
-- 2026-06-30 01:02 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/479480388.shtml)
-- 2026-06-30 01:06 - [请回答王牌2019](https://www.blog.minike.top/Article/details/7406865.shtml)
-- 2026-06-30 01:08 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/903151380924.shtml)
+- 2026-06-30 01:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/718613232.shtml)
+- 2026-06-30 01:23 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/91835646148.shtml)
+- 2026-06-30 01:13 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/62277.shtml)
+- 2026-06-30 01:32 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/997515704.shtml)
+- 2026-06-30 01:25 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/4025264.shtml)
+- 2026-06-30 01:16 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/23716.shtml)
+- 2026-06-30 01:35 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/77358.shtml)
+- 2026-06-30 01:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/74330081223.shtml)
+- 2026-06-30 01:16 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/0020658206.shtml)
+- 2026-06-30 01:26 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/68611891924.shtml)
+- 2026-06-30 01:14 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/4458945.shtml)
+- 2026-06-30 01:08 - [乔家的儿女](http://www.share.minike.top/Article/details/87125462817.shtml)
+- 2026-06-30 01:34 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/649259141.shtml)
+- 2026-06-30 01:10 - [我们的少年时代2](https://www.blog.minike.top/Article/details/29500.shtml)
+- 2026-06-30 01:34 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/617829086.shtml)

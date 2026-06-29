@@ -1,61 +1,58 @@
-# 荣昌生物重磅新药获批，AH股价齐升！华宝基金药ETF触底反弹，港股通创新药ETF（520880）持续溢价
+# 新闻多一点｜永远的“四大队”
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-又一重磅国产新药获批！6月8日，荣昌生物泰它西普获批IgA肾病和干燥综合征两大新适应症，进度超预期并精准压哨6月10日医保调整截止日。这意味着两大重磅适应症有望在今年底纳入医保，复刻此前“申报即入围”的放量路径。 分析指出，干燥综合征长期缺乏靶向药物，国内患者基数高达420万至980万，属于典型的蓝海市场。泰它西普作为全球首个获批的生物药，具备较强的先发壁垒。 二级市场火速相应
+在中国共产党成立105周年之际，习近平总书记在给新华社102岁老党员张连生回信中表示：“您在信中说，要永远跟党走，做永远的‘四大队’队员，这饱含着真挚深厚的信党爱党之情。” “四大队”的历史，是新华社历史、中国新闻史乃至中国共产党党史上的一段红色传奇。 1947年3月，为粉碎国民党军队的重点进攻，中共中央主动撤离延安，毛主席率中央纵队转战陕北，指挥全国各战场的作战。其间，新华社
 
 ## 正文
 
-又一重磅国产新药获批！
+在中国共产党成立105周年之际，习近平总书记在给新华社102岁老党员张连生回信中表示：“您在信中说，要永远跟党走，做永远的‘四大队’队员，这饱含着真挚深厚的信党爱党之情。
 
-6月8日，荣昌生物泰它西普获批IgA肾病和干燥综合征两大新适应症，进度超预期并精准压哨6月10日医保调整截止日。
+” “四大队”的历史，是新华社历史、中国新闻史乃至中国共产党党史上的一段红色传奇。
 
-这意味着两大重磅适应症有望在今年底纳入医保，复刻此前“申报即入围”的放量路径。
+1947年3月，为粉碎国民党军队的重点进攻，中共中央主动撤离延安，毛主席率中央纵队转战陕北，指挥全国各战场的作战。
 
-分析指出，干燥综合征长期缺乏靶向药物，国内患者基数高达420万至980万，属于典型的蓝海市场。
+其间，新华社一分为二，一是社长廖承志率领新华社大多数人员转移到太行地区；二是副总编辑范长江率领一支工作队跟随党中央转战陕北，承担新闻通讯联络职责。
 
-泰它西普作为全球首个获批的生物药，具备较强的先发壁垒。
+当时，中央纵队代号“三支队”，下辖4个大队，由范长江带队的新华社工作队，由编辑、翻译、电务和后勤等人员组成，正式定名“四大队”，最初40多人，后来发展到100余人。
 
-二级市场火速相应，6月9日早盘，荣昌生物A股港股股价双升，A股一度冲上8%，港股下探年内新低后强势反弹，一度涨超5%。
+“中央留在陕北靠文武两条线指挥全国的革命斗争。
 
-所在板块方面，A股制药板块率先翻红，场内唯一表征制药板块的药ETF华宝（562050）探底回升，一度涨逾1%。
+武的一条线是通过电台指挥打仗，文的一条线是通过新华社指导舆论。
 
-贝达药业、泽璟制药-U、翰宇药业等涨幅靠前。
+”毛主席后来的这句回忆，深刻揭示了“四大队”的独特地位。
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 01:21 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 01:17 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 01:26 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 01:07 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 01:23 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 01:06 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 01:05 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 01:00 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 01:02 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 01:26 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 01:18 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 01:01 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 01:09 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 01:05 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 01:17 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 01:11 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 01:18 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 01:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 01:16 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 01:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 01:11 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 01:26 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 01:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 01:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 01:23 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 01:19 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:15 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/93853786.shtml)
-- 2026-06-30 01:00 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/0993317.shtml)
-- 2026-06-30 01:29 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/687585.shtml)
-- 2026-06-30 01:27 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/428538.shtml)
-- 2026-06-30 01:23 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/59073205084.shtml)
-- 2026-06-30 01:24 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/337139722417.shtml)
-- 2026-06-30 01:29 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/2033937.shtml)
-- 2026-06-30 01:22 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/91717458.shtml)
-- 2026-06-30 01:10 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/2284624623.shtml)
-- 2026-06-30 01:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/738043042.shtml)
-- 2026-06-30 01:19 - [美股](https://www.blog.minike.top/Article/details/1829440.shtml)
-- 2026-06-30 01:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/21192005.shtml)
-- 2026-06-30 01:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/52745434907.shtml)
-- 2026-06-30 01:05 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/82904390504.shtml)
-- 2026-06-30 01:08 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/978929935566.shtml)
+- 2026-06-30 01:28 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/19032315.shtml)
+- 2026-06-30 01:14 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/463383.shtml)
+- 2026-06-30 01:34 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/67693994.shtml)
+- 2026-06-30 01:22 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/5187651114.shtml)
+- 2026-06-30 01:20 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/75656551.shtml)
+- 2026-06-30 01:06 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/40091086061.shtml)
+- 2026-06-30 01:33 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/47184.shtml)
+- 2026-06-30 01:16 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/0828679.shtml)
+- 2026-06-30 01:11 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/336579.shtml)
+- 2026-06-30 01:18 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/6429555.shtml)
+- 2026-06-30 01:33 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/303739062.shtml)
+- 2026-06-30 01:13 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/318628410.shtml)
+- 2026-06-30 01:13 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/666136797.shtml)
+- 2026-06-30 01:30 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/29188727805.shtml)
+- 2026-06-30 01:20 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/126442.shtml)

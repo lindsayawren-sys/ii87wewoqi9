@@ -1,45 +1,61 @@
-# 伊媒：2名伊军事人员在以色列袭击中丧生
+# 海外业务+股权投资成券商新催化点，券商ETF华宝（512000）成交活跃、投资者热情归来？
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新网6月9日电 据伊朗媒体报道，两名伊朗防空部队人员在以色列8日的袭击中丧生。
+近七个交易日时间，券商ETF华宝（512000）走出了一波凌厉上攻的态势，让在AI/科创的沉浮跌宕中紧张的A股投资者又多了另一维度的关注。 6月17日，券商ETF华宝（512000）虽以平盘报收，但此前已经是“三连阳”走势，并且自6月9日起交易价格就已启动上行，同时伴随着量能的一定放大。 券商ETF华宝（512000）的基金经理丰晨成敏锐地感受到，券商ETF华宝（512000）
 
 ## 正文
 
-中新网6月9日电 据伊朗媒体报道，两名伊朗防空部队人员在以色列8日的袭击中丧生。
+近七个交易日时间，券商ETF华宝（512000）走出了一波凌厉上攻的态势，让在AI/科创的沉浮跌宕中紧张的A股投资者又多了另一维度的关注。
+
+6月17日，券商ETF华宝（512000）虽以平盘报收，但此前已经是“三连阳”走势，并且自6月9日起交易价格就已启动上行，同时伴随着量能的一定放大。
+
+券商ETF华宝（512000）的基金经理丰晨成敏锐地感受到，券商ETF华宝（512000）跟踪的中证全指证券公司指数近期成交额明显放量，指数点位站上MA60日均线，扭转了前期偏弱走势。
+
+他认为，去年8月至今，受资金面因素影响，券商板块出现了高增长与低估值的错位，已存在一定预期差，但目前券商业务线景气度全面向好，若考虑到市场风格可能出现的再平衡，以及该板块正在逐渐摆脱资金被虹吸的状态，则券商板块的估值修复行情有望持续。
+
+券商业务景气度全面向好 “去年8月至今，在资金面因素影响下，券商板块呈现出‘双背离’的状态：板块行情走势与市场交投热度背离，行业基本面与估值水平背离。
+
+” 券商ETF华宝（512000）的基金经理丰晨成这样表示。
+
+截至2026年6月16日，华宝基金旗舰ETF之一——券商ETF华宝（512000）规模已达376亿元，资金的涌入充分证明了市场对于这只精品ETF投资工具的青睐，以及对于券商股大概率在牛市起舞的信心。
+
+目前，华宝基金还拥有面向场外投资者的券商ETF华宝联接基金（A类 006098、C类 007531）。
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 01:16 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 01:28 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 01:21 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 01:27 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 01:16 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 01:26 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 01:07 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 01:23 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 01:24 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 01:05 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 01:16 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 01:04 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 01:10 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 01:25 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 01:15 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 01:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 01:11 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 01:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 01:07 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 01:07 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 01:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 01:07 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 01:24 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 01:08 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 01:15 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 01:20 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 01:34 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:29 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/02862319.shtml)
-- 2026-06-30 01:27 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/6639957853.shtml)
-- 2026-06-30 01:18 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/776316644.shtml)
-- 2026-06-30 01:04 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/9997053058.shtml)
-- 2026-06-30 01:04 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/2971773019.shtml)
-- 2026-06-30 01:24 - [勇敢的心第二部](http://www.share.minike.top/Article/details/2192574.shtml)
-- 2026-06-30 01:08 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/8147760.shtml)
-- 2026-06-30 01:12 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/79701781.shtml)
-- 2026-06-30 01:04 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/729139.shtml)
-- 2026-06-30 01:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/61341092271.shtml)
-- 2026-06-30 01:12 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/691267727.shtml)
-- 2026-06-30 01:27 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/74396249634.shtml)
-- 2026-06-30 01:05 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/94930056.shtml)
-- 2026-06-30 01:25 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/82782.shtml)
-- 2026-06-30 01:24 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/816335105133.shtml)
+- 2026-06-30 01:33 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/810890387584.shtml)
+- 2026-06-30 01:15 - [毒液2](http://www.blog.minike.top/Article/details/330082019694.shtml)
+- 2026-06-30 01:07 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/495647776543.shtml)
+- 2026-06-30 01:29 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/190794100440.shtml)
+- 2026-06-30 01:23 - [千与千寻](https://www.share.minike.top/Article/details/15942576.shtml)
+- 2026-06-30 01:22 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/948740.shtml)
+- 2026-06-30 01:18 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/8056277691.shtml)
+- 2026-06-30 01:16 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/4764910.shtml)
+- 2026-06-30 01:11 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/546076.shtml)
+- 2026-06-30 01:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/3543281288.shtml)
+- 2026-06-30 01:07 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/07448504.shtml)
+- 2026-06-30 01:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/34549.shtml)
+- 2026-06-30 01:28 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/99177320867.shtml)
+- 2026-06-30 01:25 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/260628581.shtml)
+- 2026-06-30 01:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/21937862.shtml)

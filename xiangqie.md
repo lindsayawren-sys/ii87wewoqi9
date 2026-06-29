@@ -1,56 +1,56 @@
-# 胜宏科技回应传闻：网传视频及相关信息所反映的内容与公司的生产经营活动无关
+# Meta押注人工智能：总裁迪娜・鲍威尔・麦考密克打通华尔街渠道
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经广州6月8日电（记者 吴泽鹏）近日，网上出现了涉及胜宏科技高管的传闻。6月8日上午，胜宏科技方面向记者表示，公司已关注到相关信息，但网传视频及相关信息所反映的内容与公司的生产经营活动无关，亦不涉及公司治理、内部控制或任何应披露的重大信息。该等事项不会对公司的日常经营造成任何影响。 胜宏科技称，当前公司生
+3月中旬，Meta总裁迪娜・鲍威尔・麦考密克在纽约的格里尔餐厅设宴，宴请全球数位顶级资管大佬。 这家位于曼哈顿中城的高档牛排馆当晚座上宾包括：沙特公共投资基金总裁亚西尔・鲁迈扬、布鲁克菲尔德资产管理公司首席执行官布鲁斯・弗拉特、贝莱德董事阿德巴约・奥贡莱西、黑石集团首席执行官史蒂夫・施瓦茨曼与总裁乔纳森・格雷。 麦考密克当天在华尔街密集安排了多场会晤，这场晚宴作为当日行程收尾，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+3月中旬，Meta总裁迪娜・鲍威尔・麦考密克在纽约的格里尔餐厅设宴，宴请全球数位顶级资管大佬。
 
-每经广州6月8日电（记者 吴泽鹏）近日，网上出现了涉及胜宏科技高管的传闻。
+这家位于曼哈顿中城的高档牛排馆当晚座上宾包括：沙特公共投资基金总裁亚西尔・鲁迈扬、布鲁克菲尔德资产管理公司首席执行官布鲁斯・弗拉特、贝莱德董事阿德巴约・奥贡莱西、黑石集团首席执行官史蒂夫・施瓦茨曼与总裁乔纳森・格雷。
 
-6月8日上午，胜宏科技方面向记者表示，公司已关注到相关信息，但网传视频及相关信息所反映的内容与公司的生产经营活动无关，亦不涉及公司治理、内部控制或任何应披露的重大信息。
+麦考密克当天在华尔街密集安排了多场会晤，这场晚宴作为当日行程收尾，她借此传递核心信号：Meta立志领跑人工智能领域的激进战略需要海量外部资金支持，她愿意牵头洽谈创新融资方案与各类合作机会。
 
-该等事项不会对公司的日常经营造成任何影响。
+这位前高盛高管自今年1月入职Meta后，迅速跻身硅谷最具影响力的关键中间人之一，统筹推进企业史上规模顶尖的资本投入计划。
 
-胜宏科技称，当前公司生产经营活动一切正常、订单充沛，各项工作均在有序推进中。
+这家社交媒体巨头计划到2028年仅在美国本土就投入6000亿美元。
 
-封面图片来源：每日经济新闻
+多名知情人士透露，鲍威尔・麦考密克曾在特朗普首届政府任职，拥有深厚共和党背景，同时手握大量主权财富基金资源，她正在探索复杂的表外融资安排与结构化金融工具——这类融资模式此前从未进入Meta高管层的视野。
+
+成立二十年来，Meta首席执行官马克・扎克伯格依靠脸书与Instagram源源不断的广告现金流，便可支撑公司扩张。
+
+但如今，数据中心建设与运维成本持续攀升、稀缺芯片采购开销激增，叠加人工智能领域激烈的人才争夺战，迫使公司必须开辟全新融资路径。
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 01:25 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 01:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 01:06 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 01:04 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 01:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 01:26 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 01:25 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 01:25 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 01:03 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 01:16 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 01:27 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 01:18 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 01:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 01:16 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 01:07 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 01:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 01:12 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 01:22 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 01:12 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 01:12 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 01:07 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 01:12 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 01:33 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:17 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/207679.shtml)
-- 2026-06-30 01:13 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/3348137.shtml)
-- 2026-06-30 01:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/35721141.shtml)
-- 2026-06-30 01:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/6293400.shtml)
-- 2026-06-30 01:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/332222662042.shtml)
-- 2026-06-30 01:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/869030.shtml)
-- 2026-06-30 01:04 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/4144715597.shtml)
-- 2026-06-30 01:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/50031.shtml)
-- 2026-06-30 01:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/31274256166.shtml)
-- 2026-06-30 01:28 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/114325344532.shtml)
-- 2026-06-30 01:03 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/3734002.shtml)
-- 2026-06-30 01:17 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/2607609.shtml)
-- 2026-06-30 01:10 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/17243.shtml)
-- 2026-06-30 01:10 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/181805205.shtml)
-- 2026-06-30 01:09 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/7078570367.shtml)
+- 2026-06-30 01:16 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/789140.shtml)
+- 2026-06-30 01:14 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/118165.shtml)
+- 2026-06-30 01:16 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/8436496.shtml)
+- 2026-06-30 01:33 - [爱很美味](http://www.share.minike.top/Article/details/369700.shtml)
+- 2026-06-30 01:23 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/9426960479.shtml)
+- 2026-06-30 01:10 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/3137687.shtml)
+- 2026-06-30 01:08 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/72956976.shtml)
+- 2026-06-30 01:16 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/960269951887.shtml)
+- 2026-06-30 01:34 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/5101738817.shtml)
+- 2026-06-30 01:20 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/13338356929.shtml)
+- 2026-06-30 01:17 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/88825807.shtml)
+- 2026-06-30 01:24 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/9753404532.shtml)
+- 2026-06-30 01:15 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/73714111970.shtml)
+- 2026-06-30 01:33 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/7752081416.shtml)
+- 2026-06-30 01:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/350143870865.shtml)

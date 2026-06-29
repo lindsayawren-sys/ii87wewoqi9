@@ -1,56 +1,51 @@
-# 港股融资市场火爆！签字保荐人不够用了
+# 京能热力：公司2025年度整体净利润实现稳步增长
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财通社 港股融资市场持续火热之际，保荐人出现紧缺。 Wind数据显示，今年以来香港IPO募资规模已达1668亿港元，相当于2025年全年募资额的58%，而且超过了2023年和2024年两年募资总和。 与此同时，上市后募资规模达到1017亿港元，接近2024年全年水平。 融资热潮之下，企业赴港上市热情不
+登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月18日，京能热力在互动平台回答投资者提问时表示，公司2025年度整体净利润实现稳步增长，全年实现净利润7601.67万元，较上年同期增长848.77万元，同比增长12.57%；归属于上市公司股东的净利润6227.89万元，较上年同期下降448.64万元，同比下降6.72%。受日常经营综合因素影响，公司归属于上市
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月18日，京能热力在互动平台回答投资者提问时表示，公司2025年度整体净利润实现稳步增长，全年实现净利润7601.67万元，较上年同期增长848.77万元，同比增长12.57%；归属于上市公司股东的净利润6227.89万元，较上年同期下降448.64万元，同比下降6.72%。
 
-来源：财通社 港股融资市场持续火热之际，保荐人出现紧缺。
+受日常经营综合因素影响，公司归属于上市公司股东的净利润出现正常阶段性波动，属于企业日常经营范围内的正常变动，具体请详见公司于2026年4月29日披露的《2025年年度报告》。
 
-Wind数据显示，今年以来香港IPO募资规模已达1668亿港元，相当于2025年全年募资额的58%，而且超过了2023年和2024年两年募资总和。
+二级市场股价受政策环境、市场环境、投资者风险偏好等多方面因素影响，敬请投资者谨慎投资，注意投资风险。
 
-与此同时，上市后募资规模达到1017亿港元，接近2024年全年水平。
+公司将始终立足主业，严格遵照《市值管理办法》及相关监管要求，结合经营发展实际，通过精进经营管理、提升核心竞争力、规范信息披露、加强投资者关系管理等举措，稳步推进市值管理工作，推动公司市值与内在价值长期匹配、协同增长，实现公司长期可持续发展，切实维护全体股东的长远利益。
 
-融资热潮之下，企业赴港上市热情不减。
-
-截至6月8日，港交所处于正常聆讯状态的企业达到425家，其中385家于2026年递交上市申请，228家为首次递表企业。
-
-不过，与企业排队上市形成鲜明对比的是，港股保荐资源正变得愈发紧张。
-
-今年1月，香港证监会实施新规，要求每名签字主要人员（Signing Principal）最多只能同时负责5宗活跃上市项目，以提升上市文件质量和保荐工作规范性。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 01:27 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 01:23 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 01:11 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 01:23 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 01:20 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 01:13 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 01:16 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 01:23 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 01:23 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 01:06 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 01:26 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 01:20 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 01:23 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 01:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 01:15 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 01:09 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 01:08 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 01:23 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 01:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 01:19 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/6665759.shtml)
-- 2026-06-30 01:25 - [小娘惹](https://www.share.kurohicncr.top/Article/details/5556510451.shtml)
-- 2026-06-30 01:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/4734096.shtml)
-- 2026-06-30 01:22 - [扬名立万](https://www.share.kurohicncr.top/Article/details/5885207080.shtml)
-- 2026-06-30 01:19 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/8732430.shtml)
-- 2026-06-30 01:11 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/30709775.shtml)
-- 2026-06-30 01:18 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/691572012356.shtml)
-- 2026-06-30 01:00 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/94994.shtml)
-- 2026-06-30 01:23 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/599217894547.shtml)
-- 2026-06-30 01:25 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/8587287507.shtml)
-- 2026-06-30 01:27 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/931371161122.shtml)
-- 2026-06-30 01:28 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/48247158673.shtml)
-- 2026-06-30 01:21 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/66515454925.shtml)
-- 2026-06-30 01:11 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/94316236.shtml)
-- 2026-06-30 01:07 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/883343253121.shtml)
+- 2026-06-30 01:26 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/34767994.shtml)
+- 2026-06-30 01:24 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/025957710.shtml)
+- 2026-06-30 01:15 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/5499485.shtml)
+- 2026-06-30 01:34 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/66748.shtml)
+- 2026-06-30 01:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/118867434247.shtml)
+- 2026-06-30 01:10 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/180550.shtml)
+- 2026-06-30 01:18 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/812886219.shtml)
+- 2026-06-30 01:32 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/2786476572.shtml)
+- 2026-06-30 01:11 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/470972727211.shtml)
+- 2026-06-30 01:32 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/88260399599.shtml)
+- 2026-06-30 01:13 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/61051446403.shtml)
+- 2026-06-30 01:33 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/196489095.shtml)
+- 2026-06-30 01:18 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/35110833402.shtml)
+- 2026-06-30 01:32 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/1392296006.shtml)
+- 2026-06-30 01:32 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/9785908.shtml)

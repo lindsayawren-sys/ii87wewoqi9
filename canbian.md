@@ -1,59 +1,55 @@
-# 菲律宾棉兰老岛近海发生7.8级地震
+# 财通证券6月17日大宗交易成交5910.00万元
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新社马尼拉6月8日电 (记者 张兴龙)菲律宾火山地震研究所8日通报，菲南部棉兰老岛附近海域当日发生7.8级地震，目前已造成至少1人死亡、4人受伤。 通报称，地震发生于当天7时37分，震中位于北纬5.57度、东经124.98度，即萨兰加尼省马阿西姆(Maasim)镇西南约32公里处海域，震源深度33公里。 菲律宾火山地震研究所表示，震中附近的桑托斯将军城震感达到“破坏性”级别，
+财通证券6月17日大宗交易平台出现一笔成交，成交量750.00万股，成交金额5910.00万元，大宗交易成交价为7.88元。该笔交易的买方营业部为招商证券股份有限公司杭州天目山路证券营业部，卖方营业部为招商证券股份有限公司杭州天目山路证券营业部。进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为6647.00万元。证券时报·数据宝统计显示，财通证券今日收盘价为7.8
 
 ## 正文
 
-中新社马尼拉6月8日电 (记者 张兴龙)菲律宾火山地震研究所8日通报，菲南部棉兰老岛附近海域当日发生7.8级地震，目前已造成至少1人死亡、4人受伤。
+财通证券6月17日大宗交易平台出现一笔成交，成交量750.00万股，成交金额5910.00万元，大宗交易成交价为7.88元。
 
-通报称，地震发生于当天7时37分，震中位于北纬5.57度、东经124.98度，即萨兰加尼省马阿西姆(Maasim)镇西南约32公里处海域，震源深度33公里。
+该笔交易的买方营业部为招商证券股份有限公司杭州天目山路证券营业部，卖方营业部为招商证券股份有限公司杭州天目山路证券营业部。
 
-菲律宾火山地震研究所表示，震中附近的桑托斯将军城震感达到“破坏性”级别，苏丹库达拉省帕林邦镇等地震感为“非常强烈”，达沃市及哥打巴托省多地震感为“强烈”，棉兰老岛南部其他地区亦有不同程度震感。
+进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为6647.00万元。
 
-菲律宾媒体援引当地警方消息报道称，此次地震已造成至少1人死亡、4人受伤，多栋建筑倒塌，部分地区发生停电。
+证券时报·数据宝统计显示，财通证券今日收盘价为7.88元，下跌0.51%，日换手率为0.72%，成交额为2.64亿元，全天主力资金净流入739.05万元，近5日该股累计上涨5.07%，近5日资金合计净流出4076.44万元。
 
-菲律宾火山地震研究所随后发布海啸预警，“强烈建议”萨兰加尼省、苏禄省及西达沃省等多个沿海地区居民立即撤离至高地或向内陆转移。
+两融数据显示，该股最新融资余额为20.29亿元，近5日增加693.55万元，增幅为0.34%。
 
-菲律宾总统马科斯当天发表声明表示，已指示国家减灾管理委员会、社会福利与发展部以及公共工程和公路部等部门立即开展救灾工作。
+（数据宝）6月17日财通证券大宗交易一览注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
 
-马科斯同时宣布，棉兰老岛受灾地区各级学校停课，直至另行通知。
-
-中国驻达沃总领馆当天向记者表示，该馆正在核实中国公民、机构伤亡和受损情况。
+（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 01:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 01:18 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 01:18 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 01:23 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 01:22 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 01:15 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 01:00 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 01:10 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 01:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 01:12 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 01:25 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 01:00 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 01:35 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 01:33 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 01:35 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 01:17 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 01:27 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 01:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 01:20 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 01:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 01:15 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 01:18 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 01:16 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:29 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/349412290.shtml)
-- 2026-06-30 01:08 - [第一炉香](http://www.share.kurohicncr.top/Article/details/72455.shtml)
-- 2026-06-30 01:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/55247207862.shtml)
-- 2026-06-30 01:14 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/1513285.shtml)
-- 2026-06-30 01:11 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/8257416.shtml)
-- 2026-06-30 01:19 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/190921762378.shtml)
-- 2026-06-30 01:17 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/671624.shtml)
-- 2026-06-30 01:29 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/937677405199.shtml)
-- 2026-06-30 01:26 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/8552158935.shtml)
-- 2026-06-30 01:02 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/036345346660.shtml)
-- 2026-06-30 01:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/5002335.shtml)
-- 2026-06-30 01:04 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/06872.shtml)
-- 2026-06-30 01:25 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/88250793673.shtml)
-- 2026-06-30 01:26 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/925969.shtml)
-- 2026-06-30 01:27 - [请回答王牌2019](http://www.blog.minike.top/Article/details/71746466.shtml)
+- 2026-06-30 01:34 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/78134.shtml)
+- 2026-06-30 01:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/910209922955.shtml)
+- 2026-06-30 01:25 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/494366.shtml)
+- 2026-06-30 01:27 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/3519835.shtml)
+- 2026-06-30 01:20 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/3045878.shtml)
+- 2026-06-30 01:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/6910515.shtml)
+- 2026-06-30 01:06 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/454754.shtml)
+- 2026-06-30 01:29 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/042137870.shtml)
+- 2026-06-30 01:08 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/36049.shtml)
+- 2026-06-30 01:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/937569.shtml)
+- 2026-06-30 01:35 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/22522345.shtml)
+- 2026-06-30 01:33 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/8028105.shtml)
+- 2026-06-30 01:30 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/80188269.shtml)
+- 2026-06-30 01:16 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/03443.shtml)
+- 2026-06-30 01:35 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/59465056.shtml)

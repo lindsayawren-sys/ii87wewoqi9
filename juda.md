@@ -1,42 +1,49 @@
-# 中央气象台昨天18点发布中小河流洪水、渍涝气象风险预警
+# 中信里昂：中国海洋石油目标价上调至36港元 重申“跑赢大市”评级
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 16:06 来源：央视新闻 责任编辑：【李骏】
+中信里昂发布研报称，上调中国海洋石油（00883）H股目标价12.5%，从32港元升至36港元，亦上调A股目标价，重申跑赢大市评级。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年06月09日 16:06 来源：央视新闻 责任编辑：【李骏】
+中信里昂发布研报称，上调中国海洋石油（00883）H股目标价12.5%，从32港元升至36港元，亦上调A股目标价，重申跑赢大市评级。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 01:15 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 01:11 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 01:22 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 01:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 01:07 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 01:00 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 01:23 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 01:21 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 01:05 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 01:08 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 01:23 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 01:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 01:29 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 01:30 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 01:16 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 01:32 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 01:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 01:14 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 01:23 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 01:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 01:25 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 01:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 01:20 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 01:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/671467906872.shtml)
-- 2026-06-30 01:09 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/3638876395.shtml)
-- 2026-06-30 01:19 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/585989.shtml)
-- 2026-06-30 01:11 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/99853647.shtml)
-- 2026-06-30 01:07 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/61184879.shtml)
-- 2026-06-30 01:04 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/6799526.shtml)
-- 2026-06-30 01:24 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/05246.shtml)
-- 2026-06-30 01:01 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/67110.shtml)
-- 2026-06-30 01:19 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/4798260.shtml)
-- 2026-06-30 01:14 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/364876199.shtml)
-- 2026-06-30 01:20 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/075840.shtml)
-- 2026-06-30 01:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/283744.shtml)
-- 2026-06-30 01:07 - [爱很美味](http://www.share.kurohicncr.top/Article/details/881217.shtml)
-- 2026-06-30 01:25 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/9509654.shtml)
-- 2026-06-30 01:15 - [美股](http://www.blog.minike.top/Article/details/0957483864.shtml)
+- 2026-06-30 01:17 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/38309364984.shtml)
+- 2026-06-30 01:09 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/7413115744.shtml)
+- 2026-06-30 01:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/882495848.shtml)
+- 2026-06-30 01:13 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/13239.shtml)
+- 2026-06-30 01:06 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/22120.shtml)
+- 2026-06-30 01:07 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/4042549.shtml)
+- 2026-06-30 01:20 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/90899.shtml)
+- 2026-06-30 01:13 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/03108099.shtml)
+- 2026-06-30 01:16 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/980427628.shtml)
+- 2026-06-30 01:20 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/48162016.shtml)
+- 2026-06-30 01:19 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/74812.shtml)
+- 2026-06-30 01:29 - [《贺子珍》](http://www.blog.minike.top/Article/details/27515.shtml)
+- 2026-06-30 01:33 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/29040.shtml)
+- 2026-06-30 01:06 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/182072477.shtml)
+- 2026-06-30 01:31 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/12458836.shtml)

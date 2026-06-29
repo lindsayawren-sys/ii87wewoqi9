@@ -1,58 +1,45 @@
-# 伟大转折记（伟大征程）
+# 视频 | 百润股份推13亿元定增押注威士忌，11亿元狂买20万只橡木桶
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-今夏，遵义会议纪念馆内，满是前来参观的游客。人群中，一名身着校服、系红领巾的学生引人注目。 “欢迎参观遵义会议纪念馆。接下来，由我向大家讲解遵义会议的故事。”作为“小小红色宣讲员”，贵州遵义市老城小学学生郭芮汐向参观者娓娓道来。 1934年10月，第五次反“围剿”失败，中共中央和中央红军被迫撤出革命根据地，实行战略大转移，开始长征。1934年11月27日至12月1日，中央红军抢
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：深圳商报 责任编辑：宋雅芳
 
 ## 正文
 
-今夏，遵义会议纪念馆内，满是前来参观的游客。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-人群中，一名身着校服、系红领巾的学生引人注目。
-
-“欢迎参观遵义会议纪念馆。
-
-接下来，由我向大家讲解遵义会议的故事。
-
-”作为“小小红色宣讲员”，贵州遵义市老城小学学生郭芮汐向参观者娓娓道来。
-
-1934年10月，第五次反“围剿”失败，中共中央和中央红军被迫撤出革命根据地，实行战略大转移，开始长征。
-
-1934年11月27日至12月1日，中央红军抢渡湘江，伤亡惨重。
-
-部队中酝酿着要求纠正错误的意见。
+来源：深圳商报 责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 01:12 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 01:06 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 01:27 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 01:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 01:19 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 01:24 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 01:25 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 01:07 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 01:09 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 01:10 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 01:02 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 01:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 01:21 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 01:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 01:09 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 01:28 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 01:34 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 01:35 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 01:10 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 01:29 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 01:20 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 01:07 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:06 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/8409641.shtml)
-- 2026-06-30 01:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/88840161031.shtml)
-- 2026-06-30 01:28 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/341161706.shtml)
-- 2026-06-30 01:26 - [流金岁月](https://www.blog.minike.top/Article/details/084771.shtml)
-- 2026-06-30 01:21 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/9919607.shtml)
-- 2026-06-30 01:23 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/2447165.shtml)
-- 2026-06-30 01:24 - [我和我的家乡](https://www.share.minike.top/Article/details/2879366396.shtml)
-- 2026-06-30 01:15 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/830714408132.shtml)
-- 2026-06-30 01:03 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/914761.shtml)
-- 2026-06-30 01:29 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/74231943541.shtml)
-- 2026-06-30 01:17 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/578468346182.shtml)
-- 2026-06-30 01:19 - [千香](http://www.share.minike.top/Article/details/47348902.shtml)
-- 2026-06-30 01:25 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/710434.shtml)
-- 2026-06-30 01:11 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/8296204.shtml)
-- 2026-06-30 01:20 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/68584.shtml)
+- 2026-06-30 01:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/77951.shtml)
+- 2026-06-30 01:34 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/76138009.shtml)
+- 2026-06-30 01:06 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/023526420.shtml)
+- 2026-06-30 01:20 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/64469824.shtml)
+- 2026-06-30 01:10 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/731390.shtml)
+- 2026-06-30 01:12 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/247398308658.shtml)
+- 2026-06-30 01:18 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/86797021.shtml)
+- 2026-06-30 01:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/544209438.shtml)
+- 2026-06-30 01:25 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/93992.shtml)
+- 2026-06-30 01:23 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/809359570.shtml)
+- 2026-06-30 01:26 - [月亮](http://www.share.kurohicncr.top/Article/details/782002362.shtml)
+- 2026-06-30 01:16 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/95972209.shtml)
+- 2026-06-30 01:19 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/922643023.shtml)
+- 2026-06-30 01:15 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/2350719.shtml)
+- 2026-06-30 01:26 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/2505070.shtml)

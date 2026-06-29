@@ -1,59 +1,58 @@
-# 香港6月中小企业收益展望动向指数改善
+# 长江有色：18日碳酸锂现货价下跌 供给不缺、需求不追
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新社香港6月9日电 香港特区政府统计处9日公布的中小企业业务状况按月统计调查结果显示，中小企业业务收益的现时动向指数从2026年4月的44点，上升至同年5月的44.4点，而6月的业务收益展望动向指数为47.2点。按行业分析，一些统计调查涵盖的行业的业务收益现时动向指数于5月较4月上升，特别是饮食业、物流业及零售业。 进出口贸易业新订单的现时动向指数从4月的46.1点轻微下降至
+长江有色金属网 期货方面： 2026年6月18日，广州期货交易所（广期所）碳酸锂主力合约（代码：lc_ZL）延续近期弱势，空头情绪集中爆发，全天呈现单边下挫态势。截至收盘，主力合约报收于160，000元/吨，较前一交易日结算价大幅下跌6，400元/吨，跌幅高达3.86%。盘面交投情绪极度活跃，多空分歧激烈，全天振幅达到2，720元/吨，显示低位承接力量与上方抛压交织，但最终空头
 
 ## 正文
 
-中新社香港6月9日电 香港特区政府统计处9日公布的中小企业业务状况按月统计调查结果显示，中小企业业务收益的现时动向指数从2026年4月的44点，上升至同年5月的44.4点，而6月的业务收益展望动向指数为47.2点。
+长江有色金属网 期货方面： 2026年6月18日，广州期货交易所（广期所）碳酸锂主力合约（代码：lc_ZL）延续近期弱势，空头情绪集中爆发，全天呈现单边下挫态势。
 
-按行业分析，一些统计调查涵盖的行业的业务收益现时动向指数于5月较4月上升，特别是饮食业、物流业及零售业。
+截至收盘，主力合约报收于160，000元/吨，较前一交易日结算价大幅下跌6，400元/吨，跌幅高达3.86%。
 
-进出口贸易业新订单的现时动向指数从4月的46.1点轻微下降至5月的46点，而6月的新订单展望动向指数为47.8点。
+盘面交投情绪极度活跃，多空分歧激烈，全天振幅达到2，720元/吨，显示低位承接力量与上方抛压交织，但最终空头占据绝对主导。
 
-特区政府发言人表示，5月中小企业的营商气氛大致稳定。
+现货方面： 据长江有色金属网2026年6月18日数据，国内碳酸锂市场结束前两日的窄幅拉锯，迎来新一轮显著下行：当日电池级碳酸锂（99.5%）现货均价报165，000元/吨（价格区间161，500–168，500），较前日大跌5，000元/吨，以06-17均价约170，000元反推，单日跌幅约2.94%；工业级碳酸锂（99.2%）均价报162，000元/吨（区间158，500–165，500），同样-5，000元/吨，前日均约167，000元，跌幅约2.99% 从供给端看，今天的下跌之所以能流畅走出来，核心原因是现货并不缺，且部分持货方有出货动机。
 
-未来，香港强韧的经济增长前景应会为本地营商气氛提供支持，但中东冲突的变数仍是影响营商气氛的不确定因素。
+供给端可以拆成两块理解：一是国内冶炼端的产量/开工——近期江西、青海等主产区并没有出现能把供给实质性抹掉的突发事件，部分前期检修或减产的产能反而在利润边际改善预期下保有复产弹性，港存与厂库口径的散单流动性并未系统性枯竭；二是进口与中间品侧——海外精矿到港节奏、非洲系散单的补充，以及部分贸易商/代工厂的流转货源，使得流通货源在短期内有“够用”甚至“偏松”的观感。
 
-中小型企业业务状况按月统计调查旨在于最短时间内就中小企的短期业务状况提供快捷参考。
+在这种状态下，一旦下游不追价，卖方之间就会出现竞争性出货，报价便以台阶方式下切，大幅下跌就是这种“台阶”的典型跨度。
 
-特区政府统计处根据该统计调查收集的意见，编制一套动向指数，包括现时与展望动向指数。
+到需求端，这轮下跌的真正驱动力不在供给，而在下游的成本容忍线。
 
-(完)
+电池级碳酸锂的买单方是磷酸铁锂/三元正极厂，其背后是电芯厂与终端车企——而当前终端市场仍以价格战、促销和以旧换新刺激为特征，整车利润率被压薄，成本压力沿供应链逐级上传，电芯厂对正极材料的加工费与采购价都卡得很死。
 
 ## 相关推荐
 
-- 2026-06-30 01:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 01:24 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 01:18 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-30 01:11 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 01:19 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 01:16 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 01:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 01:20 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 01:00 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 01:11 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 01:22 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 01:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 01:12 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 01:06 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 01:13 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 01:26 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 01:23 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 01:16 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 01:13 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 01:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 01:09 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 01:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 01:35 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 01:27 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 01:27 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:22 - [世界杯](https://www.share.kurohicncr.top/Article/details/077526.shtml)
-- 2026-06-30 01:03 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/7248837.shtml)
-- 2026-06-30 01:13 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/564575542204.shtml)
-- 2026-06-30 01:11 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/09310780.shtml)
-- 2026-06-30 01:27 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/9853171569.shtml)
-- 2026-06-30 01:21 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/171547461940.shtml)
-- 2026-06-30 01:08 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/674970.shtml)
-- 2026-06-30 01:29 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/49773.shtml)
-- 2026-06-30 01:25 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/9182897.shtml)
-- 2026-06-30 01:24 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/42995.shtml)
-- 2026-06-30 01:22 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/41056311.shtml)
-- 2026-06-30 01:13 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/189806733.shtml)
-- 2026-06-30 01:13 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/0519236.shtml)
-- 2026-06-30 01:10 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/49610016889.shtml)
-- 2026-06-30 01:14 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/8826189571.shtml)
+- 2026-06-30 01:29 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/533943.shtml)
+- 2026-06-30 01:07 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/38158.shtml)
+- 2026-06-30 01:23 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/254069525.shtml)
+- 2026-06-30 01:10 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/31843108927.shtml)
+- 2026-06-30 01:29 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/33194435613.shtml)
+- 2026-06-30 01:21 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/8739653365.shtml)
+- 2026-06-30 01:14 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/001434.shtml)
+- 2026-06-30 01:28 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/06975201.shtml)
+- 2026-06-30 01:06 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/6815310.shtml)
+- 2026-06-30 01:14 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/70062.shtml)
+- 2026-06-30 01:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/18810851899.shtml)
+- 2026-06-30 01:28 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/30138.shtml)
+- 2026-06-30 01:30 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/228632662682.shtml)
+- 2026-06-30 01:08 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/57719319013.shtml)
+- 2026-06-30 01:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/18891296.shtml)

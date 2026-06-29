@@ -1,59 +1,57 @@
-# 港股收评：恒指跌1.22% 科指跌2.71% 科网股、黄金股低迷 百度跌超7% 山东墨龙逆势涨超25%
+# 云南五部门提出20项举措抓实民族团结进步促进法学习宣传贯彻工作
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-6月8日消息，港股三大指数集体下跌。截至收盘，恒生指数跌1.22%，报24657.06，恒生科技指数跌2.71%，国企指数跌1.13%。盘面上，科网股普跌，百度跌超7%，快手跌超5%，美团跌超4%；油气股部分走强，山东墨龙涨超25%；黄金股下挫，紫金黄金国际跌超8%；光伏太阳能股跌幅居前，钧达股份跌超8%；半导体板块走弱，芯智控股跌超9%。 油气股部分走强，山东墨龙涨超25%。
+近日，省委统战部、省委宣传部，省民委、省司法厅、省普法办联合印发《云南省深入学习宣传贯彻〈中华人民共和国民族团结进步促进法〉工作方案》(以下简称《方案》)，提出20项具体举措，扎实抓好民族团结进步促进法学习宣传贯彻工作。《方案》指出，要全面开展学习培训，突出“关键少数”，将法律纳入党委(党组)理论学习中心组学习内容、领导干部应知应会党内法规和国家法律清单，以及基层党组织“三会一
 
 ## 正文
 
-6月8日消息，港股三大指数集体下跌。
+近日，省委统战部、省委宣传部，省民委、省司法厅、省普法办联合印发《云南省深入学习宣传贯彻〈中华人民共和国民族团结进步促进法〉工作方案》(以下简称《方案》)，提出20项具体举措，扎实抓好民族团结进步促进法学习宣传贯彻工作。
 
-截至收盘，恒生指数跌1.22%，报24657.06，恒生科技指数跌2.71%，国企指数跌1.13%。
+《方案》指出，要全面开展学习培训，突出“关键少数”，将法律纳入党委(党组)理论学习中心组学习内容、领导干部应知应会党内法规和国家法律清单，以及基层党组织“三会一课”、主题党日等组织生活。
 
-盘面上，科网股普跌，百度跌超7%，快手跌超5%，美团跌超4%；油气股部分走强，山东墨龙涨超25%；黄金股下挫，紫金黄金国际跌超8%；光伏太阳能股跌幅居前，钧达股份跌超8%；半导体板块走弱，芯智控股跌超9%。
+抓好系统培训，将法律纳入各级党校(行政学院)、社会主义学院、干部学院、全省公职人员年度学法内容和领导干部任职培训，实现全省民委系统干部进行全员轮训，省委民族团结进步示范区建设工作领导小组成员单位、铸牢中华民族共同体意识研究基地、教育实践基地等重点对象全覆盖。
 
-油气股部分走强，山东墨龙涨超25%。
+《方案》强调，加大宣传教育力度，组建民族团结进步促进法宣讲团，将法律纳入“思奇宣讲·百千万行”理论宣讲活动，广泛开展主题征文、演讲比赛、知识竞答等互动活动，推出权威访谈。
 
-以色列国防军今天（6月8日）表示，当天稍早，在以军情报局的指挥下，数十架以色列空军战斗机对伊朗境内战略防御系统实施了大规模打击。
+深化全媒体传播，创作一批群众喜闻乐见的融媒体产品，制作一批“双语”普法音视频和有声读物。
 
-以军称，伊朗近期在多地部署防御系统，试图恢复其在此前军事冲突中受损的探测和防御能力。
+结合“法治宣传边关行”“法治宣传固边防”活动，把民族团结进步促进法宣传与边疆治理、国门党建深度融合；推动民族团结进步促进法进机关、进社区、进乡村、进学校、进企业、进文博场所、进景区、进边境口岸、进社会组织、进宗教活动场所“十进”普法活动，在全社会营造铸牢中华民族共同体意识的良好氛围。
 
-以军表示，此次打击已摧毁这些系统。
+《方案》要求，要扎实做好法律贯彻实施工作。
 
-以军称，在今年早些时候以军对伊朗的军事打击中，伊朗的防御体系已被严重削弱，而最新一次的打击则进一步提升了以色列空军在伊朗领空的行动自由度。
+一是构筑共有精神家园。
 
 ## 相关推荐
 
-- 2026-06-30 01:07 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 01:16 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 01:13 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 01:06 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 01:24 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 01:06 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 01:04 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 01:13 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 01:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 01:14 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 01:09 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 01:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 01:17 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 01:34 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 01:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 01:32 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 01:33 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 01:20 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 01:26 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 01:14 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 01:12 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 01:17 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 01:25 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 01:06 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/88669770456.shtml)
-- 2026-06-30 01:16 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/267515987764.shtml)
-- 2026-06-30 01:09 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/13135446232.shtml)
-- 2026-06-30 01:00 - [巴西vs日本](https://www.blog.minike.top/Article/details/813794886.shtml)
-- 2026-06-30 01:00 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/296394.shtml)
-- 2026-06-30 01:09 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/987411488057.shtml)
-- 2026-06-30 01:08 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/66036792691.shtml)
-- 2026-06-30 01:05 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/231836096113.shtml)
-- 2026-06-30 01:26 - [极限挑战第一季](http://www.blog.minike.top/Article/details/685341469.shtml)
-- 2026-06-30 01:00 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/44844.shtml)
-- 2026-06-30 01:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/5513510927.shtml)
-- 2026-06-30 01:21 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/71632366915.shtml)
-- 2026-06-30 01:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/4960252108.shtml)
-- 2026-06-30 01:09 - [小娘惹](http://www.share.minike.top/Article/details/731979.shtml)
-- 2026-06-30 01:12 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/272539777.shtml)
+- 2026-06-30 01:24 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/0932767758.shtml)
+- 2026-06-30 01:10 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/246928.shtml)
+- 2026-06-30 01:08 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/50271687.shtml)
+- 2026-06-30 01:12 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/250347863.shtml)
+- 2026-06-30 01:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/0943065551.shtml)
+- 2026-06-30 01:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/686213418.shtml)
+- 2026-06-30 01:35 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/31139.shtml)
+- 2026-06-30 01:07 - [流金岁月](http://www.share.minike.top/Article/details/0667981188.shtml)
+- 2026-06-30 01:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/20403166.shtml)
+- 2026-06-30 01:32 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/68093311647.shtml)
+- 2026-06-30 01:30 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/971294668976.shtml)
+- 2026-06-30 01:12 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/646646.shtml)
+- 2026-06-30 01:17 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/36488.shtml)
+- 2026-06-30 01:23 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/8817514.shtml)
+- 2026-06-30 01:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/52126074048.shtml)

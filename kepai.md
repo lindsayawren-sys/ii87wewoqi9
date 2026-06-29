@@ -1,59 +1,60 @@
-# 郑濬将出任大华银行中国行长兼首席执行官
+# 投教高校行 | 德邦基金走进天华学院开展第二场专题量化投资课程
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-大华银行（中国）有限公司（“大华银行中国”）及大华银行香港分行迎来管理层调整。 6月8日，总部位于新加坡的大华银行宣布，现任大华银行香港分行行政总裁郑濬将出任大华银行中国行长兼首席执行官，接替今年荣休的符懋赞。现任大华银行（韩国）区域主管董庆贤将接替郑濬，出任大华银行香港分行行政总裁。上述任命均于2026年7月1日起生效。 简历显示，郑濬拥有逾20年中国内地及香港的银行业经验。
+为积极响应国务院关于投资者教育纳入国民教育体系的重要部署，落实中国证券投资基金业协会发起的“一司一省一高校”投资者教育专项活动要求，切实履行金融机构的社会责任与使命担当，2026年5月26日 ，德邦基金“投教进百校”系列活动走进上海师范大学天华学院，开展“金融投资实务实训”系列课程的第二场专题讲座 ，以系统化、专业化的课程内容助力高校学子深化对公募基金行业的认知、提升自身金融素
 
 ## 正文
 
-大华银行（中国）有限公司（“大华银行中国”）及大华银行香港分行迎来管理层调整。
+为积极响应国务院关于投资者教育纳入国民教育体系的重要部署，落实中国证券投资基金业协会发起的“一司一省一高校”投资者教育专项活动要求，切实履行金融机构的社会责任与使命担当，2026年5月26日 ，德邦基金“投教进百校”系列活动走进上海师范大学天华学院，开展“金融投资实务实训”系列课程的第二场专题讲座 ，以系统化、专业化的课程内容助力高校学子深化对公募基金行业的认知、提升自身金融素养。
 
-6月8日，总部位于新加坡的大华银行宣布，现任大华银行香港分行行政总裁郑濬将出任大华银行中国行长兼首席执行官，接替今年荣休的符懋赞。
+继首场课程《指数编制与指数演变》获得师生热烈反响后，本次课程以《指数基金、ETF及量化基金的投资管理与应用》为主题，继续由德邦基金总经理助理、复旦大学经济学博士提云涛担任主讲导师，为天华学院学子带来一场理论与实践深度融合的专业分享。
 
-现任大华银行（韩国）区域主管董庆贤将接替郑濬，出任大华银行香港分行行政总裁。
+商学院院长助理谢富生老师再次出席并致辞，对系列课程的持续开展给予肯定。
 
-上述任命均于2026年7月1日起生效。
+第二场课程聚焦指数增强与主动量化投资。
 
-简历显示，郑濬拥有逾20年中国内地及香港的银行业经验。
+提云涛老师以多因子模型为切入点，详细阐释了指数增强基金如何通过因子暴露控制、交易成本优化和负面信息监控，在跟踪基准指数的基础上获取稳健超额收益。
 
-她于2018年加入大华银行中国并担任批发银行部主管，负责管理企业银行、商业银行、金融机构、结构性贸易及商品融资、交易银行及投资银行等业务。
+他结合实际案例，从因子定义、模型组合到业绩归因，完整拆解了量化投资的投研闭环，帮助同学们建立起从理论到实践的认知桥梁。
 
-2024年3月，她出任大华银行香港分行行政总裁。
+提云涛老师特别指出，随着A股市场有效性持续提升，量化投资正从过去的“黑箱”走向更加透明、可解释的体系。
 
-在加入大华银行之前，郑濬曾在一跨国银行先后担任批发银行及投资银行业务多个管理职务。
+无论是基本面因子还是量价因子，其有效性都必须放在整个金融市场生态中加以检验，而指数工具的开发与应用正是主动投资被动化的重要路径。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 01:14 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 01:05 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 01:08 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 01:21 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 01:01 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 01:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 01:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 01:10 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 01:05 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 01:16 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 01:14 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 01:28 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 01:30 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 01:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 01:31 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 01:29 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 01:32 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 01:31 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 01:27 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 01:29 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 01:28 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 01:20 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 01:25 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 01:19 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 01:26 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 01:26 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/72395730015.shtml)
-- 2026-06-30 01:00 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/16673815.shtml)
-- 2026-06-30 01:28 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/2990023.shtml)
-- 2026-06-30 01:21 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/95685034.shtml)
-- 2026-06-30 01:14 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/522852.shtml)
-- 2026-06-30 01:09 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/668940552.shtml)
-- 2026-06-30 01:21 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/052432279.shtml)
-- 2026-06-30 01:02 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/853195926298.shtml)
-- 2026-06-30 01:17 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/8704005370.shtml)
-- 2026-06-30 01:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/377297256.shtml)
-- 2026-06-30 01:15 - [世界杯](https://www.blog.kurohicncr.top/Article/details/362713191.shtml)
-- 2026-06-30 01:12 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/35833.shtml)
-- 2026-06-30 01:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/22303198.shtml)
-- 2026-06-30 01:28 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/96411.shtml)
-- 2026-06-30 01:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/701977763908.shtml)
+- 2026-06-30 01:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/879821894030.shtml)
+- 2026-06-30 01:12 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/97532.shtml)
+- 2026-06-30 01:11 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/522724.shtml)
+- 2026-06-30 01:13 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/543320.shtml)
+- 2026-06-30 01:16 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/56970.shtml)
+- 2026-06-30 01:35 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/430795.shtml)
+- 2026-06-30 01:27 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/56313.shtml)
+- 2026-06-30 01:06 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/4631559.shtml)
+- 2026-06-30 01:28 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/21321.shtml)
+- 2026-06-30 01:26 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/28883979358.shtml)
+- 2026-06-30 01:16 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/6294032970.shtml)
+- 2026-06-30 01:07 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/4064378.shtml)
+- 2026-06-30 01:33 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/02802522.shtml)
+- 2026-06-30 01:11 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/0732137700.shtml)
+- 2026-06-30 01:06 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/95299776.shtml)

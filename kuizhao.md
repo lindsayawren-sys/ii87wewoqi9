@@ -1,57 +1,47 @@
-# APEC成员经济体代表在香港共研“廉洁促繁荣”
+# 云南文山：特色粽子销售旺 小粽子串起大产业
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新社香港6月9日电 (记者 刘玥晴)国家监察委员会与香港廉政公署(简称“廉署”)9日在香港合办亚太经合组织(APEC)“廉洁促繁荣”研讨会，来自APEC成员经济体、国际组织与机构的150余位代表参会，围绕廉洁治理促进繁荣发展、构建务实合作网络等议题展开讨论。 中共中央纪律检查委员会副书记、国家监察委员会副主任傅奎致开幕辞时表示，今年是中国“十五五”开局之年，亦是亚太经合组织“
+发布时间：2026年06月18日 15:13 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新社香港6月9日电 (记者 刘玥晴)国家监察委员会与香港廉政公署(简称“廉署”)9日在香港合办亚太经合组织(APEC)“廉洁促繁荣”研讨会，来自APEC成员经济体、国际组织与机构的150余位代表参会，围绕廉洁治理促进繁荣发展、构建务实合作网络等议题展开讨论。
-
-中共中央纪律检查委员会副书记、国家监察委员会副主任傅奎致开幕辞时表示，今年是中国“十五五”开局之年，亦是亚太经合组织“中国年”，中国是亚太经合组织积极的参与者、贡献者，将继续与各方一道，秉持腐败零容忍态度，充分发挥廉洁的保障促进作用，深化反腐败司法执法合作，推动实现“建设亚太共同体，促进共同繁荣”的愿景，让更多发展成果惠及亚太人民。
-
-香港廉政专员胡英明说，各方踊跃参与此次研讨会，展现出共同打击贪污、推动发展的决心。
-
-香港的反贪模式是执法、预防和教育三管齐下，享誉国际，廉署日后将凭借“狮子山精神”，秉持诚信理念，继续为这座城市构建信任、稳定和持久的繁荣发展。
-
-香港特区政府律政司司长林定国强调，香港是国际金融、贸易和航运中心，以廉洁、法治闻名。
-
-虽然每个经济体都要根据各自情况寻找方法以宣扬廉洁，但经济体之间分享知识和经验至关重要。
-
-香港期望与各经济体，共同在永不停步的廉洁路上携手并进。
-
-当天研讨会设多个专题讨论环节，议题包括“强化诚信以缔造美好生活”“构建稳健的廉洁金融系统”“推动廉洁的跨境投资及贸易”。
+发布时间：2026年06月18日 15:13 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 01:06 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 01:28 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 01:15 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 01:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 01:26 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 01:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 01:01 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 01:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 01:16 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-30 01:05 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 01:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 01:13 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 01:25 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 01:23 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 01:12 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 01:14 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 01:15 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 01:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 01:27 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 01:32 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 01:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 01:06 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 01:20 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 01:12 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 01:24 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:05 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/830903.shtml)
-- 2026-06-30 01:01 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/4082581.shtml)
-- 2026-06-30 01:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/4124025.shtml)
-- 2026-06-30 01:01 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/6370112078.shtml)
-- 2026-06-30 01:04 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/2894837.shtml)
-- 2026-06-30 01:25 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/84801730337.shtml)
-- 2026-06-30 01:02 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/07087.shtml)
-- 2026-06-30 01:14 - [极限挑战第一季](https://www.share.minike.top/Article/details/51855.shtml)
-- 2026-06-30 01:20 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/63263411369.shtml)
-- 2026-06-30 01:27 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/8165617298.shtml)
-- 2026-06-30 01:16 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/249097146.shtml)
-- 2026-06-30 01:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/0859336149.shtml)
-- 2026-06-30 01:12 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/6091409.shtml)
-- 2026-06-30 01:03 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/94449808467.shtml)
-- 2026-06-30 01:28 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/015982725.shtml)
+- 2026-06-30 01:19 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/984338725818.shtml)
+- 2026-06-30 01:20 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/050175665.shtml)
+- 2026-06-30 01:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/8625115.shtml)
+- 2026-06-30 01:13 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/379427.shtml)
+- 2026-06-30 01:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/09345437.shtml)
+- 2026-06-30 01:21 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/98319666812.shtml)
+- 2026-06-30 01:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/183694195.shtml)
+- 2026-06-30 01:34 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/451354629.shtml)
+- 2026-06-30 01:32 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/5170331.shtml)
+- 2026-06-30 01:34 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/95057.shtml)
+- 2026-06-30 01:32 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/897579379283.shtml)
+- 2026-06-30 01:24 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/256590590226.shtml)
+- 2026-06-30 01:26 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/574338495.shtml)
+- 2026-06-30 01:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/2362786977.shtml)
+- 2026-06-30 01:29 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/67648.shtml)

@@ -1,45 +1,61 @@
-# 伊通社援引伊斯兰革命卫队称伊朗遭到以色列弹道导弹袭击
+# 【氯碱半年报】存量的矛盾如何解决？
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-据伊朗官方媒体伊斯兰共和国通讯社报道，伊朗伊斯兰革命卫队在一份声明中称，以色列于周一清晨使用空射弹道导弹，对伊朗境内多个目标发动了袭击。责任编辑：陈钰嘉
+紫金天风期货研究所 PVC核心观点 【上半年回顾】 供应端：一季度高供应，二季度受检修叠加乙烯等因素影响整体开工持续走低。上半年产量约1214万吨，同比增2.01%。海外部分企业受不可抗力影响降负荷。 需求端：上半年内需约981万吨，同比降2.58%，1-4月出口170.2万吨，增27.33%。整体看内需较弱，外需缓解部分国内压力。但冲突结束之后，海外装置回归，出口将继续受到退
 
 ## 正文
 
-据伊朗官方媒体伊斯兰共和国通讯社报道，伊朗伊斯兰革命卫队在一份声明中称，以色列于周一清晨使用空射弹道导弹，对伊朗境内多个目标发动了袭击。
+紫金天风期货研究所 PVC核心观点 【上半年回顾】 供应端：一季度高供应，二季度受检修叠加乙烯等因素影响整体开工持续走低。
 
-责任编辑：陈钰嘉
+上半年产量约1214万吨，同比增2.01%。
+
+海外部分企业受不可抗力影响降负荷。
+
+需求端：上半年内需约981万吨，同比降2.58%，1-4月出口170.2万吨，增27.33%。
+
+整体看内需较弱，外需缓解部分国内压力。
+
+但冲突结束之后，海外装置回归，出口将继续受到退税取消的影响。
+
+库存端：春节后上游及社会库存因抢出口及检修去化，但整体库存依然高位。
+
+盘面：上半年过山车式行情，海外冲突导致暴涨，随后回归基本面。
 
 ## 相关推荐
 
-- 2026-06-30 01:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 01:16 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 01:00 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 01:29 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 01:23 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 01:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 01:21 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 01:14 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-30 01:12 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 01:09 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 01:29 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 01:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 01:18 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 01:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 01:10 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 01:19 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 01:06 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 01:20 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 01:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 01:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 01:24 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 01:20 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 01:09 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 01:15 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 01:31 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 01:13 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:18 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/6956640.shtml)
-- 2026-06-30 01:28 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/67869828.shtml)
-- 2026-06-30 01:01 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/9924632.shtml)
-- 2026-06-30 01:00 - [美股](http://www.blog.kurohicncr.top/Article/details/859605.shtml)
-- 2026-06-30 01:03 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/07168114.shtml)
-- 2026-06-30 01:22 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/635110569366.shtml)
-- 2026-06-30 01:22 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/601694802617.shtml)
-- 2026-06-30 01:23 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/6900064318.shtml)
-- 2026-06-30 01:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/58865884.shtml)
-- 2026-06-30 01:21 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/289287.shtml)
-- 2026-06-30 01:26 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/98807.shtml)
-- 2026-06-30 01:10 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/71960615204.shtml)
-- 2026-06-30 01:03 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/799507632.shtml)
-- 2026-06-30 01:17 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/080950355.shtml)
-- 2026-06-30 01:05 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/68567.shtml)
+- 2026-06-30 01:09 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/270286.shtml)
+- 2026-06-30 01:27 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/63770106.shtml)
+- 2026-06-30 01:25 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/0386451109.shtml)
+- 2026-06-30 01:22 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/085300.shtml)
+- 2026-06-30 01:24 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/626306058036.shtml)
+- 2026-06-30 01:31 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/15020.shtml)
+- 2026-06-30 01:32 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/09971245663.shtml)
+- 2026-06-30 01:07 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/39140.shtml)
+- 2026-06-30 01:15 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/54740.shtml)
+- 2026-06-30 01:29 - [一生一世](https://www.share.minike.top/Article/details/278713685187.shtml)
+- 2026-06-30 01:23 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/39262079819.shtml)
+- 2026-06-30 01:08 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/808364641812.shtml)
+- 2026-06-30 01:08 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/004163406338.shtml)
+- 2026-06-30 01:34 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/70943.shtml)
+- 2026-06-30 01:18 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/26526095638.shtml)

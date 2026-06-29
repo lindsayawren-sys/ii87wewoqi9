@@ -1,57 +1,57 @@
-# 微信AI大动作，腾讯异动拉升4%，港股互联网ETF华宝（513770）涨超1%底部连阳 未来AI竞争重心将转向生态构建
+# 今夜全球瞩目，沃什“美联储首秀”会向市场扔炸弹吗？
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-6月9日，市场情绪回暖，港股低开高走，权重龙头腾讯控股异动，现涨超4%，美团-W、哔哩哔哩-W、快手-W跟涨，阿里巴巴-W、小米集团-W微跌。港股AI核心工具——港股互联网ETF华宝（513770）场内价格现涨超1%，底部连阳。 截至目前，港股互联网板块估值已回落至历史底部。截至6月8日，重仓互联网龙头的中证港股通互联网指数自2025年10月3日开启回调以来累计下跌逾40%，当
+华尔街见闻 沃什执掌美联储后首次议息会议即将揭晓：利率按兵不动几无悬念，但宽松偏向措辞料将退场、通胀预测面临大幅上调、点阵图初现加息预期——真正的悬念，全压在沃什新闻发布会的每一句措辞上。 凯文·沃什（Kevin Warsh）就任美联储主席以来的首次议息会议，将于北京时间本周四凌晨揭晓结果。利率按兵不动几无悬念，但围绕政策声明措辞、经济预测点阵图及沃什新闻发布会的信号解读，市场
 
 ## 正文
 
-6月9日，市场情绪回暖，港股低开高走，权重龙头腾讯控股异动，现涨超4%，美团-W、哔哩哔哩-W、快手-W跟涨，阿里巴巴-W、小米集团-W微跌。
+华尔街见闻 沃什执掌美联储后首次议息会议即将揭晓：利率按兵不动几无悬念，但宽松偏向措辞料将退场、通胀预测面临大幅上调、点阵图初现加息预期——真正的悬念，全压在沃什新闻发布会的每一句措辞上。
 
-港股AI核心工具——港股互联网ETF华宝（513770）场内价格现涨超1%，底部连阳。
+凯文·沃什（Kevin Warsh）就任美联储主席以来的首次议息会议，将于北京时间本周四凌晨揭晓结果。
 
-截至目前，港股互联网板块估值已回落至历史底部。
+利率按兵不动几无悬念，但围绕政策声明措辞、经济预测点阵图及沃什新闻发布会的信号解读，市场分歧显著——这场“首秀”的真实变量，远比利率数字本身复杂。
 
-截至6月8日，重仓互联网龙头的中证港股通互联网指数自2025年10月3日开启回调以来累计下跌逾40%，当前市盈率PE（TTM）仅19.97倍，位于近5年5.36%分位点。
+在政策声明层面，高盛、美银证券和摩根士丹利均预计，美联储将删除维持数月的“宽松偏向”措辞，标志着委员会正式向市场传递降息与加息可能性已趋于对等。
 
-（注：中证港股通互联网指数近5个完整年度的涨跌幅分别为： 2021年，-36.61%；2022年，-23.01%；2023年，-24.74%；2024年，23.04%；2025年，27.02%。
+与此同时，更新版经济预测将显示通胀预测大幅上调——高盛预计2026年核心PCE预测中值将从3月的2.7%上修至约3.3%——利率点阵图中值料将从此前的“年内降息一次”转为“年内按兵不动”，并将出现少量加息预期点位。
 
-指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
+美伊协议的推进令油价从高位大幅回落，一定程度上缓解了外部通胀压力，但核心通胀的粘性依然制约着政策空间。
 
-） 消息面上，微信公开课昨日发布《关于开发者接入微信AI生态的指引》称，微信开放平台在充分尊重开发者权益和自主选择的基础上，面向开发者提供了便捷接入微信AI生态的能力，开发者可主动授权接入微信AI。
+全场焦点将落在沃什的新闻发布会上。
 
-据悉，京东首批内测接入，将围绕电商、外卖、物流等业务落地微信AI Agent（智能体）。
+美银证券指出，若他将近期通胀定性为供给侧一次性冲击、并强调AI驱动的通胀下行前景，长端利率将面临抛压；若他明确为加息路径背书，则2年期SOFR可能上行约15个基点，美元将获得方向性支撑。
 
 ## 相关推荐
 
-- 2026-06-30 01:14 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 01:14 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 01:19 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 01:22 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 01:13 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 01:07 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 01:19 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 01:23 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 01:00 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 01:11 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 01:05 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 01:19 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 01:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 01:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 01:27 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 01:06 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 01:23 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 01:25 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 01:25 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 01:13 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 01:10 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 01:07 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:02 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/9858571.shtml)
-- 2026-06-30 01:15 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/2223962.shtml)
-- 2026-06-30 01:16 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/632824.shtml)
-- 2026-06-30 01:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/62451.shtml)
-- 2026-06-30 01:19 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/00646813.shtml)
-- 2026-06-30 01:09 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/27333021.shtml)
-- 2026-06-30 01:19 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/3705965131.shtml)
-- 2026-06-30 01:07 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/930245.shtml)
-- 2026-06-30 01:01 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/1258312.shtml)
-- 2026-06-30 01:19 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/43087624140.shtml)
-- 2026-06-30 01:29 - [小娘惹](https://www.blog.minike.top/Article/details/4677075375.shtml)
-- 2026-06-30 01:01 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/222973527.shtml)
-- 2026-06-30 01:01 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/879243469754.shtml)
-- 2026-06-30 01:29 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/4550054.shtml)
-- 2026-06-30 01:19 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/290933650024.shtml)
+- 2026-06-30 01:35 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/34457203.shtml)
+- 2026-06-30 01:20 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/88194.shtml)
+- 2026-06-30 01:08 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/76513192.shtml)
+- 2026-06-30 01:13 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/87940.shtml)
+- 2026-06-30 01:16 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/95518565.shtml)
+- 2026-06-30 01:35 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/602476994533.shtml)
+- 2026-06-30 01:22 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/92753.shtml)
+- 2026-06-30 01:29 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/84172457906.shtml)
+- 2026-06-30 01:25 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/14434744.shtml)
+- 2026-06-30 01:28 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/575770684.shtml)
+- 2026-06-30 01:10 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/439489087.shtml)
+- 2026-06-30 01:25 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/693377.shtml)
+- 2026-06-30 01:20 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/83516625333.shtml)
+- 2026-06-30 01:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/65600166274.shtml)
+- 2026-06-30 01:06 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/289835.shtml)

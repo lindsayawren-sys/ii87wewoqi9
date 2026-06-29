@@ -1,61 +1,59 @@
-# 核心候选药临床试验现癌症病例，Abivax遭律所证券欺诈调查
+# 美联储维持利率不变 沃什拟设工作组推进改革
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-法国临床阶段生物技术公司Abivax S.A．（纳斯达克代码：ABVX）正面临股东权益律师事务所The Schall Law Firm的证券欺诈调查。调查聚焦于公司是否就核心候选药物obefazimod的临床试验结果发布了虚假或误导性陈述，以及是否未能向投资者充分披露相关信息。 此次调查的导火索是Abivax于2026年6月初公布的obefazimod治疗中重度溃疡性结肠炎（U
+发布时间：2026年06月18日 11:38 来源：中国新闻网 美国联邦储备委员会6月17日宣布，将联邦基金利率目标区间维持在3.5%至3.75%之间的水平不变。这一决定是在新任美联储主席凯文·沃什上任后主持召开的首次货币政策例会上作出，符合市场普遍预期。 美联储当天发表篇幅较以往大幅缩减的政策声明称，决定将联邦基金利率目标区间维持不变，以支持美联储的双重使命。美联储重申其维持
 
 ## 正文
 
-法国临床阶段生物技术公司Abivax S.A．（纳斯达克代码：ABVX）正面临股东权益律师事务所The Schall Law Firm的证券欺诈调查。
+发布时间：2026年06月18日 11:38 来源：中国新闻网 美国联邦储备委员会6月17日宣布，将联邦基金利率目标区间维持在3.5%至3.75%之间的水平不变。
 
-调查聚焦于公司是否就核心候选药物obefazimod的临床试验结果发布了虚假或误导性陈述，以及是否未能向投资者充分披露相关信息。
+这一决定是在新任美联储主席凯文·沃什上任后主持召开的首次货币政策例会上作出，符合市场普遍预期。
 
-此次调查的导火索是Abivax于2026年6月初公布的obefazimod治疗中重度溃疡性结肠炎（UC）的III期ABTECT维持试验数据。
+美联储当天发表篇幅较以往大幅缩减的政策声明称，决定将联邦基金利率目标区间维持不变，以支持美联储的双重使命。
 
-尽管该试验达到了美国FDA的主要终点，数据显示在44周时，25mg和50mg剂量组分别实现了39.3%和40.3%的安慰剂校正临床缓解率，且所有关键次要终点均已达成。
+美联储重申其维持银行体系充裕准备金的政策。
 
-然而，试验结果中披露的安全性数据引发了市场剧烈反应。
+这份声明获得了参与投票的所有美联储官员支持。
 
-公司报告称，在服用50mg高剂量药物的患者中出现了几例癌症病例，包括前列腺癌、乳腺癌和结肠癌各一例。
+当天，美联储还公布了经济预测概要。
 
-尽管公司表示，经研究者评估这些病例与治疗无关，且非黑色素瘤皮肤癌（NMSC）病例的患者平均年龄为62岁（整体试验人群平均年龄为42岁），与NMSC的年龄相关风险一致，但市场仍对这一潜在安全性信号表达了强烈担忧。
+其中，利率点阵图由除沃什之外的高级官员提交的利率预期汇总形成。
 
-受此消息影响，Abivax股价在2026年6月2日大幅下跌，据报道盘前交易中跌幅一度达到约28%。
+点阵图显示，联邦基金利率中值到2026年年末将升至3.8%，暗示年内可能实施加息操作。
 
 ## 相关推荐
 
-- 2026-06-30 01:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 01:27 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 01:08 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 01:04 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 01:09 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 01:07 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 01:09 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 01:05 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 01:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 01:01 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 01:24 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 01:17 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 01:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 01:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 01:01 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 01:20 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 01:18 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 01:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 01:31 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 01:32 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 01:26 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 01:22 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 01:07 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-30 01:18 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 01:14 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 01:24 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 01:19 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 01:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/03186772049.shtml)
-- 2026-06-30 01:05 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/4560760417.shtml)
-- 2026-06-30 01:07 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/22690.shtml)
-- 2026-06-30 01:08 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/1717430.shtml)
-- 2026-06-30 01:26 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/3017759.shtml)
-- 2026-06-30 01:01 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/27265.shtml)
-- 2026-06-30 01:27 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/6548010476.shtml)
-- 2026-06-30 01:05 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/505254873.shtml)
-- 2026-06-30 01:16 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/399500548.shtml)
-- 2026-06-30 01:00 - [金牌调解](http://www.share.kurohicncr.top/Article/details/3476943570.shtml)
-- 2026-06-30 01:29 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/528474377.shtml)
-- 2026-06-30 01:12 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/385096.shtml)
-- 2026-06-30 01:18 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/29880758.shtml)
-- 2026-06-30 01:05 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/88401.shtml)
-- 2026-06-30 01:05 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/66279.shtml)
+- 2026-06-30 01:10 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/99517.shtml)
+- 2026-06-30 01:11 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/785450892150.shtml)
+- 2026-06-30 01:14 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/3764079130.shtml)
+- 2026-06-30 01:19 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/6327612.shtml)
+- 2026-06-30 01:18 - [时光音乐会](https://www.share.minike.top/Article/details/5279199.shtml)
+- 2026-06-30 01:16 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/087294119.shtml)
+- 2026-06-30 01:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/550409988.shtml)
+- 2026-06-30 01:19 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/96095.shtml)
+- 2026-06-30 01:16 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/31999.shtml)
+- 2026-06-30 01:33 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/75726.shtml)
+- 2026-06-30 01:32 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/89121770657.shtml)
+- 2026-06-30 01:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/508927635.shtml)
+- 2026-06-30 01:17 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/9344156357.shtml)
+- 2026-06-30 01:24 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/5623376396.shtml)
+- 2026-06-30 01:11 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/8184811494.shtml)

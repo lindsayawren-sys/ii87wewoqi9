@@ -1,58 +1,53 @@
-# 瑞贝卡讲起可穿戴新故事，监管阴霾未散，难破连亏老难题
+# MHMarkets迈汇:长线买盘仍在等待
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 6月3日，全球假发龙头企业瑞贝卡（维权）（600439.SH）涨停报收2.62元，次日高开后再封涨停，两天内两度触及涨停板，这家近期股价持续在低位徘徊的上市公司，用两个一字板向市场宣告了自己的存在感。 消息面上，瑞贝近日公告称，拟在原经营范围中新增“可穿戴智能设备制造、可穿戴智能设备销售以及
+6月18日，尽管黄金短线波动仍大，MHMarkets迈汇表示部分机构并未完全转向悲观，通胀风险和财政扩张背景仍被视作中长期支撑贵金属的重要逻辑。 从机构观点看，MHMarkets迈汇认为当前价格回撤更多体现为高位震荡中的再平衡，若实际利率没有继续单边上冲，黄金对中长期配置型资金依旧保持一定吸引力。 这意味着金市短线可能继续围绕宏观预期反复拉锯，但中期方向并未被完全改写，资金更可
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月18日，尽管黄金短线波动仍大，MHMarkets迈汇表示部分机构并未完全转向悲观，通胀风险和财政扩张背景仍被视作中长期支撑贵金属的重要逻辑。
 
-来源：证券之星 6月3日，全球假发龙头企业瑞贝卡（维权）（600439.SH）涨停报收2.62元，次日高开后再封涨停，两天内两度触及涨停板，这家近期股价持续在低位徘徊的上市公司，用两个一字板向市场宣告了自己的存在感。
+从机构观点看，MHMarkets迈汇认为当前价格回撤更多体现为高位震荡中的再平衡，若实际利率没有继续单边上冲，黄金对中长期配置型资金依旧保持一定吸引力。
 
-消息面上，瑞贝近日公告称，拟在原经营范围中新增“可穿戴智能设备制造、可穿戴智能设备销售以及珠宝首饰制造”等业务。
+这意味着金市短线可能继续围绕宏观预期反复拉锯，但中期方向并未被完全改写，资金更可能等待更清晰的利率与通胀组合信号再扩大仓位。
 
-市场或许期待看到公司的“第二增长曲线。
+放在接下来一段时间观察，MHMarkets迈汇判断黄金能否恢复韧性，关键仍在于配置需求是否回流以及收益率上行压力能否逐渐缓和。
 
-”目前，瑞贝卡主营业务聚焦假发制品，2025年，公司营收继续低个位数增长，归母净利润则已连续两年亏损，加之公司当前仍处于证监会立案调查阶段，2025年年报又被被审计机构出具非标意见，公司能否借助“假发+可穿戴”的业务延伸走出连续亏损与立案调查的阴霾，仍是未知数。
-
-01． 收入增速乏力，新增可穿戴谋突围 就在公司股价连续涨停的前一天，瑞贝卡于6月2日晚间发布关于增加公司经营范围及修订《公司章程》的公告，拟增加“可穿戴智能设备制造、可穿戴智能设备销售；智能穿戴应用软件开发、物联网技术研发；电力电子原器件销售、电子产品销售、电子元器件批发；智能穿戴硬件销售；虚拟现实设备制造；珠宝首饰制造；珠宝首饰批发；珠宝首饰零售；艺术品进出口”的经营范围。
-
-而瑞贝卡当前主营业务主要为假发制品的研发、生产和销售，显然公司正计划切入智能穿戴、虚拟现实及珠宝等全新业务领域。
-
-这次经营范围的大幅调整并非完全无迹可寻。
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-30 01:04 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 01:00 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 01:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 01:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 01:10 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 01:23 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 01:29 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 01:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 01:14 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 01:02 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 01:05 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 01:04 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 01:15 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 01:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 01:35 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 01:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 01:08 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 01:07 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 01:21 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 01:11 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 01:11 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 01:21 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 01:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 01:18 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 01:27 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:17 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/378999.shtml)
-- 2026-06-30 01:02 - [乔家的儿女](https://www.share.minike.top/Article/details/973197911.shtml)
-- 2026-06-30 01:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/347239.shtml)
-- 2026-06-30 01:10 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/08858922466.shtml)
-- 2026-06-30 01:04 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/318688248767.shtml)
-- 2026-06-30 01:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/745663512.shtml)
-- 2026-06-30 01:01 - [逃狱兄弟](https://www.share.minike.top/Article/details/051610.shtml)
-- 2026-06-30 01:17 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/876204542143.shtml)
-- 2026-06-30 01:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/20685365962.shtml)
-- 2026-06-30 01:03 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/01005.shtml)
-- 2026-06-30 01:05 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/1172236556.shtml)
-- 2026-06-30 01:05 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/182514983.shtml)
-- 2026-06-30 01:21 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/11991109772.shtml)
-- 2026-06-30 01:08 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/32638.shtml)
-- 2026-06-30 01:29 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/3880358.shtml)
+- 2026-06-30 01:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/98826409.shtml)
+- 2026-06-30 01:33 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/68097279218.shtml)
+- 2026-06-30 01:33 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/3566209.shtml)
+- 2026-06-30 01:27 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/01540806.shtml)
+- 2026-06-30 01:32 - [东方风云榜直播](http://www.share.minike.top/Article/details/7401653.shtml)
+- 2026-06-30 01:08 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/01194834596.shtml)
+- 2026-06-30 01:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/178441385946.shtml)
+- 2026-06-30 01:32 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/8809465.shtml)
+- 2026-06-30 01:11 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/89207649.shtml)
+- 2026-06-30 01:20 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/1591062608.shtml)
+- 2026-06-30 01:31 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/072616.shtml)
+- 2026-06-30 01:16 - [周生如故](http://www.blog.kurohicncr.top/Article/details/4310017734.shtml)
+- 2026-06-30 01:35 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/9558206.shtml)
+- 2026-06-30 01:33 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/060312.shtml)
+- 2026-06-30 01:09 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/92044.shtml)

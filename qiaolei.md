@@ -1,56 +1,58 @@
-# 长江有色：美CPI前夜多头静默观望期资金集体出逃 9日锡价或下跌
+# 公安部提醒老年人及其家属 警惕3类诈骗话术！谨记3条防骗要领！
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 期货市场：美股指数分化及国内需求淡季效应，隔夜伦锡收跌2.07%；最新收盘报52100美元/吨，下跌1100美元，跌幅为2.07%，成交量为828手，持仓量21253万手；国内市场，夜盘沪锡主力合约2607最新收报401590元/吨，下跌3200元，跌幅为0.79% 伦敦金属交易所（LME）6月8日伦锡库存量9020吨，较前一交易日库存量持平。 长江锡业网讯：今
+工人日报记者 陈丹丹 近年来，涉老年人诈骗一直是群众关注的焦点。这类诈骗有哪些高发类型？诈骗话术有何特征？如何在日常生活中有效防范？记者近日从公安部召开的新闻发布会获悉，公安机关高度重视打击涉老年人诈骗违法犯罪，从北京公安开展工作的情况来看，今年1月至5月，针对60岁以上老年人的电诈案件数、损失金额同比分别下降78.4%、77.9%。 北京市公安局刑侦总队政治处主任李小燕介绍，
 
 ## 正文
 
-长江有色金属网 期货市场：美股指数分化及国内需求淡季效应，隔夜伦锡收跌2.07%；最新收盘报52100美元/吨，下跌1100美元，跌幅为2.07%，成交量为828手，持仓量21253万手；国内市场，夜盘沪锡主力合约2607最新收报401590元/吨，下跌3200元，跌幅为0.79% 伦敦金属交易所（LME）6月8日伦锡库存量9020吨，较前一交易日库存量持平。
+工人日报记者 陈丹丹 近年来，涉老年人诈骗一直是群众关注的焦点。
 
-长江锡业网讯：今日沪锡期货全线低开，主力月2607合约开盘报404760元/吨较前一日收盘下跌30元/吨，9：20分沪锡主力2607合约报398570元/吨，下跌6220元，跌幅为1.54%，沪期锡低开低走，盘面维持弱势震荡；6 月 9 日凌晨，伦敦金属交易所锡期货大幅下挫，领跌基本金属板块。
+这类诈骗有哪些高发类型？
 
-此次下跌核心推手宏观估值直接压制，美联储政策预期逆转，风险资产全面回调，前期有色金属涨幅过高，叠加中东局势反复加剧避险情绪，有色金属成为资金撤离首选，临近美国金属关税落地窗口，资金提前离场规避不确定性风险，此外，国内主要产区炼厂开工率回升，供应放量与电子行业淡季需求走弱形成尖锐矛盾。
+诈骗话术有何特征？
 
-宏观层面，伊以停火仅带来地缘风险弱修复，美元指数仍处近两月高位，美股科技股回调引发 AI 算力金属集中获利了结，市场全面进入美国 CPI 数据前的静默观望期。
+如何在日常生活中有效防范？
 
-产业链供需失衡 上游紧俏难敌下游消费疲软 原材料端结构性短缺仍存：锡石、锡精矿全球供应偏紧，缅甸矿区复产不及预期，印尼出口新规持续制约精炼锡流出。
+记者近日从公安部召开的新闻发布会获悉，公安机关高度重视打击涉老年人诈骗违法犯罪，从北京公安开展工作的情况来看，今年1月至5月，针对60岁以上老年人的电诈案件数、损失金额同比分别下降78.4%、77.9%。
 
-但下游电子行业传统淡季效应加剧，锡价高位严重抑制焊料、半导体封装等领域消费，炼厂出货不畅导致库存积压。
+北京市公安局刑侦总队政治处主任李小燕介绍，涉老年人诈骗违法犯罪主要有3种高发类型。
 
-黄锡矿、砂锡矿开采成本攀升与再生锡原料短缺，未能对冲终端需求的快速下滑。
+首先是养老投资类，以保本高息理财产品、收藏品或原始股、养老公寓等为诱饵，诱骗老人投资。
 
-今日焦点变量与锡价走势预测 6 月 9 日市场核心焦点为美国 5 月 CPI 数据及美联储官员讲话，这将直接决定美元走势与大宗商品方向。
+其次是推销保健品类，打着专家义诊、健康讲座旗号，夸大药效、虚构病情，推销高价保健品、理疗器械。
 
 ## 相关推荐
 
-- 2026-06-30 01:20 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 01:28 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 01:20 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 01:21 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 01:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 01:07 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 01:20 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 01:02 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 01:20 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 01:16 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 01:15 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 01:23 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 01:10 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 01:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 01:13 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 01:31 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 01:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 01:15 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 01:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 01:08 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 01:13 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 01:16 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:19 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/61333500.shtml)
-- 2026-06-30 01:02 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/97623625899.shtml)
-- 2026-06-30 01:03 - [刘念回应](http://www.share.kurohicncr.top/Article/details/643877305412.shtml)
-- 2026-06-30 01:05 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/2753763.shtml)
-- 2026-06-30 01:15 - [千与千寻](https://www.share.kurohicncr.top/Article/details/208091.shtml)
-- 2026-06-30 01:28 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/4917021.shtml)
-- 2026-06-30 01:22 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/101687996.shtml)
-- 2026-06-30 01:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/9386169007.shtml)
-- 2026-06-30 01:18 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/7544902.shtml)
-- 2026-06-30 01:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/412597879.shtml)
-- 2026-06-30 01:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/7083483.shtml)
-- 2026-06-30 01:05 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/31356167.shtml)
-- 2026-06-30 01:07 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/826383580685.shtml)
-- 2026-06-30 01:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/7949197570.shtml)
-- 2026-06-30 01:21 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/309799760.shtml)
+- 2026-06-30 01:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/9882903.shtml)
+- 2026-06-30 01:34 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/056986871464.shtml)
+- 2026-06-30 01:35 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/69880454433.shtml)
+- 2026-06-30 01:15 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/1361697.shtml)
+- 2026-06-30 01:17 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/900455741289.shtml)
+- 2026-06-30 01:32 - [流金岁月](http://www.share.minike.top/Article/details/93610.shtml)
+- 2026-06-30 01:24 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/86210.shtml)
+- 2026-06-30 01:18 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/369563.shtml)
+- 2026-06-30 01:23 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/91414.shtml)
+- 2026-06-30 01:21 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/666982.shtml)
+- 2026-06-30 01:13 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/85648433151.shtml)
+- 2026-06-30 01:14 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/47907.shtml)
+- 2026-06-30 01:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/261640358939.shtml)
+- 2026-06-30 01:27 - [月亮](http://www.share.kurohicncr.top/Article/details/9273619867.shtml)
+- 2026-06-30 01:23 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/54961101.shtml)

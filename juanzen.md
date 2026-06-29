@@ -1,56 +1,57 @@
-# 公安部网安局公布10起涉高考网络谣言典型案例
+# 联想集团拟发行20亿美元的新可换股债券并同步溢价赎回旧债叠加股份回购
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新网6月8日电 据“公安部网安局”微信公众号消息，为确保2026年普通高等学校招生全国统一考试工作安全顺利，全国公安机关坚持以最高标准、最严要求、最强措施，严查严打涉考类违法犯罪活动，全力护航高考安全平稳有序。8日，公安部网安局公布10起涉高考网络谣言典型案例。案例1 2026年6月7日，广东省潮州市网民沈某宏为博取关注、吸粉引流，使用AI工具生成了一张“坐在2026年高考考
+联想集团（00992）公布，于2026年6月17日（交易时段后），公司与经办人订立债券认购协议，据此，经办人已有条件同意认购或促使认购人认购公司将予发行本金总额为20亿美元的新可换股债券，并就此付款或促使认购人就此付款。初步换股价定为每股转换股份 36.70 港元。 同日，公司就于2029年到期、本金额为6.75亿美元 2.50% 的可换股债券与交易经办人订立交易经办人协议，据
 
 ## 正文
 
-中新网6月8日电 据“公安部网安局”微信公众号消息，为确保2026年普通高等学校招生全国统一考试工作安全顺利，全国公安机关坚持以最高标准、最严要求、最强措施，严查严打涉考类违法犯罪活动，全力护航高考安全平稳有序。
+联想集团（00992）公布，于2026年6月17日（交易时段后），公司与经办人订立债券认购协议，据此，经办人已有条件同意认购或促使认购人认购公司将予发行本金总额为20亿美元的新可换股债券，并就此付款或促使认购人就此付款。
 
-8日，公安部网安局公布10起涉高考网络谣言典型案例。
+初步换股价定为每股转换股份 36.70 港元。
 
-案例1 2026年6月7日，广东省潮州市网民沈某宏为博取关注、吸粉引流，使用AI工具生成了一张“坐在2026年高考考场并使用手机拍摄考场”的虚假图片，并配文“带都带了，那发个抖音吧”后发布，误导大量网民，并引发关注和讨论，造成不良社会影响。
+同日，公司就于2029年到期、本金额为6.75亿美元 2.50% 的可换股债券与交易经办人订立交易经办人协议，据此，交易经办人已就建议同步购回获委任，以协助公司收集愿意出售其现有2029年可换股债券予公司的现有2029年可换股债券持有人的意向。
 
-目前，属地公安机关已依法对沈某宏作出行政处罚。
+现有2029年可换股债券的购回价定为现有2029年可换股债券本金额 293.20%。
 
-案例2 2026年6月7日，河南省驻马店市网民吴某帅为博取关注、吸粉引流，使用AI工具生成了一张虚假的“2026年普通高等学校招生全国统一考试语文试卷”图片，并在互联网平台发布，误导大量网民关注和讨论，造成不良社会影响。
+于本公告日期，公司已透过交易经办人收到合资格债券持有人出售合共本金额约2.25亿美元的现有2029年可换股债券予公司的承诺。
 
-目前，属地公安机关已依法对吴某帅作出行政处罚。
+现有2029年可换股债券仍未偿还的剩余本金总额约为4.5亿美元。
 
-案例3 2026年6月4日，湖南省郴州市网民李某怡为博取关注、吸粉引流，在互联网平台编造并发布了虚假高考答案信息及教唆高考带手机舞弊的不当内容，误导大量网民关注和讨论，造成不良社会影响。
+公司拟使用债券发行所得款项为建议同步购回提供资金。
 
-目前，属地公安机关已依法对李某怡作出行政处罚。
+为确保对现有股东的股权不造成稀释影响，公司于债券发行及建议同时购回完成后拟不时于市场上进行回购股份，惟在购回规模不会触发收购守则下的全面要约责任为限。
 
 ## 相关推荐
 
-- 2026-06-30 01:18 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 01:04 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 01:29 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 01:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 01:10 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 01:19 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 01:01 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 01:18 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 01:11 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 01:14 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 01:10 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 01:10 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 01:14 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 01:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 01:10 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 01:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 01:28 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 01:26 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 01:06 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 01:33 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 01:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:22 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/962739069.shtml)
-- 2026-06-30 01:18 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/66333312.shtml)
-- 2026-06-30 01:14 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/791279.shtml)
-- 2026-06-30 01:17 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/832291.shtml)
-- 2026-06-30 01:19 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/4546865078.shtml)
-- 2026-06-30 01:17 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/610467449295.shtml)
-- 2026-06-30 01:08 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/330959933588.shtml)
-- 2026-06-30 01:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/1833184430.shtml)
-- 2026-06-30 01:18 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/32589565.shtml)
-- 2026-06-30 01:10 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/2625828.shtml)
-- 2026-06-30 01:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/6657194.shtml)
-- 2026-06-30 01:25 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/676983.shtml)
-- 2026-06-30 01:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/086009354.shtml)
-- 2026-06-30 01:01 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/0257729.shtml)
-- 2026-06-30 01:25 - [斗破苍穹](http://www.share.minike.top/Article/details/430774780.shtml)
+- 2026-06-30 01:35 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/19317.shtml)
+- 2026-06-30 01:34 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/7799278331.shtml)
+- 2026-06-30 01:26 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/51181632376.shtml)
+- 2026-06-30 01:20 - [乔家的儿女](https://www.share.minike.top/Article/details/0424954271.shtml)
+- 2026-06-30 01:30 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/882439516.shtml)
+- 2026-06-30 01:15 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/8542689.shtml)
+- 2026-06-30 01:17 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/853799167.shtml)
+- 2026-06-30 01:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/9877623.shtml)
+- 2026-06-30 01:22 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/25486890.shtml)
+- 2026-06-30 01:29 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/80255985820.shtml)
+- 2026-06-30 01:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/801299705.shtml)
+- 2026-06-30 01:19 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/360789554.shtml)
+- 2026-06-30 01:12 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/5419608827.shtml)
+- 2026-06-30 01:19 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/090560974187.shtml)
+- 2026-06-30 01:22 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/13226039467.shtml)

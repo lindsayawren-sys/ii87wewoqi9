@@ -1,46 +1,53 @@
-# 新华图讯丨习近平和彭丽媛参谒中朝友谊塔
+# GTC泽汇资本:金价下跌再看支撑
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-当地时间6月9日上午，正在朝鲜进行国事访问的中共中央总书记、国家主席习近平和夫人彭丽媛参谒中朝友谊塔。朝鲜劳动党总书记、国务委员长金正恩和夫人李雪主陪同。 摄影：谢环驰 丁海涛 编辑：王迎 毕晓洋 李琰 虞东升 卢烨 张曼怡
+6月18日，贵金属周中由强转弱后，GTC泽汇资本表示市场正在重新评估政策利率维持高位的时间长度，金价回落说明短线资金更在意利率路径而非单次决议本身。 按照最新盘面变化，GTC泽汇资本认为现货金跌至每盎司4258美元附近，反映出交易员在鹰派表态落地后快速压缩多头仓位，同时把关注点转向下方支撑是否稳固。 从结构上看，若美元与债券收益率继续维持韧性，黄金或仍以区间整理为主；一旦后续数
 
 ## 正文
 
-当地时间6月9日上午，正在朝鲜进行国事访问的中共中央总书记、国家主席习近平和夫人彭丽媛参谒中朝友谊塔。
+6月18日，贵金属周中由强转弱后，GTC泽汇资本表示市场正在重新评估政策利率维持高位的时间长度，金价回落说明短线资金更在意利率路径而非单次决议本身。
 
-朝鲜劳动党总书记、国务委员长金正恩和夫人李雪主陪同。
+按照最新盘面变化，GTC泽汇资本认为现货金跌至每盎司4258美元附近，反映出交易员在鹰派表态落地后快速压缩多头仓位，同时把关注点转向下方支撑是否稳固。
 
-摄影：谢环驰 丁海涛 编辑：王迎 毕晓洋 李琰 虞东升 卢烨 张曼怡
+从结构上看，若美元与债券收益率继续维持韧性，黄金或仍以区间整理为主；一旦后续数据使紧缩预期边际降温，贵金属也有机会逐步修复失地。
+
+综合来看，GTC泽汇资本预计后续仍需跟踪收益率、美元和风险偏好是否同步变化，金价在当前区间的稳定程度，将决定下一阶段波动是继续放大还是开始收敛。
+
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-30 01:14 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 01:13 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 01:09 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 01:04 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 01:24 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 01:17 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 01:09 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 01:29 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 01:04 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 01:18 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 01:11 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 01:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 01:25 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 01:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 01:21 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 01:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 01:35 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 01:20 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 01:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 01:28 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 01:34 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 01:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 01:15 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/121434457983.shtml)
-- 2026-06-30 01:18 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/133050369862.shtml)
-- 2026-06-30 01:02 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/56882643829.shtml)
-- 2026-06-30 01:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/37237159956.shtml)
-- 2026-06-30 01:08 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/71808.shtml)
-- 2026-06-30 01:02 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/22317176598.shtml)
-- 2026-06-30 01:17 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/026275880990.shtml)
-- 2026-06-30 01:26 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/3965497.shtml)
-- 2026-06-30 01:15 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/155299.shtml)
-- 2026-06-30 01:06 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/245627393979.shtml)
-- 2026-06-30 01:03 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/05127.shtml)
-- 2026-06-30 01:16 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/37847233.shtml)
-- 2026-06-30 01:04 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/38029923.shtml)
-- 2026-06-30 01:01 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/441091.shtml)
-- 2026-06-30 01:28 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/936676046804.shtml)
+- 2026-06-30 01:27 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/63978132.shtml)
+- 2026-06-30 01:35 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/09631618486.shtml)
+- 2026-06-30 01:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/3177117177.shtml)
+- 2026-06-30 01:34 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/836816758.shtml)
+- 2026-06-30 01:26 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/191177175.shtml)
+- 2026-06-30 01:18 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/48646208.shtml)
+- 2026-06-30 01:11 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/01568.shtml)
+- 2026-06-30 01:28 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/641677233637.shtml)
+- 2026-06-30 01:13 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/6767231614.shtml)
+- 2026-06-30 01:22 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/91803143447.shtml)
+- 2026-06-30 01:13 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/239813697.shtml)
+- 2026-06-30 01:10 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/84725137.shtml)
+- 2026-06-30 01:13 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/49718873749.shtml)
+- 2026-06-30 01:34 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/697301577.shtml)
+- 2026-06-30 01:33 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/4420290.shtml)

@@ -1,57 +1,59 @@
-# 电影《四渡》澳门定档 同步讲述长征故事
+# 能模拟雷击！一起探秘天津新能源汽车“体检中心”
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新网澳门6月8日电(记者 郑嘉伟)记者8日从电影《四渡》澳门发行方喜彩文化获悉，该影片计划于6月26日在澳门与中国内地同步上映，向澳门观众讲述长征故事。 今年是中国工农红军长征胜利90周年。影片《四渡》以红军长征中“四渡赤水”战役为核心，由刘烨、王雷、于适、王志飞、王耀庆等实力派演员倾力出演。创作团队查阅大量权威资料，邀请军事专家全程把关，从战役时间线到战士服装逐一考证打磨。
+原标题：活力中国调研行｜能模拟雷击！一起探秘天津新能源汽车“体检中心” 6月17日，人民日报记者跟随2026年“活力中国调研行”天津主题采访活动，来到中汽中心新能源汽车科技创新基地。 基地位于天津市东丽区，包含新能源整车性能、电磁兼容、充电技术、动力电池、氢能与燃料电池、电驱电控等20余栋综合试验室以及科研中心、能源中心等配套设施，具备新能源汽车全研发流程链、全产品链、全生命周
 
 ## 正文
 
-中新网澳门6月8日电(记者 郑嘉伟)记者8日从电影《四渡》澳门发行方喜彩文化获悉，该影片计划于6月26日在澳门与中国内地同步上映，向澳门观众讲述长征故事。
+原标题：活力中国调研行｜能模拟雷击！
 
-今年是中国工农红军长征胜利90周年。
+一起探秘天津新能源汽车“体检中心” 6月17日，人民日报记者跟随2026年“活力中国调研行”天津主题采访活动，来到中汽中心新能源汽车科技创新基地。
 
-影片《四渡》以红军长征中“四渡赤水”战役为核心，由刘烨、王雷、于适、王志飞、王耀庆等实力派演员倾力出演。
+基地位于天津市东丽区，包含新能源整车性能、电磁兼容、充电技术、动力电池、氢能与燃料电池、电驱电控等20余栋综合试验室以及科研中心、能源中心等配套设施，具备新能源汽车全研发流程链、全产品链、全生命周期和全应用领域的测试评价验证能力。
 
-创作团队查阅大量权威资料，邀请军事专家全程把关，从战役时间线到战士服装逐一考证打磨。
+基地于2022年9月正式投入运营，中汽新能源作为其运营主体，紧密围绕产业变革的时代需求，全方位提供技术服务支撑。
 
-《四渡》澳门发行人刘长妹接受中新网记者采访时表示，《四渡》不仅呈现炮火硝烟中的生死搏杀，更深入开掘绝境之下的人性光辉、信仰力量与军事智慧。
+电磁兼容试验室包含电磁混响室、雷电效应室和十米法半电波暗室。
 
-观众可以看见年轻红军战士在寒冷、饥饿与牺牲面前的挣扎与抉择，看见革命先辈“渡己、渡人、渡天下、渡苍生”的崇高理想与革命情怀。
+电磁混响室是全球最大、亚洲首个整车快速搅拌电磁混响室，其中的电磁干扰信号具有各向同性、随机极化、空间场均匀等特性，更贴近实际道路的电磁环境特征。
 
-“希望借此影片丰富澳门的片单，让长征故事走到广大澳门观众身边，让长征精神在澳门焕发新的光芒。
+雷电效应室是我国汽车行业首个车辆雷电效应测试平台，填补了直击雷、间接雷作用下的车辆安全测试手段空白。
 
-”她说。
+车主驾车时如果遇到雷击应该怎么做？
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 01:23 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 01:23 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 01:22 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 01:21 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 01:16 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 01:01 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 01:02 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 01:14 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 01:10 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 01:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 01:35 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 01:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 01:35 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 01:13 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 01:09 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 01:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 01:25 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 01:35 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 01:17 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 01:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 01:13 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 01:35 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 01:13 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:16 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/62953644058.shtml)
-- 2026-06-30 01:15 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/07531799.shtml)
-- 2026-06-30 01:15 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/33994489843.shtml)
-- 2026-06-30 01:00 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/15689.shtml)
-- 2026-06-30 01:00 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/19491.shtml)
-- 2026-06-30 01:20 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/117877.shtml)
-- 2026-06-30 01:23 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/942982.shtml)
-- 2026-06-30 01:21 - [急先锋](http://www.blog.minike.top/Article/details/632009377140.shtml)
-- 2026-06-30 01:05 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/7638615.shtml)
-- 2026-06-30 01:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/525777139150.shtml)
-- 2026-06-30 01:06 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/19602942.shtml)
-- 2026-06-30 01:06 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/579437022.shtml)
-- 2026-06-30 01:23 - [货车司机恶意闯卡逃费被行拘](http://www.share.minike.top/Article/details/0239587356.shtml)
-- 2026-06-30 01:23 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/12102906394.shtml)
-- 2026-06-30 01:21 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/491806.shtml)
+- 2026-06-30 01:15 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/171268.shtml)
+- 2026-06-30 01:30 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/1518065.shtml)
+- 2026-06-30 01:25 - [毒液2](https://www.blog.minike.top/Article/details/541757.shtml)
+- 2026-06-30 01:17 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/63004040485.shtml)
+- 2026-06-30 01:20 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/663914400409.shtml)
+- 2026-06-30 01:30 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/858143453.shtml)
+- 2026-06-30 01:26 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/531025417085.shtml)
+- 2026-06-30 01:12 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/51510459261.shtml)
+- 2026-06-30 01:24 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/32607287839.shtml)
+- 2026-06-30 01:13 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/4941397.shtml)
+- 2026-06-30 01:24 - [第一炉香](http://www.blog.minike.top/Article/details/66291618215.shtml)
+- 2026-06-30 01:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/99837726098.shtml)
+- 2026-06-30 01:12 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/28919569650.shtml)
+- 2026-06-30 01:28 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/448665461.shtml)
+- 2026-06-30 01:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/41861.shtml)

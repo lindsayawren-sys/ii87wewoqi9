@@ -1,57 +1,49 @@
-# “不同文明可以和平共处，可以创造性地相互丰富”
+# 英力股份：公司已完成戴尔、惠普的供应商体系认证并准入其供应链
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-“不同文明可以和平共处，可以创造性地相互丰富” ——访希腊雅典科学院院长迪亚曼多罗斯 人民日报 本报记者 谢亚宏 李安琪“亚里士多德在《政治学》中将城邦定义为为了‘优良生活’而存在的共同体，指出政治应是一种旨在实现公共利益的道德实践。《论语·为政》引用孔子提出的‘道之以德，齐之以礼’，反映出中国传统文化中深厚的人本主义观念。希中两大文明都认为，社会稳定取决于人的道德品质及个人利
+证券日报网讯 6月18日，英力股份在互动平台回答投资者提问时表示，联想业务占比高是基于公司与联想等主流笔记本电脑品牌建立了长期稳定的合作关系。公司已完成戴尔、惠普的供应商体系认证并准入其供应链，产品竞争力得到客户认可。公司密切关注AIPC的相关进展，公司同步与其他品牌合作推进中，并将与客户们积极配合，大力投入AIPC相关结构件的研发和生产。（文章来源：证券日报）
 
 ## 正文
 
-“不同文明可以和平共处，可以创造性地相互丰富” ——访希腊雅典科学院院长迪亚曼多罗斯 人民日报 本报记者 谢亚宏 李安琪“亚里士多德在《政治学》中将城邦定义为为了‘优良生活’而存在的共同体，指出政治应是一种旨在实现公共利益的道德实践。
+证券日报网讯 6月18日，英力股份在互动平台回答投资者提问时表示，联想业务占比高是基于公司与联想等主流笔记本电脑品牌建立了长期稳定的合作关系。
 
-《论语·为政》引用孔子提出的‘道之以德，齐之以礼’，反映出中国传统文化中深厚的人本主义观念。
+公司已完成戴尔、惠普的供应商体系认证并准入其供应链，产品竞争力得到客户认可。
 
-希中两大文明都认为，社会稳定取决于人的道德品质及个人利益与集体利益间的平衡。
+公司密切关注AIPC的相关进展，公司同步与其他品牌合作推进中，并将与客户们积极配合，大力投入AIPC相关结构件的研发和生产。
 
-在全球信任缺失、治理危机加剧的当下，两大文明加强对话交流尤显重要。
-
-”日前，希腊雅典科学院院长尼基弗罗斯·迪亚曼多罗斯在接受本报记者专访时表示。
-
-迪亚曼多罗斯表示，全球化带来了经济上的相互依存，但并未建立起更深层次的文化理解，如今文化对抗和地缘冲突重现，世界正面临深刻的文化和道德挑战：人类如何在差异中创造性地共存。
-
-“一个可持续的国际秩序不能仅建立在经济实力或军事威慑之上，更需要共同价值观和跨文化信任。
-
-因此我认为，‘和而不同’理念是中国传统思想对当今世界秩序最切题的贡献之一。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 01:28 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 01:05 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 01:04 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 01:10 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 01:25 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 01:09 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 01:10 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 01:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 01:15 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 01:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 01:10 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 01:29 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 01:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 01:10 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 01:22 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-30 01:27 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 01:12 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 01:23 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 01:12 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 01:17 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 01:09 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:09 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/27092.shtml)
-- 2026-06-30 01:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/950148510237.shtml)
-- 2026-06-30 01:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/6122341518.shtml)
-- 2026-06-30 01:09 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/62503383070.shtml)
-- 2026-06-30 01:00 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/46544.shtml)
-- 2026-06-30 01:01 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/389052720.shtml)
-- 2026-06-30 01:05 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/28332512.shtml)
-- 2026-06-30 01:25 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/295246595945.shtml)
-- 2026-06-30 01:23 - [千与千寻](https://www.blog.minike.top/Article/details/55194.shtml)
-- 2026-06-30 01:20 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/7622398.shtml)
-- 2026-06-30 01:06 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/535923047.shtml)
-- 2026-06-30 01:29 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/2394685.shtml)
-- 2026-06-30 01:27 - [爱很美味](https://www.share.minike.top/Article/details/8692271.shtml)
-- 2026-06-30 01:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/872897209399.shtml)
-- 2026-06-30 01:25 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/3781645104.shtml)
+- 2026-06-30 01:33 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/417637907.shtml)
+- 2026-06-30 01:08 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/255973435.shtml)
+- 2026-06-30 01:06 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/75637724342.shtml)
+- 2026-06-30 01:31 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/3715538.shtml)
+- 2026-06-30 01:20 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/4463146.shtml)
+- 2026-06-30 01:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/004536981.shtml)
+- 2026-06-30 01:34 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/70431514730.shtml)
+- 2026-06-30 01:22 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/417361.shtml)
+- 2026-06-30 01:21 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/05457.shtml)
+- 2026-06-30 01:13 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/221233.shtml)
+- 2026-06-30 01:18 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/754861363.shtml)
+- 2026-06-30 01:14 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/320699084.shtml)
+- 2026-06-30 01:11 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/2376740.shtml)
+- 2026-06-30 01:14 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/64520749.shtml)
+- 2026-06-30 01:13 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/957183.shtml)

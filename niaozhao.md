@@ -1,61 +1,53 @@
-# 长江有色：8日铸造铝期价收跌0.52% 整体成交偏刚需
+# 驻欧盟使团发言人就欧盟新一轮对俄制裁新增制裁中方企业答记者问
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 上海期货价格走势：今日铸造铝合金主力月2608合约偏弱调整；截止当日15：00收盘，铸造铝主力合约报22985元，跌120元，跌幅0.52%，全天成交量7906手增加1650手；持仓量14795手增加755手。 据长江有色金属网数据统计，6月8日长江现货数据显示，铝合金ADC12报价23400-23600元/吨，均价报23500元/吨，跌200元；铸造铝合金锭（
+中新网6月17日电 据中国驻欧盟使团网站消息，驻欧盟使团发言人就欧盟新一轮对俄制裁新增制裁中方企业答记者问。 记者问：6月15日，欧盟公布新一轮对俄罗斯制裁方案，新增制裁4家中方企业。中方对此有何评论？ 发言人称，欧方不顾中方坚决反对和多次严正交涉，在对俄罗斯制裁中新增制裁中方企业，中方对此强烈不满、坚决反对，并再次向欧方提出了严正交涉。 发言人强调，中国在乌克兰危机问题上一贯
 
 ## 正文
 
-长江有色金属网 上海期货价格走势：今日铸造铝合金主力月2608合约偏弱调整；截止当日15：00收盘，铸造铝主力合约报22985元，跌120元，跌幅0.52%，全天成交量7906手增加1650手；持仓量14795手增加755手。
+中新网6月17日电 据中国驻欧盟使团网站消息，驻欧盟使团发言人就欧盟新一轮对俄制裁新增制裁中方企业答记者问。
 
-据长江有色金属网数据统计，6月8日长江现货数据显示，铝合金ADC12报价23400-23600元/吨，均价报23500元/吨，跌200元；铸造铝合金锭（A356.2）报价24300-24700元/吨，均价报24500元/吨，跌200元；铸造铝合金锭（A380）报价25600-25800元/吨，均价报25700元/吨，跌100元；铸造铝合金锭（ZL102）报价24200-24400元/吨，均价报24300元/吨，跌200元；铸造铝合金锭（ZLD104）报价24200-24400元/吨，均价报24300元/吨，跌200元； ccmn铸造铝合金市场分析： 宏观层面，美国5月非农新增就业17.2万人（预期8.5万），失业率稳于4.3%，劳动力市场韧性推升美联储年内加息预期，美元指数强势突破100关口，10年期美债收益率大幅上行。
+记者问：6月15日，欧盟公布新一轮对俄罗斯制裁方案，新增制裁4家中方企业。
 
-强美元与紧缩预期施压有色金属板块，原铝大幅下挫并拖累铸造铝合金期货走势。
+中方对此有何评论？
 
-不过，中东地缘再度升级——霍尔木兹海峡航运近乎停摆，市场担忧海湾地区电解铝产能持续停滞，海外供应短缺忧虑为原铝及合金价格提供底部支撑，限制跌幅。
+发言人称，欧方不顾中方坚决反对和多次严正交涉，在对俄罗斯制裁中新增制裁中方企业，中方对此强烈不满、坚决反对，并再次向欧方提出了严正交涉。
 
-产业基本面维持“强成本、弱需求”格局。
+发言人强调，中国在乌克兰危机问题上一贯秉持客观公正立场，致力于劝和促谈，为推动政治解决乌克兰危机发挥建设性作用。
 
-供应端受“反向开票”政策趋严影响，合规废铝货源结构性紧缺，精废价差维持低位，再生铝企业成本支撑较强。
-
-需求端进入传统淡季，汽车及通讯电子压铸订单有限，合金锭社会库存季节性累积，上行驱动不足。
-
-现货市场，持货商挺价意愿偏强，下游逢低压价刚需补库，早间交投尚可；午后观望情绪升温，整体成交偏刚需。
+中方坚决反对欧方在乌克兰危机问题上对中方甩锅推责、污蔑抹黑，坚决反对没有联合国安理会授权、缺乏国际法依据的非法单边制裁，将采取一切必要措施，坚定维护中方企业正当权益。
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 01:09 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 01:05 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 01:13 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 01:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 01:21 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 01:24 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 01:04 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 01:21 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 01:27 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 01:25 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 01:00 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 01:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 01:04 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 01:27 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 01:13 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 01:32 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 01:20 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 01:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 01:14 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 01:35 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 01:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 01:31 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 01:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 01:09 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 01:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/35463829428.shtml)
-- 2026-06-30 01:21 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/82939876.shtml)
-- 2026-06-30 01:17 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/3545814299.shtml)
-- 2026-06-30 01:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/450839462727.shtml)
-- 2026-06-30 01:27 - [毒液2](https://www.blog.kurohicncr.top/Article/details/2771267434.shtml)
-- 2026-06-30 01:10 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/735676766381.shtml)
-- 2026-06-30 01:02 - [天道](http://www.blog.kurohicncr.top/Article/details/06692289686.shtml)
-- 2026-06-30 01:27 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/495583873.shtml)
-- 2026-06-30 01:09 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/273671133004.shtml)
-- 2026-06-30 01:27 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/253308080808.shtml)
-- 2026-06-30 01:08 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/013062239.shtml)
-- 2026-06-30 01:09 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/20551.shtml)
-- 2026-06-30 01:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/40642642.shtml)
-- 2026-06-30 01:19 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/72693.shtml)
-- 2026-06-30 01:18 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/774914876060.shtml)
+- 2026-06-30 01:24 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/460398276076.shtml)
+- 2026-06-30 01:14 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/995818151624.shtml)
+- 2026-06-30 01:23 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/83986517.shtml)
+- 2026-06-30 01:24 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/331671147.shtml)
+- 2026-06-30 01:06 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/535583841.shtml)
+- 2026-06-30 01:22 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/73297.shtml)
+- 2026-06-30 01:29 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/706194058883.shtml)
+- 2026-06-30 01:23 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/540686150542.shtml)
+- 2026-06-30 01:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/387687488815.shtml)
+- 2026-06-30 01:16 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/7350133843.shtml)
+- 2026-06-30 01:16 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/268856209.shtml)
+- 2026-06-30 01:06 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/58744397667.shtml)
+- 2026-06-30 01:08 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/27674.shtml)
+- 2026-06-30 01:09 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/758188620.shtml)
+- 2026-06-30 01:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/49743.shtml)

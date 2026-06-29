@@ -1,61 +1,61 @@
-# 金银市场深度走势解析：短期暴跌不改长期牛市
+# 美国与伊朗公布谅解备忘录文本全文
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——上周五（6月5日），黄金、白银市场整体表现承压，各类贵金属投资者普遍面临持仓收益缩水的局面，市场悲观情绪短期蔓延。本轮贵金属行情出现明显回调，金价失守关键技术支撑位，短期交易风险持续升温，但从宏观长远维度来看，支撑金银价格走高的核心基本面逻辑并未发生改变，市场长期向好的格局依旧稳固。 短期行情大幅走弱，市场回调压力凸显 上周五公布的美国5月非农数据远超预期，
+新华社华盛顿/德黑兰6月17日电(记者黄强 赵伟宏)伊朗官方媒体17日公布了同美国达成的谅解备忘录条款内容。同日，美国政府高级官员也通过媒体公布了谅解备忘录正式文本。双方文本内容基本一致，全文如下： 1.美国、伊朗及其在当前战争中的盟友签署本谅解备忘录，声明立即并永久停止包括黎巴嫩在内的所有战线的军事行动；承诺今后互不发动战争或军事行动，互不使用武力或以武力相威胁；并确保黎巴嫩
 
 ## 正文
 
-汇通财经APP讯——上周五（6月5日），黄金、白银市场整体表现承压，各类贵金属投资者普遍面临持仓收益缩水的局面，市场悲观情绪短期蔓延。
+新华社华盛顿/德黑兰6月17日电(记者黄强 赵伟宏)伊朗官方媒体17日公布了同美国达成的谅解备忘录条款内容。
 
-本轮贵金属行情出现明显回调，金价失守关键技术支撑位，短期交易风险持续升温，但从宏观长远维度来看，支撑金银价格走高的核心基本面逻辑并未发生改变，市场长期向好的格局依旧稳固。
+同日，美国政府高级官员也通过媒体公布了谅解备忘录正式文本。
 
-短期行情大幅走弱，市场回调压力凸显 上周五公布的美国5月非农数据远超预期，彻底扭转美联储降息预期，贵金属市场遭遇集中抛售行情，现货金价一举跌破业内重点关注的200日移动平均线这一核心支撑点位，技术面走势彻底走弱，当天跌幅3.3%，收于4327.46美元/盎司。
+双方文本内容基本一致，全文如下： 1.美国、伊朗及其在当前战争中的盟友签署本谅解备忘录，声明立即并永久停止包括黎巴嫩在内的所有战线的军事行动；承诺今后互不发动战争或军事行动，互不使用武力或以武力相威胁；并确保黎巴嫩的领土完整与主权。
 
-从短期交易维度分析，金银市场的下行风险已经完全显现，市场多头动能彻底消退，整体交易风向全面转空。
+最终协议将确认包括黎巴嫩在内的所有战线战争的永久结束，以及本条款中的其他规定。
 
-机构与个人交易投资者持续减持贵金属持仓，进一步放大了价格下行压力，市场短期内大概率延续弱势震荡下跌走势，目前尚不具备逢低抄底的条件。
+2.美国与伊朗承诺相互尊重主权和领土完整，互不干涉内政。
 
-本轮贵金属价格回调，核心诱因在于美联储货币政策预期的转变。
+3.美国与伊朗承诺在最多60天内进行谈判并达成最终协议，该期限经双方同意可延长。
 
-市场普遍预判，美联储为压制居高不下的通胀，将持续采取鹰派货币政策立场。
+4.本谅解备忘录签署后，美国将立即着手解除对伊朗的海上封锁及针对该国的任何干扰或阻碍行为，并将在30天内完全解除海上封锁。
 
-这一预期推动美债收益率持续上行，同时助推美元指数强势走高。
+在此期间，船只通行量将与伊朗恢复的战前通行量保持相应比例。
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 01:00 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 01:04 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 01:28 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 01:08 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 01:12 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 01:16 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 01:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 01:06 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 01:19 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 01:10 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 01:08 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 01:13 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 01:10 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 01:23 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 01:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 01:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 01:32 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 01:24 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 01:19 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 01:11 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 01:28 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 01:13 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 01:06 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 01:18 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 01:34 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 01:35 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 01:34 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 01:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 01:35 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:19 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/30302463347.shtml)
-- 2026-06-30 01:08 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/21723.shtml)
-- 2026-06-30 01:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/33122956510.shtml)
-- 2026-06-30 01:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/0690866746.shtml)
-- 2026-06-30 01:05 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/39351830.shtml)
-- 2026-06-30 01:10 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/063482688625.shtml)
-- 2026-06-30 01:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/43959472.shtml)
-- 2026-06-30 01:15 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/862639.shtml)
-- 2026-06-30 01:06 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/28697.shtml)
-- 2026-06-30 01:07 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/29304844.shtml)
-- 2026-06-30 01:28 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/6628599975.shtml)
-- 2026-06-30 01:08 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/823944.shtml)
-- 2026-06-30 01:08 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/14053400.shtml)
-- 2026-06-30 01:05 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/5746946311.shtml)
-- 2026-06-30 01:03 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/825051.shtml)
+- 2026-06-30 01:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/96546975.shtml)
+- 2026-06-30 01:24 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/2200654.shtml)
+- 2026-06-30 01:34 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/658930246450.shtml)
+- 2026-06-30 01:22 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/601370440748.shtml)
+- 2026-06-30 01:19 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/6241812.shtml)
+- 2026-06-30 01:09 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/4116704.shtml)
+- 2026-06-30 01:22 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/654933547.shtml)
+- 2026-06-30 01:26 - [千与千寻](http://www.blog.minike.top/Article/details/1360183180.shtml)
+- 2026-06-30 01:27 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/080526615.shtml)
+- 2026-06-30 01:15 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/074594810.shtml)
+- 2026-06-30 01:33 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/29872361264.shtml)
+- 2026-06-30 01:31 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/36854400572.shtml)
+- 2026-06-30 01:11 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/4789653438.shtml)
+- 2026-06-30 01:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/35806.shtml)
+- 2026-06-30 01:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/1131226339.shtml)

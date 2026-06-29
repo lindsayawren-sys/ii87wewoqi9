@@ -1,56 +1,60 @@
-# 苦研十余年 浙江科学家用脑机接口帮盲人“看见”世界
+# 民企奋进自贸港：在海南设区域总部布“绿色棋局”
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新网温州6月8日电(胡丰盛 叶凝碧)竖、竖、横，当失明了近20年的灵灵(化名)在白纸上简单落下三笔，写出一个“H”时，现场沸腾了。 同样难以置信的，还有盯着微信群实时更新的浙江温州籍青年科学家杨佳威。他第一时间点开了团队从现场传回的视频。“术后开机第二天，她就看见了！我们原本预估至少要训练一两个月。这简直像中了百万大奖一样让人惊喜。”他激动地反复回放视频，仔细看那一笔一画。
+中新网海口6月18日电 题：民企奋进自贸港：在海南设区域总部布“绿色棋局” 中新网记者 张茜翼 “来到海南，既是赴一场绿色之约，也是为企业寻找高质量发展的‘第二增长曲线’。”2026全国民营企业绿色发展大会于6月16日至18日在海口举行，福建省工商联副主席、永荣控股集团董事长吴华新的一番话，道出众多参会民企的期待。 这家以绿色新材料为主业、集产业投资与供应链服务于一体的大型产业
 
 ## 正文
 
-中新网温州6月8日电(胡丰盛 叶凝碧)竖、竖、横，当失明了近20年的灵灵(化名)在白纸上简单落下三笔，写出一个“H”时，现场沸腾了。
+中新网海口6月18日电 题：民企奋进自贸港：在海南设区域总部布“绿色棋局” 中新网记者 张茜翼 “来到海南，既是赴一场绿色之约，也是为企业寻找高质量发展的‘第二增长曲线’。
 
-同样难以置信的，还有盯着微信群实时更新的浙江温州籍青年科学家杨佳威。
+”2026全国民营企业绿色发展大会于6月16日至18日在海口举行，福建省工商联副主席、永荣控股集团董事长吴华新的一番话，道出众多参会民企的期待。
 
-他第一时间点开了团队从现场传回的视频。
+这家以绿色新材料为主业、集产业投资与供应链服务于一体的大型产业集团，正将海南视为其国际化棋局中的关键一子。
 
-“术后开机第二天，她就看见了！
+吴华新透露，永荣控股集团拟在海南筹建区域总部，并计划发起设立一只绿色产业投资基金，聚焦氢能、储能、低碳材料、循环经济等前沿赛道。
 
-我们原本预估至少要训练一两个月。
+深耕实业 永荣控股集团的底气，来自多年深耕实业积累的厚实家底。
 
-这简直像中了百万大奖一样让人惊喜。
+2025年，集团营收约1200亿元，位列中国企业500强第256位，七年蝉联中国锦纶民用长丝产量第一，锦纶出口覆盖全球58个国家和地区，占国内出口总量的36%以上。
 
-”他激动地反复回放视频，仔细看那一笔一画。
+吴华新将集团的产业深耕概括为“两条主线”：一是把一根尼龙丝做到极致；二是向新能源材料转身，2024年正式落子锂盐赛道，完成从“新材料”向“新能源材料”的跃升。
 
-过去12年，他和团队只专注一件事：研究用脑机接口帮盲人“重见光明”。
+“我们的方向很清晰：向绿而行，向新而生，做绿色新材料赛道的长期领跑者。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 01:14 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 01:18 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 01:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 01:10 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 01:16 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 01:09 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 01:03 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 01:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 01:17 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 01:18 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 01:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 01:25 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 01:23 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 01:27 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 01:10 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 01:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 01:28 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 01:33 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 01:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 01:08 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 01:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 01:16 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 01:06 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:17 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/79382110.shtml)
-- 2026-06-30 01:26 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/51758494.shtml)
-- 2026-06-30 01:08 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/53138.shtml)
-- 2026-06-30 01:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/5347930174.shtml)
-- 2026-06-30 01:08 - [请回答王牌2019](http://www.share.minike.top/Article/details/06555.shtml)
-- 2026-06-30 01:22 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/52541080750.shtml)
-- 2026-06-30 01:26 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/0731323.shtml)
-- 2026-06-30 01:06 - [起风了](https://www.share.minike.top/Article/details/6837340568.shtml)
-- 2026-06-30 01:21 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/215464.shtml)
-- 2026-06-30 01:16 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/970418264.shtml)
-- 2026-06-30 01:28 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/605357.shtml)
-- 2026-06-30 01:16 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/449821774716.shtml)
-- 2026-06-30 01:01 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/31417776344.shtml)
-- 2026-06-30 01:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/33256.shtml)
-- 2026-06-30 01:16 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/5183169.shtml)
+- 2026-06-30 01:30 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/80320258.shtml)
+- 2026-06-30 01:23 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/506611410.shtml)
+- 2026-06-30 01:18 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/10222.shtml)
+- 2026-06-30 01:18 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/6852878029.shtml)
+- 2026-06-30 01:28 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/358570.shtml)
+- 2026-06-30 01:18 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/605825024.shtml)
+- 2026-06-30 01:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/6313175378.shtml)
+- 2026-06-30 01:33 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/40407168.shtml)
+- 2026-06-30 01:08 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/43235811616.shtml)
+- 2026-06-30 01:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/5926282867.shtml)
+- 2026-06-30 01:13 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/74265042974.shtml)
+- 2026-06-30 01:13 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/3777919.shtml)
+- 2026-06-30 01:15 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/580080061845.shtml)
+- 2026-06-30 01:16 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/3126061851.shtml)
+- 2026-06-30 01:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/229753.shtml)

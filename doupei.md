@@ -1,48 +1,54 @@
-# 光大期货0609热点追踪：焦煤跌停背后，藏着什么逻辑？
+# 韩正会见美国前运输部长赵小兰
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-专题：光大期货热点追踪视频合集 光大期货0609热点追踪：焦煤跌停背后，藏着什么逻辑？责任编辑：李铁民
+中新社北京6月17日电 6月17日，中国国家副主席韩正在北京会见美国前运输部长赵小兰。 韩正表示，今年5月，习近平主席同特朗普总统共同确定了中美建设性战略稳定关系的新定位，为下阶段中美关系作出了重要战略指引。中方一贯致力于发展稳定的中美关系。落实两国元首共识，需要双方各界共同采取行动，进一步加强经贸等领域的合作，密切人文交流和民间地方往来，为双边关系发展打造更多坚实支撑。 赵小
 
 ## 正文
 
-专题：光大期货热点追踪视频合集 光大期货0609热点追踪：焦煤跌停背后，藏着什么逻辑？
+中新社北京6月17日电 6月17日，中国国家副主席韩正在北京会见美国前运输部长赵小兰。
 
-责任编辑：李铁民
+韩正表示，今年5月，习近平主席同特朗普总统共同确定了中美建设性战略稳定关系的新定位，为下阶段中美关系作出了重要战略指引。
+
+中方一贯致力于发展稳定的中美关系。
+
+落实两国元首共识，需要双方各界共同采取行动，进一步加强经贸等领域的合作，密切人文交流和民间地方往来，为双边关系发展打造更多坚实支撑。
+
+赵小兰表示，美中元首会晤具有重要意义，保持稳定的美中关系符合各方利益。
+
+愿继续为推动美中务实合作、促进民间往来作出努力。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 01:28 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 01:04 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 01:17 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 01:13 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 01:28 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 01:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 01:09 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 01:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 01:26 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 01:06 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 01:13 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 01:21 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 01:11 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 01:28 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 01:23 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 01:24 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 01:31 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 01:12 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 01:33 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 01:30 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 01:34 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 01:28 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 01:21 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/74572.shtml)
-- 2026-06-30 01:15 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/6724817.shtml)
-- 2026-06-30 01:26 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/81066891.shtml)
-- 2026-06-30 01:25 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/022733596586.shtml)
-- 2026-06-30 01:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/5914725.shtml)
-- 2026-06-30 01:07 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/5683122.shtml)
-- 2026-06-30 01:27 - [我和我的家乡](https://www.share.minike.top/Article/details/234056714.shtml)
-- 2026-06-30 01:16 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/47611837.shtml)
-- 2026-06-30 01:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/529907257.shtml)
-- 2026-06-30 01:06 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/476504439.shtml)
-- 2026-06-30 01:00 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/4629285097.shtml)
-- 2026-06-30 01:01 - [千与千寻](http://www.blog.minike.top/Article/details/6091829293.shtml)
-- 2026-06-30 01:02 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/509315059.shtml)
-- 2026-06-30 01:02 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/52579895.shtml)
-- 2026-06-30 01:29 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/166810839.shtml)
+- 2026-06-30 01:10 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/072121548.shtml)
+- 2026-06-30 01:23 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/69928.shtml)
+- 2026-06-30 01:31 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/108000470802.shtml)
+- 2026-06-30 01:26 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/830711728.shtml)
+- 2026-06-30 01:20 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/124538.shtml)
+- 2026-06-30 01:07 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/58195595.shtml)
+- 2026-06-30 01:08 - [斗破苍穹](https://www.blog.minike.top/Article/details/189964604.shtml)
+- 2026-06-30 01:21 - [锐评T1零封KC](http://www.share.minike.top/Article/details/625230432213.shtml)
+- 2026-06-30 01:26 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/0480065.shtml)
+- 2026-06-30 01:18 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/61280.shtml)
+- 2026-06-30 01:33 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/78757979.shtml)
+- 2026-06-30 01:07 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/289485270756.shtml)
+- 2026-06-30 01:25 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/01379451.shtml)
+- 2026-06-30 01:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/550834.shtml)
+- 2026-06-30 01:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/939816792.shtml)

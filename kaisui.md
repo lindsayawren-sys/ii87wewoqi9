@@ -1,59 +1,58 @@
-# 两岸同胞共话泉金航线开通20周年：“不只是回家的路”
+# 留疆半载，这些老师不仅送考、更为种梦
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新网泉州6月8日电 (记者 孙虹)“20年前的今天，石井泉金客运码头与金门水头码头同时响起汽笛声，泉州轮从石井起航，新金龙号自金门驶来。”作为泉(州)金(门)客运航线的首批乘客，泉州市金门同胞联谊会常务副会长张亚轮记忆犹新，“这条航线不只是回家的路，它连的是两岸血脉亲情，温暖了两岸民心”。 作为大陆第三条对台海上直航客运航线，泉金航线于2006年6月8日正式开通。据泉州市边检
+中新网伊犁6月17日电 题：留疆半载，这些老师不仅送考、更为种梦 中新网记者 曹子云 在新疆伊犁霍城县江苏中学的“初心亭”里，校党总支书记张志勇叩响了一口由氧气瓶改造的旧钟，清脆的声音在校园回荡。 “情满天山 援疆印记”主题采访团近日来到该中学。“这口钟是从老校区带过来的。”张志勇对记者说，它见证着江苏教育援疆的办学脉络，也时刻提醒教师坚守育人为本的初心。 几天前，这口钟刚在高
 
 ## 正文
 
-中新网泉州6月8日电 (记者 孙虹)“20年前的今天，石井泉金客运码头与金门水头码头同时响起汽笛声，泉州轮从石井起航，新金龙号自金门驶来。
+中新网伊犁6月17日电 题：留疆半载，这些老师不仅送考、更为种梦 中新网记者 曹子云 在新疆伊犁霍城县江苏中学的“初心亭”里，校党总支书记张志勇叩响了一口由氧气瓶改造的旧钟，清脆的声音在校园回荡。
 
-”作为泉(州)金(门)客运航线的首批乘客，泉州市金门同胞联谊会常务副会长张亚轮记忆犹新，“这条航线不只是回家的路，它连的是两岸血脉亲情，温暖了两岸民心”。
+“情满天山 援疆印记”主题采访团近日来到该中学。
 
-作为大陆第三条对台海上直航客运航线，泉金航线于2006年6月8日正式开通。
+“这口钟是从老校区带过来的。
 
-据泉州市边检站统计数据，开通20年来，泉金航线已累计安全运营超3.2万航次，运送两岸旅客总量突破160万人次。
+”张志勇对记者说，它见证着江苏教育援疆的办学脉络，也时刻提醒教师坚守育人为本的初心。
 
-在8日举行的泉金客运航线通航20周年纪念活动上，航线的推动者、亲历者以及金门同胞代表相聚一堂，围绕“廿载泉金通航路、奋楫扬帆启新程”主题，回顾过去、畅想未来。
+几天前，这口钟刚在高考中被敲响。
 
-其间，已是耄耋之年的金门县议会前议长王再生现场挥毫，写下“造福两岸”抒发对泉金航线的感悟。
+交卷的钟声，意味着同学们高中旅程到站。
 
-“即便1987年两岸开放探亲，回家的路依然遥远。
+在送考人群中，有几张熟悉的面孔——他们是任期已结束的李兴旺和其他三位江苏援疆教师。
 
-”王再生告诉中新网记者，当时金门民众到大陆需先前往台湾本岛，再经港澳地区或者菲律宾转机，全程耗时约两天，时间长且成本高。
+时间回到2024年8月，第十一批江苏援疆教师抵达霍城，李兴旺成为队伍里首个担任班主任的老师，接手“则徐班”。
 
 ## 相关推荐
 
-- 2026-06-30 01:25 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 01:22 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 01:09 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 01:19 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 01:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 01:27 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 01:00 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 01:05 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 01:02 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 01:09 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 01:01 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 01:04 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 01:25 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 01:33 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 01:32 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 01:11 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 01:21 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 01:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 01:18 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 01:32 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 01:25 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 01:08 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 01:09 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 01:11 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 01:15 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/5887207295.shtml)
-- 2026-06-30 01:26 - [送你一朵小红花](https://www.blog.minike.top/Article/details/331929714.shtml)
-- 2026-06-30 01:26 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/330112756308.shtml)
-- 2026-06-30 01:08 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/0005062512.shtml)
-- 2026-06-30 01:24 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/33069159400.shtml)
-- 2026-06-30 01:15 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/73393.shtml)
-- 2026-06-30 01:22 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/73675861.shtml)
-- 2026-06-30 01:05 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/44639449.shtml)
-- 2026-06-30 01:27 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/213788405.shtml)
-- 2026-06-30 01:11 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/96128.shtml)
-- 2026-06-30 01:25 - [金刚川](https://www.blog.kurohicncr.top/Article/details/327938832.shtml)
-- 2026-06-30 01:00 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/17094778698.shtml)
-- 2026-06-30 01:12 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/3909979.shtml)
-- 2026-06-30 01:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/77118546841.shtml)
-- 2026-06-30 01:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/9972616596.shtml)
+- 2026-06-30 01:08 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/40198353548.shtml)
+- 2026-06-30 01:09 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/4237002.shtml)
+- 2026-06-30 01:16 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/455588015480.shtml)
+- 2026-06-30 01:34 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/81396128333.shtml)
+- 2026-06-30 01:34 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/845107.shtml)
+- 2026-06-30 01:31 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/96353571798.shtml)
+- 2026-06-30 01:18 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/3979558.shtml)
+- 2026-06-30 01:24 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/14826174907.shtml)
+- 2026-06-30 01:07 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/011150133.shtml)
+- 2026-06-30 01:34 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/073236747.shtml)
+- 2026-06-30 01:21 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/3363555.shtml)
+- 2026-06-30 01:19 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/239526.shtml)
+- 2026-06-30 01:16 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/879619751.shtml)
+- 2026-06-30 01:20 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/7797361.shtml)
+- 2026-06-30 01:11 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/7262744.shtml)

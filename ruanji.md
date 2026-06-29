@@ -1,57 +1,58 @@
-# “2026中国电影节”在莫斯科拉开帷幕
+# 杨德龙：深度解读美联储议息会议 都释放哪些信号
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科6月9日电 (记者 田冰)由中国国家电影局和俄罗斯文化部主办的“2026中国电影节”当地时间8日在莫斯科举行开幕式。多部中国影片与俄罗斯观众见面。 俄罗斯文化部长柳比莫娃在开幕式上发表视频致辞说，电影艺术持续巩固俄罗斯和中国之间的文化桥梁。俄中两国观众对彼此国家电影的共同兴趣印证了两国人民之间真挚的尊重和牢固的友谊。我们很高兴延续每年都在文化交流框架内互办电影展映活
+这次美联储的议息会议，是美联储新任主席沃什上台之后的第一次议息会议，市场对他的发言都非常关注。会议结果与预期一致，保持基准利率不变。但从点阵图来看，有一部分美联储官员支持年内加息，而不是之前预期的降息一次，这对美股造成了很大冲击，三大股指应声下跌。 那么，为什么大家的预期发生了改变？一个很重要的原因是美国的通胀最近起来了。美国五月的CPI上升到4.2%，创出近三年新高。很多人担
 
 ## 正文
 
-中新社莫斯科6月9日电 (记者 田冰)由中国国家电影局和俄罗斯文化部主办的“2026中国电影节”当地时间8日在莫斯科举行开幕式。
+这次美联储的议息会议，是美联储新任主席沃什上台之后的第一次议息会议，市场对他的发言都非常关注。
 
-多部中国影片与俄罗斯观众见面。
+会议结果与预期一致，保持基准利率不变。
 
-俄罗斯文化部长柳比莫娃在开幕式上发表视频致辞说，电影艺术持续巩固俄罗斯和中国之间的文化桥梁。
+但从点阵图来看，有一部分美联储官员支持年内加息，而不是之前预期的降息一次，这对美股造成了很大冲击，三大股指应声下跌。
 
-俄中两国观众对彼此国家电影的共同兴趣印证了两国人民之间真挚的尊重和牢固的友谊。
+那么，为什么大家的预期发生了改变？
 
-我们很高兴延续每年都在文化交流框架内互办电影展映活动这一传统。
+一个很重要的原因是美国的通胀最近起来了。
 
-中国驻俄罗斯大使馆公使衔参赞、莫斯科中国文化中心主任封立涛表示，电影是跨越国界的通用语言，也是促进不同国家人民沟通的桥梁。
+美国五月的CPI上升到4.2%，创出近三年新高。
 
-俄罗斯“中国电影节”和中国“俄罗斯电影节”已连续举办多届，成为两国民众了解对方当代电影业的重要窗口，为增进两国人民的友好感情和相互理解发挥了重要作用。
+很多人担心，如果通胀居高不下，美联储会把防通胀作为第一货币政策目标，从而从降息周期转向加息周期，这对资本市场是一个比较大的冲击。
 
-本届电影节将持续至14日。
+当然现在还不能下结论说美国货币政策已经转向了。
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 01:25 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 01:28 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 01:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 01:25 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 01:23 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 01:10 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 01:07 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 01:07 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 01:10 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 01:26 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 01:28 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 01:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 01:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-30 01:14 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 01:28 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 01:35 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 01:33 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 01:20 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 01:31 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 01:29 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 01:12 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 01:33 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/814546396979.shtml)
-- 2026-06-30 01:06 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/19043.shtml)
-- 2026-06-30 01:22 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/2519289851.shtml)
-- 2026-06-30 01:01 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/133344.shtml)
-- 2026-06-30 01:28 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/59036194874.shtml)
-- 2026-06-30 01:29 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/48298374967.shtml)
-- 2026-06-30 01:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/409711.shtml)
-- 2026-06-30 01:10 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/94426.shtml)
-- 2026-06-30 01:00 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/53094477.shtml)
-- 2026-06-30 01:11 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/0458828870.shtml)
-- 2026-06-30 01:24 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/483431717068.shtml)
-- 2026-06-30 01:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/835541048.shtml)
-- 2026-06-30 01:29 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/7649511658.shtml)
-- 2026-06-30 01:27 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/158043715.shtml)
-- 2026-06-30 01:21 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/04436380765.shtml)
+- 2026-06-30 01:31 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/86034659.shtml)
+- 2026-06-30 01:24 - [送你一朵小红花](http://www.blog.minike.top/Article/details/22773902.shtml)
+- 2026-06-30 01:25 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/399625589.shtml)
+- 2026-06-30 01:18 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/3742570.shtml)
+- 2026-06-30 01:08 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/753043083214.shtml)
+- 2026-06-30 01:29 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/66535678.shtml)
+- 2026-06-30 01:20 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/86467.shtml)
+- 2026-06-30 01:11 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/81714.shtml)
+- 2026-06-30 01:18 - [急先锋](https://www.share.kurohicncr.top/Article/details/20129.shtml)
+- 2026-06-30 01:25 - [恋与深空 日服](https://www.blog.minike.top/Article/details/97368159251.shtml)
+- 2026-06-30 01:33 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/849369403206.shtml)
+- 2026-06-30 01:23 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/637649749360.shtml)
+- 2026-06-30 01:13 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/25431706265.shtml)
+- 2026-06-30 01:24 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/96080353.shtml)
+- 2026-06-30 01:08 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/840306587.shtml)

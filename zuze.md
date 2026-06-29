@@ -1,47 +1,51 @@
-# 以媒报道称：以军评估与伊朗战事或持续数日
+# 中国外贸信托变更股权获批 中化资本100%控股
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月08日 20:58 来源：央视新闻 责任编辑：【王祎】
+6月18日金融一线消息，北京金融监管局发布关于中国对外经济贸易信托有限公司变更股权及调整股权结构的批复，同意中化资本有限公司受让中化集团财务有限责任公司持有的中国对外经济贸易信托有限公司2.74%股权。受让后，中化资本有限公司合计持股比例为100%。 责任编辑：王馨茹
 
 ## 正文
 
-发布时间：2026年06月08日 20:58 来源：央视新闻 责任编辑：【王祎】
+6月18日金融一线消息，北京金融监管局发布关于中国对外经济贸易信托有限公司变更股权及调整股权结构的批复，同意中化资本有限公司受让中化集团财务有限责任公司持有的中国对外经济贸易信托有限公司2.74%股权。
+
+受让后，中化资本有限公司合计持股比例为100%。
+
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 01:23 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 01:18 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 01:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 01:05 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 01:25 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 01:25 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 01:18 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 01:11 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 01:01 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 01:08 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 01:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 01:08 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 01:01 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 01:05 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 01:28 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 01:09 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 01:10 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 01:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 01:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 01:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 01:07 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 01:18 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 01:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 01:26 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 01:13 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 01:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 01:11 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 01:17 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 01:34 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/567804343.shtml)
-- 2026-06-30 01:29 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/39326887162.shtml)
-- 2026-06-30 01:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/9840941582.shtml)
-- 2026-06-30 01:23 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/372600152.shtml)
-- 2026-06-30 01:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/95690.shtml)
-- 2026-06-30 01:15 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/43313051.shtml)
-- 2026-06-30 01:27 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/61058769089.shtml)
-- 2026-06-30 01:01 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/613312.shtml)
-- 2026-06-30 01:18 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/97205301527.shtml)
-- 2026-06-30 01:25 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/6012517.shtml)
-- 2026-06-30 01:13 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/231219111964.shtml)
-- 2026-06-30 01:24 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/24838267738.shtml)
-- 2026-06-30 01:19 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/60198.shtml)
-- 2026-06-30 01:03 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/4158388124.shtml)
-- 2026-06-30 01:12 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/47152.shtml)
+- 2026-06-30 01:22 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/4311193.shtml)
+- 2026-06-30 01:31 - [斗破苍穹](https://www.blog.minike.top/Article/details/1869118.shtml)
+- 2026-06-30 01:30 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/37698817.shtml)
+- 2026-06-30 01:32 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/833473002937.shtml)
+- 2026-06-30 01:31 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/14877529598.shtml)
+- 2026-06-30 01:23 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/811103.shtml)
+- 2026-06-30 01:08 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/654957351.shtml)
+- 2026-06-30 01:26 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/7929749564.shtml)
+- 2026-06-30 01:28 - [绘画区你赢了](https://www.share.minike.top/Article/details/95868263.shtml)
+- 2026-06-30 01:25 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/496292306.shtml)
+- 2026-06-30 01:35 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/439051.shtml)
+- 2026-06-30 01:34 - [送你一朵小红花](http://www.share.minike.top/Article/details/38617602.shtml)
+- 2026-06-30 01:32 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/4503240007.shtml)
+- 2026-06-30 01:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/07589.shtml)
+- 2026-06-30 01:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/37443580.shtml)

@@ -1,60 +1,57 @@
-# PCB和MLCC两大板块霸屏涨幅榜：关注这两个方向补涨空间大的品种
+# 厦门“一张床”免费住宿护航大学生求职就业
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财富投资网 摘要：半导体再度狂飙，PCB和MLCC两大板块领涨！关注这两个方向的低位补涨空间大的品种！近年来在PCB和MLCC这两大产业链的布局已经成型的海宁皮城（002344），具备一定重估空间。随着PCB和MLCC这两大板块相关品种再度上演股价涨停潮，操作上应更多关注这两个方向中那些股价处于低位、
+中新网厦门6月18日电 (吴冠标)2026年第二季度“央媒话厦门”采访团17日走进厦门市湖里区围里公寓，了解该市以大学生“一张床”免费住宿保障“筑巢引凤”的成效。 近年来，针对高校毕业生来厦不同阶段居住难题，厦门构建求职“一张床”、就业“一间屋”、安家“一套房”阶梯式全链条住房保障体系，为稳就业、引青年、聚人才提供支撑。 据介绍，厦门2024年推出首批围里公寓“一张床”房源，将
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网厦门6月18日电 (吴冠标)2026年第二季度“央媒话厦门”采访团17日走进厦门市湖里区围里公寓，了解该市以大学生“一张床”免费住宿保障“筑巢引凤”的成效。
 
-来源：财富投资网 摘要：半导体再度狂飙，PCB和MLCC两大板块领涨！
+近年来，针对高校毕业生来厦不同阶段居住难题，厦门构建求职“一张床”、就业“一间屋”、安家“一套房”阶梯式全链条住房保障体系，为稳就业、引青年、聚人才提供支撑。
 
-关注这两个方向的低位补涨空间大的品种！
+据介绍，厦门2024年推出首批围里公寓“一张床”房源，将求职和见习实习期间的高校大学生纳入保障体系，提供免费住宿，解决他们的过渡性居住需求。
 
-近年来在PCB和MLCC这两大产业链的布局已经成型的海宁皮城（002344），具备一定重估空间。
+目前，“一张床”免费住宿政策已在湖里区、集美区、海沧区等地布局6个居住点，惠及大学生1.4万余人次。
 
-随着PCB和MLCC这两大板块相关品种再度上演股价涨停潮，操作上应更多关注这两个方向中那些股价处于低位、补涨空间大的品种。
+端午节临近，围里公寓里节日氛围浓厚，桌上粽子飘香，各类活动有序开展。
 
-公开资料显示，近年来在PCB和MLCC这两大产业链的布局已经成型的海宁皮城（002344），具备相当大的重估空间！
+大学生们有的参加技能培训课，有的参与互动游戏，有的动手制作香囊，在求职奔波之余也能感受到节日暖意。
 
-根据公开资料显示，海宁皮城（002344）的子公司浙江康代智能科技有限公司是PCB自动光学检测（AOI）这个领域的龙头企业，与全球前20大PCB和IC载板厂商中的多家建立了合作关系；同时，海宁皮城（002344）的子公司派和科技作为MLCC产线核心上游设备商，掌握MLCC上游高端核心叠层和共烧技术，派和科技的MLCC高精度点胶封装系统是MLCC制造后段工序中的关键自动化装备。
+走进围里公寓房间，床具、储物柜、桌椅、空调、电热水壶等设施一应俱全，可直接“拎包入住”。
 
-PCB和MLCC两大板块领涨，相关品种再度上演股价涨停潮：关注这两个方向中那些股价处于低位、补涨空间大的品种。
+公共区域还设置了早餐点、咖啡休息区、公共洗衣房、健身房、招聘对接室等功能空间，全方位便利大学生的生活与求职。
 
 ## 相关推荐
 
-- 2026-06-30 01:14 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 01:21 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 01:22 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 01:29 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-30 01:00 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 01:14 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 01:22 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 01:23 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 01:13 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 01:29 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 01:20 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 01:10 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 01:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 01:20 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 01:35 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 01:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 01:07 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 01:21 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 01:29 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 01:27 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 01:12 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 01:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 01:20 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 01:16 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 01:08 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:23 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/58210.shtml)
-- 2026-06-30 01:10 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/39766847081.shtml)
-- 2026-06-30 01:24 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/70820716.shtml)
-- 2026-06-30 01:21 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/47636.shtml)
-- 2026-06-30 01:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/6778412.shtml)
-- 2026-06-30 01:09 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/9899787026.shtml)
-- 2026-06-30 01:26 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/778175.shtml)
-- 2026-06-30 01:12 - [85花告别古偶](http://www.share.minike.top/Article/details/04003599452.shtml)
-- 2026-06-30 01:04 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/69560654.shtml)
-- 2026-06-30 01:02 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/36814.shtml)
-- 2026-06-30 01:19 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/23621406598.shtml)
-- 2026-06-30 01:02 - [勇敢的心第二部](http://www.share.minike.top/Article/details/922564236.shtml)
-- 2026-06-30 01:27 - [美股](https://www.share.minike.top/Article/details/53903887.shtml)
-- 2026-06-30 01:03 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/13119196006.shtml)
-- 2026-06-30 01:13 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/93995365680.shtml)
+- 2026-06-30 01:12 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/447360.shtml)
+- 2026-06-30 01:10 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/32648.shtml)
+- 2026-06-30 01:09 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/81097.shtml)
+- 2026-06-30 01:35 - [明星大侦探第一季](http://www.share.minike.top/Article/details/231021025.shtml)
+- 2026-06-30 01:22 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/043767.shtml)
+- 2026-06-30 01:20 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/12462544.shtml)
+- 2026-06-30 01:13 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/81669028.shtml)
+- 2026-06-30 01:21 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/45154957.shtml)
+- 2026-06-30 01:11 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/137031963.shtml)
+- 2026-06-30 01:10 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/3563369.shtml)
+- 2026-06-30 01:06 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/62911647.shtml)
+- 2026-06-30 01:19 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/921296212918.shtml)
+- 2026-06-30 01:06 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/5900043.shtml)
+- 2026-06-30 01:12 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/2554773.shtml)
+- 2026-06-30 01:21 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/95297.shtml)

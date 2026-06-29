@@ -1,60 +1,49 @@
-# 主发起行持股比例提升 村镇银行股权重构助推改革化险
+# 田耕获批出任中诚信托董事、董事长
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-本报记者 李蕴奇 近期，多家村镇银行的股东获准向主发起行转让股份，主发起行持有村镇银行的股权比例持续提升。此举是村镇银行减量提质工作的重要环节，能够有效压实主发起行的管理责任。多种模式的村镇银行改革不断推进，既有助于出清风险，又能促进农村金融服务升级。 村镇银行股权集中度提升 近期，北京金融监管局批复同意了北京平谷新华村镇银行变更股权的请示，安徽马鞍山农村商业银行将受让北京伏远
+6月18日金融一线消息，北京金融监管局发布关于田耕中诚信托有限责任公司董事、董事长任职资格的批复，核准田耕中诚信托有限责任公司董事、董事长的任职资格。 责任编辑：王馨茹
 
 ## 正文
 
-本报记者 李蕴奇 近期，多家村镇银行的股东获准向主发起行转让股份，主发起行持有村镇银行的股权比例持续提升。
+6月18日金融一线消息，北京金融监管局发布关于田耕中诚信托有限责任公司董事、董事长任职资格的批复，核准田耕中诚信托有限责任公司董事、董事长的任职资格。
 
-此举是村镇银行减量提质工作的重要环节，能够有效压实主发起行的管理责任。
-
-多种模式的村镇银行改革不断推进，既有助于出清风险，又能促进农村金融服务升级。
-
-村镇银行股权集中度提升 近期，北京金融监管局批复同意了北京平谷新华村镇银行变更股权的请示，安徽马鞍山农村商业银行将受让北京伏远商贸有限公司、北京东方兴业建筑装饰工程有限公司、北京顺达环宇商贸有限公司持有的北京平谷新华村镇银行2200万股股份。
-
-受让后，安徽马鞍山农村商业银行合计持有北京平谷新华村镇银行13200万股股份，持股比例为66%。
-
-多地村镇银行股权变动也在同步进行。
-
-6月2日，浙江金融监管局批复同意浙江德清农村商业银行受让杭州千岛湖平山建筑工程有限公司持有的浙江定海德商村镇银行480万股股份。
-
-受让后，浙江德清农村商业银行合计持有浙江定海德商村镇银行12540万股股份，持股比例为95%。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 01:19 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 01:23 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 01:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 01:18 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 01:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 01:06 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 01:20 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 01:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 01:21 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 01:08 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 01:02 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 01:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 01:09 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 01:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 01:30 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 01:28 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 01:07 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 01:27 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 01:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 01:16 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 01:16 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 01:13 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 01:30 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 01:29 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 01:27 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 01:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 01:31 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 01:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 01:06 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/766406174.shtml)
-- 2026-06-30 01:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/56822855805.shtml)
-- 2026-06-30 01:06 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/0041583039.shtml)
-- 2026-06-30 01:11 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/527736800034.shtml)
-- 2026-06-30 01:16 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/223657.shtml)
-- 2026-06-30 01:22 - [一生一世](http://www.share.kurohicncr.top/Article/details/42779129795.shtml)
-- 2026-06-30 01:00 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/105260.shtml)
-- 2026-06-30 01:25 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/9680395.shtml)
-- 2026-06-30 01:01 - [蔚来车主罚站](https://www.share.minike.top/Article/details/25232.shtml)
-- 2026-06-30 01:06 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/6752104.shtml)
-- 2026-06-30 01:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/663917280308.shtml)
-- 2026-06-30 01:26 - [明星大侦探第一季](https://www.share.minike.top/Article/details/241565712658.shtml)
-- 2026-06-30 01:19 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/488830.shtml)
-- 2026-06-30 01:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/50188637.shtml)
-- 2026-06-30 01:18 - [一见倾心](https://www.blog.minike.top/Article/details/74385442.shtml)
+- 2026-06-30 01:22 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/27824.shtml)
+- 2026-06-30 01:09 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/96612201.shtml)
+- 2026-06-30 01:15 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/7846241.shtml)
+- 2026-06-30 01:14 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/19575218.shtml)
+- 2026-06-30 01:29 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/099476.shtml)
+- 2026-06-30 01:33 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/00673.shtml)
+- 2026-06-30 01:20 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/69715977167.shtml)
+- 2026-06-30 01:21 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/697255823.shtml)
+- 2026-06-30 01:23 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/157678.shtml)
+- 2026-06-30 01:21 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/7892838528.shtml)
+- 2026-06-30 01:28 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/514339031.shtml)
+- 2026-06-30 01:29 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/3377834.shtml)
+- 2026-06-30 01:16 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/47767911866.shtml)
+- 2026-06-30 01:23 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/157659092.shtml)
+- 2026-06-30 01:35 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/18526.shtml)

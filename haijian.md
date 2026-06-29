@@ -1,59 +1,57 @@
-# 体育联通世界，美国高校青年畅谈中美友谊
+# 江西750余年前南宋粽子引参观热潮
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:03 UTC+8
 
 ## 摘要
 
-中新网上海6月9日电(记者 缪璐)6月8日，由中国民间组织国际交流促进会、上海市社会组织国际交流促进会(以下简称“沪促会”)主办，上海体育大学承办的“体育联通世界”美国哥伦比亚大学中国行主题交流活动在上海举行。 参加交流的美国哥伦比亚大学中国行代表团一行20人，国籍涵盖美国、澳大利亚、巴西、德国、哥伦比亚、韩国、加拿大、捷克、印度、印度尼西亚、法国等10余个国家。代表团于5月2
+中新社江西德安6月17日电 (记者 吴鹏泉)端午将至，粽叶飘香。在江西省九江市德安县博物馆，一对距今750余年的南宋粽子，连日来吸引众多海内外游客慕名前来参观。 这对菱角形古粽长约6厘米、宽约3厘米，外皮为芦苇叶，以苎麻线捆扎，包制手法与现代相近，现封存于透明展柜对外展出。1988年，这对粽子出土于德安县宝塔乡南宋周氏墓。墓主周氏葬于咸淳十年(公元1274年)。 “古粽出土时形
 
 ## 正文
 
-中新网上海6月9日电(记者 缪璐)6月8日，由中国民间组织国际交流促进会、上海市社会组织国际交流促进会(以下简称“沪促会”)主办，上海体育大学承办的“体育联通世界”美国哥伦比亚大学中国行主题交流活动在上海举行。
+中新社江西德安6月17日电 (记者 吴鹏泉)端午将至，粽叶飘香。
 
-参加交流的美国哥伦比亚大学中国行代表团一行20人，国籍涵盖美国、澳大利亚、巴西、德国、哥伦比亚、韩国、加拿大、捷克、印度、印度尼西亚、法国等10余个国家。
+在江西省九江市德安县博物馆，一对距今750余年的南宋粽子，连日来吸引众多海内外游客慕名前来参观。
 
-代表团于5月28日至6月10日访华，其中6月7日至10日到访上海。
+这对菱角形古粽长约6厘米、宽约3厘米，外皮为芦苇叶，以苎麻线捆扎，包制手法与现代相近，现封存于透明展柜对外展出。
 
-这趟中国之行行程满满，代表团先后走访北京、重庆、南京、上海4座城市。
+1988年，这对粽子出土于德安县宝塔乡南宋周氏墓。
 
-不少成员是第一次来中国，大家纷纷表示：“这是一趟大开眼界的旅程。
+墓主周氏葬于咸淳十年(公元1274年)。
 
-”以前不了解的中国历史，现在知道了；以前没见过的炫酷基础设施，现在亲眼看到了。
+“古粽出土时形制完好，是典型的三角粽样式。
 
-他们表示，以后还会再来中国，也要推荐朋友们来玩，“还要尝遍中国各种美食”。
+”德安县博物馆馆长陶沁敏接受记者采访时表示，这对古粽实证了南宋江南地区端午食粽的民俗传统。
 
-6月8日在上海体育大学举办的活动现场，代表团成员沉浸式体验乒乓球和武术。
+每逢端午时节，大批游客纷至沓来。
 
 ## 相关推荐
 
-- 2026-06-30 01:19 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 01:11 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 01:29 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 01:09 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 01:26 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-30 01:02 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 01:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 01:24 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 01:11 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 01:25 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 01:17 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 01:19 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 01:00 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 01:13 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 01:12 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 01:06 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 01:15 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 01:15 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 01:10 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 01:13 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 01:29 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 01:22 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 01:09 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 01:10 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/215096437875.shtml)
-- 2026-06-30 01:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/94027544872.shtml)
-- 2026-06-30 01:19 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/918815628.shtml)
-- 2026-06-30 01:10 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/47384.shtml)
-- 2026-06-30 01:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/26870.shtml)
-- 2026-06-30 01:18 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/31132142041.shtml)
-- 2026-06-30 01:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/6961966.shtml)
-- 2026-06-30 01:29 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/804678068225.shtml)
-- 2026-06-30 01:15 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/58298102686.shtml)
-- 2026-06-30 01:25 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/301532076203.shtml)
-- 2026-06-30 01:07 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/705019.shtml)
-- 2026-06-30 01:06 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/103353520.shtml)
-- 2026-06-30 01:04 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/382854377426.shtml)
-- 2026-06-30 01:18 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/257155.shtml)
-- 2026-06-30 01:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/2279126.shtml)
+- 2026-06-30 01:18 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/857453713.shtml)
+- 2026-06-30 01:17 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/2274817.shtml)
+- 2026-06-30 01:26 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/171338.shtml)
+- 2026-06-30 01:11 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/633643882127.shtml)
+- 2026-06-30 01:33 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/96793345.shtml)
+- 2026-06-30 01:35 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/2776404543.shtml)
+- 2026-06-30 01:20 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/006655897.shtml)
+- 2026-06-30 01:27 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/8137466742.shtml)
+- 2026-06-30 01:18 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/73976434.shtml)
+- 2026-06-30 01:25 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/580759425922.shtml)
+- 2026-06-30 01:23 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/84921077540.shtml)
+- 2026-06-30 01:18 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/74568813.shtml)
+- 2026-06-30 01:13 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/6949469878.shtml)
+- 2026-06-30 01:24 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/227268998904.shtml)
+- 2026-06-30 01:11 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/943120.shtml)

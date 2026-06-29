@@ -1,47 +1,58 @@
-# 韩国综合股价指数大幅收低8.3% 创自3月4日以来最大单日跌幅
+# 富国银行年中展望：黄金牛市未完！年底看5500、2027年看6000
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-韩股综合指数三连跌，芯片股回落。韩国综合股价指数（KOSPI） 大幅收低8.29%，报7484.41点，创自3月4日以来最大单日跌幅，责任编辑：王永生
+文章来源：金十数据 富国银行（Wells Fargo）在最新年中展望中，将黄金定位为当前最具确定性的投资主线之一，并明确判断这一轮上涨并非短期周期驱动，而是由更深层次结构性因素支撑。 该行在周二上调金价预期，预计到今年年底，黄金价格将达到每盎司5300至5500美元区间；进一步看，到2027年底，价格有望升至5800至6000美元。策略团队认为，这一上行趋势尚未结束。 尽管长期
 
 ## 正文
 
-韩股综合指数三连跌，芯片股回落。
+文章来源：金十数据 富国银行（Wells Fargo）在最新年中展望中，将黄金定位为当前最具确定性的投资主线之一，并明确判断这一轮上涨并非短期周期驱动，而是由更深层次结构性因素支撑。
 
-韩国综合股价指数（KOSPI） 大幅收低8.29%，报7484.41点，创自3月4日以来最大单日跌幅，责任编辑：王永生
+该行在周二上调金价预期，预计到今年年底，黄金价格将达到每盎司5300至5500美元区间；进一步看，到2027年底，价格有望升至5800至6000美元。
+
+策略团队认为，这一上行趋势尚未结束。
+
+尽管长期判断偏向乐观，短期波动风险依然存在。
+
+全球股票与实物资产策略主管萨米尔·萨马纳（Sameer Samana）在年中展望网络研讨会上提到，金价仍有可能跌破每盎司4000美元，但这并不改变整体上行逻辑。
+
+他强调，当前价位依然为投资者提供了布局机会。
+
+富国银行将通胀、财政状况以及地缘政治列为支撑黄金的三大核心变量。
+
+该行认为，这些因素不会在短期内消退，因此将持续为金价提供支撑直至2027年。
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 01:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 01:01 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 01:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 01:27 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 01:13 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 01:29 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 01:20 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 01:20 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 01:01 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 01:15 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 01:27 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 01:03 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 01:35 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 01:08 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 01:07 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 01:10 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 01:07 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 01:33 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 01:14 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 01:33 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 01:08 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 01:18 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 01:16 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 01:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:22 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/0717980257.shtml)
-- 2026-06-30 01:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/95291013.shtml)
-- 2026-06-30 01:20 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/602985551759.shtml)
-- 2026-06-30 01:19 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/03174.shtml)
-- 2026-06-30 01:23 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/5915085373.shtml)
-- 2026-06-30 01:00 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/5588018752.shtml)
-- 2026-06-30 01:23 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/837756396425.shtml)
-- 2026-06-30 01:00 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/08672.shtml)
-- 2026-06-30 01:14 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/92160130.shtml)
-- 2026-06-30 01:23 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/7729281.shtml)
-- 2026-06-30 01:18 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/10909806.shtml)
-- 2026-06-30 01:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/43127086852.shtml)
-- 2026-06-30 01:03 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/254607.shtml)
-- 2026-06-30 01:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/708314208232.shtml)
-- 2026-06-30 01:07 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/8195401.shtml)
+- 2026-06-30 01:11 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/213928399696.shtml)
+- 2026-06-30 01:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/9563870.shtml)
+- 2026-06-30 01:13 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/15858927924.shtml)
+- 2026-06-30 01:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/4917424336.shtml)
+- 2026-06-30 01:26 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/052668337110.shtml)
+- 2026-06-30 01:30 - [逃狱兄弟](http://www.blog.minike.top/Article/details/7043688.shtml)
+- 2026-06-30 01:20 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/41506658298.shtml)
+- 2026-06-30 01:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/48035.shtml)
+- 2026-06-30 01:20 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/24131044.shtml)
+- 2026-06-30 01:09 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/3142598.shtml)
+- 2026-06-30 01:19 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/747741702.shtml)
+- 2026-06-30 01:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/7276906.shtml)
+- 2026-06-30 01:19 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/29025.shtml)
+- 2026-06-30 01:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/61967551.shtml)
+- 2026-06-30 01:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/9785118.shtml)

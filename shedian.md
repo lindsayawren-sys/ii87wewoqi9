@@ -1,47 +1,45 @@
-# 一架美军直升机在霍尔木兹海峡附近坠毁
+# 智能自控：2026年6月25日召开2026年第一次临时股东会
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:03 UTC+8
 
 ## 摘要
 
-据美国方面消息，一架美国陆军“阿帕奇”武装直升机8日在霍尔木兹海峡附近坠毁，两名机组人员安全获救。
+证券日报网讯 6月17日，智能自控发布公告称，公司将于2026年6月25日召开2026年第一次临时股东会。（文章来源：证券日报）
 
 ## 正文
 
-据美国方面消息，一架美国陆军“阿帕奇”武装直升机8日在霍尔木兹海峡附近坠毁，两名机组人员安全获救。
+证券日报网讯 6月17日，智能自控发布公告称，公司将于2026年6月25日召开2026年第一次临时股东会。
+
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 01:20 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 01:29 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 01:11 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 01:01 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 01:18 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 01:24 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 01:00 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 01:19 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 01:16 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 01:13 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 01:11 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 01:10 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 01:09 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 01:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 01:14 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 01:07 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 01:31 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 01:35 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 01:30 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 01:11 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 01:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 01:25 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 01:10 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 01:33 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 01:30 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/13584.shtml)
-- 2026-06-30 01:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/304556690.shtml)
-- 2026-06-30 01:10 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/5121004.shtml)
-- 2026-06-30 01:14 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/404420936.shtml)
-- 2026-06-30 01:11 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/7725662990.shtml)
-- 2026-06-30 01:03 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/8130224877.shtml)
-- 2026-06-30 01:25 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/266486.shtml)
-- 2026-06-30 01:00 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/436437599092.shtml)
-- 2026-06-30 01:12 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/40606398563.shtml)
-- 2026-06-30 01:21 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/18310.shtml)
-- 2026-06-30 01:30 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/860279079548.shtml)
-- 2026-06-30 01:23 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/55325.shtml)
-- 2026-06-30 01:24 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/22742126492.shtml)
-- 2026-06-30 01:24 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/25984330036.shtml)
-- 2026-06-30 01:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/4944775.shtml)
+- 2026-06-30 01:24 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/3493314.shtml)
+- 2026-06-30 01:10 - [千香](http://www.blog.kurohicncr.top/Article/details/106488.shtml)
+- 2026-06-30 01:17 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/17128158.shtml)
+- 2026-06-30 01:35 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/9797391532.shtml)
+- 2026-06-30 01:25 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/76667040809.shtml)
+- 2026-06-30 01:14 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/9695718.shtml)
+- 2026-06-30 01:12 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/78497926.shtml)
+- 2026-06-30 01:07 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/599841.shtml)
+- 2026-06-30 01:19 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/24652.shtml)
+- 2026-06-30 01:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/13167105009.shtml)
+- 2026-06-30 01:19 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/52369076.shtml)
+- 2026-06-30 01:19 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/0564991.shtml)
+- 2026-06-30 01:33 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/7475395.shtml)
+- 2026-06-30 01:23 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/91898.shtml)
+- 2026-06-30 01:31 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/191955842686.shtml)

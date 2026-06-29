@@ -1,51 +1,57 @@
-# 开盘：国内期货主力合约涨跌多涨少 焦煤跌超6%
+# 中国国家发改委：第三批625亿元消费品以旧换新资金6月底前下达
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-早盘开盘，国内期货主力合约跌多涨少，焦煤跌超6%，焦炭跌超3%，燃料油、烧碱、低硫燃料油（LU）跌超2%，尿素跌近2%，钯、沪银、液化石油气（LPG）跌超1%。涨幅方面，集运欧线、PTA、淀粉、PX0>对二甲苯涨超1%，瓶片、玉米涨近1%。 责任编辑：朱赫楠
+中新社北京6月18日电 (记者 刘文文)中国国家发改委新闻发言人李超18日在北京表示，6月底前将下达今年全部2000亿元(人民币，下同)设备更新项目清单和第三批625亿元消费品以旧换新资金。 李超在当日举行的国家发改委月度新闻发布会上表示，今年的“两新”(大规模设备更新和消费品以旧换新)政策在支持范围、补贴标准、实施机制等方面都进行了深入优化。近半年来，各部门各地方共同推动政策
 
 ## 正文
 
-早盘开盘，国内期货主力合约跌多涨少，焦煤跌超6%，焦炭跌超3%，燃料油、烧碱、低硫燃料油（LU）跌超2%，尿素跌近2%，钯、沪银、液化石油气（LPG）跌超1%。
+中新社北京6月18日电 (记者 刘文文)中国国家发改委新闻发言人李超18日在北京表示，6月底前将下达今年全部2000亿元(人民币，下同)设备更新项目清单和第三批625亿元消费品以旧换新资金。
 
-涨幅方面，集运欧线、PTA、淀粉、PX0>对二甲苯涨超1%，瓶片、玉米涨近1%。
+李超在当日举行的国家发改委月度新闻发布会上表示，今年的“两新”(大规模设备更新和消费品以旧换新)政策在支持范围、补贴标准、实施机制等方面都进行了深入优化。
 
-责任编辑：朱赫楠
+近半年来，各部门各地方共同推动政策持续发力，效果主要体现在三个方面。
+
+一是带动效应强。
+
+目前已分两批下达设备更新资金1851亿元，共支持11000多个项目，总投资超过8400亿元。
+
+二是惠及人群广。
+
+1至5月，已下达今年前两批消费品以旧换新资金1250亿元，累计带动相关商品销售额超过8200亿元，惠及超过1.1亿人次。
+
+三是民生成效实。
 
 ## 相关推荐
 
-- 2026-06-30 01:05 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 01:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 01:10 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 01:22 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 01:20 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 01:23 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 01:28 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 01:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 01:23 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 01:28 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 01:15 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 01:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 01:01 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 01:27 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 01:25 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 01:12 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 01:23 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 01:06 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 01:11 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 01:26 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 01:08 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 01:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 01:16 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 01:19 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 01:33 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 01:21 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/1962325.shtml)
-- 2026-06-30 01:01 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/145257436.shtml)
-- 2026-06-30 01:24 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/835112.shtml)
-- 2026-06-30 01:19 - [时光音乐会](https://www.share.minike.top/Article/details/871995164.shtml)
-- 2026-06-30 01:01 - [毒液2](https://www.share.kurohicncr.top/Article/details/831764179.shtml)
-- 2026-06-30 01:26 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/08616.shtml)
-- 2026-06-30 01:26 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/8477308.shtml)
-- 2026-06-30 01:10 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/535334489.shtml)
-- 2026-06-30 01:00 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/56488.shtml)
-- 2026-06-30 01:20 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/20396722.shtml)
-- 2026-06-30 01:20 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/469916645379.shtml)
-- 2026-06-30 01:19 - [速度与激情9](https://www.blog.minike.top/Article/details/674075665.shtml)
-- 2026-06-30 01:26 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/699864.shtml)
-- 2026-06-30 01:13 - [蔚来车主罚站](http://www.share.minike.top/Article/details/51080196636.shtml)
-- 2026-06-30 01:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/96083.shtml)
+- 2026-06-30 01:20 - [流金岁月](https://www.share.minike.top/Article/details/5211784.shtml)
+- 2026-06-30 01:34 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/0884433.shtml)
+- 2026-06-30 01:33 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/073703281.shtml)
+- 2026-06-30 01:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/7000724.shtml)
+- 2026-06-30 01:33 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/225138665528.shtml)
+- 2026-06-30 01:16 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/3424028740.shtml)
+- 2026-06-30 01:26 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/280698527306.shtml)
+- 2026-06-30 01:18 - [沉睡花园](https://www.share.minike.top/Article/details/837086599665.shtml)
+- 2026-06-30 01:22 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/433955452791.shtml)
+- 2026-06-30 01:23 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/8517529029.shtml)
+- 2026-06-30 01:23 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/34680653.shtml)
+- 2026-06-30 01:10 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/6672698189.shtml)
+- 2026-06-30 01:28 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/9658654472.shtml)
+- 2026-06-30 01:10 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/28467899671.shtml)
+- 2026-06-30 01:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/818582262440.shtml)

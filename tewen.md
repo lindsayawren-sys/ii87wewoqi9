@@ -1,56 +1,61 @@
-# SpaceX影响力加深，xAI更换Grok训练负责人
+# 第三十二届北京图博会“中国作家馆”开馆
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-一份内部备忘录显示，埃隆·马斯克旗下的人工智能公司xAI已从SpaceX的星链卫星互联网部门调入一名高管，由其负责Grok聊天机器人的模型训练团队。 新上任的是杰克·加拉贝迪安，他自2021年起在SpaceX担任星链项目工程师。加入xAI后，他将接管“人类数据团队”，该团队由数百名各领域专家组成，负责从金融到科学等专业方向对Grok进行训练。此前负责该团队的是年轻工程师迭戈·帕
+中新网北京6月17日电 (记者 高凯)17日，第三十二届北京国际图书博览会(BIBF)开幕当日，由中国作家协会主办，中国作家出版集团、作家出版社承办的中国作家馆在北京国家会议中心开馆。这是中国作家馆在北京图博会的第16次亮相。 中国作协党组成员、副主席吴义勤在致辞中表示，今年是中国工农红军长征胜利90周年。中国作家馆特别聚焦这一伟大主题，展出精品力作，以文学的方式回望历史、致敬
 
 ## 正文
 
-一份内部备忘录显示，埃隆·马斯克旗下的人工智能公司xAI已从SpaceX的星链卫星互联网部门调入一名高管，由其负责Grok聊天机器人的模型训练团队。
+中新网北京6月17日电 (记者 高凯)17日，第三十二届北京国际图书博览会(BIBF)开幕当日，由中国作家协会主办，中国作家出版集团、作家出版社承办的中国作家馆在北京国家会议中心开馆。
 
-新上任的是杰克·加拉贝迪安，他自2021年起在SpaceX担任星链项目工程师。
+这是中国作家馆在北京图博会的第16次亮相。
 
-加入xAI后，他将接管“人类数据团队”，该团队由数百名各领域专家组成，负责从金融到科学等专业方向对Grok进行训练。
+中国作协党组成员、副主席吴义勤在致辞中表示，今年是中国工农红军长征胜利90周年。
 
-此前负责该团队的是年轻工程师迭戈·帕西尼，他于2023年高中毕业后因赢得xAI黑客马拉松而受到马斯克赏识。
+中国作家馆特别聚焦这一伟大主题，展出精品力作，以文学的方式回望历史、致敬先辈，凝聚民族复兴的强大精神力量。
 
-此次人事调整是xAI近期管理层大换血的最新一环。
+作为本届图博会中国作家馆的首场活动，《新时代文学研究丛书》新书发布会在开馆仪式后举行。
 
-自2026年2月SpaceX完成对xAI的收购以来，马斯克正将其商业帝国的核心人马全面注入这家AI公司。
+活动由中国作协新时代文学研究中心、中国作家出版集团、作家出版社共同主办。
 
-此前，SpaceX公司总裁格温妮·肖特韦尔已开始督导xAI运营，前星链高管迈克尔·尼科尔斯出任xAI总裁，SpaceX首席财务官布雷特·约翰森则同时督管xAI的财务运营。
+中国作协副主席阎晶明表示，《新时代文学研究丛书》由中国作家协会新时代文学研究中心联合高校研究力量共同编撰，是作协系统与学术界协同合作的成果，体现了文学研究领域的重要整合与创新，具有重要意义。
 
-xAI正面临严峻挑战。
+丛书既有整体性的理论思潮现象研究，又有不同体裁的文学作品研究，宏观与微观相结合，系统梳理了新时代文学创作与研究的突出成就，见证了中国文学从高原迈向高峰的实践进程。
 
 ## 相关推荐
 
-- 2026-06-30 01:25 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 01:17 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 01:17 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 01:14 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 01:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 01:29 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 01:02 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 01:15 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 01:19 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 01:16 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 01:16 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 01:20 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 01:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 01:10 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 01:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 01:07 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 01:30 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 01:12 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 01:26 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 01:28 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 01:08 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 01:34 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 01:06 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 01:19 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 01:34 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:21 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/8058963.shtml)
-- 2026-06-30 01:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/210689.shtml)
-- 2026-06-30 01:02 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/212346.shtml)
-- 2026-06-30 01:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/214392.shtml)
-- 2026-06-30 01:03 - [沙丘](http://www.blog.minike.top/Article/details/43645078465.shtml)
-- 2026-06-30 01:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/27567805.shtml)
-- 2026-06-30 01:04 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/919046895035.shtml)
-- 2026-06-30 01:22 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/784735.shtml)
-- 2026-06-30 01:17 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/2372709829.shtml)
-- 2026-06-30 01:17 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/47639.shtml)
-- 2026-06-30 01:07 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/25823440.shtml)
-- 2026-06-30 01:05 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/448975296514.shtml)
-- 2026-06-30 01:22 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/32985347.shtml)
-- 2026-06-30 01:01 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/9493465980.shtml)
-- 2026-06-30 01:09 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/24499.shtml)
+- 2026-06-30 01:14 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/514940.shtml)
+- 2026-06-30 01:12 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/352526.shtml)
+- 2026-06-30 01:14 - [美人鱼](https://www.share.minike.top/Article/details/47935404.shtml)
+- 2026-06-30 01:31 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/12418756.shtml)
+- 2026-06-30 01:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/087552309.shtml)
+- 2026-06-30 01:24 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/4281086.shtml)
+- 2026-06-30 01:25 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/5830640.shtml)
+- 2026-06-30 01:06 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/74706281.shtml)
+- 2026-06-30 01:11 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/19238286708.shtml)
+- 2026-06-30 01:34 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/83117.shtml)
+- 2026-06-30 01:15 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/2869886061.shtml)
+- 2026-06-30 01:19 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/81571.shtml)
+- 2026-06-30 01:12 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/638478019265.shtml)
+- 2026-06-30 01:17 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/49863297860.shtml)
+- 2026-06-30 01:06 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/9767871500.shtml)

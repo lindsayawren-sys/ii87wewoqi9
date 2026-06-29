@@ -1,58 +1,53 @@
-# 演绎双向救赎 《莫离》今日开播
+# 工行行长刘珺：现代经济是一种交互经济、参与经济、融合经济
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新网北京6月9日电(记者 高凯)古装情感剧《莫离》，于今日正式在央视电视剧频道(CCTV-8)播出。 《莫离》讲述了离山归来的叶璃(白鹿 饰)与背负家族旧案的定王墨修尧(丞磊 饰)，因一场太后赐婚命运交织。二人从最初的心存距离、谨慎相处，到渐生信任、倾心相付，最终联手铲除朝中奸佞，查清离山真相，洗清沉冤，迎来人生新篇章。 该剧总导演林玉芬在此次创作中着力将故事的冷峻底色与人心
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 边万莉 6月17日-18日，陆家嘴论坛在上海召开。在“全体大会五：健全科技金融全生命周期服务体系，服务实体经济高质量发展”上，中国工商银行行长刘珺表示，“现代的经济不是简简单单的产品经济，也不是简简单单的注意力经济。注意力经济可能是数字经济时代的序章，但现代经济更准确地说，是一种交互经济、参与经
 
 ## 正文
 
-中新网北京6月9日电(记者 高凯)古装情感剧《莫离》，于今日正式在央视电视剧频道(CCTV-8)播出。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 边万莉 6月17日-18日，陆家嘴论坛在上海召开。
 
-《莫离》讲述了离山归来的叶璃(白鹿 饰)与背负家族旧案的定王墨修尧(丞磊 饰)，因一场太后赐婚命运交织。
+在“全体大会五：健全科技金融全生命周期服务体系，服务实体经济高质量发展”上，中国工商银行行长刘珺表示，“现代的经济不是简简单单的产品经济，也不是简简单单的注意力经济。
 
-二人从最初的心存距离、谨慎相处，到渐生信任、倾心相付，最终联手铲除朝中奸佞，查清离山真相，洗清沉冤，迎来人生新篇章。
+注意力经济可能是数字经济时代的序章，但现代经济更准确地说，是一种交互经济、参与经济、融合经济。
 
-该剧总导演林玉芬在此次创作中着力将故事的冷峻底色与人心的脉脉柔情揉进每一帧画面，力求呈现人物内心的情感层次。
+” 他表示，吸引注意力只是前置环节，关键是要实现交互和融合，让客户成为金融活动的有机组成部分，从而为客户提供更加适配的服务，形成价值创造的共同体。
 
-《莫离》塑造了一对各有破碎、双向治愈的灵魂伴侣：叶璃带着离山八年的孤冷与秘密归来，墨修尧背负家族沉冤蛰伏多年，二人不是单方面的救赎，而是在相互揣度与并肩作战中，成为彼此的依靠。
+客户在金融消费的过程中，也是新的金融创新的生产者。
 
-《莫离》近日发布的情感终极预告以镜头语言铺陈叶璃与墨修尧从试探到双向奔赴的情感脉络。
-
-今日释出的“此夜红烛”双人海报，以暖调光影与繁花布景奠定温馨基调。
-
-画面中男女主角一坐一站，呈现出无需言语的熟稔与信赖。
+银行是通过客户的反馈进一步优化调整银行产品，使得客户本身参与了创新金融产品的生产，这是特别重要的新经济的概念。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 01:06 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 01:17 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 01:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 01:23 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 01:10 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 01:08 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 01:00 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 01:26 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 01:28 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 01:25 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 01:14 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 01:10 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 01:34 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 01:25 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 01:24 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 01:11 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 01:09 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 01:26 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 01:09 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 01:19 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 01:06 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 01:20 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/92631.shtml)
-- 2026-06-30 01:26 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/223751.shtml)
-- 2026-06-30 01:07 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/20842290.shtml)
-- 2026-06-30 01:00 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/2747967.shtml)
-- 2026-06-30 01:01 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/81675.shtml)
-- 2026-06-30 01:21 - [东方风云榜直播](http://www.blog.minike.top/Article/details/70171490015.shtml)
-- 2026-06-30 01:11 - [点菜也要教吗](http://www.share.minike.top/Article/details/805964922259.shtml)
-- 2026-06-30 01:26 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/272589030.shtml)
-- 2026-06-30 01:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/2269179055.shtml)
-- 2026-06-30 01:18 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/3335179.shtml)
-- 2026-06-30 01:18 - [东方风云榜直播](https://www.share.minike.top/Article/details/5833830.shtml)
-- 2026-06-30 01:21 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/240124.shtml)
-- 2026-06-30 01:15 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/95242.shtml)
-- 2026-06-30 01:15 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/45781.shtml)
-- 2026-06-30 01:04 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/8268138242.shtml)
+- 2026-06-30 01:15 - [乔家的儿女](https://www.blog.minike.top/Article/details/79769191.shtml)
+- 2026-06-30 01:24 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/12429.shtml)
+- 2026-06-30 01:18 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/854906.shtml)
+- 2026-06-30 01:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/56278162116.shtml)
+- 2026-06-30 01:09 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/16427.shtml)
+- 2026-06-30 01:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/1034857.shtml)
+- 2026-06-30 01:19 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/952790.shtml)
+- 2026-06-30 01:15 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/681610.shtml)
+- 2026-06-30 01:11 - [沉睡花园](https://www.share.minike.top/Article/details/3790582.shtml)
+- 2026-06-30 01:13 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/8453998.shtml)
+- 2026-06-30 01:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/36919658.shtml)
+- 2026-06-30 01:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/4866948.shtml)
+- 2026-06-30 01:20 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/161526.shtml)
+- 2026-06-30 01:10 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/12177426523.shtml)
+- 2026-06-30 01:19 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/12818019009.shtml)

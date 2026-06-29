@@ -1,60 +1,58 @@
-# 田间“数字哨兵”上岗 智能农机护航“三夏”丰收
+# 方星海：可编制覆盖沪深港的“中国指数”，建议香港吸引内地量化机构落户
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-农业农村部小麦机收进度显示，截至昨天17点，全国已收获夏粮小麦2.19亿亩，收获进度已近六成半。安徽麦收基本完成，河南过九成半，江苏过七成，山东过三成半，陕西近三成，河北、山西过一成。 推进雨后麦收作业 跨区调运农机投入抢收 连日降雨过后，山东济南多地小麦进入雨后抢收窗口期。在济南市平阴县，当地组织大型农机下地作业，并安排农技人员深入田间开展机收减损、农机检修等服务，加快小麦收
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：蓝鲸新闻 蓝鲸新闻6月17日讯（记者 胡劼）今日，在2026陆家嘴论坛“全体大会四：沪港金融协同发展赋能高水平金融开放”上，证监会原副主席、中国金融学会副会长方星海表示，新形势下，要继续发挥好香港和上海互相促进的作用，并就沪港进一步合作提出以下建议。 一是建议指数编制公司编制涵盖沪深港三地公司的指数，
 
 ## 正文
 
-农业农村部小麦机收进度显示，截至昨天17点，全国已收获夏粮小麦2.19亿亩，收获进度已近六成半。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-安徽麦收基本完成，河南过九成半，江苏过七成，山东过三成半，陕西近三成，河北、山西过一成。
+来源：蓝鲸新闻 蓝鲸新闻6月17日讯（记者 胡劼）今日，在2026陆家嘴论坛“全体大会四：沪港金融协同发展赋能高水平金融开放”上，证监会原副主席、中国金融学会副会长方星海表示，新形势下，要继续发挥好香港和上海互相促进的作用，并就沪港进一步合作提出以下建议。
 
-推进雨后麦收作业 跨区调运农机投入抢收 连日降雨过后，山东济南多地小麦进入雨后抢收窗口期。
+一是建议指数编制公司编制涵盖沪深港三地公司的指数，包括行业指数等，便于国外机构覆盖中国上市公司。
 
-在济南市平阴县，当地组织大型农机下地作业，并安排农技人员深入田间开展机收减损、农机检修等服务，加快小麦收获进度。
+其指出，当前中国科技创新能力越来越强，特别是AI、半导体等领域很有吸引力，若推出覆盖沪深港三地的科技行业指数，也会吸引大量国际资金进入。
 
-在济南市平阴县玫瑰镇大孙庄村，连片麦田满目金黄。
+二是建议香港金融管理部门吸引内地量化机构在港展业。
 
-趁着雨后地面墒情适宜、天气转晴，种粮大户孙远迎驾驶着履带式收割机在田间穿梭，抢抓晴好天气，开展收割作业。
+方星海表示，香港一直致力于吸引国际机构投资者落户。
 
-除了大孙庄村的地块外，孙远迎还在丁口村承包了400余亩的麦田，眼下，也同步开启集中抢收。
+“近年来，内地有一批成长很好、管理能力很强的量化投资机构，他们的技术水平提升非常快，竞争能力并不弱于国际上现在最好的量化投资机构。
 
-玫瑰镇大孙庄村种粮大户 孙远迎：现在承包的土地有1000亩，由于去年受天气影响，播种比较晚，预计每亩产量能达到1200斤左右。
+”他表示，这些机构非常愿意在香港更多地开展业务，这样可以在香港市场交易，也可以通过“两通”交易内地的产品。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 01:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 01:00 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 01:29 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 01:08 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 01:15 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 01:29 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 01:11 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 01:28 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 01:04 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 01:21 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 01:26 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 01:09 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 01:02 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 01:17 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 01:25 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 01:34 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 01:11 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 01:22 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 01:20 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 01:35 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 01:08 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 01:33 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 01:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 01:15 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 01:19 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:16 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/609013085712.shtml)
-- 2026-06-30 01:03 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/22000.shtml)
-- 2026-06-30 01:23 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/9480693408.shtml)
-- 2026-06-30 01:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/117714.shtml)
-- 2026-06-30 01:23 - [一见倾心](https://www.share.kurohicncr.top/Article/details/3792372.shtml)
-- 2026-06-30 01:13 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/110391741.shtml)
-- 2026-06-30 01:03 - [天道](http://www.share.minike.top/Article/details/64140880749.shtml)
-- 2026-06-30 01:00 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/3709014.shtml)
-- 2026-06-30 01:19 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/5966896974.shtml)
-- 2026-06-30 01:23 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/7668122012.shtml)
-- 2026-06-30 01:16 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/6871695.shtml)
-- 2026-06-30 01:11 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/054980.shtml)
-- 2026-06-30 01:03 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/293612.shtml)
-- 2026-06-30 01:28 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/014524235.shtml)
-- 2026-06-30 01:01 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/49185.shtml)
+- 2026-06-30 01:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/632769.shtml)
+- 2026-06-30 01:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/956155849.shtml)
+- 2026-06-30 01:12 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/46569624.shtml)
+- 2026-06-30 01:20 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/59987.shtml)
+- 2026-06-30 01:13 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/015489.shtml)
+- 2026-06-30 01:19 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/5660723647.shtml)
+- 2026-06-30 01:06 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/669880417003.shtml)
+- 2026-06-30 01:18 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/5187633842.shtml)
+- 2026-06-30 01:35 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/13549.shtml)
+- 2026-06-30 01:11 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/694773753.shtml)
+- 2026-06-30 01:20 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/506568704.shtml)
+- 2026-06-30 01:07 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/664934.shtml)
+- 2026-06-30 01:14 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/8793692.shtml)
+- 2026-06-30 01:20 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/46430337.shtml)
+- 2026-06-30 01:34 - [千香](https://www.share.kurohicncr.top/Article/details/351239397.shtml)

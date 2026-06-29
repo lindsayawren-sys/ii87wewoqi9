@@ -1,60 +1,42 @@
-# Stellantis因起火风险全球召回逾130万辆Jeep汽车
+# 浙江省消防救援总队党委书记李瑞丰接受审查调查
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:03 UTC+8
 
 ## 摘要
 
-Stellantis公司周二表示，由于存在起火隐患，将在全球范围内召回超过130万辆Jeep SUV和皮卡，并敦促车主在问题解决前将车辆停放在远离建筑物或其他车辆的地方。 此次召回涉及2021年至2025年款的Jeep Wrangler和Jeep Gladiator皮卡，原因是电动液压助力转向泵的线路存在电气连接问题。在极少数情况下，该问题可能导致可燃材料过热，从而引发车辆起火
+中新网6月17日电 据中央纪委国家监委驻应急管理部纪检监察组、浙江省纪委监委消息：浙江省消防救援总队党委书记、政治委员李瑞丰涉嫌严重违纪违法，目前正接受中央纪委国家监委驻应急管理部纪检监察组纪律审查和浙江省监察委员会监察调查。
 
 ## 正文
 
-Stellantis公司周二表示，由于存在起火隐患，将在全球范围内召回超过130万辆Jeep SUV和皮卡，并敦促车主在问题解决前将车辆停放在远离建筑物或其他车辆的地方。
-
-此次召回涉及2021年至2025年款的Jeep Wrangler和Jeep Gladiator皮卡，原因是电动液压助力转向泵的线路存在电气连接问题。
-
-在极少数情况下，该问题可能导致可燃材料过热，从而引发车辆起火。
-
-Stellantis表示，此次召回涉及美国近108万辆汽车、加拿大10.6万辆、墨西哥2.3万辆以及全球其他市场约12.5万辆汽车。
-
-Stellantis称，此次召回将包括检查并可能维修或更换线束或电动液压助力转向泵。
-
-Stellantis表示，公司正在努力加快解决方案的提供，预计最迟将于7月完成召回修复。
-
-该公司表示，已收到一起与此问题相关的潜在受伤报告，但尚未收到任何碰撞或死亡事故报告。
-
-责任编辑：于健 SF069
+中新网6月17日电 据中央纪委国家监委驻应急管理部纪检监察组、浙江省纪委监委消息：浙江省消防救援总队党委书记、政治委员李瑞丰涉嫌严重违纪违法，目前正接受中央纪委国家监委驻应急管理部纪检监察组纪律审查和浙江省监察委员会监察调查。
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 01:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 01:05 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 01:22 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 01:03 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-30 01:28 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 01:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 01:12 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 01:22 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 01:13 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 01:28 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 01:18 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 01:17 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 01:29 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 01:22 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 01:16 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 01:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 01:08 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 01:12 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 01:32 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 01:18 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 01:11 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 01:16 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 01:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/337046993014.shtml)
-- 2026-06-30 01:01 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/448137144.shtml)
-- 2026-06-30 01:16 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/084588042.shtml)
-- 2026-06-30 01:22 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/541099324.shtml)
-- 2026-06-30 01:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/0515948294.shtml)
-- 2026-06-30 01:09 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/249268792063.shtml)
-- 2026-06-30 01:08 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/5422962862.shtml)
-- 2026-06-30 01:19 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/06122147.shtml)
-- 2026-06-30 01:24 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/055103.shtml)
-- 2026-06-30 01:28 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/724550404.shtml)
-- 2026-06-30 01:20 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/692341091.shtml)
-- 2026-06-30 01:15 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/847223154.shtml)
-- 2026-06-30 01:20 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/1079119.shtml)
-- 2026-06-30 01:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/33032742.shtml)
-- 2026-06-30 01:22 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/845098902860.shtml)
+- 2026-06-30 01:11 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/98644768638.shtml)
+- 2026-06-30 01:23 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/2712532.shtml)
+- 2026-06-30 01:12 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/14979.shtml)
+- 2026-06-30 01:07 - [田曦薇没招了](http://www.share.minike.top/Article/details/87865076.shtml)
+- 2026-06-30 01:09 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/43585.shtml)
+- 2026-06-30 01:33 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/66123130461.shtml)
+- 2026-06-30 01:33 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/0943594983.shtml)
+- 2026-06-30 01:10 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/80209.shtml)
+- 2026-06-30 01:26 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/3281487486.shtml)
+- 2026-06-30 01:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/078797649.shtml)
+- 2026-06-30 01:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/03317126205.shtml)
+- 2026-06-30 01:29 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/8084762525.shtml)
+- 2026-06-30 01:14 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/4488695.shtml)
+- 2026-06-30 01:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/06864448141.shtml)
+- 2026-06-30 01:22 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/506774365.shtml)

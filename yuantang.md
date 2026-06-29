@@ -1,46 +1,61 @@
-# 快讯：现货白银日内跌2%，现报66.49美元/盎司。
+# 证监会支持沪深交易所推出主动ETF！一文详解主动ETF
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-现货白银日内跌2%，现报66.49美元/盎司。 责任编辑：朱赫楠
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，证监会主席吴清在2026陆家嘴论坛表示，支持在沪深交易所推出主动ETF。 主动ETF有何特点？据悉，主动ETF融合了主动管理的专业投研能力与ETF的标准化运作优势，具备持仓透明、交易便捷等特点。目前境内ETF市场总规模近5万亿元，基金公司管理能力、投资者成熟度等均显著提升，为推出主动ETF提供了良好的创新
 
 ## 正文
 
-现货白银日内跌2%，现报66.49美元/盎司。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，证监会主席吴清在2026陆家嘴论坛表示，支持在沪深交易所推出主动ETF。
 
-责任编辑：朱赫楠
+主动ETF有何特点？
+
+据悉，主动ETF融合了主动管理的专业投研能力与ETF的标准化运作优势，具备持仓透明、交易便捷等特点。
+
+目前境内ETF市场总规模近5万亿元，基金公司管理能力、投资者成熟度等均显著提升，为推出主动ETF提供了良好的创新土壤。
+
+从全球市场发展态势来看，主动ETF已成为资产管理行业的重要增长引擎。
+
+截至3月底，全球ETF市场总规模19.9万亿美元，其中被动ETF17.8万亿美元，占比89.4%；主动ETF2.1万亿美元，占比10.6%。
+
+近十年，主动ETF规模年均复合增长率高达44%，显著高于全量ETF的19%。
+
+越来越多的专业机构开始布局主动ETF，并将其纳入资产配置体系，主动ETF的投资价值与市场认可度越来越高。
 
 ## 相关推荐
 
-- 2026-06-30 01:13 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 01:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 01:27 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 01:26 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 01:07 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 01:09 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 01:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 01:29 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 01:18 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 01:10 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 01:24 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 01:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 01:35 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 01:23 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 01:09 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 01:07 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 01:17 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 01:34 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 01:25 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 01:35 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 01:24 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 01:17 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 01:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 01:34 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 01:22 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 01:28 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 01:20 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/0641948.shtml)
-- 2026-06-30 01:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/417575543.shtml)
-- 2026-06-30 01:06 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/79244.shtml)
-- 2026-06-30 01:10 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/055958.shtml)
-- 2026-06-30 01:26 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/142718942.shtml)
-- 2026-06-30 01:09 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/585193.shtml)
-- 2026-06-30 01:06 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/61476803883.shtml)
-- 2026-06-30 01:26 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/7223503844.shtml)
-- 2026-06-30 01:13 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/17670742811.shtml)
-- 2026-06-30 01:01 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/762022.shtml)
-- 2026-06-30 01:20 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/765037.shtml)
-- 2026-06-30 01:10 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/48345721489.shtml)
-- 2026-06-30 01:18 - [逃狱兄弟](http://www.share.minike.top/Article/details/642596.shtml)
-- 2026-06-30 01:15 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/0239288.shtml)
-- 2026-06-30 01:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/30134129066.shtml)
+- 2026-06-30 01:35 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/0094309429.shtml)
+- 2026-06-30 01:25 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/85244487.shtml)
+- 2026-06-30 01:28 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/5795567.shtml)
+- 2026-06-30 01:27 - [刘念回应](http://www.share.kurohicncr.top/Article/details/16011165849.shtml)
+- 2026-06-30 01:18 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/386855.shtml)
+- 2026-06-30 01:14 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/76577728.shtml)
+- 2026-06-30 01:11 - [金牌调解](https://www.share.kurohicncr.top/Article/details/91200.shtml)
+- 2026-06-30 01:18 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/50017.shtml)
+- 2026-06-30 01:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/220141091.shtml)
+- 2026-06-30 01:27 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/3689099.shtml)
+- 2026-06-30 01:10 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/7763254.shtml)
+- 2026-06-30 01:34 - [女心理师](https://www.share.minike.top/Article/details/2394026953.shtml)
+- 2026-06-30 01:09 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/52729090483.shtml)
+- 2026-06-30 01:26 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/23286.shtml)
+- 2026-06-30 01:14 - [急先锋](https://www.share.minike.top/Article/details/355712817299.shtml)

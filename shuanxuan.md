@@ -1,59 +1,57 @@
-# 遇持续强降雨 长途旅行如何做好全程攻略
+# 突发立案！*ST广糖000911因信息披露违法违规被立案，符合条件股民可登记索赔
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-近日有网友反映，6月6日，长春至昆明的Z328次旅客列车在出发7小时后，在第四站山海关站折返。记者从国铁沈阳局了解到，事发原因是列车行至山海关站，接到天气预警，列车即将途经的沪昆铁路大龙至贵定区段普降暴雨，为主动避险，确保旅客列车运行安全，调度部门根据实际情况向列车下发折返指令。车上旅客未乘区段全额退票，一部分在山海关自行下车换乘其他交通工具，另一部分跟随列车原路返回始发地。
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月12日，广西农投糖业集团股份有限公司（以下简称“广农糖业”或“公司”）发布公告，公司因涉嫌信息披露违法违规被立案调查，此前公司发布会计差错更正公告。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2024年4月3日-2026年4月28日期间买入且有持仓，无论在2026年4月29日及之后是
 
 ## 正文
 
-近日有网友反映，6月6日，长春至昆明的Z328次旅客列车在出发7小时后，在第四站山海关站折返。
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月12日，广西农投糖业集团股份有限公司（以下简称“广农糖业”或“公司”）发布公告，公司因涉嫌信息披露违法违规被立案调查，此前公司发布会计差错更正公告。
 
-记者从国铁沈阳局了解到，事发原因是列车行至山海关站，接到天气预警，列车即将途经的沪昆铁路大龙至贵定区段普降暴雨，为主动避险，确保旅客列车运行安全，调度部门根据实际情况向列车下发折返指令。
+上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2024年4月3日-2026年4月28日期间买入且有持仓，无论在2026年4月29日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
 
-车上旅客未乘区段全额退票，一部分在山海关自行下车换乘其他交通工具，另一部分跟随列车原路返回始发地。
+（赵敬国律师专栏） 回顾本案，2026年4月29日，公司发布《关于前期会计差错更正及追溯调整的公告》，载明公司会计差错更正及追溯调整涉及2023 年至2025 年度已披露的一季度报告、半年度报告、三季度报告和年度报告的合并财务报表。
 
-遇持续强降雨 长途旅行如何做好全程攻略 近期多地持续强降雨天气，给长途旅行带来诸多不便，有计划乘坐长途列车出行的旅客该如何做好全程攻略，以确保顺利出行呢？
+公司于2026 年6月12日收到中国证券监督管理委员会（以下简称中国证监会）下发的《立案告知书》（编号：证监立案字 0272026007 号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
 
-首先要查询列车运行图，以Z328次列车为例，从时长上来说，全程运行时间49小时，相当于两天两夜，旅客购票时要查询列车运行全程的沿线天气预报。
+信本股民索赔团队提醒，*ST广糖（维权）被证监会立案调查，因此受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
 
-此外，列车运行线路也要提前关注，从长春到昆明的这趟列车在湖南、贵州两省途经山区线路较多，雨季行车线路受降雨影响较大。
+索赔条件： *ST广糖：于2024年4月3日-2026年4月28日期间买入且有持仓，无论在2026年4月29日及之后是否卖出。
 
-国铁成都局六盘水工电段桥路检查工区工长 王鑫：综合雨量数据和现场情况，来研判是直接通行、迂回，还是直接折返或终止运行，这就是我们说的“源头避险”。
+（具体赔付范围由法院确定）（*ST广糖维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
 
-铁路沿线降雨量达到一定值后，可能会引发道床冲空等问题，危及行车安全，遇极端天气铁路优先保障安全，临时调整属于避险刚需。
+赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 01:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 01:19 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 01:16 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 01:25 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 01:11 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 01:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 01:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 01:26 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 01:18 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 01:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 01:15 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 01:15 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 01:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 01:13 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 01:08 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 01:15 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 01:19 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 01:33 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 01:31 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 01:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 01:13 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 01:35 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 01:28 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/7344773.shtml)
-- 2026-06-30 01:29 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/706260.shtml)
-- 2026-06-30 01:29 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/062545.shtml)
-- 2026-06-30 01:28 - [美股](http://www.blog.minike.top/Article/details/989343.shtml)
-- 2026-06-30 01:03 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/66716817.shtml)
-- 2026-06-30 01:06 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/8387825701.shtml)
-- 2026-06-30 01:14 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/778831251605.shtml)
-- 2026-06-30 01:04 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/95074.shtml)
-- 2026-06-30 01:04 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/2173880.shtml)
-- 2026-06-30 01:27 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/44323153.shtml)
-- 2026-06-30 01:27 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/50456.shtml)
-- 2026-06-30 01:24 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/1345362007.shtml)
-- 2026-06-30 01:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/6835171281.shtml)
-- 2026-06-30 01:17 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/660443044.shtml)
-- 2026-06-30 01:04 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/65015045196.shtml)
+- 2026-06-30 01:14 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/1957015.shtml)
+- 2026-06-30 01:08 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/5202758.shtml)
+- 2026-06-30 01:17 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/698991890.shtml)
+- 2026-06-30 01:13 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/73448863.shtml)
+- 2026-06-30 01:31 - [《贺子珍》](https://www.blog.minike.top/Article/details/529080702.shtml)
+- 2026-06-30 01:08 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/94461160945.shtml)
+- 2026-06-30 01:21 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/82806167490.shtml)
+- 2026-06-30 01:09 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/7170592389.shtml)
+- 2026-06-30 01:20 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/6666972.shtml)
+- 2026-06-30 01:30 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/13900.shtml)
+- 2026-06-30 01:23 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/552074.shtml)
+- 2026-06-30 01:28 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/8676915.shtml)
+- 2026-06-30 01:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/027358327379.shtml)
+- 2026-06-30 01:15 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/84553.shtml)
+- 2026-06-30 01:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/696526653109.shtml)

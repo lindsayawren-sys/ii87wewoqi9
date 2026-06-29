@@ -1,60 +1,56 @@
-# 龙江森工林区推出“林海消夏”主题系列文旅产品
+# 如何打造以中国为核心的高效互联互通亚洲资本市场生态圈？港交所陈翊庭给出答案
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨6月9日电 (记者 王琳)为持续扩大“大森林旅游”品牌影响力，龙江森工林区于9日在哈尔滨召开2026年夏季旅游产品推介会，围绕龙江森工林区重点景区、旅游线路、优质文旅资源进行推介。 以“龙江有约·林海消夏”为主题，重点对森工林区15处景区、4条直通车短线、6条精品长途旅游线路以及部分地方优质文旅资源进行推介，产品涵盖康养度假、自然研学、亲子休闲、山林探秘等多元业态。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛召开 ，香港交易所集团行政总裁陈翊庭出席“全体大会三：建立健全功能完善的资本市场”并发言。 她表示，在地缘政治不确定性持续上升的背景下，全球投资者必须思考如何分散投资、如何不把所有鸡蛋放在一个篮子里。她认为，最值得讨论的是如何抓住这个机会，打造一个以中国为核心的高效互联互通亚洲资本市场生
 
 ## 正文
 
-中新网哈尔滨6月9日电 (记者 王琳)为持续扩大“大森林旅游”品牌影响力，龙江森工林区于9日在哈尔滨召开2026年夏季旅游产品推介会，围绕龙江森工林区重点景区、旅游线路、优质文旅资源进行推介。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛召开 ，香港交易所集团行政总裁陈翊庭出席“全体大会三：建立健全功能完善的资本市场”并发言。
 
-以“龙江有约·林海消夏”为主题，重点对森工林区15处景区、4条直通车短线、6条精品长途旅游线路以及部分地方优质文旅资源进行推介，产品涵盖康养度假、自然研学、亲子休闲、山林探秘等多元业态。
+她表示，在地缘政治不确定性持续上升的背景下，全球投资者必须思考如何分散投资、如何不把所有鸡蛋放在一个篮子里。
 
-在景区推介环节，龙江森工林区重点景区分为东南部、北部、东北部、“哈平亚雪凤”、兴城林业疗养院五个板块进行推介。
+她认为，最值得讨论的是如何抓住这个机会，打造一个以中国为核心的高效互联互通亚洲资本市场生态圈。
 
-在线路推介与政策讲解环节，森工国际旅行社、龙旅集团联合对2026年夏季旅游产品政策进行说明。
+陈翊庭指出，资本市场最基本的功能是服务两个群体——投资者和发行人。
 
-在签约环节，森工森林旅游集团分别与国内7大航空公司、黑龙江老年大学、黑龙江开放大学签署战略合作协议，推动“机+景”及“银发经济”合作；森工国际旅行社与龙旅集团(江山国旅)、哈铁国旅、24小时国旅等签署合作协议，推动客群走进森工景区。
+可以说包括融资、投资、资源配置、价格发现、风险分散都是为了这两个群体服务。
 
-在节目展演环节，深度融入森林文化、红色文化、民俗文化的情景剧演出精彩纷呈。
+她从香港交易所的角度来分享，我们怎么服务好这两个资本市场针对的服务群体，如何让这两个群体更有效地把握亚洲特别是中国的机遇。
 
-活动现场还布设了各景区的标志性建筑模型，设置打卡区、洽谈区及卡丁赛车、梅花鹿幼崽等互动区域，进一步增强互动体验性。
+服务发行人：提升上市制度包容性与定价效率 陈翊庭表示，资本市场服务的第一个群体是发行人（上市公司），他们最关心融资和价格发现。
 
-(完)
+港交所一直在做的，是在保障市场质量的前提下，提升上市制度的包容性和适应性。
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 01:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 01:19 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 01:13 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 01:28 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 01:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 01:00 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 01:20 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 01:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 01:16 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 01:10 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 01:09 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 01:23 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 01:26 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 01:23 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 01:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 01:35 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 01:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 01:09 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 01:28 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 01:32 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 01:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 01:09 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 01:09 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/585769271.shtml)
-- 2026-06-30 01:19 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/2846883.shtml)
-- 2026-06-30 01:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/67578.shtml)
-- 2026-06-30 01:03 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/76148701.shtml)
-- 2026-06-30 01:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/836246.shtml)
-- 2026-06-30 01:18 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/870036165.shtml)
-- 2026-06-30 01:19 - [我和我的家乡](http://www.share.minike.top/Article/details/31282585177.shtml)
-- 2026-06-30 01:18 - [毒液2](http://www.blog.minike.top/Article/details/09218.shtml)
-- 2026-06-30 01:05 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/95697988.shtml)
-- 2026-06-30 01:27 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/95235348.shtml)
-- 2026-06-30 01:14 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/9837882.shtml)
-- 2026-06-30 01:07 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/617177.shtml)
-- 2026-06-30 01:03 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/336664666575.shtml)
-- 2026-06-30 01:19 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/053877.shtml)
-- 2026-06-30 01:29 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/589134.shtml)
+- 2026-06-30 01:20 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/80561096569.shtml)
+- 2026-06-30 01:34 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/85775101.shtml)
+- 2026-06-30 01:34 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/1943300.shtml)
+- 2026-06-30 01:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/3435281.shtml)
+- 2026-06-30 01:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/966401032.shtml)
+- 2026-06-30 01:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/1748321698.shtml)
+- 2026-06-30 01:13 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/29052571.shtml)
+- 2026-06-30 01:15 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/89362057079.shtml)
+- 2026-06-30 01:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/590413609895.shtml)
+- 2026-06-30 01:33 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.kurohicncr.top/Article/details/53245753.shtml)
+- 2026-06-30 01:27 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/1491806.shtml)
+- 2026-06-30 01:29 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/6932739541.shtml)
+- 2026-06-30 01:20 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/76524.shtml)
+- 2026-06-30 01:35 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/4046618580.shtml)
+- 2026-06-30 01:24 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/7864966.shtml)

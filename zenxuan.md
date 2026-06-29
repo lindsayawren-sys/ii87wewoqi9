@@ -1,60 +1,56 @@
-# ACI Sky™ Workbench获房利美和房地美认证，全面支持UAD 3.6评估规范
+# 中国进出口银行协助巴克莱银行等发行熊猫债
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-First American Mortgage Solutions公司近日宣布，其ACI Sky™ Workbench平台已获得房利美和房地美的正式认证，确认该平台符合统一评估数据集3.6规范的技术要求。这一认证意味着评估师可立即采用该平台准备新一代评估报告，并确保满足即将于2026年11月2日生效的强制合规要求。 UAD 3.6是房利美和房地美自2018年起联合推进的评估数据
+来源：进出口银行 近日，中国进出口银行作为联席主承销商，分别协助巴克莱银行有限公司（以下简称巴克莱银行）和某境外上市企业在中国银行间债券市场发行熊猫债。 协助巴克莱银行再次发行熊猫债 6月17日，中国进出口银行协助巴克莱银行成功发行50亿元熊猫债。其中，三年期25亿元，五年期（含赎回选择权）25亿元，票面利率分别为1.73%、1.98%。 作为首家发行熊猫债的英国发行人，巴克莱
 
 ## 正文
 
-First American Mortgage Solutions公司近日宣布，其ACI Sky™ Workbench平台已获得房利美和房地美的正式认证，确认该平台符合统一评估数据集3.6规范的技术要求。
+来源：进出口银行 近日，中国进出口银行作为联席主承销商，分别协助巴克莱银行有限公司（以下简称巴克莱银行）和某境外上市企业在中国银行间债券市场发行熊猫债。
 
-这一认证意味着评估师可立即采用该平台准备新一代评估报告，并确保满足即将于2026年11月2日生效的强制合规要求。
+协助巴克莱银行再次发行熊猫债 6月17日，中国进出口银行协助巴克莱银行成功发行50亿元熊猫债。
 
-UAD 3.6是房利美和房地美自2018年起联合推进的评估数据标准改革的最新成果，旨在以更加结构化、数据优先的报告框架取代传统的静态评估表格，从而提升抵押贷款生态系统中评估数据的一致性、准确性和可用性。
+其中，三年期25亿元，五年期（含赎回选择权）25亿元，票面利率分别为1.73%、1.98%。
 
-新规要求评估数据须符合MISMO v3.6行业标准，并引入全新的统一住宅评估报告格式，适用于所有房产类型和估值方法。
+作为首家发行熊猫债的英国发行人，巴克莱银行第三度亮相熊猫债市场，发行规模再创新高，为更多国际发行人深耕中国债券市场提供了有益范本，也将进一步推动境内外资本市场互联互通和中英经贸合作发展。
 
-First American贷款部门总裁表示：“UAD 3.6从根本上改变了评估数据的采集、结构和交付方式。
+协助某境外上市企业首次发行科创熊猫债 6月16日，中国进出口银行协助某专注于新能源汽车研发制造的境外上市企业首次发行科创熊猫债券，规模20亿元人民币，期限3年，票面利率1.75%。
 
-ACI Sky Workbench在开发过程中采纳了数百名评估师的反馈意见，打造了一个覆盖从现场勘查到报告提交全流程的一体化云平台。
+中国进出口银行持续深化总分联动，统筹运用信贷、债券承销等一揽子金融工具，为企业优化融资结构，增强自主创新能力，加速整车研发和国际化进程提供坚实支撑。
 
-获得房利美和房地美的认证，使评估师能够放心地立即采用Workbench，并使用为新一代评估报告量身定制的平台，同时完全符合UAD 3.6规范。
+作为中国银行间市场首批参与熊猫债承销和投资的机构之一，长期以来，中国进出口银行为熊猫债市场发展增势赋能作出了积极贡献。
 
-” 通过此次认证，ACI Sky Workbench已正式列入房利美的集成供应商名单和房地美的软件提供商名单。
+未来，中国进出口银行将继续积极响应国际发行人的多元化融资需求，为推进金融高水平对外开放注入更加坚实的金融动力。
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 01:20 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 01:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 01:23 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 01:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 01:00 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 01:08 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 01:27 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 01:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 01:03 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 01:07 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 01:11 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 01:29 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 01:06 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 01:11 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 01:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 01:19 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 01:17 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 01:18 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 01:18 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 01:11 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 01:15 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 01:22 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 01:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/020277723.shtml)
-- 2026-06-30 01:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/38527500832.shtml)
-- 2026-06-30 01:01 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/7487195.shtml)
-- 2026-06-30 01:04 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/00906504.shtml)
-- 2026-06-30 01:07 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/29569340525.shtml)
-- 2026-06-30 01:26 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/221689332893.shtml)
-- 2026-06-30 01:17 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/6656804.shtml)
-- 2026-06-30 01:28 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/079358166799.shtml)
-- 2026-06-30 01:29 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/088941.shtml)
-- 2026-06-30 01:02 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/703184.shtml)
-- 2026-06-30 01:03 - [急先锋](http://www.share.kurohicncr.top/Article/details/90847805091.shtml)
-- 2026-06-30 01:04 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/96575860644.shtml)
-- 2026-06-30 01:09 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/52731.shtml)
-- 2026-06-30 01:13 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/39721.shtml)
-- 2026-06-30 01:15 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/346228.shtml)
+- 2026-06-30 01:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/90222024455.shtml)
+- 2026-06-30 01:28 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/148607.shtml)
+- 2026-06-30 01:34 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/448231781560.shtml)
+- 2026-06-30 01:10 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/018350334.shtml)
+- 2026-06-30 01:14 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/406104886.shtml)
+- 2026-06-30 01:10 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/735169.shtml)
+- 2026-06-30 01:21 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/96005680.shtml)
+- 2026-06-30 01:33 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/75655.shtml)
+- 2026-06-30 01:10 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/81465879.shtml)
+- 2026-06-30 01:14 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/06913245515.shtml)
+- 2026-06-30 01:10 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/4900601.shtml)
+- 2026-06-30 01:21 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/8597762.shtml)
+- 2026-06-30 01:16 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/30183664.shtml)
+- 2026-06-30 01:14 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/12624619.shtml)
+- 2026-06-30 01:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/87273157012.shtml)

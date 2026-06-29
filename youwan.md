@@ -1,53 +1,60 @@
-# 广东省邮政管理局原副局长周建军被“双开”
+# 全国政协召开双周协商座谈会 围绕充分挖掘体育产业促进消费潜力协商议政 王沪宁主持
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:02 UTC+8
 
 ## 摘要
 
-中新网6月9日电 据中央纪委国家监委驻交通运输部纪检监察组、广东省纪委监委消息：日前，中央纪委国家监委驻交通运输部纪检监察组、广东省珠海市监察委员会对广东省邮政管理局原党组成员、副局长周建军严重违纪违法问题进行了立案审查调查。经查，周建军违反中央八项规定精神，违规接受宴请；违反组织原则，在组织函询时不如实说明问题；廉洁底线失守，违规收受礼品、礼金，利用职务上的便利非法占有公共财
+全国政协召开双周协商座谈会 围绕充分挖掘体育产业促进消费潜力协商议政 王沪宁主持 本报讯(记者 吕巍)十四届全国政协第四十五次双周协商座谈会6月17日在京召开，中共中央政治局常委、全国政协主席王沪宁主持会议。他表示，中共十八大以来，在以习近平同志为核心的中共中央坚强领导下，体育强国、健康中国建设加快推进，全民健身国家战略深入实施，群众体育和竞技体育蓬勃发展，体育产业快速壮大，我
 
 ## 正文
 
-中新网6月9日电 据中央纪委国家监委驻交通运输部纪检监察组、广东省纪委监委消息：日前，中央纪委国家监委驻交通运输部纪检监察组、广东省珠海市监察委员会对广东省邮政管理局原党组成员、副局长周建军严重违纪违法问题进行了立案审查调查。
+全国政协召开双周协商座谈会 围绕充分挖掘体育产业促进消费潜力协商议政 王沪宁主持 本报讯(记者 吕巍)十四届全国政协第四十五次双周协商座谈会6月17日在京召开，中共中央政治局常委、全国政协主席王沪宁主持会议。
 
-经查，周建军违反中央八项规定精神，违规接受宴请；违反组织原则，在组织函询时不如实说明问题；廉洁底线失守，违规收受礼品、礼金，利用职务上的便利非法占有公共财物；侵害群众利益，违规向群众摊派费用；利用职务的便利，为他人在工程承揽、快递运营等方面谋利，并非法收受巨额财物。
+他表示，中共十八大以来，在以习近平同志为核心的中共中央坚强领导下，体育强国、健康中国建设加快推进，全民健身国家战略深入实施，群众体育和竞技体育蓬勃发展，体育产业快速壮大，我国体育事业取得重大成就。
 
-周建军严重违反党的组织纪律、廉洁纪律、群众纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+要深入学习贯彻习近平总书记关于发展体育产业、促进体育消费的重要论述，落实“十五五”规划相关部署要求，把准履职建言的方向和重点。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经国家邮政局党组研究，决定给予其开除党籍、开除公职处分；收缴其违纪违法所得；经广东省珠海市监察委员会研究，决定将周建军涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+王沪宁表示，人民政协要围绕推动体育产业高质量发展，聚焦把握“十五五”时期体育需求趋势特征、顺应体育产业升级要求丰富产品服务供给、契合居民消费升级特点激发体育消费需求、完善政策机制优化体育消费环境等重点问题深入开展研究，通过视察考察调研、社情民意信息、提案等反映情况、提出建议。
+
+政协委员中的专家学者、企业家、运动员等，要立足本职岗位和专业优势，为充分挖掘体育产业促进消费潜力发挥更大作用。
+
+全国政协委员周进强、刘尚希、丁亚琳、丁世忠、张小冬、卢敏、鲍明晓、张虹、王勇峰、刘征、祝林芳发言。
+
+大家认为，要认真落实“十五五”时期体育强国建设目标任务，大力发展赛事经济，构建多项目多层次赛事体系，推动体育产业高质量发展。
+
+要推进体育服务业扩能提质和制造业创新升级，深化商旅文体健融合发展，丰富体育产品和服务的差异化、个性化供给，推进中国体育品牌建设，激发体育消费活力。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 01:11 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 01:25 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 01:01 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 01:13 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 01:28 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 01:23 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 01:00 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 01:02 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 01:16 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 01:06 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 01:18 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 01:22 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 01:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 01:10 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 01:29 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 01:13 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 01:06 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 01:18 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 01:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 01:10 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 01:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 01:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 01:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 01:18 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 01:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 01:10 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 01:23 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 01:30 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:00 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/420420.shtml)
-- 2026-06-30 01:27 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/5123839.shtml)
-- 2026-06-30 01:15 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/041109.shtml)
-- 2026-06-30 01:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/072643221519.shtml)
-- 2026-06-30 01:29 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/583070.shtml)
-- 2026-06-30 01:26 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/13633303.shtml)
-- 2026-06-30 01:15 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/642194.shtml)
-- 2026-06-30 01:09 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/519059281254.shtml)
-- 2026-06-30 01:22 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/44202519209.shtml)
-- 2026-06-30 01:23 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/23745446578.shtml)
-- 2026-06-30 01:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/308606423.shtml)
-- 2026-06-30 01:19 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/82623.shtml)
-- 2026-06-30 01:29 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/84385.shtml)
-- 2026-06-30 01:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/062753610.shtml)
-- 2026-06-30 01:01 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/141064.shtml)
+- 2026-06-30 01:27 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/663035167.shtml)
+- 2026-06-30 01:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/27971397.shtml)
+- 2026-06-30 01:31 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/832326.shtml)
+- 2026-06-30 01:28 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/68758076225.shtml)
+- 2026-06-30 01:14 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/750180.shtml)
+- 2026-06-30 01:32 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/050219634946.shtml)
+- 2026-06-30 01:12 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/19195886.shtml)
+- 2026-06-30 01:34 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/71068302880.shtml)
+- 2026-06-30 01:35 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/413414.shtml)
+- 2026-06-30 01:35 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/68947598624.shtml)
+- 2026-06-30 01:31 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/1526375.shtml)
+- 2026-06-30 01:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/183934723.shtml)
+- 2026-06-30 01:14 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/730225.shtml)
+- 2026-06-30 01:24 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/2421999409.shtml)
+- 2026-06-30 01:23 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/054875997529.shtml)

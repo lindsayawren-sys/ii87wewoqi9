@@ -1,59 +1,44 @@
-# 光模块再踩刹车，高“光”创业板人工智能ETF（159363）三连跌，情绪“错杀”还是行情见顶？机构火线解读
+# 首艘平陆运河智能船舶示范船建成试航
 
-> 更新时间：2026-06-30 01:30:02 UTC+8
+> 更新时间：2026-06-30 01:36:03 UTC+8
 
 ## 摘要
 
-周一（6月8日），A股震荡调整，创业板指跌超3%，全市场近4600只个股下跌。盘面上，光模块CPO等算力硬件调整，天孚通信下跌7%日线三连跌，新易盛下跌3%，中际旭创下跌2%。 热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）大幅低开后跌幅收窄，最终场内收跌3.97%，日线三连跌，单日成交17.69亿元。 今日AI板块下跌，或
+发布时间：2026年06月18日 09:09 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-周一（6月8日），A股震荡调整，创业板指跌超3%，全市场近4600只个股下跌。
-
-盘面上，光模块CPO等算力硬件调整，天孚通信下跌7%日线三连跌，新易盛下跌3%，中际旭创下跌2%。
-
-热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）大幅低开后跌幅收窄，最终场内收跌3.97%，日线三连跌，单日成交17.69亿元。
-
-今日AI板块下跌，或主要受外部情绪扰动影响，但基本面核心逻辑未变，调整更多是结构性、情绪性的短期反应。
-
-从直接原因看，消息面上，6月5日美股上演“黑色星期五”，科技股普遍调整。
-
-背后有两重触发因素：一是美股AI芯片龙头博通业绩不及预期，二是美国强劲的非农数据推升流动性紧缩预期。
-
-兴业证券对此轮调整的定性认为，本轮调整并非支撑行情的核心逻辑发生变化，更多是情绪层面的扰动，且影响偏结构。
-
-近期的外部扰动并不能改变、反而有望更加强化A股盈利驱动的底层逻辑。
+发布时间：2026年06月18日 09:09 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 01:21 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 01:04 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 01:03 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 01:02 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 01:26 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 01:29 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 01:22 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 01:17 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 01:16 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 01:28 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 01:04 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 01:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 01:16 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 01:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 01:22 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 01:32 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 01:11 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 01:25 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 01:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 01:13 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 01:26 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 01:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 01:31 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 01:25 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:21 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/98472.shtml)
-- 2026-06-30 01:12 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/908904959523.shtml)
-- 2026-06-30 01:04 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/970049345778.shtml)
-- 2026-06-30 01:09 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/0786955.shtml)
-- 2026-06-30 01:14 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/052145.shtml)
-- 2026-06-30 01:09 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/310350926.shtml)
-- 2026-06-30 01:13 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/476665031.shtml)
-- 2026-06-30 01:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/86611751464.shtml)
-- 2026-06-30 01:12 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/157451416.shtml)
-- 2026-06-30 01:15 - [沙丘](http://www.share.kurohicncr.top/Article/details/202929685758.shtml)
-- 2026-06-30 01:28 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/679388121.shtml)
-- 2026-06-30 01:13 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/706195095.shtml)
-- 2026-06-30 01:10 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/210160.shtml)
-- 2026-06-30 01:16 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/6730547.shtml)
-- 2026-06-30 01:16 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/104218.shtml)
+- 2026-06-30 01:32 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/213756.shtml)
+- 2026-06-30 01:06 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/81206.shtml)
+- 2026-06-30 01:30 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/94672817078.shtml)
+- 2026-06-30 01:23 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/729729694.shtml)
+- 2026-06-30 01:20 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/238317.shtml)
+- 2026-06-30 01:29 - [我们的少年时代2](http://www.share.minike.top/Article/details/757766666.shtml)
+- 2026-06-30 01:10 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/094460210.shtml)
+- 2026-06-30 01:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/0613968796.shtml)
+- 2026-06-30 01:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/361923.shtml)
+- 2026-06-30 01:09 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/503874730532.shtml)
+- 2026-06-30 01:10 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/13595015999.shtml)
+- 2026-06-30 01:29 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/935081079358.shtml)
+- 2026-06-30 01:23 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/49021824741.shtml)
+- 2026-06-30 01:20 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/609536430796.shtml)
+- 2026-06-30 01:17 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/85288047284.shtml)
