@@ -1,56 +1,58 @@
-# 如何看待中方叫停Manus并购案？
+# 603169、000909、603363、000892，被证监会立案！
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-广受关注的美国科技巨头Meta收购中国AI公司Manus一事有了最新进展。27日，中方发布信息，外商投资安全审查工作机制办公室（国家发展改革委）依法依规对外资收购Manus项目作出禁止投资决定，要求当事人撤销该收购交易。这一决定合理、合法、必要，既是中国政府履行监管职责的体现，也符合国际社会在战略技术领域加强安全审查的通行做法。 2025年3月，蝴蝶效应公司推出Manus。作为
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】兰石重装（维权）、*ST数源、傲农生物（维权）、欢瑞世纪被证监会立案 中国基金报记者 忆山 4月22日，兰石重装、*ST数源、傲农生物、欢瑞世纪相继发布公告称，因涉嫌信息披露违法违规，公司收到中国证监会下发的《立案告知书》。 兰石重
 
 ## 正文
 
-广受关注的美国科技巨头Meta收购中国AI公司Manus一事有了最新进展。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-27日，中方发布信息，外商投资安全审查工作机制办公室（国家发展改革委）依法依规对外资收购Manus项目作出禁止投资决定，要求当事人撤销该收购交易。
+来源：中国基金报 【导读】兰石重装（维权）、*ST数源、傲农生物（维权）、欢瑞世纪被证监会立案 中国基金报记者 忆山 4月22日，兰石重装、*ST数源、傲农生物、欢瑞世纪相继发布公告称，因涉嫌信息披露违法违规，公司收到中国证监会下发的《立案告知书》。
 
-这一决定合理、合法、必要，既是中国政府履行监管职责的体现，也符合国际社会在战略技术领域加强安全审查的通行做法。
+兰石重装及控股股东涉嫌信披违法违规被立案 兰石重装发布的公告显示，公司及控股股东兰州兰石集团有限公司（以下简称兰石集团）于近日分别收到中国证监会下发的《立案告知书》。
 
-2025年3月，蝴蝶效应公司推出Manus。
+因兰石重装及控股股东兰石集团涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会于2026年4月9日决定对公司与兰石集团立案。
 
-作为全球首个通用AI智能体，Manus凭借一段演示视频一夜爆火，体验码一度被炒至数万元人民币。
+兰石重装表示，截至本公告披露日，公司各项生产经营活动正常，上述事项不会对公司生产经营产生重大影响。
 
-Manus也因此一度被业界视作“第二个DeepSeek”。
+立案调查期间，公司与兰石集团将积极配合中国证监会的调查工作，并严格按照相关法律法规和监管要求及时履行信息披露义务。
 
-短短数月后，Manus将总部迁至新加坡，大幅裁减国内团队，仅保留核心技术人员，彻底停止中国境内服务与运营。
+官网显示，兰石重装始建于1953年，是中国石化装备制造业的先行者，2014年10月在上海证券交易所上市。
 
-去年12月，Meta高调宣布以约20亿美元收购Manus，成为Meta史上第三大并购案。
+公司业务涵盖传统能源化工装备、新能源装备、工业智能装备、高效节能装备、金属新材料的研发、设计、制造、技术服务及EPC工程总承包。
 
 ## 相关推荐
 
-- 2026-06-29 12:07 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:22 - [日本公然宣称为“长期战争”做准备 中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:20 - [金石为开——西安·沈阳名碑拓片特展开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:13 - [铁路文旅创新融合绘就发展新图景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:11 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:28 - [AI赋能“一人公司” 个体创新潜力持续激活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:07 - [中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:00 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:04 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:17 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:09 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:12 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:30 - [百思买任命资深人士为CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:20 - [辽宁海城：梨花成海 粉樱作伴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:30 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:35 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:08 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:31 - [英国石油公司高管将出任OMV首位女性首席执行官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:15 - [“新时代、新品质、新气象：清华大学美术学院新世纪成果展”研讨会举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:14 - [东山精密业绩大增27.67%，利润增速远超预期！靠什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:24 - [摩根士丹利策略师：地缘政治动荡往往创造良好买入机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:19 - [为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](http://www.share.kurohicncr.top/Article/details/496486.shtml)
-- 2026-06-29 12:06 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](http://www.blog.minike.top/Article/details/653155429.shtml)
-- 2026-06-29 12:25 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](http://www.share.minike.top/Article/details/584658191440.shtml)
-- 2026-06-29 12:26 - [银行业首个行业级“数据分类分级”大模型发布](http://www.blog.kurohicncr.top/Article/details/95020035.shtml)
-- 2026-06-29 12:02 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](http://www.share.kurohicncr.top/Article/details/7860964356.shtml)
-- 2026-06-29 12:18 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](http://www.share.kurohicncr.top/Article/details/528232187.shtml)
-- 2026-06-29 12:02 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](http://www.share.kurohicncr.top/Article/details/09758781.shtml)
-- 2026-06-29 12:11 - [新西兰央行行长：已准备好应对持续的价格压力](http://www.share.minike.top/Article/details/453071434.shtml)
-- 2026-06-29 12:09 - [重庆罗斯福图书馆旧址将焕新开放](http://www.blog.kurohicncr.top/Article/details/70139.shtml)
-- 2026-06-29 12:27 - [北京首都机场“五一”假期预计运送旅客超100万人次](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](http://www.blog.minike.top/Article/details/278288477.shtml)
-- 2026-06-29 12:07 - [本科专业再上新，高校专业调整比例首次突破10%](http://www.share.minike.top/Article/details/155055.shtml)
-- 2026-06-29 12:21 - [【理响中国】指尖传新声，理论宣讲有声有色](http://www.blog.minike.top/Article/details/37286.shtml)
+- 2026-06-29 12:31 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](http://www.share.minike.top/Article/details/38331122.shtml)
+- 2026-06-29 12:30 - [亚马逊深化与Anthropic的合作](http://www.share.kurohicncr.top/Article/details/4822113.shtml)
+- 2026-06-29 12:29 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](http://www.blog.kurohicncr.top/Article/details/40172880.shtml)
+- 2026-06-29 12:32 - [莎士比亚经典喜剧《第十二夜》在成都上演](http://www.blog.kurohicncr.top/Article/details/03088503978.shtml)
+- 2026-06-29 12:35 - [汉诺威工博会观察：中国企业加速AI应用落地](http://www.blog.kurohicncr.top/Article/details/1770675.shtml)
+- 2026-06-29 12:34 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.blog.kurohicncr.top/Article/details/35934.shtml)
+- 2026-06-29 12:09 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](http://www.share.kurohicncr.top/Article/details/179509.shtml)
+- 2026-06-29 12:33 - [产业链上话稼穑 同心耕作“希望的田野”](http://www.share.kurohicncr.top/Article/details/02920535413.shtml)
+- 2026-06-29 12:10 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](http://www.share.kurohicncr.top/Article/details/1118105570.shtml)
+- 2026-06-29 12:26 - [亚盛医药-B多项研究入选2026年ASCO](http://www.share.kurohicncr.top/Article/details/743901.shtml)
+- 2026-06-29 12:23 - [四张图看懂蒂姆・库克的非凡职业生涯](http://www.blog.kurohicncr.top/Article/details/564164586814.shtml)
+- 2026-06-29 12:30 - [安峰获批担任马上消费金融副总经理](http://www.share.kurohicncr.top/Article/details/13187851726.shtml)
+- 2026-06-29 12:08 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](http://www.share.minike.top/Article/details/0945258.shtml)
+- 2026-06-29 12:34 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](http://www.share.kurohicncr.top/Article/details/979428346.shtml)
+- 2026-06-29 12:15 - [4月22日“农产品批发价格200指数”与昨天持平](http://www.share.minike.top/Article/details/3121987383.shtml)

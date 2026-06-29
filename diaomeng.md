@@ -1,60 +1,55 @@
-# *ST岩石退市尘埃落定？上海贵酒5月6日收盘后或将“告别”A股舞台
+# 业绩前瞻：SK海力士第一财季业绩料将创纪录
 
-> 更新时间：2026-06-29 12:30:04 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-记者|刘明涛 编辑|叶峰 终究没有奇迹发生！ 随着4月29日一字跌停收盘，*ST岩石（600969）已经连续18个交易日市值低于5亿元，由于其市值无法在接下来两个交易日回到5亿元以上，至此，*ST岩石退市似乎板上钉钉。那么，5月6日收盘后，上海贵酒或将因连续20个交易日市值未达5亿元而“告别”A股舞台（注：最终要以交易所公告为准）。 或面临交易类强制退市 4月29日，*ST岩石
+SK海力士（SK Hynix）定于周四公布第一财季业绩。根据FactSet汇总的平均预期，这家韩国存储芯片制造商截至3月份财季的净利润预计将同比增长两倍以上，达到创纪录的人民币28.109万亿韩元（合189.6亿美元）。当季收入可能同比增长两倍，达到创纪录的50.531万亿韩元，营业利润预计也将达到创纪录的35.765万亿韩元。今年以来，该公司股价已上涨近90%。责任编辑：王永
 
 ## 正文
 
-记者|刘明涛 编辑|叶峰 终究没有奇迹发生！
+SK海力士（SK Hynix）定于周四公布第一财季业绩。
 
-随着4月29日一字跌停收盘，*ST岩石（600969）已经连续18个交易日市值低于5亿元，由于其市值无法在接下来两个交易日回到5亿元以上，至此，*ST岩石退市似乎板上钉钉。
+根据FactSet汇总的平均预期，这家韩国存储芯片制造商截至3月份财季的净利润预计将同比增长两倍以上，达到创纪录的人民币28.109万亿韩元（合189.6亿美元）。
 
-那么，5月6日收盘后，上海贵酒或将因连续20个交易日市值未达5亿元而“告别”A股舞台（注：最终要以交易所公告为准）。
+当季收入可能同比增长两倍，达到创纪录的50.531万亿韩元，营业利润预计也将达到创纪录的35.765万亿韩元。
 
-或面临交易类强制退市 4月29日，*ST岩石以1.31元/股收盘，总市值仅剩4.375亿元，连续18个交易日市值低于5亿元“红线”。
+今年以来，该公司股价已上涨近90%。
 
-由于ST股涨跌幅仅5%的限制，即便*ST岩石随后连续两日涨停，其市值也无法再回到5亿元以上。
-
-根据《股票上市规则》的规定，上市公司出现连续20个交易日在上交所的每日股票收盘总市值均低于5亿元情形的，上交所将决定终止公司股票上市，属于交易类强制退市。
-
-因此，*ST岩石退市或已尘埃落定。
-
-《每日经济新闻·将进酒》记者注意到，4月17日，市场资金曾博弈*ST岩石市值退市，*ST岩石在当日实现地天板涨停，成交金额显著放大，随后其股价连续6个交易日涨停，一度涨至1.45元/股，市值回到4.84亿元，然而4月28日和29日连续两日一字跌停，彻底击碎*ST岩石保壳希望。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 12:15 - [机器人产业爆发前夜，机器人ETF华夏（562500）或许是布局这一轮科技革命的最优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:19 - [末局逆转！成都AG夺得2026PEL春季赛总决赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:15 - [韩国综合股价指数开盘下跌0.3% 日股休市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:00 - [招股书曾写错毛利，微脉二闯港交所：AI医疗故事背后，三年亏超6亿 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:13 - [东方甄选股权激励！300名员工人均获授市值141万元股份，俞敏洪超4400万元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:07 - [美国流行音乐天后“霉霉”申请注册其声音和肖像商标，以抵御AI深度伪造技术侵害](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:06 - [磷石膏废弃物还能建房子？九三学社调研带你看从废渣到宝藏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:02 - [梁文锋增持DeepSeek 持股比例大幅上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:25 - [A股极致分化，创业板失守3600点，医疗等板块走强| 华宝基金3A日报（2026.4.28）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:09 - [美国7年期国债中标收益率略高于发行前交易水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:13 - [OpenAI增长失速冲击AI板块：超大规模资本支出模式遭遇“信任危机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:20 - [第二届西南农资骨干流通走廊建设推进大会在重庆涪陵举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:14 - [英伟达股价下跌，公司正继续在美国以外增加产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:04 - [美国能源部长：霍尔木兹海峡无需清除所有水雷也可以开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:28 - [优必选伺服驱动器专利荣获广东专利金奖，助力人形机器人迈入量产商业化时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:24 - [“6.0%”的浙江看点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:26 - [沃什听证会高能：被骂“提线木偶”、怒批美联储迷失、否认向特朗普承诺降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:35 - [近期降雨过程范围广、雨势强 多部门会商部署防汛抢险救灾工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:28 - [特朗普政府拟周三调整大麻管制分级，概念股集体飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:21 - [孟买天际线之战：亿万富翁的“云端豪宅”与城市的“生存空间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:06 - [假冒官员诱骗内地留学生返港买金粒，3男被捕涉款700万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:12 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:32 - [刚买就亏，银行理财不香了？年内超40只产品发行失败，有固收理财近1月年化回报低至-10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:28 - [比特币较2月份低点上涨超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:33 - [雪佛龙得州炼油厂发生原油泄漏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:35 - [大宗商品综述：原油上涨 铜和黄金下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:20 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:06 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:22 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:15 - [银行理财子加速“扫货”权益市场，打新报价量两月激增近九成](http://www.blog.minike.top/Article/details/426057666.shtml)
-- 2026-06-29 12:18 - [【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料](http://www.share.minike.top/Article/details/83541.shtml)
-- 2026-06-29 12:06 - [转让底价6573万元，华泰保险集团880万股股份再度挂牌](http://www.blog.minike.top/Article/details/9001105.shtml)
-- 2026-06-29 12:18 - [翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局](http://www.share.minike.top/Article/details/346983448.shtml)
-- 2026-06-29 12:12 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](http://www.share.kurohicncr.top/Article/details/81288.shtml)
-- 2026-06-29 12:29 - [深化中国—东盟经贸合作 专家提十大建议](http://www.share.minike.top/Article/details/38065356035.shtml)
-- 2026-06-29 12:06 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](http://www.blog.kurohicncr.top/Article/details/39427.shtml)
-- 2026-06-29 12:11 - [千年晋祠难老泉高位复流 带动周边产业焕新生](http://www.blog.kurohicncr.top/Article/details/86100278303.shtml)
-- 2026-06-29 12:17 - [一江清水向东流——凝心聚力共绘长江发展新画卷](http://www.share.minike.top/Article/details/745463.shtml)
-- 2026-06-29 12:03 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](http://www.share.kurohicncr.top/Article/details/6933665.shtml)
-- 2026-06-29 12:28 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](http://www.blog.minike.top/Article/details/3961999820.shtml)
-- 2026-06-29 12:09 - [四川蓝莓首次出口](http://www.blog.minike.top/Article/details/64598248.shtml)
-- 2026-06-29 12:29 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](http://www.blog.kurohicncr.top/Article/details/974398.shtml)
-- 2026-06-29 12:15 - [中钢协：积极开展产能治理、产量调控、行业自律](http://www.share.kurohicncr.top/Article/details/78610.shtml)
-- 2026-06-29 12:10 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](http://www.blog.minike.top/Article/details/0813746131.shtml)
+- 2026-06-29 12:32 - [外国游客打卡西藏拉萨布达拉宫广场](http://www.blog.minike.top/Article/details/7863237612.shtml)
+- 2026-06-29 12:11 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](http://www.blog.kurohicncr.top/Article/details/62564.shtml)
+- 2026-06-29 12:18 - [王毅出席全球共享发展行动论坛第三届高级别会议](http://www.share.kurohicncr.top/Article/details/534362878.shtml)
+- 2026-06-29 12:27 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](http://www.blog.kurohicncr.top/Article/details/28438544.shtml)
+- 2026-06-29 12:26 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](http://www.share.minike.top/Article/details/168265342.shtml)
+- 2026-06-29 12:14 - [库克时代落幕，苹果新帅面临AI关键战役](http://www.share.minike.top/Article/details/5247385787.shtml)
+- 2026-06-29 12:34 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](http://www.blog.kurohicncr.top/Article/details/04210450614.shtml)
+- 2026-06-29 12:30 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](http://www.share.minike.top/Article/details/409655458152.shtml)
+- 2026-06-29 12:06 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](http://www.blog.minike.top/Article/details/996585.shtml)
+- 2026-06-29 12:25 - [聚焦人工智能应用 印尼教育界人士来鄂研修](http://www.share.minike.top/Article/details/577203777883.shtml)
+- 2026-06-29 12:30 - [苹果换帅时机或预示财报利好，分析师看好短期表现](http://www.blog.minike.top/Article/details/32291.shtml)
+- 2026-06-29 12:07 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](http://www.share.minike.top/Article/details/70141743704.shtml)
+- 2026-06-29 12:30 - [中国隧道连续皮带机首次出口西班牙](http://www.share.minike.top/Article/details/742305927.shtml)
+- 2026-06-29 12:09 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](http://www.blog.minike.top/Article/details/72545.shtml)

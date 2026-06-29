@@ -1,61 +1,57 @@
-# 重庆罗斯福图书馆旧址将焕新开放
+# 四张图看懂蒂姆・库克的非凡职业生涯
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新社重庆4月28日电 (记者 钟旖)记者4月28日从重庆图书馆获悉，经修缮与功能升级，位于重庆市渝中区的罗斯福图书馆旧址将于5月1日起试运营开放。 罗斯福图书馆旧址始建于1938年，建筑面积约2500平方米。作为抗战时期大后方的重要文化阵地，其前身为国立中央图书馆重庆分馆。后为纪念美国总统罗斯福对世界反法西斯战争及为促进世界和平进步所作出的贡献，在原址上筹建“国立罗斯福图书馆
+从加入苹果的第一天起，蒂姆・库克就是个精于数据分析的人。 上世纪 90 年代末，史蒂夫・乔布斯重返由自己创立的苹果公司、拯救企业于危难之际后不久，便从康柏电脑挖来库克，负责苹果的供应链与运营。乔布斯主导的是光鲜亮丽的业务 —— 比如设计新颖、色彩缤纷的 iMac。而库克要做的，则是确保苹果能顺利采购到所有所需零部件。也就是那些外人眼中 “枯燥乏味” 的事务。 作为执掌苹果近 1
 
 ## 正文
 
-中新社重庆4月28日电 (记者 钟旖)记者4月28日从重庆图书馆获悉，经修缮与功能升级，位于重庆市渝中区的罗斯福图书馆旧址将于5月1日起试运营开放。
+从加入苹果的第一天起，蒂姆・库克就是个精于数据分析的人。
 
-罗斯福图书馆旧址始建于1938年，建筑面积约2500平方米。
+上世纪 90 年代末，史蒂夫・乔布斯重返由自己创立的苹果公司、拯救企业于危难之际后不久，便从康柏电脑挖来库克，负责苹果的供应链与运营。
 
-作为抗战时期大后方的重要文化阵地，其前身为国立中央图书馆重庆分馆。
+乔布斯主导的是光鲜亮丽的业务 —— 比如设计新颖、色彩缤纷的 iMac。
 
-后为纪念美国总统罗斯福对世界反法西斯战争及为促进世界和平进步所作出的贡献，在原址上筹建“国立罗斯福图书馆”。
+而库克要做的，则是确保苹果能顺利采购到所有所需零部件。
 
-罗斯福图书馆始建之初，便被指定为联合国资料托存馆。
+也就是那些外人眼中 “枯燥乏味” 的事务。
 
-历经数十年发展与积淀，重庆图书馆已逐步形成古籍线装书、民国出版物、联合国资料三大特色资源体系。
+作为执掌苹果近 15 年的首席执行官，库克曾饱受批评，被认为缺乏乔布斯那种超凡魅力与推动颠覆性创新的能力。
 
-重庆图书馆馆长张冰梅介绍，旧址修缮工程于2025年2月进场施工，遵循“修旧如旧、文脉传承”理念，在完整保留历史建筑风貌与空间格局的基础上，优化展陈体系，完善公共服务功能。
+但数据不会说谎。
 
-“焕新后的旧址打破传统图书馆的单一功能定位，转型为复合型公共文化空间。
+在任期间，库克为苹果实现的销售额、利润与市值增长，均堪称前无古人。
 
 ## 相关推荐
 
-- 2026-06-29 12:02 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:27 - [“五一”假期预计约600万人次进出香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:12 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:27 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:00 - [央行今日开展259亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:21 - [传递“乌尔朵”的守边人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:20 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:10 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:25 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:03 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:23 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:27 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:09 - [渝昆高铁川滇段无砟轨道施工全部完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:21 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:09 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:32 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:24 - [推动实体经济发展，内蒙古“放大招”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:29 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:15 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:12 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:13 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:30 - [美联储主席提名人沃什阐述美联储政策主张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:22 - [日经指数首次升破60000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:08 - [俄军总参谋长：已完全控制卢甘斯克地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:26 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:17 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [重庆国际消费节启幕 打造全域消费新场景](http://www.share.minike.top/Article/details/7484644.shtml)
-- 2026-06-29 12:05 - [中国选手赵一程打破男子速度攀岩世界纪录](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [“华住会”App崩了？客服回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [“五一”假期小型客车继续施行免收通行费政策](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](http://www.blog.minike.top/Article/details/40350285.shtml)
-- 2026-06-29 12:16 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.blog.kurohicncr.top/Article/details/48349629.shtml)
-- 2026-06-29 12:07 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.blog.kurohicncr.top/Article/details/89301681.shtml)
-- 2026-06-29 12:17 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](http://www.share.minike.top/Article/details/303473980011.shtml)
-- 2026-06-29 12:03 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](http://www.share.minike.top/Article/details/03991479.shtml)
-- 2026-06-29 12:29 - [“十四五”期间中国新发现大中型油气田225处](http://www.blog.kurohicncr.top/Article/details/20050.shtml)
-- 2026-06-29 12:17 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [截至去年12月我国已出台网络领域立法180余部](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [美光与闪迪股价持续走高，存储芯片需求有望长期旺盛](http://www.share.minike.top/Article/details/1393256717.shtml)
-- 2026-06-29 12:16 - [从新疆到巴黎 艾德莱斯秀出中国职教风采](http://www.blog.kurohicncr.top/Article/details/989217517.shtml)
+- 2026-06-29 12:06 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](http://www.share.minike.top/Article/details/2906893.shtml)
+- 2026-06-29 12:19 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [日本126名议员集体参拜靖国神社](http://www.share.kurohicncr.top/Article/details/56333.shtml)
+- 2026-06-29 12:12 - [绿的谐波：一季度净利润同比增长61.17%](http://www.share.kurohicncr.top/Article/details/16773447.shtml)
+- 2026-06-29 12:06 - [全球电力回顾报告：2025年化石燃料发电量零增长](http://www.blog.kurohicncr.top/Article/details/58626297408.shtml)
+- 2026-06-29 12:08 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](http://www.blog.minike.top/Article/details/44957399974.shtml)
+- 2026-06-29 12:33 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](http://www.share.kurohicncr.top/Article/details/2306879.shtml)
+- 2026-06-29 12:19 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.blog.kurohicncr.top/Article/details/19077030994.shtml)
+- 2026-06-29 12:25 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](http://www.share.minike.top/Article/details/49430862674.shtml)
+- 2026-06-29 12:14 - [美股三大指数集体高开，布油重回100美元上方](http://www.share.minike.top/Article/details/112807326.shtml)
+- 2026-06-29 12:09 - [美股回吐涨幅，美债收益率上行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [华为迟林春：乾崑智驾累计辅助驾驶里程达100亿公里，预计今年10月超越特斯拉位居全球第一](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](http://www.share.minike.top/Article/details/699804397021.shtml)
+- 2026-06-29 12:27 - [多浦乐2025年度归母净利润约6649万元 同比增28.85%](http://www.blog.kurohicncr.top/Article/details/3051632.shtml)
+- 2026-06-29 12:20 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.share.minike.top/Article/details/83063855580.shtml)

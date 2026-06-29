@@ -1,55 +1,61 @@
-# 深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行
+# 浙江进入汛期以来首次区域性强降雨过程
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-新华社北京4月28日电 4月28日，深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行。全国人大常委会副委员长、中华全国总工会主席王东明出席会议并讲话。 王东明指出，习近平总书记的重要讲话，是指引新时代新征程工会工作高质量发展的强大思想武器和行动纲领。各级工会要采取更加有力举措，深入学习贯彻习近平总书记
+中新网杭州4月21日电(记者 王逸飞)20日夜间至21日，雨水的足迹几乎遍布浙江全省，此次明显降雨过程将持续至22日，这是该省4月15日入汛后的首次区域性强降雨过程。其中，降水最强时段为21日夜里到22日前半夜。21日白天，雨水虽然不大，但已影响浙江大部分地区。降水也让气温出现大幅下滑，15时浙江大部较前一日同一时刻下降7—13℃，其中青田骤降15.2℃。 浙江省气象台预计，2
 
 ## 正文
 
-新华社北京4月28日电 4月28日，深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行。
+中新网杭州4月21日电(记者 王逸飞)20日夜间至21日，雨水的足迹几乎遍布浙江全省，此次明显降雨过程将持续至22日，这是该省4月15日入汛后的首次区域性强降雨过程。
 
-全国人大常委会副委员长、中华全国总工会主席王东明出席会议并讲话。
+其中，降水最强时段为21日夜里到22日前半夜。
 
-王东明指出，习近平总书记的重要讲话，是指引新时代新征程工会工作高质量发展的强大思想武器和行动纲领。
+21日白天，雨水虽然不大，但已影响浙江大部分地区。
 
-各级工会要采取更加有力举措，深入学习贯彻习近平总书记重要讲话精神，结合开展树立和践行正确政绩观学习教育，主动担当作为，忠诚履职尽责，推动讲话精神落地生根，形成生动实践，团结动员职工群众为实现“十五五”良好开局发挥主力军作用。
+降水也让气温出现大幅下滑，15时浙江大部较前一日同一时刻下降7—13℃，其中青田骤降15.2℃。
 
-中央政策研究室有关同志，部分省级总工会、全国产业工会、企业工会负责同志和职工代表交流学习体会。
+浙江省气象台预计，21日夜里到22日，浙江全省阴有中到大阵雨或雷雨，其中衢州、杭州西南部、丽水西部和北部、金华西部等地部分暴雨。
+
+以上有雷雨地区局地伴有短时暴雨。
+
+21日下午，浙江省水利厅、浙江省气象局联合发布山洪灾害预警，预计21日20时至22日20时，淳安县、建德市、柯城区、衢江区、常山县、开化县、龙游县、江山市、遂昌县可能发生山洪灾害(蓝色预警)。
+
+根据气象预报，24日浙江的天气面貌将好转，25—26日多云唱主角，26日最高气温全省大部可达28—30℃，“初夏体验卡”将再次发放。
 
 ## 相关推荐
 
-- 2026-06-29 12:11 - [第139届广交会二期闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:00 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:25 - [2026年盈江海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:14 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:16 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:18 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:18 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:20 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:10 - [银行业首个行业级“数据分类分级”大模型发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:01 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:23 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:02 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:02 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:17 - [新西兰央行行长：已准备好应对持续的价格压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:29 - [重庆罗斯福图书馆旧址将焕新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:24 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:26 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:22 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:19 - [重组计划会影响IPO吗？阿维塔回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:27 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:21 - [亚马逊深化与Anthropic的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:09 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:10 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:29 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:25 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:30 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:35 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:06 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:14 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:18 - [四张图看懂蒂姆・库克的非凡职业生涯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:10 - [OpenAI称已更新与微软的合作伙伴关系](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [【市场聚焦】棉花：美国主产区干旱持续发酵带动全球棉市价格上行](http://www.share.minike.top/Article/details/7964214415.shtml)
-- 2026-06-29 12:19 - [“伊斯兰国”袭击尼日利亚东北部 造成至少29人丧生](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [中钢协：一季度钢材价格总体走势平稳但处于近年同期最低水平](http://www.share.minike.top/Article/details/758704659.shtml)
-- 2026-06-29 12:16 - [谷歌不顾员工反对，与美国国防部签署机密人工智能合作协议](http://www.blog.minike.top/Article/details/92399620495.shtml)
-- 2026-06-29 12:10 - [穿越机视角领略婺源“江南第一奇谷”飞瀑景观](http://www.share.kurohicncr.top/Article/details/26033456.shtml)
-- 2026-06-29 12:20 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](http://www.share.minike.top/Article/details/71967646454.shtml)
-- 2026-06-29 12:09 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](http://www.share.minike.top/Article/details/12128.shtml)
-- 2026-06-29 12:11 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](http://www.share.kurohicncr.top/Article/details/864000.shtml)
-- 2026-06-29 12:24 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [指数级增长 2025年我国词元调用量约21100万亿](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](http://www.blog.minike.top/Article/details/40172758.shtml)
-- 2026-06-29 12:30 - [中共中央政治局会议要点对比及解读](http://www.share.kurohicncr.top/Article/details/264821733103.shtml)
+- 2026-06-29 12:23 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](http://www.blog.minike.top/Article/details/50143.shtml)
+- 2026-06-29 12:11 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.blog.minike.top/Article/details/58500778.shtml)
+- 2026-06-29 12:27 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](http://www.blog.minike.top/Article/details/725880.shtml)
+- 2026-06-29 12:21 - [生态产品价值如何实现？自然资源部介绍典型案例](http://www.share.minike.top/Article/details/225570.shtml)
+- 2026-06-29 12:30 - [【国际漫评】解禁](http://www.blog.minike.top/Article/details/99428736751.shtml)
+- 2026-06-29 12:25 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](http://www.blog.kurohicncr.top/Article/details/660629277.shtml)
+- 2026-06-29 12:10 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.share.minike.top/Article/details/35550.shtml)
+- 2026-06-29 12:22 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](http://www.share.kurohicncr.top/Article/details/5903605138.shtml)
+- 2026-06-29 12:26 - [梁玉宁：中文与诗歌是中华文明的重要载体](http://www.share.kurohicncr.top/Article/details/1856057.shtml)
+- 2026-06-29 12:15 - [美国海军部长约翰·费伦将离职](http://www.blog.minike.top/Article/details/89848.shtml)
+- 2026-06-29 12:23 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](http://www.share.minike.top/Article/details/476961.shtml)
+- 2026-06-29 12:25 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.share.minike.top/Article/details/0557329.shtml)
+- 2026-06-29 12:22 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](http://www.share.minike.top/Article/details/48152.shtml)
+- 2026-06-29 12:06 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](http://www.blog.minike.top/Article/details/1213299439.shtml)

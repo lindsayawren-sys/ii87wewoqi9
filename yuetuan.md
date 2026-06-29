@@ -1,61 +1,57 @@
-# 国铁沈阳局五一小长假预计发送旅客740万人次
+# 能定位会判断 AI乒乓机器人击败人类高手
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网沈阳4月29日电 (记者 于海洋)记者从中国铁路沈阳局集团有限公司(下称国铁沈阳局)获悉，在4月29日至5月6日的五一假期铁路运输中，国铁沈阳局预计发送旅客740万人次，日均92.5万人次，同比增长3.6%。其中，5月1日将迎来假期出行最高峰，单日客流将突破113万人次。国铁沈阳局通过加开临客、加挂车厢、开行多趟热门方向旅游列车等形式，全力满足旅客出行需求。今年五一假期，
+索尼AI的科学家开发出一款乒乓机器人，在人类与人工智能的最新对决中，其速度和精准度甚至足以击败一些专业级选手。 这款名为“Ace”的机器人，将视觉传感器、无模型强化学习以及高速机器人硬件结合在一起，其结构类似一根带有乒乓球拍的起重机式机械臂。该系统能够自主在空间中定位乒乓球，判断应采用的回球技术，将球击回对方球台，并不断重复这一过程，直到回合结束。 像Ace这样的机器人被称为A
 
 ## 正文
 
-中新网沈阳4月29日电 (记者 于海洋)记者从中国铁路沈阳局集团有限公司(下称国铁沈阳局)获悉，在4月29日至5月6日的五一假期铁路运输中，国铁沈阳局预计发送旅客740万人次，日均92.5万人次，同比增长3.6%。
+索尼AI的科学家开发出一款乒乓机器人，在人类与人工智能的最新对决中，其速度和精准度甚至足以击败一些专业级选手。
 
-其中，5月1日将迎来假期出行最高峰，单日客流将突破113万人次。
+这款名为“Ace”的机器人，将视觉传感器、无模型强化学习以及高速机器人硬件结合在一起，其结构类似一根带有乒乓球拍的起重机式机械臂。
 
-国铁沈阳局通过加开临客、加挂车厢、开行多趟热门方向旅游列车等形式，全力满足旅客出行需求。
+该系统能够自主在空间中定位乒乓球，判断应采用的回球技术，将球击回对方球台，并不断重复这一过程，直到回合结束。
 
-今年五一假期，辽宁部分地区首次将中小学春假与法定假日衔接形成8天长假，探亲、旅游、学生客流叠加，旅客出行需求旺盛。
+像Ace这样的机器人被称为AI代理，即能够在有限人类干预下，通过推理并采取行动来解决多步骤问题的系统。
 
-国铁沈阳局充分挖掘既有线路能力，围绕北京、上海、哈尔滨等热门方向，以及沈阳至大连、丹东、赤峰，长春至珲春、长白山、松原等热门区段，加开临客及高峰线125对，始发客座能力最大可达62.1万座，运力创历史同期新高。
+索尼集团旗下子公司索尼AI的研究人员将Ace与多位高水平乒乓球选手进行了一系列对战测试。
 
-同时，安排78对动车组列车重联运行，加挂列车128辆，特别是在客流高峰日，安排开行夜间高铁31.5对，缓解白天客流压力，为旅客出行提供多样选择。
+在事先并不了解对手打法风格的情况下，这款机器人在与五名不同精英运动员（定义为接受过超过10年高强度训练的人）进行的13场比赛中赢下了7场。
 
-五一假期正值大连樱花盛开。
+而在与两名参加官方职业联赛的选手对阵时，Ace在7场比赛中赢下了1场。
 
-为此，国铁沈阳局开行了沈阳至大连北G9112次、丹东至大连北C4182次、长春至大连K5022次等“滨海游”列车，助力旅客前往海滨城市大连游玩。
+乒乓球运动需要精确的动作、瞬间决策和快速反应，因此成为研究AI系统如何在复杂物理环境中进行交互的理想案例。
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:17 - [一季度生态成绩单亮眼，高质量发展绿意盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:12 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:09 - [普京称西方正将领导地位让位于全球南方国家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:23 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:13 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:09 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:18 - [破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:19 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:02 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:08 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:19 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:26 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:03 - [泰国央行维持关键利率不变 以抵御油价对经济的冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:03 - [全国首单银行间市场消费类定向资产支持票据发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:18 - [2026年广东省行业企业职业技能竞赛计划发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:10 - [多支欧洲足球劲旅将于8月会师香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:26 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:12 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:06 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:22 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:29 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:32 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:23 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:26 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:09 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:01 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](http://www.share.kurohicncr.top/Article/details/312002.shtml)
-- 2026-06-29 12:19 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](http://www.share.kurohicncr.top/Article/details/49881.shtml)
-- 2026-06-29 12:22 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [商务部：2026年1-3月我国电子商务持续平稳发展](http://www.share.minike.top/Article/details/00209402.shtml)
-- 2026-06-29 12:18 - [民政部：着力推进普惠性、基础性、兜底性民生建设](http://www.share.minike.top/Article/details/601641.shtml)
-- 2026-06-29 12:09 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](http://www.blog.minike.top/Article/details/580678719.shtml)
-- 2026-06-29 12:02 - [2026年度丽江海关部门预算公开](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [重庆秀山：烟雨“边城” 古韵映春](http://www.blog.minike.top/Article/details/45182961.shtml)
-- 2026-06-29 12:24 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](http://www.blog.kurohicncr.top/Article/details/632061662.shtml)
-- 2026-06-29 12:21 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](http://www.blog.minike.top/Article/details/571372.shtml)
-- 2026-06-29 12:01 - [韩国宣布与Google DeepMind建立合作](http://www.share.minike.top/Article/details/508255308150.shtml)
-- 2026-06-29 12:15 - [光大期货：4月28日金融日报](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](http://www.blog.kurohicncr.top/Article/details/889924855.shtml)
-- 2026-06-29 12:23 - [深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行](http://www.share.minike.top/Article/details/072830945229.shtml)
+- 2026-06-29 12:26 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](http://www.share.kurohicncr.top/Article/details/66122495.shtml)
+- 2026-06-29 12:31 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](http://www.share.minike.top/Article/details/2293750816.shtml)
+- 2026-06-29 12:06 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](http://www.share.minike.top/Article/details/4618582460.shtml)
+- 2026-06-29 12:23 - [高雅光学公布于4月23日上午起停牌](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [波音季度亏损收窄，股价早盘上涨4.5%](http://www.blog.kurohicncr.top/Article/details/02863.shtml)
+- 2026-06-29 12:35 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](http://www.blog.kurohicncr.top/Article/details/04642871.shtml)
+- 2026-06-29 12:26 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [一见·世界地球日，看“赋能型大国”的绿色担当](http://www.blog.kurohicncr.top/Article/details/837499474155.shtml)
+- 2026-06-29 12:15 - [Revolut目标估值2000亿美元，IPO计划初具雏形](http://www.blog.minike.top/Article/details/480655.shtml)
+- 2026-06-29 12:09 - [美国多家航空公司面临燃油压力](http://www.share.kurohicncr.top/Article/details/000304064333.shtml)
+- 2026-06-29 12:25 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](http://www.share.kurohicncr.top/Article/details/55430221651.shtml)
+- 2026-06-29 12:21 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](http://www.blog.minike.top/Article/details/541524.shtml)
+- 2026-06-29 12:20 - [美国国家安全局被曝使用Anthropic受限模型](http://www.blog.minike.top/Article/details/9417373.shtml)
+- 2026-06-29 12:19 - [浙江进入汛期以来首次区域性强降雨过程](http://www.blog.kurohicncr.top/Article/details/66654.shtml)

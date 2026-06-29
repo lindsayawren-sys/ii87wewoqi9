@@ -1,57 +1,50 @@
-# 铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次
+# 伊朗通过巴基斯坦告知美国 将不会参加周三的会谈
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网重庆4月28日电 (张旭 蒋远智)“五一”假期将近，4月28日，中国铁路成都局集团有限公司重庆车站(以下简称“重庆火车站”)发布消息称，2026年铁路“五一”假期运输将于4月29日启动，至5月6日结束。 在此期间，重庆火车站预计发送旅客240万人次，日均发送旅客30万人次，同比增长7.6%。客流最高日预计在5月1日，预计发送旅客39万人次。 据重庆火车站介绍，“五一”假期
+据半官方的塔斯尼姆通讯社援引消息人士报道，伊朗谈判团队已通过巴基斯坦中间人告知美方，伊朗将不会出席周三在伊斯兰堡举行的会谈。 伊朗不出席的原因有很多，包括美国实施海上封锁以及违反其他承诺。责任编辑：李桐
 
 ## 正文
 
-中新网重庆4月28日电 (张旭 蒋远智)“五一”假期将近，4月28日，中国铁路成都局集团有限公司重庆车站(以下简称“重庆火车站”)发布消息称，2026年铁路“五一”假期运输将于4月29日启动，至5月6日结束。
+据半官方的塔斯尼姆通讯社援引消息人士报道，伊朗谈判团队已通过巴基斯坦中间人告知美方，伊朗将不会出席周三在伊斯兰堡举行的会谈。
 
-在此期间，重庆火车站预计发送旅客240万人次，日均发送旅客30万人次，同比增长7.6%。
+伊朗不出席的原因有很多，包括美国实施海上封锁以及违反其他承诺。
 
-客流最高日预计在5月1日，预计发送旅客39万人次。
-
-据重庆火车站介绍，“五一”假期，旅客探亲、旅游等出行需求旺盛，城际和邻近地市的客流居多，直通客流主要集中在重庆与北京、上海、广州、武汉、长沙、张家界、西安、南宁、昆明、兰州、西宁等热门城市，管内客流主要集中在重庆与成都、合川、潼南、内江、宜宾、达州、南充、万州、云阳、奉节、巫山、涪陵、丰都、石柱县、贵阳、荔波等热门城市。
-
-截至目前，重庆火车站已安排加开列车667列，其中加开夜间列车59列(重庆北站19列、重庆西站40列)，为旅客出行提供更多选择和运力保障。
-
-(完)
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 12:10 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:12 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:24 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:27 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:09 - [中国选手赵一程打破男子速度攀岩世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:09 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:06 - [“华住会”App崩了？客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:04 - [“五一”假期小型客车继续施行免收通行费政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:08 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:13 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:17 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:05 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:28 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:25 - [“十四五”期间中国新发现大中型油气田225处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:20 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:11 - [酒钢宏兴：2025年净亏损19.98亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:16 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:24 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:21 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:24 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:19 - [日本126名议员集体参拜靖国神社](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:27 - [绿的谐波：一季度净利润同比增长61.17%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:09 - [全球电力回顾报告：2025年化石燃料发电量零增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:09 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:28 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:26 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:31 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:35 - [美股三大指数集体高开，布油重回100美元上方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:21 - [美股回吐涨幅，美债收益率上行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:24 - [2026年孟连海关部门预算公开](http://www.blog.minike.top/Article/details/181511054.shtml)
-- 2026-06-29 12:24 - [东珠生态（603359）投资者索赔分析](http://www.share.minike.top/Article/details/2857016.shtml)
-- 2026-06-29 12:00 - [香港引入首辆飞机专用重型电拖车](http://www.share.minike.top/Article/details/346299257.shtml)
-- 2026-06-29 12:27 - [瑞银：华润置地目标价36港元 维持“买入”评级](http://www.blog.minike.top/Article/details/5093735708.shtml)
-- 2026-06-29 12:25 - [《习近平谈治国理政》第五卷英文版中印尼推介会在雅加达举行](http://www.blog.minike.top/Article/details/93772052.shtml)
-- 2026-06-29 12:22 - [江西省省长：加快让人形机器人等未来产业形成新经济增长点](http://www.share.minike.top/Article/details/763130.shtml)
-- 2026-06-29 12:11 - [国泰君安期货：玻璃跌破前低 下跌趋势延续](http://www.share.kurohicncr.top/Article/details/89418054594.shtml)
-- 2026-06-29 12:23 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.minike.top/Article/details/776260140.shtml)
-- 2026-06-29 12:03 - [全球首艘10800车汽车运输船在广州命名交付](http://www.blog.minike.top/Article/details/261865658.shtml)
-- 2026-06-29 12:29 - [截至4月28日，今年全国共发生7次大范围强对流天气过程](http://www.share.kurohicncr.top/Article/details/52005.shtml)
-- 2026-06-29 12:23 - [中方：巴勒斯坦问题在任何情况下都不应被边缘化](http://www.blog.minike.top/Article/details/7667080.shtml)
-- 2026-06-29 12:05 - [广东湛江吴川国际机场首条全货机定期航线开通](http://www.blog.kurohicncr.top/Article/details/617656560.shtml)
-- 2026-06-29 12:23 - [人社部：一季度全国城镇新增就业299万人](http://www.share.kurohicncr.top/Article/details/29109.shtml)
-- 2026-06-29 12:02 - [长安汽车战略协同，阿维塔品牌独立运营不变：协同降本空间打开，港股IPO照常推进](http://www.blog.minike.top/Article/details/419506.shtml)
-- 2026-06-29 12:11 - [丁二烯：一季度进口下滑出口增加，二季度趋势或延续](http://www.share.minike.top/Article/details/50263270103.shtml)
+- 2026-06-29 12:19 - [伊朗否认举行美伊新谈判 指特朗普“又说谎了”](http://www.blog.kurohicncr.top/Article/details/9953894352.shtml)
+- 2026-06-29 12:15 - [欧洲股市小幅走高，市场陷入“观望停滞状态”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [西门子数字化工业集团CEO：人工智能助力西门子深化与中国合作](http://www.share.minike.top/Article/details/86633914611.shtml)
+- 2026-06-29 12:31 - [白宫向福克斯新闻透露：特朗普将伊朗停火期限延长3-5天](http://www.blog.minike.top/Article/details/59164400765.shtml)
+- 2026-06-29 12:14 - [上市公司市值管理实践：中国建筑从“战术”到“战略”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [延边州首个百兆瓦级独立构网型储能电站开建](http://www.share.kurohicncr.top/Article/details/380001561.shtml)
+- 2026-06-29 12:14 - [特朗普称最快周五或重启美伊新一轮和谈](http://www.blog.minike.top/Article/details/102605726421.shtml)
+- 2026-06-29 12:16 - [劳埃德银行试点AI投资指导工具，英国监管机构正研究其影响](http://www.share.kurohicncr.top/Article/details/0664826525.shtml)
+- 2026-06-29 12:14 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.blog.minike.top/Article/details/63725438685.shtml)
+- 2026-06-29 12:15 - [哈尔滨音乐学院原党委副书记、工会主席刘东兴被“双开”](http://www.blog.minike.top/Article/details/79870942471.shtml)
+- 2026-06-29 12:07 - [连亏5年，越亏越多！知名超市学胖东来效果不佳，去年关店414家，巨亏9.57亿元，最新市值仅35亿元](http://www.share.minike.top/Article/details/4878907.shtml)
+- 2026-06-29 12:16 - [Mhmarkets迈汇:贵金属需求持续走强](http://www.blog.minike.top/Article/details/644258.shtml)
+- 2026-06-29 12:31 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](http://www.share.kurohicncr.top/Article/details/088317.shtml)
+- 2026-06-29 12:06 - [落地15年来持续升级 海南离岛免税政策激活发展动力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [最可爱的人回来了！迎接烈士回国 塔台对话听到泪目](http://www.share.kurohicncr.top/Article/details/4835537.shtml)

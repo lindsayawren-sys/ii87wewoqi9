@@ -1,56 +1,49 @@
-# 酒价内参4月29日价格发布：五粮液1618保持不变
+# “护苗”典型案例｜非法印制并销售侵权盗版中小学教辅
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月29日整体温和回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9975元，较昨日下跌13元，自近40天最高位回调。市场在三连阳后出现技术性调整，终端交投情绪整体保持平稳，但核心单品的涨跌分化依然显著。 今日白酒市场11大单品三涨六跌两平，输家占据上风。上涨方面，青花郎涨幅居前，上涨5元
+群众举报网购的少儿教辅类图书质量低劣疑似盗版，经查，当事人刘某大量印制教辅类侵权盗版图书，并将该图书面向全国销售。最终当事人因侵犯著作权罪被判处刑罚。
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月29日整体温和回落。
+群众举报网购的少儿教辅类图书质量低劣疑似盗版，经查，当事人刘某大量印制教辅类侵权盗版图书，并将该图书面向全国销售。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9975元，较昨日下跌13元，自近40天最高位回调。
-
-市场在三连阳后出现技术性调整，终端交投情绪整体保持平稳，但核心单品的涨跌分化依然显著。
-
-今日白酒市场11大单品三涨六跌两平，输家占据上风。
-
-上涨方面，青花郎涨幅居前，上涨5元/瓶，二连阳后继续固守在700元/瓶关口之上；水晶剑南春上涨3元/瓶，创下一个月来新高；国窖1573小幅上涨1元/瓶。
-
-下跌方面，古井贡古20跌幅居前，下跌9元/瓶，前一日创下近一个月最高后今天明显回调，四连涨的强势暂告终结；洋河梦之蓝M6+下跌6元/瓶；飞天茅台下跌3元/瓶；青花汾20下跌2元/瓶；精品茅台与习酒君品均小幅回落1元/瓶。
-
-浓香双雄：五粮液普五八代及五粮液1618的价格环比保持不变。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+最终当事人因侵犯著作权罪被判处刑罚。
 
 ## 相关推荐
 
-- 2026-06-29 12:07 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:27 - [深化中国—东盟经贸合作 专家提十大建议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:08 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:24 - [千年晋祠难老泉高位复流 带动周边产业焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:29 - [一江清水向东流——凝心聚力共绘长江发展新画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:19 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:07 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:18 - [四川蓝莓首次出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:16 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:21 - [中钢协：积极开展产能治理、产量调控、行业自律](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:21 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:32 - [库克时代落幕，苹果新帅面临AI关键战役](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:19 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:15 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:08 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:07 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:19 - [聚焦人工智能应用 印尼教育界人士来鄂研修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:23 - [苹果换帅时机或预示财报利好，分析师看好短期表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:08 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:28 - [中国隧道连续皮带机首次出口西班牙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:13 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:29 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:17 - [德国电信据悉考虑与T-Mobile US进行全面合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:25 - [中国海军以最高礼仪迎接烈士遗骸回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:15 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:19 - [全国首单银行间市场消费类定向资产支持票据发行](http://www.share.minike.top/Article/details/369389157.shtml)
-- 2026-06-29 12:05 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](http://www.blog.minike.top/Article/details/0172316.shtml)
-- 2026-06-29 12:22 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](http://www.share.kurohicncr.top/Article/details/218089119.shtml)
-- 2026-06-29 12:09 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](http://www.share.kurohicncr.top/Article/details/325289053.shtml)
-- 2026-06-29 12:24 - [如何看待中方叫停Manus并购案？](http://www.blog.minike.top/Article/details/78354261987.shtml)
-- 2026-06-29 12:01 - [南京银行董事长谢宁解读“好银行”发展理念](http://www.share.kurohicncr.top/Article/details/70068083.shtml)
-- 2026-06-29 12:16 - [“漂流书包”十年：一份民主党派的阅读答卷](http://www.blog.minike.top/Article/details/501774278.shtml)
-- 2026-06-29 12:19 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](http://www.share.minike.top/Article/details/350296152576.shtml)
-- 2026-06-29 12:13 - [康宁一季度利润与核心营收双双增长](http://www.share.kurohicncr.top/Article/details/31683436.shtml)
-- 2026-06-29 12:22 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](http://www.blog.kurohicncr.top/Article/details/11660167.shtml)
-- 2026-06-29 12:24 - [五一机票又“跳水”了？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [日本公然宣称为“长期战争”做准备 中方回应](http://www.share.minike.top/Article/details/8038976633.shtml)
-- 2026-06-29 12:19 - [金石为开——西安·沈阳名碑拓片特展开幕](http://www.share.minike.top/Article/details/048594285178.shtml)
-- 2026-06-29 12:20 - [铁路文旅创新融合绘就发展新图景](http://www.share.kurohicncr.top/Article/details/652659048236.shtml)
+- 2026-06-29 12:31 - [崖沙燕“如约”重返永定河](http://www.blog.minike.top/Article/details/33537511.shtml)
+- 2026-06-29 12:28 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.blog.minike.top/Article/details/313719991.shtml)
+- 2026-06-29 12:09 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](http://www.blog.minike.top/Article/details/31512248625.shtml)
+- 2026-06-29 12:32 - [伊朗大量美制设备集体失灵，暴露数字安全新威胁](http://www.blog.minike.top/Article/details/234592.shtml)
+- 2026-06-29 12:25 - [603169、000909、603363、000892，被证监会立案！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [手机成新农具，物流通万家！乡村消费早已不一样](http://www.blog.kurohicncr.top/Article/details/8631888235.shtml)
+- 2026-06-29 12:26 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](http://www.share.kurohicncr.top/Article/details/626515260.shtml)
+- 2026-06-29 12:22 - [西安银行发布2025年度利润分配方案 拟每10派1元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](http://www.share.minike.top/Article/details/32822118.shtml)
+- 2026-06-29 12:26 - [售价29999元，华为星钻手镯表5月15日开售](http://www.share.kurohicncr.top/Article/details/1056693.shtml)
+- 2026-06-29 12:12 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](http://www.blog.minike.top/Article/details/49145178084.shtml)
+- 2026-06-29 12:31 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](http://www.share.minike.top/Article/details/842186785.shtml)
+- 2026-06-29 12:10 - [百思买任命资深人士为CEO](http://www.share.minike.top/Article/details/953451.shtml)
+- 2026-06-29 12:26 - [辽宁海城：梨花成海 粉樱作伴](https://github.com/lisacumin64-arch)

@@ -1,57 +1,56 @@
-# AI赋能“一人公司” 个体创新潜力持续激活
+# 迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网上海4月28日电 (高志苗)随着AI浪潮的蓬勃兴起，个体创新潜力被持续激活，“一人公司”(One Person Company，简称“OPC”)正从新兴创业模式成长为推动经济微观活力的重要力量。 日前，由虹桥国际中央商务区管委会、闵行区政府及新虹街道携手阿里旗下虹桥阿里中心联合共建，在其T2栋成功打造的阿里全国首个国际OPC社区“虹橙OPC社区”启用。该社区核心在于围绕“
+4月22日，算力方向全线拉升，科创芯片再接再厉，全“芯”布局芯片产业的科创芯片ETF华宝（589190）低开高走，场内价格收涨2.34%。自3月24日阶段低位以来，其跟踪的上证科创板芯片指数区间累计涨幅达21.31%。 注：上证科创板芯片指数近5个完整年度涨跌幅为2021年 6.87%，2022年 -33.69%，2023年 7.26%，2024年 34.52%，2025年 6
 
 ## 正文
 
-中新网上海4月28日电 (高志苗)随着AI浪潮的蓬勃兴起，个体创新潜力被持续激活，“一人公司”(One Person Company，简称“OPC”)正从新兴创业模式成长为推动经济微观活力的重要力量。
+4月22日，算力方向全线拉升，科创芯片再接再厉，全“芯”布局芯片产业的科创芯片ETF华宝（589190）低开高走，场内价格收涨2.34%。
 
-日前，由虹桥国际中央商务区管委会、闵行区政府及新虹街道携手阿里旗下虹桥阿里中心联合共建，在其T2栋成功打造的阿里全国首个国际OPC社区“虹橙OPC社区”启用。
+自3月24日阶段低位以来，其跟踪的上证科创板芯片指数区间累计涨幅达21.31%。
 
-该社区核心在于围绕“社群、能力、工具、服务”四大支撑，系统性重构创业体验，破解个体创业者的核心痛点。
+注：上证科创板芯片指数近5个完整年度涨跌幅为2021年 6.87%，2022年 -33.69%，2023年 7.26%，2024年 34.52%，2025年 61.33%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
-上海虹桥阿里中心项目总经理章新光告诉中新网记者，许多人此前对AI有所了解，但并未真正充分接触和使用AI工具。
+板块个股大面积飘红，芯原股份涨超7%，公司公告称，截至4月20日，年内新签订单总额达45.16亿元，继2025年后三个季度连续突破历史新高后，继续保持强劲增长态势。
 
-社区将提供针对性辅导，帮助创业者理顺人与工具的关系，让二者协同产生更好的效果。
+其中，绝大部分订单来自一站式芯片定制服务，AI算力相关业务占比超过85%。
 
-社区更大的意义在于融合，即人与社区关系的深度构建。
+光芯片继续走强，源杰科技、仕佳光子迭创历史新高。
 
-在章新光看来，这一波AI浪潮，抹平了人与人之间的某些传统差异，取而代之的是思路与执行力的比拼。
+值得一提的是，源杰科技收盘股价1464.05元，重夺A股“股王”宝座。
 
-与此同时，创新成本被大幅拉低，不仅创业方向和速度在改变，竞争的本质也在重塑。
+东吴证券指出，全球AI算力基础设施的非线性增长正驱动光芯片产业链进入长效上行周期，行业景气度呈现强烈的Beta属性。
 
 ## 相关推荐
 
-- 2026-06-29 12:18 - [中天策略:4月28日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:16 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:24 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:25 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:17 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:08 - [商务部：2026年1-3月我国电子商务持续平稳发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:17 - [民政部：着力推进普惠性、基础性、兜底性民生建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:09 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:18 - [2026年度丽江海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:11 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:28 - [重庆秀山：烟雨“边城” 古韵映春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:20 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:29 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:16 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:32 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:06 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:13 - [高雅光学公布于4月23日上午起停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:14 - [波音季度亏损收窄，股价早盘上涨4.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:08 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:14 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:11 - [一见·世界地球日，看“赋能型大国”的绿色担当](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:01 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](http://www.blog.minike.top/Article/details/3911455.shtml)
-- 2026-06-29 12:25 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [【理响中国】指尖传新声，理论宣讲有声有色](http://www.share.kurohicncr.top/Article/details/571863949.shtml)
-- 2026-06-29 12:10 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](http://www.share.minike.top/Article/details/381876.shtml)
-- 2026-06-29 12:07 - [“五一”假期预计约600万人次进出香港](http://www.share.kurohicncr.top/Article/details/4353876.shtml)
-- 2026-06-29 12:14 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](http://www.blog.minike.top/Article/details/35394.shtml)
-- 2026-06-29 12:16 - [央行今日开展259亿元7天期逆回购操作](http://www.share.kurohicncr.top/Article/details/67372151.shtml)
-- 2026-06-29 12:18 - [传递“乌尔朵”的守边人](http://www.share.minike.top/Article/details/767058761913.shtml)
-- 2026-06-29 12:16 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](http://www.share.kurohicncr.top/Article/details/013998524438.shtml)
-- 2026-06-29 12:15 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](http://www.blog.kurohicncr.top/Article/details/42602649.shtml)
-- 2026-06-29 12:05 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](http://www.blog.minike.top/Article/details/524438798787.shtml)
-- 2026-06-29 12:06 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](http://www.blog.kurohicncr.top/Article/details/20645681025.shtml)
+- 2026-06-29 12:30 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](http://www.blog.kurohicncr.top/Article/details/86577.shtml)
+- 2026-06-29 12:06 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](http://www.blog.kurohicncr.top/Article/details/864392.shtml)
+- 2026-06-29 12:24 - [4月22日“农产品批发价格200指数”与昨天持平](http://www.share.kurohicncr.top/Article/details/416829544738.shtml)
+- 2026-06-29 12:09 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](http://www.blog.kurohicncr.top/Article/details/0976347613.shtml)
+- 2026-06-29 12:32 - [228件作品荟萃第四届当代陶瓷艺术展览](http://www.share.minike.top/Article/details/955416871127.shtml)
+- 2026-06-29 12:23 - [多部门协同发力 陕西持续优化老年人优待服务](http://www.share.kurohicncr.top/Article/details/56815438.shtml)
+- 2026-06-29 12:08 - [推动实体经济发展，内蒙古“放大招”](http://www.share.kurohicncr.top/Article/details/895691.shtml)
+- 2026-06-29 12:07 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](http://www.share.minike.top/Article/details/51809427.shtml)
+- 2026-06-29 12:30 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](http://www.share.minike.top/Article/details/4584341807.shtml)
+- 2026-06-29 12:07 - [美联储主席提名人沃什阐述美联储政策主张](http://www.share.kurohicncr.top/Article/details/83150.shtml)
+- 2026-06-29 12:21 - [日经指数首次升破60000点](http://www.share.kurohicncr.top/Article/details/05681.shtml)
+- 2026-06-29 12:20 - [俄军总参谋长：已完全控制卢甘斯克地区](http://www.share.minike.top/Article/details/187221731687.shtml)
+- 2026-06-29 12:13 - [鸡煲带火祛湿养生，体内湿气到底是啥？](http://www.blog.kurohicncr.top/Article/details/32146255.shtml)

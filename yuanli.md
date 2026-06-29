@@ -1,60 +1,57 @@
-# 马斯克在对OpenAI的诉讼案中首日出庭作证
+# 广东数智文娱企业加速拓展马来西亚市场
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-当地时间周二，美国科技亿万富翁埃隆·马斯克在其对OpenAI的诉讼案中首日出庭作证。据报道，这位全球首富告诉由九人组成的陪审团，人工智能“可能会毁灭我们所有人”，并提到了詹姆斯·卡梅隆的《终结者》（人工智能的糟糕后果）和《星际迷航》（人工智能的美好结果）。 他还把 OpenAI 的整个故事归咎于谷歌联合创始人拉里·佩奇曾经对他说过的一句侮辱：“物种歧视者”。 这场预计将持续四周
+中新网吉隆坡4月22日电 (记者 刘育英)2026中国(广东)—马来西亚数智文娱贸易投资推介会21日在马来西亚吉隆坡举办，2026 GTI东南亚泛娱乐产业展同期启幕，成为广东企业加速布局马来西亚市场的重要平台。 本次推介会由广东省驻东南亚(吉隆坡)经贸办事处主办，马来西亚中国工商协会承办，以“数智赋能、文旅融合、扩大贸易、双向投资、互利共赢”为主题，聚焦数智文娱设备、智能游乐设
 
 ## 正文
 
-当地时间周二，美国科技亿万富翁埃隆·马斯克在其对OpenAI的诉讼案中首日出庭作证。
+中新网吉隆坡4月22日电 (记者 刘育英)2026中国(广东)—马来西亚数智文娱贸易投资推介会21日在马来西亚吉隆坡举办，2026 GTI东南亚泛娱乐产业展同期启幕，成为广东企业加速布局马来西亚市场的重要平台。
 
-据报道，这位全球首富告诉由九人组成的陪审团，人工智能“可能会毁灭我们所有人”，并提到了詹姆斯·卡梅隆的《终结者》（人工智能的糟糕后果）和《星际迷航》（人工智能的美好结果）。
+本次推介会由广东省驻东南亚(吉隆坡)经贸办事处主办，马来西亚中国工商协会承办，以“数智赋能、文旅融合、扩大贸易、双向投资、互利共赢”为主题，聚焦数智文娱设备、智能游乐设施、跨境贸易与产业投资，旨在推动广东优质产能与马来西亚文旅产业升级需求对接，吸引中马政府代表、行业协会及企业代表参与。
 
-他还把 OpenAI 的整个故事归咎于谷歌联合创始人拉里·佩奇曾经对他说过的一句侮辱：“物种歧视者”。
+广东省驻东南亚(吉隆坡)经贸办事处主任张君宏表示，将以此次推介会为起点，持续深化广东与马来西亚在数字经济、文化旅游及跨境投资等领域的务实合作，促进资源对接与产业链协同，携手开拓东南亚数智文娱市场。
 
-这场预计将持续四周的审判，核心是马斯克在2024年提起的诉讼，指控OpenAI背叛了其作为非营利组织“造福全人类”的创立宗旨。
+马来西亚数字经济发展局(MDEC)投资部主任陈哲峰系统介绍了马来西亚数字经济的发展现状与政策优势，并邀请广东企业深耕马来西亚市场，携手推动当地数字经济产业全面发展。
 
-2015年，马斯克与萨姆·奥特曼共同创立了OpenAI实验室。
+会上，双方围绕产业合作形成多项共识，包括深化双向贸易、推动跨境产业投资、共同打造特色文化IP、推进“设备+内容+运营+服务”的全链条出海模式，以及建立常态化合作机制。
 
-此前，两人曾花费数周时间讨论他们对人工智能落入以盈利为目的的巨型企业（尤其是谷歌）手中的担忧。
+多家企业现场签署合作意向，涵盖文旅项目开发、设备采购及产业投资等领域，为后续项目落地提供支撑。
 
-然而，到了2017年，他们意识到，构建先进的人工智能所需的资金远超非营利组织所能筹集的范围，于是他们开始讨论将OpenAI转变为营利性机构。
+与此同时，2026 GTI东南亚泛娱乐产业展汇聚来自中国、马来西亚、新加坡、荷兰、美国等的百余家企业，集中展示游乐设备、VR/AR(虚拟现实/增强现实)解决方案及IP衍生品等内容。
 
-马斯克曾向OpenAI捐赠至少3800万美元，他希望担任首席执行官并获得控股权，但在与奥特曼就此职位展开权力斗争后，他感到自己受到了欺骗。
+业内人士指出，随着人工智能、XR等技术加速应用，文娱产业正从“流量竞争”迈向“长期价值创造”，企业出海模式也随之升级。
 
 ## 相关推荐
 
-- 2026-06-29 12:05 - [我国太空金属增材制造技术取得突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:17 - [中国银联董事长董俊峰出席APEC工商咨询理事会会议 参加与墨西哥政府高层双边会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:11 - [凯莱英午前涨超8% 第一季度经调整归母净利润增近28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:14 - [新华时评丨借尸还魂的“大将”“大佐”们](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:02 - [北美与欧洲增长放缓，Spotify Q2利润指引不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:26 - [城堡证券高管称伊朗冲突风险消退 股债市场有望同步上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:21 - [酒价内参4月29日价格发布：五粮液1618保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:10 - [爱奇艺的“AI赌局”：当降本逻辑撞上内容本质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:06 - [中国国家文化产业拟向周星驰等认购方发行合共4680万份认股权证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:12 - [银行理财子加速“扫货”权益市场，打新报价量两月激增近九成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:00 - [【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:15 - [转让底价6573万元，华泰保险集团880万股股份再度挂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:16 - [翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:27 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:06 - [贵阳银行：一季度归母净利润14.77亿元，同比增加2.37%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:31 - [美股周一创下4月6日以来最大零售股票买入日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:13 - [第九届进博会推介会暨虹桥论坛咨商会在非盟总部举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:32 - [惠誉评级：中资银行息差有望筑底，零售风险需关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:23 - [SEC警示私募信贷“新兴压力”，监管风暴山雨欲来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:29 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:33 - [“护苗”典型案例｜非法印制并销售侵权盗版中小学教辅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:23 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:07 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:31 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:35 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:02 - [一季度生态成绩单亮眼，高质量发展绿意盎然](http://www.share.minike.top/Article/details/2514714219.shtml)
-- 2026-06-29 12:13 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](http://www.share.minike.top/Article/details/3307611.shtml)
-- 2026-06-29 12:02 - [普京称西方正将领导地位让位于全球南方国家](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](http://www.share.minike.top/Article/details/8064725.shtml)
-- 2026-06-29 12:19 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](http://www.share.minike.top/Article/details/86764446034.shtml)
-- 2026-06-29 12:24 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用](http://www.blog.minike.top/Article/details/9805432.shtml)
-- 2026-06-29 12:05 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](http://www.blog.minike.top/Article/details/120350848.shtml)
-- 2026-06-29 12:04 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](http://www.share.kurohicncr.top/Article/details/41691121.shtml)
-- 2026-06-29 12:26 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](http://www.share.minike.top/Article/details/04508.shtml)
-- 2026-06-29 12:15 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](http://www.share.kurohicncr.top/Article/details/31866069.shtml)
-- 2026-06-29 12:04 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](http://www.share.kurohicncr.top/Article/details/87098439563.shtml)
-- 2026-06-29 12:01 - [泰国央行维持关键利率不变 以抵御油价对经济的冲击](http://www.blog.minike.top/Article/details/65181.shtml)
-- 2026-06-29 12:26 - [全国首单银行间市场消费类定向资产支持票据发行](http://www.share.kurohicncr.top/Article/details/3602547628.shtml)
-- 2026-06-29 12:10 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](http://www.blog.minike.top/Article/details/65213547.shtml)
+- 2026-06-29 12:06 - [多支欧洲足球劲旅将于8月会师香港](http://www.share.kurohicncr.top/Article/details/3156086.shtml)
+- 2026-06-29 12:10 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.share.minike.top/Article/details/92236447.shtml)
+- 2026-06-29 12:15 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](http://www.blog.minike.top/Article/details/727445534596.shtml)
+- 2026-06-29 12:09 - [世界读书日：寻访巷陌深处的“老昆明”](http://www.blog.kurohicncr.top/Article/details/359275.shtml)
+- 2026-06-29 12:29 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](http://www.blog.kurohicncr.top/Article/details/44440.shtml)
+- 2026-06-29 12:19 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.blog.kurohicncr.top/Article/details/1270351.shtml)
+- 2026-06-29 12:25 - [2026年渣打香港马拉松带来3.38亿港元经济效益](http://www.blog.minike.top/Article/details/697636057.shtml)
+- 2026-06-29 12:21 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](http://www.share.minike.top/Article/details/1957358638.shtml)
+- 2026-06-29 12:21 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.blog.minike.top/Article/details/08043368414.shtml)
+- 2026-06-29 12:29 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](http://www.blog.minike.top/Article/details/55375100.shtml)
+- 2026-06-29 12:29 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](http://www.blog.kurohicncr.top/Article/details/157310087996.shtml)
+- 2026-06-29 12:29 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](http://www.blog.minike.top/Article/details/02258773.shtml)
+- 2026-06-29 12:08 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [崖沙燕“如约”重返永定河](http://www.blog.kurohicncr.top/Article/details/053626804.shtml)
+- 2026-06-29 12:32 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.share.minike.top/Article/details/31730848.shtml)

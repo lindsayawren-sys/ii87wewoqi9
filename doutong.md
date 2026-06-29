@@ -1,58 +1,57 @@
-# 深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情
+# 综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 16:26 来源：中国新闻网 【解说】不算雄峻的深圳大鹏新区观音山海拔只有174.59米，却因一块岩石声名远播——厚3米、长20余米的巨石从山谷蓦然探出，翘首向上如游龙出壑，故得名龙岩。春和景明好时节，观音山景区总是好去处。 【同期】龙岩古寺管委会文化使者 李宏伟 我们来看一下第三进屋顶的这块龙岩，这块龙岩是从山谷中蓦然伸出，翘首向上，犹如出地
+新华社德黑兰/华盛顿4月21日电 伊斯兰堡第二轮美伊谈判能否在停火协议到期前举行，悬念在21日揭晓：伊朗方面当晚正式拒绝出席预期于22日在巴基斯坦伊斯兰堡举行的第二轮谈判；稍晚，美国总统特朗普宣布，应巴基斯坦方面请求，他同意延长美伊停火期限，直至伊朗方面提交其方案并完成相关磋商。 据伊朗塔斯尼姆通讯社报道，伊方认为，美国正在阻挠达成任何实质性协议，参与谈判纯属浪费时间。伊朗也通
 
 ## 正文
 
-发布时间：2026年04月28日 16:26 来源：中国新闻网 【解说】不算雄峻的深圳大鹏新区观音山海拔只有174.59米，却因一块岩石声名远播——厚3米、长20余米的巨石从山谷蓦然探出，翘首向上如游龙出壑，故得名龙岩。
+新华社德黑兰/华盛顿4月21日电 伊斯兰堡第二轮美伊谈判能否在停火协议到期前举行，悬念在21日揭晓：伊朗方面当晚正式拒绝出席预期于22日在巴基斯坦伊斯兰堡举行的第二轮谈判；稍晚，美国总统特朗普宣布，应巴基斯坦方面请求，他同意延长美伊停火期限，直至伊朗方面提交其方案并完成相关磋商。
 
-春和景明好时节，观音山景区总是好去处。
+据伊朗塔斯尼姆通讯社报道，伊方认为，美国正在阻挠达成任何实质性协议，参与谈判纯属浪费时间。
 
-【同期】龙岩古寺管委会文化使者 李宏伟 我们来看一下第三进屋顶的这块龙岩，这块龙岩是从山谷中蓦然伸出，翘首向上，犹如出地之龙，所以人们称它为龙岩，后人依岩筑寺，故称龙岩古寺，龙岩古寺的这块岩石厚3米多长20余米。
+伊朗也通过巴基斯坦宣布其决定，表示为了充分维护伊朗人民权利，伊方代表团22日将不会前往巴基斯坦。
 
-【解说】 这座始建于清同治年间的古寺，距今已有160余年历史，早已成为珠三角地区乃至港澳同胞、海外侨胞心中的祈福胜地。
+特朗普政府重演“极限施压、临阵收手”的套路。
 
-每逢观音诞辰日，古寺都会举办免费供斋活动，数千名信众游人齐聚于此，共享斋饭、共叙乡情。
+特朗普21日在社交媒体发表声明称，伊朗政府“内部已严重分裂”，并称在巴基斯坦领导人请求下，“我们被要求暂缓对伊朗发动进攻，直至其领导人及代表能够拿出一份意见一致的方案”。
 
-在这份温润的人文底蕴之外，还镌刻着厚重的红色记忆。
+他同时指示美军继续对伊朗实施海上封锁并保持战备状态。
 
-【同期】龙岩古寺管委会文化使者 李宏伟 因为龙岩古寺位于观音山的半山腰，周围林木茂密遮天蔽日，隐蔽性比较好，所以在1943年抗战时期中国共产党领导的南粤抗日武装力量东江纵队的战地医院曾设立于此。
+当天早些时候，特朗普在接受美国媒体采访时还称，他不希望延长同伊朗的停火协议，美军已做好作战准备。
 
-我们看一下，当时战地医院在龙岩古寺内以及山上都设立了他们的医院，在山上他们也搭建了一些帐篷用于存放医疗物资，还有晾晒战士们的军服以及绷带纱布等等。
+此前，特朗普20日称，美国和伊朗两周停火将于“华盛顿时间22日晚”到期。
 
 ## 相关推荐
 
-- 2026-06-29 12:00 - [中共中央政治局会议要点对比及解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:21 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:17 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:29 - [谷歌员工反对将AI用于机密任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:04 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:05 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:26 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:14 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:19 - [中国选手赵一程打破男子速度攀岩世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:16 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:26 - [“华住会”App崩了？客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:12 - [“五一”假期小型客车继续施行免收通行费政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:13 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:27 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:10 - [一季度长三角地区出口合计占全国41%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:21 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:16 - [酒钢宏兴：2025年净亏损19.98亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:09 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:30 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:10 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:24 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:31 - [日本126名议员集体参拜靖国神社](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:20 - [绿的谐波：一季度净利润同比增长61.17%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:23 - [ATF:美国消费者信心今晚登场 美元黄金与美股或迎来方向测试](http://www.share.minike.top/Article/details/64335030464.shtml)
-- 2026-06-29 12:01 - [2026本科专业“上新”，“新”在何处？](http://www.blog.minike.top/Article/details/3854991451.shtml)
-- 2026-06-29 12:16 - [外媒：阿富汗遭巴基斯坦导弹袭击，造成3人死亡、45人受伤](http://www.share.minike.top/Article/details/097497404450.shtml)
-- 2026-06-29 12:09 - [亿缕阳光｜治愈的瞬间](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [2026年孟连海关部门预算公开](http://www.share.minike.top/Article/details/171876732842.shtml)
-- 2026-06-29 12:27 - [东珠生态（603359）投资者索赔分析](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [香港引入首辆飞机专用重型电拖车](http://www.share.minike.top/Article/details/99284017144.shtml)
-- 2026-06-29 12:12 - [瑞银：华润置地目标价36港元 维持“买入”评级](http://www.share.kurohicncr.top/Article/details/73247.shtml)
-- 2026-06-29 12:26 - [《习近平谈治国理政》第五卷英文版中印尼推介会在雅加达举行](http://www.blog.kurohicncr.top/Article/details/58231082.shtml)
-- 2026-06-29 12:14 - [江西省省长：加快让人形机器人等未来产业形成新经济增长点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [国泰君安期货：玻璃跌破前低 下跌趋势延续](http://www.blog.kurohicncr.top/Article/details/019357819566.shtml)
-- 2026-06-29 12:23 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.minike.top/Article/details/195673511.shtml)
-- 2026-06-29 12:22 - [全球首艘10800车汽车运输船在广州命名交付](http://www.share.minike.top/Article/details/835978775.shtml)
-- 2026-06-29 12:05 - [截至4月28日，今年全国共发生7次大范围强对流天气过程](http://www.share.minike.top/Article/details/279569.shtml)
-- 2026-06-29 12:05 - [中方：巴勒斯坦问题在任何情况下都不应被边缘化](http://www.share.minike.top/Article/details/7062053082.shtml)
+- 2026-06-29 12:18 - [登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中](http://www.blog.minike.top/Article/details/50900948952.shtml)
+- 2026-06-29 12:08 - [确定！方一天出任华安基金党委副书记，获提名总经理](http://www.share.kurohicncr.top/Article/details/861916193553.shtml)
+- 2026-06-29 12:17 - [【这个城市有点潮】宿迁：在“项王故里”邂逅水韵柔情](http://www.blog.minike.top/Article/details/15857698.shtml)
+- 2026-06-29 12:35 - [一笔一笔走近你](http://www.blog.kurohicncr.top/Article/details/7695548450.shtml)
+- 2026-06-29 12:16 - [伊朗否认举行美伊新谈判 指特朗普“又说谎了”](http://www.share.kurohicncr.top/Article/details/69456.shtml)
+- 2026-06-29 12:21 - [欧洲股市小幅走高，市场陷入“观望停滞状态”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [西门子数字化工业集团CEO：人工智能助力西门子深化与中国合作](http://www.share.minike.top/Article/details/449963282139.shtml)
+- 2026-06-29 12:35 - [白宫向福克斯新闻透露：特朗普将伊朗停火期限延长3-5天](http://www.blog.minike.top/Article/details/149384942398.shtml)
+- 2026-06-29 12:25 - [上市公司市值管理实践：中国建筑从“战术”到“战略”](http://www.share.kurohicncr.top/Article/details/94354973.shtml)
+- 2026-06-29 12:24 - [延边州首个百兆瓦级独立构网型储能电站开建](http://www.share.kurohicncr.top/Article/details/6678727.shtml)
+- 2026-06-29 12:12 - [特朗普称最快周五或重启美伊新一轮和谈](http://www.blog.minike.top/Article/details/97043.shtml)
+- 2026-06-29 12:33 - [劳埃德银行试点AI投资指导工具，英国监管机构正研究其影响](http://www.blog.kurohicncr.top/Article/details/8385754.shtml)
+- 2026-06-29 12:28 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.blog.kurohicncr.top/Article/details/447926837291.shtml)
+- 2026-06-29 12:21 - [哈尔滨音乐学院原党委副书记、工会主席刘东兴被“双开”](http://www.share.kurohicncr.top/Article/details/832864454.shtml)
+- 2026-06-29 12:32 - [连亏5年，越亏越多！知名超市学胖东来效果不佳，去年关店414家，巨亏9.57亿元，最新市值仅35亿元](http://www.blog.kurohicncr.top/Article/details/779391.shtml)

@@ -1,60 +1,56 @@
-# 北美与欧洲增长放缓，Spotify Q2利润指引不及预期
+# SEC警示私募信贷“新兴压力”，监管风暴山雨欲来
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-瑞典音乐流媒体巨头Spotify周二公布的2026年第一季度财报喜忧参半：尽管当季利润创下历史新高，但对第二季度的盈利和付费用户增长指引均低于市场预期，主要受北美和欧洲等成熟市场增长放缓的影响。财报公布后，Spotify股价盘中大跌逾14%。 Q1业绩超预期，利润创新高 财报显示，Spotify第一季度实现营收45.3亿欧元，同比增长8%，与市场预期基本一致。月度活跃用户达7.
+美国证券交易委员会主席保罗·阿特金斯周二在华盛顿经济俱乐部发表讲话时明确表示，该机构正在密切关注私募信贷领域出现的“新兴压力”。他特别指出，该领域的不透明性、估值难题和信用质量是核心关切点。 “让我明确一点，这个领域的不透明性可能成为一个问题，”阿特金斯在采访前说道。他强调，估值透明度与信用质量是监管审查的关键。 这一警告并非空穴来风。作为规模达1.8万亿美元的资产类别，私募信
 
 ## 正文
 
-瑞典音乐流媒体巨头Spotify周二公布的2026年第一季度财报喜忧参半：尽管当季利润创下历史新高，但对第二季度的盈利和付费用户增长指引均低于市场预期，主要受北美和欧洲等成熟市场增长放缓的影响。
+美国证券交易委员会主席保罗·阿特金斯周二在华盛顿经济俱乐部发表讲话时明确表示，该机构正在密切关注私募信贷领域出现的“新兴压力”。
 
-财报公布后，Spotify股价盘中大跌逾14%。
+他特别指出，该领域的不透明性、估值难题和信用质量是核心关切点。
 
-Q1业绩超预期，利润创新高 财报显示，Spotify第一季度实现营收45.3亿欧元，同比增长8%，与市场预期基本一致。
+“让我明确一点，这个领域的不透明性可能成为一个问题，”阿特金斯在采访前说道。
 
-月度活跃用户达7.61亿，净增1000万，超出公司指引200万。
+他强调，估值透明度与信用质量是监管审查的关键。
 
-付费用户增至2.93亿，净增300万，符合公司预期。
+这一警告并非空穴来风。
 
-盈利能力方面，运营利润达到创纪录的7.15亿欧元，远超公司此前指引的6.6亿欧元，也高于分析师预期的6.84亿欧元。
+作为规模达1.8万亿美元的资产类别，私募信贷市场近期正经历剧烈动荡。
 
-运营利润率升至15.8%。
+受高利率及经济不确定性影响，投资者赎回请求激增，流动性压力骤增。
 
-每股摊薄收益达3.45欧元，远高于去年同期的1.07欧元。
+就在本月，Ares Management旗下的战略收益基金因赎回申请触及11.6%的门槛，宣布限制提款；此前，黑石、阿波罗全球管理及凯雷等巨头均已对旗下私募信贷产品实施赎回上限。
 
 ## 相关推荐
 
-- 2026-06-29 12:03 - [转让底价6573万元，华泰保险集团880万股股份再度挂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:02 - [翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:09 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:24 - [深化中国—东盟经贸合作 专家提十大建议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:16 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:15 - [千年晋祠难老泉高位复流 带动周边产业焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:29 - [一江清水向东流——凝心聚力共绘长江发展新画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:18 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:17 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:16 - [四川蓝莓首次出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:19 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:06 - [中钢协：积极开展产能治理、产量调控、行业自律](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:03 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:28 - [快乐出行不“掉坑”，这份网络安全指南请查收！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:13 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:30 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:16 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:33 - [库克时代落幕，苹果新帅面临AI关键战役](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:35 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:28 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:14 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:13 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:13 - [聚焦人工智能应用 印尼教育界人士来鄂研修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:31 - [苹果换帅时机或预示财报利好，分析师看好短期表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](http://www.share.kurohicncr.top/Article/details/662803462.shtml)
-- 2026-06-29 12:16 - [泰国央行维持关键利率不变 以抵御油价对经济的冲击](http://www.blog.kurohicncr.top/Article/details/3090191023.shtml)
-- 2026-06-29 12:14 - [全国首单银行间市场消费类定向资产支持票据发行](http://www.share.minike.top/Article/details/61304003.shtml)
-- 2026-06-29 12:16 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](http://www.blog.kurohicncr.top/Article/details/4917628407.shtml)
-- 2026-06-29 12:11 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [如何看待中方叫停Manus并购案？](http://www.share.minike.top/Article/details/55454376266.shtml)
-- 2026-06-29 12:01 - [南京银行董事长谢宁解读“好银行”发展理念](http://www.blog.minike.top/Article/details/67565172.shtml)
-- 2026-06-29 12:29 - [“漂流书包”十年：一份民主党派的阅读答卷](http://www.blog.minike.top/Article/details/3813920.shtml)
-- 2026-06-29 12:12 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](http://www.blog.kurohicncr.top/Article/details/44633511.shtml)
-- 2026-06-29 12:14 - [康宁一季度利润与核心营收双双增长](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](http://www.blog.minike.top/Article/details/47354.shtml)
-- 2026-06-29 12:09 - [五一机票又“跳水”了？](http://www.share.minike.top/Article/details/013211547830.shtml)
-- 2026-06-29 12:22 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](http://www.blog.kurohicncr.top/Article/details/34816.shtml)
-- 2026-06-29 12:11 - [日本公然宣称为“长期战争”做准备 中方回应](http://www.share.kurohicncr.top/Article/details/2056380227.shtml)
+- 2026-06-29 12:08 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](http://www.blog.kurohicncr.top/Article/details/319164095353.shtml)
+- 2026-06-29 12:13 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](http://www.share.minike.top/Article/details/817018895448.shtml)
+- 2026-06-29 12:25 - [崖沙燕“如约”重返永定河](http://www.blog.kurohicncr.top/Article/details/720714439396.shtml)
+- 2026-06-29 12:24 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.share.minike.top/Article/details/37903384.shtml)
+- 2026-06-29 12:25 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](http://www.blog.minike.top/Article/details/6536715.shtml)
+- 2026-06-29 12:22 - [伊朗大量美制设备集体失灵，暴露数字安全新威胁](http://www.blog.minike.top/Article/details/78519404.shtml)
+- 2026-06-29 12:08 - [603169、000909、603363、000892，被证监会立案！](http://www.blog.kurohicncr.top/Article/details/05454.shtml)
+- 2026-06-29 12:28 - [以军称黎巴嫩真主党“违反停火协议”](http://www.blog.minike.top/Article/details/067787799815.shtml)
+- 2026-06-29 12:09 - [手机成新农具，物流通万家！乡村消费早已不一样](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](http://www.blog.minike.top/Article/details/5119004012.shtml)
+- 2026-06-29 12:09 - [西安银行发布2025年度利润分配方案 拟每10派1元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](http://www.blog.minike.top/Article/details/96227.shtml)
+- 2026-06-29 12:10 - [售价29999元，华为星钻手镯表5月15日开售](http://www.blog.kurohicncr.top/Article/details/2980270.shtml)
+- 2026-06-29 12:13 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](http://www.blog.kurohicncr.top/Article/details/38664394.shtml)

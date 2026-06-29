@@ -1,61 +1,59 @@
-# 翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局
+# 民调：美国民众对经济悲观 认为国家正朝错误方向发展
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 翼菲科技通过港交所聆讯，轻工业机器人赛道又要迎来一家上市公司。 4月20日，浙江翼菲智能科技股份有限公司披露通过聆讯后的资料集，农银国际担任独家保荐人。这家成立于2012年的工业机器人企业，已经走到港股IPO前夜。如果上市顺利，翼菲科技将成为“轻工业全品类机器人第一股”。 翼菲科技的故事并不复杂。它不是单押某一款机器人，而是围绕轻工业场景做了一套产品矩
+中新网4月22日电 据美国《赫芬顿邮报》报道，美联社-NORC公共事务研究中心当地时间21日公布的最新民调显示，美国总统特朗普的支持率降至33%，为其重返白宫以来的最低水平。大多数受访者对美国经济前景感到悲观，认为国家正朝着错误方向发展。 民调显示，67%的受访者不赞成特朗普的表现，其中49%表示强烈反对。 民调还指出，对特朗普的不满情绪已经蔓延至共和党内部，仅有68%的共和党
 
 ## 正文
 
-文|新浪财经上海站 十里 翼菲科技通过港交所聆讯，轻工业机器人赛道又要迎来一家上市公司。
+中新网4月22日电 据美国《赫芬顿邮报》报道，美联社-NORC公共事务研究中心当地时间21日公布的最新民调显示，美国总统特朗普的支持率降至33%，为其重返白宫以来的最低水平。
 
-4月20日，浙江翼菲智能科技股份有限公司披露通过聆讯后的资料集，农银国际担任独家保荐人。
+大多数受访者对美国经济前景感到悲观，认为国家正朝着错误方向发展。
 
-这家成立于2012年的工业机器人企业，已经走到港股IPO前夜。
+民调显示，67%的受访者不赞成特朗普的表现，其中49%表示强烈反对。
 
-如果上市顺利，翼菲科技将成为“轻工业全品类机器人第一股”。
+民调还指出，对特朗普的不满情绪已经蔓延至共和党内部，仅有68%的共和党人认可其工作表现，而31%的人表示不满。
 
-翼菲科技的故事并不复杂。
+“经济表现不佳是导致人们对特朗普失望的主要原因。
 
-它不是单押某一款机器人，而是围绕轻工业场景做了一套产品矩阵，包括并联机器人、AGV/AMR移动机器人、SCARA机器人、晶圆搬运机器人和六轴工业机器人，并配套自研控制及视觉系统。
+”报道称，仅有23%的受访者认可其在生活成本问题上的处理方式，而反对比例高达76%。
 
-公司把这套体系拆成“脑、眼、手、足”：控制系统负责决策和协同，视觉系统负责识别和跟踪，本体结构负责执行，移动平台负责自主导航和避障。
+美联社公布的民调数据显示，约七成受访者认为美国经济“状况糟糕”，这一比例较3月份有所上升。
 
-这也是翼菲科技冲刺IPO时最想讲清楚的一点：它卖的不只是机器人本体，而是面向轻工业场景的综合机器人解决方案。
+民调指出，该结果凸显出美国民众对生活成本持续不满，而美国对伊朗的军事行动推高生活成本，特别是燃油价格飙升，进一步加剧了这一情绪。
 
 ## 相关推荐
 
-- 2026-06-29 12:10 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:05 - [四川蓝莓首次出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:04 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:18 - [中钢协：积极开展产能治理、产量调控、行业自律](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:07 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:12 - [快乐出行不“掉坑”，这份网络安全指南请查收！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:28 - [企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:14 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:23 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:25 - [晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:20 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:12 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:18 - [国铁沈阳局五一小长假预计发送旅客740万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:27 - [香港3月进出口货值现两位数增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:00 - [涉嫌严重违纪违法 内蒙古两厅官被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:24 - [聚焦人工智能应用 印尼教育界人士来鄂研修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:24 - [苹果换帅时机或预示财报利好，分析师看好短期表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:13 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:27 - [中国隧道连续皮带机首次出口西班牙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:31 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:14 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:08 - [德国电信据悉考虑与T-Mobile US进行全面合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:07 - [中国海军以最高礼仪迎接烈士遗骸回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:30 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:31 - [RadexMarkets瑞德克斯:能源市场面临极端压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:31 - [上海发布广告人才新政 面向全球招揽行业英才](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:18 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:21 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:02 - [“漂流书包”十年：一份民主党派的阅读答卷](http://www.blog.kurohicncr.top/Article/details/02850063.shtml)
-- 2026-06-29 12:11 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](http://www.blog.kurohicncr.top/Article/details/050302.shtml)
-- 2026-06-29 12:02 - [康宁一季度利润与核心营收双双增长](http://www.share.minike.top/Article/details/330878082.shtml)
-- 2026-06-29 12:14 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](http://www.share.minike.top/Article/details/6357062283.shtml)
-- 2026-06-29 12:24 - [五一机票又“跳水”了？](http://www.share.minike.top/Article/details/0146831.shtml)
-- 2026-06-29 12:25 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](http://www.blog.minike.top/Article/details/9283611.shtml)
-- 2026-06-29 12:08 - [日本公然宣称为“长期战争”做准备 中方回应](http://www.blog.kurohicncr.top/Article/details/23991.shtml)
-- 2026-06-29 12:06 - [金石为开——西安·沈阳名碑拓片特展开幕](http://www.blog.minike.top/Article/details/27201.shtml)
-- 2026-06-29 12:28 - [铁路文旅创新融合绘就发展新图景](http://www.blog.kurohicncr.top/Article/details/630286107.shtml)
-- 2026-06-29 12:02 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](http://www.blog.kurohicncr.top/Article/details/927723045425.shtml)
-- 2026-06-29 12:05 - [AI赋能“一人公司” 个体创新潜力持续激活](http://www.blog.kurohicncr.top/Article/details/589562.shtml)
-- 2026-06-29 12:03 - [中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%](http://www.blog.kurohicncr.top/Article/details/42999.shtml)
-- 2026-06-29 12:25 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](http://www.blog.minike.top/Article/details/496966142719.shtml)
-- 2026-06-29 12:29 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](http://www.blog.minike.top/Article/details/91676.shtml)
-- 2026-06-29 12:07 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [手机成新农具，物流通万家！乡村消费早已不一样](http://www.blog.kurohicncr.top/Article/details/492778947265.shtml)
+- 2026-06-29 12:08 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](http://www.blog.kurohicncr.top/Article/details/360222.shtml)
+- 2026-06-29 12:32 - [西安银行发布2025年度利润分配方案 拟每10派1元](http://www.blog.kurohicncr.top/Article/details/564491.shtml)
+- 2026-06-29 12:20 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](http://www.blog.kurohicncr.top/Article/details/30065.shtml)
+- 2026-06-29 12:11 - [售价29999元，华为星钻手镯表5月15日开售](http://www.share.kurohicncr.top/Article/details/53344387.shtml)
+- 2026-06-29 12:32 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](http://www.share.kurohicncr.top/Article/details/385468536.shtml)
+- 2026-06-29 12:31 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [百思买任命资深人士为CEO](http://www.share.minike.top/Article/details/32323275.shtml)
+- 2026-06-29 12:08 - [辽宁海城：梨花成海 粉樱作伴](http://www.blog.kurohicncr.top/Article/details/79888.shtml)
+- 2026-06-29 12:28 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](http://www.blog.minike.top/Article/details/1834961.shtml)
+- 2026-06-29 12:18 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](http://www.share.kurohicncr.top/Article/details/71754434.shtml)
+- 2026-06-29 12:21 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.share.minike.top/Article/details/47006.shtml)
+- 2026-06-29 12:29 - [英国石油公司高管将出任OMV首位女性首席执行官](http://www.blog.kurohicncr.top/Article/details/378844155464.shtml)
+- 2026-06-29 12:20 - [“新时代、新品质、新气象：清华大学美术学院新世纪成果展”研讨会举办](http://www.share.minike.top/Article/details/43733911.shtml)
+- 2026-06-29 12:10 - [东山精密业绩大增27.67%，利润增速远超预期！靠什么？](http://www.share.kurohicncr.top/Article/details/783449.shtml)

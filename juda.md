@@ -1,59 +1,61 @@
-# 通用汽车CFO：5亿美元关税返还背后的谨慎乐观
+# 西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-尽管第一财季业绩超预期，并受益于美国最高法院的一项裁决获得了高达5亿美元的关税退款，通用汽车首席财务官保罗·雅各布森周二仍发出警告，公司正在为全年的不确定性做准备。 关税“意外之财”提振业绩 周二公布的数据显示，通用汽车第一季度营收达436.2亿美元，调整后每股收益为3.70美元，远超市场预期的2.62美元。超预期的表现得益于美国最高法院今年2月的裁决——认定特朗普政府根据《国
+中新社西安4月21日电 (记者 阿琳娜)记者21日从陕西省考古研究院获悉，考古人员在陕西蓝田杨家沟遗址发现目前已公布墓葬数量最多的客省庄文化遗存，其中包括多座“灰坑葬”，即将人埋葬于灰坑中，且多无随葬品。 杨家沟遗址位于陕西省蓝田县杨家沟村西的台地上。初步调查得知，该遗址面积约15万平方米。经发掘和初步整理，共发现客省庄文化遗迹170个，其中灰坑118个、房址8座、“灰坑葬”7
 
 ## 正文
 
-尽管第一财季业绩超预期，并受益于美国最高法院的一项裁决获得了高达5亿美元的关税退款，通用汽车首席财务官保罗·雅各布森周二仍发出警告，公司正在为全年的不确定性做准备。
+中新社西安4月21日电 (记者 阿琳娜)记者21日从陕西省考古研究院获悉，考古人员在陕西蓝田杨家沟遗址发现目前已公布墓葬数量最多的客省庄文化遗存，其中包括多座“灰坑葬”，即将人埋葬于灰坑中，且多无随葬品。
 
-关税“意外之财”提振业绩 周二公布的数据显示，通用汽车第一季度营收达436.2亿美元，调整后每股收益为3.70美元，远超市场预期的2.62美元。
+杨家沟遗址位于陕西省蓝田县杨家沟村西的台地上。
 
-超预期的表现得益于美国最高法院今年2月的裁决——认定特朗普政府根据《国际紧急经济权力法》实施的大规模关税违法。
+初步调查得知，该遗址面积约15万平方米。
 
-这使得通用汽车预计将获得约5亿美元的关税退款。
+经发掘和初步整理，共发现客省庄文化遗迹170个，其中灰坑118个、房址8座、“灰坑葬”7个、陶窑3座、墓葬33座、沟1条。
 
-受此影响，公司将全年调整后息税前利润指引上调5亿美元，至135亿至155亿美元区间。
+“从目前的发掘和研究情况看，‘灰坑葬’也是一种墓葬形式，在距今七八千年前的陕西关中地区已有发现，在客省庄文化遗址中广泛分布。
 
-公司目前预计全年总关税成本将从此前的30亿至40亿美元降至25亿至35亿美元。
+”陕西省考古研究院副研究员郭小宁介绍，此次发现的“灰坑葬”，一般人骨位于灰坑底部近坑壁处或在灰坑中部近坑壁处，墓主基本为成人，多为单人墓葬，也有二人合葬，均为屈肢葬。
 
-通胀与原材料涨价成隐忧 尽管上调了盈利指引，但雅各布森在周二的媒体采访中强调：“尽管我们取得了超出预期的成绩，但我们并未将业绩指引上调同样的幅度。
+此次发现的墓葬均为长方形竖穴土坑墓，规模较小，为单人葬，无随葬品，多是仰身直肢葬，少量为侧身屈肢。
 
-我们对这种情况能持续多久持谨慎态度。
+目前已发掘区域的墓葬分为四个区，各区墓葬数量不一样，呈一定规律分布。
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [重庆秀山：烟雨“边城” 古韵映春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:01 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:25 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:12 - [韩国宣布与Google DeepMind建立合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:15 - [光大期货：4月28日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:13 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:17 - [深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:10 - [华盛顿发生两起枪击事件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:07 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:21 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:28 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:06 - [国务院任免国家工作人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:27 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:24 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:28 - [美国多家航空公司面临燃油压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:15 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:14 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:10 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:11 - [美国国家安全局被曝使用Anthropic受限模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:10 - [浙江进入汛期以来首次区域性强降雨过程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:08 - [金埔园林2025年度归母净利润亏损约2.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:09 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:08 - [从承诺到行动 多方共议以多边合作引领可持续发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:30 - [特朗普：美伊第二轮谈判最快或于周五举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:30 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:26 - [柬埔寨首相洪玛奈会见王毅一行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:13 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:31 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [传递“乌尔朵”的守边人](http://www.share.minike.top/Article/details/337017743.shtml)
-- 2026-06-29 12:04 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](http://www.blog.minike.top/Article/details/471635.shtml)
-- 2026-06-29 12:23 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](http://www.blog.kurohicncr.top/Article/details/871265.shtml)
-- 2026-06-29 12:22 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](http://www.blog.minike.top/Article/details/42029.shtml)
-- 2026-06-29 12:19 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](http://www.blog.kurohicncr.top/Article/details/80795046051.shtml)
-- 2026-06-29 12:03 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](http://www.blog.minike.top/Article/details/8401277797.shtml)
-- 2026-06-29 12:09 - [渝昆高铁川滇段无砟轨道施工全部完成](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](http://www.share.kurohicncr.top/Article/details/3410171299.shtml)
-- 2026-06-29 12:29 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [西安通报5起违反中央八项规定精神问题](http://www.blog.kurohicncr.top/Article/details/3538543754.shtml)
-- 2026-06-29 12:16 - [GTC泽汇资本:黄金整理静待方向明朗](http://www.share.minike.top/Article/details/4133577.shtml)
-- 2026-06-29 12:11 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](http://www.share.kurohicncr.top/Article/details/639452541.shtml)
-- 2026-06-29 12:13 - [OpenAI称已更新与微软的合作伙伴关系](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](http://www.blog.minike.top/Article/details/099553.shtml)
+- 2026-06-29 12:15 - [美联储主席提名人沃什阐述美联储政策主张](http://www.share.minike.top/Article/details/678922603.shtml)
+- 2026-06-29 12:33 - [日经指数首次升破60000点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [俄军总参谋长：已完全控制卢甘斯克地区](http://www.share.minike.top/Article/details/7837040245.shtml)
+- 2026-06-29 12:21 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](http://www.blog.minike.top/Article/details/6480151.shtml)
+- 2026-06-29 12:22 - [从三组卫星遥感图看生态保护成效](http://www.share.minike.top/Article/details/00403163.shtml)
+- 2026-06-29 12:20 - [东方证券“吞并”上海证券，券业整合进入深水区](http://www.share.minike.top/Article/details/6350781.shtml)
+- 2026-06-29 12:17 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](http://www.blog.kurohicncr.top/Article/details/7107460.shtml)
+- 2026-06-29 12:20 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](http://www.share.kurohicncr.top/Article/details/6902943930.shtml)
+- 2026-06-29 12:25 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.minike.top/Article/details/975796628125.shtml)
+- 2026-06-29 12:21 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](http://www.share.minike.top/Article/details/82276.shtml)
+- 2026-06-29 12:10 - [瑞典大瀑布电力退出苏格兰浮式风电项目](http://www.blog.minike.top/Article/details/28822759.shtml)
+- 2026-06-29 12:17 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](http://www.blog.kurohicncr.top/Article/details/802448688.shtml)
+- 2026-06-29 12:07 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](http://www.share.minike.top/Article/details/66966.shtml)

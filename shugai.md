@@ -1,55 +1,53 @@
-# 中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程
+# 重组计划会影响IPO吗？阿维塔回应
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，后期要推转型，深入实施“提质创品”“能碳提效”“数智转型”三大改造工程。 聚焦高端化、智能化、绿色化、融合化发展方向，围绕当前推动钢铁行业转型升级的重点领域，今年初召开的钢协第十三次会员大会提出，“十五五”期间，钢铁行业将深入实施“提质创品”“能碳提效”“数智转型”三大改造工程。 “提质创品”工程将于近期“中国品牌日”到来
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在4月22日举办的沟通会上，对于“与深蓝战略重组会否影响该公司IPO”的问题，阿维塔科技总裁陈卓表示，“阿维塔科技”这个企业主体的赴港上市计划不会受到影响，仍然按照当前的节奏，来推进监管审批并择机完成上市。 据悉，阿维塔已于去年11月正式向港交所提交IPO申请。责任编辑：张乔松
 
 ## 正文
 
-4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，后期要推转型，深入实施“提质创品”“能碳提效”“数智转型”三大改造工程。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-聚焦高端化、智能化、绿色化、融合化发展方向，围绕当前推动钢铁行业转型升级的重点领域，今年初召开的钢协第十三次会员大会提出，“十五五”期间，钢铁行业将深入实施“提质创品”“能碳提效”“数智转型”三大改造工程。
+在4月22日举办的沟通会上，对于“与深蓝战略重组会否影响该公司IPO”的问题，阿维塔科技总裁陈卓表示，“阿维塔科技”这个企业主体的赴港上市计划不会受到影响，仍然按照当前的节奏，来推进监管审批并择机完成上市。
 
-“提质创品”工程将于近期“中国品牌日”到来之际召开启动大会，围绕夯实质量基础、完善质量追溯体系、强化标准引领、培育质量品牌等方面开展工作，构建以标准为引领、以质量基础为支撑、以品牌为载体的钢铁行业质量发展新体系，倡导优质优价，系统推动钢铁产品迈向高质量、企业管理迈向现代化、产业结构迈向高端化。
+据悉，阿维塔已于去年11月正式向港交所提交IPO申请。
 
-“能碳提效”工程将在极致能效工作阶段性成果的基础上，进一步开展全行业能碳提效系统性工作，持续完善钢铁全产业链EPD平台建设，扩大低碳排放钢标准覆盖范围，健全碳排放技术规范体系，修订粗钢等产品能源消耗限额标准，加强企业参与碳市场能力建设，推动“能耗双控”向“碳排放双控”转变，引导企业实现“能效—碳效双提升”。
-
-“数智转型”工程将按照“抓基础、谋突破、创机制、搭平台、建标准、树标杆”的要求，系统性推动“AI+钢铁”从局部优化迈向全域智能，赋能钢铁产业转型升级。
-
-责任编辑：李铁民
+责任编辑：张乔松
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:11 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:29 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:13 - [新西兰央行行长：已准备好应对持续的价格压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:29 - [重庆罗斯福图书馆旧址将焕新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:16 - [北京首都机场“五一”假期预计运送旅客超100万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:21 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:20 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:18 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:29 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:05 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:20 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:18 - [“五一”假期预计约600万人次进出香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:21 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:17 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:12 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:33 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:35 - [四张图看懂蒂姆・库克的非凡职业生涯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:17 - [安峰获批担任马上消费金融副总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:34 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:15 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:32 - [4月22日“农产品批发价格200指数”与昨天持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:27 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:07 - [228件作品荟萃第四届当代陶瓷艺术展览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:11 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:27 - [推动实体经济发展，内蒙古“放大招”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:31 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:17 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:16 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](http://www.share.kurohicncr.top/Article/details/792509982.shtml)
-- 2026-06-29 12:23 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](http://www.share.minike.top/Article/details/51891595020.shtml)
-- 2026-06-29 12:26 - [指数级增长 2025年我国词元调用量约21100万亿](http://www.blog.minike.top/Article/details/1213363349.shtml)
-- 2026-06-29 12:24 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](http://www.share.minike.top/Article/details/0251101178.shtml)
-- 2026-06-29 12:02 - [中共中央政治局会议要点对比及解读](http://www.blog.minike.top/Article/details/046782417.shtml)
-- 2026-06-29 12:16 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](http://www.share.kurohicncr.top/Article/details/365568.shtml)
-- 2026-06-29 12:04 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.blog.kurohicncr.top/Article/details/775662397817.shtml)
-- 2026-06-29 12:03 - [谷歌员工反对将AI用于机密任务](http://www.share.minike.top/Article/details/9798840.shtml)
-- 2026-06-29 12:27 - [春到桑干河](http://www.share.kurohicncr.top/Article/details/33602317.shtml)
-- 2026-06-29 12:02 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](http://www.blog.kurohicncr.top/Article/details/21015241.shtml)
-- 2026-06-29 12:01 - [阿联酋能源部长：退出欧佩克对市场影响有限](http://www.share.kurohicncr.top/Article/details/4792262966.shtml)
-- 2026-06-29 12:15 - [重庆国际消费节启幕 打造全域消费新场景](http://www.share.minike.top/Article/details/9306775852.shtml)
-- 2026-06-29 12:16 - [中国选手赵一程打破男子速度攀岩世界纪录](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [“华住会”App崩了？客服回应](http://www.blog.minike.top/Article/details/570714221573.shtml)
+- 2026-06-29 12:28 - [美国海军部长约翰·费伦将离职](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](http://www.blog.kurohicncr.top/Article/details/933217978048.shtml)
+- 2026-06-29 12:06 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.share.kurohicncr.top/Article/details/830416334.shtml)
+- 2026-06-29 12:33 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](http://www.blog.kurohicncr.top/Article/details/63221395643.shtml)
+- 2026-06-29 12:31 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](http://www.share.kurohicncr.top/Article/details/59823747372.shtml)
+- 2026-06-29 12:10 - [辽宁省委书记许昆林到大商所调研](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [一季度长三角地区出口合计占全国41%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.share.minike.top/Article/details/293168583813.shtml)
+- 2026-06-29 12:27 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.blog.kurohicncr.top/Article/details/500824.shtml)
+- 2026-06-29 12:21 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](http://www.share.minike.top/Article/details/3494205.shtml)
+- 2026-06-29 12:22 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.blog.kurohicncr.top/Article/details/79330.shtml)
+- 2026-06-29 12:25 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](http://www.share.minike.top/Article/details/2192599.shtml)
+- 2026-06-29 12:32 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.share.kurohicncr.top/Article/details/9669162643.shtml)
+- 2026-06-29 12:28 - [日本126名议员集体参拜靖国神社](http://www.blog.kurohicncr.top/Article/details/1706902596.shtml)
+- 2026-06-29 12:15 - [绿的谐波：一季度净利润同比增长61.17%](https://github.com/lisacumin64-arch)

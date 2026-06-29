@@ -1,50 +1,58 @@
-# 新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份
+# 大众为Everllence筛选第二轮竞标者，估值升至80亿欧元
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 16:56 来源：中国新闻网 近日，新党主席吴成典在“2026台湾生存战略研讨会”上，呼吁岛内人士戳破“维持现状”幻觉，投入中华民族复兴行列。他在接受中新网“燕新台”工作室专访时表示，岛内有些人认为抱着美国大腿就可以解决一些问题，刻意逃避统一，这是两岸问题症结所在。他认为，台湾有了大陆，舞台会增加五百倍、五千倍，并呼吁台湾民众直面统一，积极参与
+大众汽车已为旗下发动机制造子公司Everllence的出售程序筛选出进入第二轮竞标的潜在买家，黑石集团、CVC资本等顶级私募机构入围。最新初步报价对该业务单元的估值已攀升至约80亿欧元。 Everllence前身为曼恩能源解决方案公司，主要生产船用大型发动机、工业热泵及发电厂涡轮机。该业务现金流稳定、客户壁垒高，并具备碳中和转型潜力，因此被视为优质投资标的。2024年，Ever
 
 ## 正文
 
-发布时间：2026年04月28日 16:56 来源：中国新闻网 近日，新党主席吴成典在“2026台湾生存战略研讨会”上，呼吁岛内人士戳破“维持现状”幻觉，投入中华民族复兴行列。
+大众汽车已为旗下发动机制造子公司Everllence的出售程序筛选出进入第二轮竞标的潜在买家，黑石集团、CVC资本等顶级私募机构入围。
 
-他在接受中新网“燕新台”工作室专访时表示，岛内有些人认为抱着美国大腿就可以解决一些问题，刻意逃避统一，这是两岸问题症结所在。
+最新初步报价对该业务单元的估值已攀升至约80亿欧元。
 
-他认为，台湾有了大陆，舞台会增加五百倍、五千倍，并呼吁台湾民众直面统一，积极参与中华民族伟大复兴，对得起“中国人”的身份。
+Everllence前身为曼恩能源解决方案公司，主要生产船用大型发动机、工业热泵及发电厂涡轮机。
 
-(采访/制作：燕新台 常望涛 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
+该业务现金流稳定、客户壁垒高，并具备碳中和转型潜力，因此被视为优质投资标的。
+
+2024年，Everllence实现息税前利润3.37亿欧元，营收达43亿欧元。
+
+此次竞购阵营实力强劲。
+
+除黑石集团与CVC资本外，布鲁克菲尔德资产管理公司、贝恩资本、安宏资本、EQT以及日本发动机制造商洋马公司也进入了第二轮竞标。
+
+具有法律约束力的最终报价预计在约六周内提交。
 
 ## 相关推荐
 
-- 2026-06-29 12:12 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:27 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:27 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:09 - [“五一”假期预计约600万人次进出香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:22 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:05 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:22 - [央行今日开展259亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:14 - [传递“乌尔朵”的守边人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:22 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:10 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:23 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:05 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:14 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:20 - [228件作品荟萃第四届当代陶瓷艺术展览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:34 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:33 - [推动实体经济发展，内蒙古“放大招”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:11 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:29 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:08 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:07 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:08 - [美联储主席提名人沃什阐述美联储政策主张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:23 - [日经指数首次升破60000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:27 - [俄军总参谋长：已完全控制卢甘斯克地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:12 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:07 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](http://www.blog.minike.top/Article/details/177471.shtml)
-- 2026-06-29 12:03 - [阿联酋能源部长：退出欧佩克对市场影响有限](http://www.share.minike.top/Article/details/922300468.shtml)
-- 2026-06-29 12:09 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [中国选手赵一程打破男子速度攀岩世界纪录](http://www.blog.kurohicncr.top/Article/details/5859425001.shtml)
-- 2026-06-29 12:24 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](http://www.share.kurohicncr.top/Article/details/10709.shtml)
-- 2026-06-29 12:03 - [“华住会”App崩了？客服回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [“五一”假期小型客车继续施行免收通行费政策](http://www.share.minike.top/Article/details/81617933797.shtml)
-- 2026-06-29 12:20 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.blog.kurohicncr.top/Article/details/178958266.shtml)
-- 2026-06-29 12:10 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.blog.minike.top/Article/details/016962499.shtml)
-- 2026-06-29 12:29 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](http://www.blog.kurohicncr.top/Article/details/6325121.shtml)
-- 2026-06-29 12:25 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](http://www.blog.minike.top/Article/details/69656.shtml)
-- 2026-06-29 12:11 - [“十四五”期间中国新发现大中型油气田225处](http://www.blog.kurohicncr.top/Article/details/667103.shtml)
-- 2026-06-29 12:18 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](http://www.share.kurohicncr.top/Article/details/8707113.shtml)
-- 2026-06-29 12:29 - [截至去年12月我国已出台网络领域立法180余部](http://www.share.minike.top/Article/details/251315141236.shtml)
+- 2026-06-29 12:08 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](http://www.share.minike.top/Article/details/996853.shtml)
+- 2026-06-29 12:08 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.share.minike.top/Article/details/1011527.shtml)
+- 2026-06-29 12:26 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](http://www.blog.minike.top/Article/details/569247314.shtml)
+- 2026-06-29 12:15 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.share.minike.top/Article/details/52486274812.shtml)
+- 2026-06-29 12:23 - [日本126名议员集体参拜靖国神社](http://www.blog.kurohicncr.top/Article/details/4385079.shtml)
+- 2026-06-29 12:18 - [绿的谐波：一季度净利润同比增长61.17%](http://www.blog.minike.top/Article/details/571270.shtml)
+- 2026-06-29 12:29 - [全球电力回顾报告：2025年化石燃料发电量零增长](http://www.blog.kurohicncr.top/Article/details/254475064.shtml)
+- 2026-06-29 12:20 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](http://www.share.kurohicncr.top/Article/details/9108565.shtml)
+- 2026-06-29 12:35 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](http://www.blog.kurohicncr.top/Article/details/0164021471.shtml)
+- 2026-06-29 12:30 - [美股三大指数集体高开，布油重回100美元上方](http://www.share.kurohicncr.top/Article/details/0633282.shtml)
+- 2026-06-29 12:32 - [美股回吐涨幅，美债收益率上行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [华为迟林春：乾崑智驾累计辅助驾驶里程达100亿公里，预计今年10月超越特斯拉位居全球第一](http://www.blog.kurohicncr.top/Article/details/551536514824.shtml)
+- 2026-06-29 12:11 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](https://github.com/lisacumin64-arch)

@@ -1,57 +1,58 @@
-# 保险公司收紧对霍尔木兹海峡过往船只的承保要求
+# 伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-保险经纪商Marsh称，一些保险公司现在要求，船只若要获得战争险，就必须基本遵循伊朗批准的路线通过霍尔木兹海峡。这一新规反映出这条实际上已被封锁的水道持续存在不确定性，风险也在加剧。 Marsh海事与货运业务全球主管马库斯·贝克表示：“在设定承保条件时，各家承保人都有自己的考量。”他补充说，要求伊朗方面签字放行实属强人所难，因为伊朗正受到制裁，且外界很难证实此类批文的有效性。贝
+此次工厂关闭将影响约 600 名员工 伊莱克斯（Electrolux）宣布，将计提约 6500 万美元重组费用，并关闭其位于匈牙利瑙吉伯勒尼（Jaszbereny）的工厂，该工厂主要生产嵌入式及独立式制冷家电产品。 这家瑞典家电制造商周三表示，在对公司战略进行评估后，决定于 2026 年底前停止该工厂生产，以通过优化生产布局提升成本竞争力与运营灵活性。 公司称：“这一决定源于当
 
 ## 正文
 
-保险经纪商Marsh称，一些保险公司现在要求，船只若要获得战争险，就必须基本遵循伊朗批准的路线通过霍尔木兹海峡。
+此次工厂关闭将影响约 600 名员工 伊莱克斯（Electrolux）宣布，将计提约 6500 万美元重组费用，并关闭其位于匈牙利瑙吉伯勒尼（Jaszbereny）的工厂，该工厂主要生产嵌入式及独立式制冷家电产品。
 
-这一新规反映出这条实际上已被封锁的水道持续存在不确定性，风险也在加剧。
+这家瑞典家电制造商周三表示，在对公司战略进行评估后，决定于 2026 年底前停止该工厂生产，以通过优化生产布局提升成本竞争力与运营灵活性。
 
-Marsh海事与货运业务全球主管马库斯·贝克表示：“在设定承保条件时，各家承保人都有自己的考量。
+公司称：“这一决定源于当前的竞争环境，市场需求疲软、价格压力以及成本竞争力受限等因素共同影响所致。
 
-”他补充说，要求伊朗方面签字放行实属强人所难，因为伊朗正受到制裁，且外界很难证实此类批文的有效性。
+” 此次计划中的工厂关闭将影响约 600 名员工。
 
-贝克还说：“你怎么知道从他们那里拿到的批文真的能保证你的船平安无事？
+伊莱克斯将在第二季度确认约 6 亿瑞典克朗（合 6530 万美元）的重组费用，其中 3 亿克朗为现金相关支出。
 
-” 保险公司对该海峡风险的担忧继续体现在其保费水平上。
+伊莱克斯表示，将通过现有产能及外部制造合作伙伴完全满足制冷产品的市场需求。
 
-贝克说，目前战争险的费率约为船舶价值的3%至8%。
+该决定不会影响其布达佩斯办事处负责的当地销售与营销业务。
 
-这一费率水平虽低于停火前10%的高点，但仍是和平时期通常0.25%水平的许多倍。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 12:27 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:24 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:10 - [如何看待中方叫停Manus并购案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:12 - [南京银行董事长谢宁解读“好银行”发展理念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:05 - [“漂流书包”十年：一份民主党派的阅读答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:19 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:21 - [康宁一季度利润与核心营收双双增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:29 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:05 - [五一机票又“跳水”了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:08 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:21 - [日本公然宣称为“长期战争”做准备 中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:11 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:30 - [伊朗大量美制设备集体失灵，暴露数字安全新威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:30 - [603169、000909、603363、000892，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:28 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:12 - [手机成新农具，物流通万家！乡村消费早已不一样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:20 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:23 - [西安银行发布2025年度利润分配方案 拟每10派1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:25 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:20 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:31 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:35 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:35 - [百思买任命资深人士为CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:22 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](http://www.share.minike.top/Article/details/8424933621.shtml)
-- 2026-06-29 12:02 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](http://www.blog.minike.top/Article/details/25260436.shtml)
-- 2026-06-29 12:27 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](http://www.share.minike.top/Article/details/464823352.shtml)
-- 2026-06-29 12:12 - [国务院任免国家工作人员](http://www.share.minike.top/Article/details/5059231.shtml)
-- 2026-06-29 12:20 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](http://www.blog.kurohicncr.top/Article/details/666738232.shtml)
-- 2026-06-29 12:19 - [第139届广交会二期闭幕](http://www.blog.minike.top/Article/details/583599.shtml)
-- 2026-06-29 12:01 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](http://www.blog.minike.top/Article/details/005269.shtml)
-- 2026-06-29 12:12 - [2026年盈江海关部门预算公开](http://www.share.kurohicncr.top/Article/details/80123970018.shtml)
-- 2026-06-29 12:21 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](http://www.blog.minike.top/Article/details/594891625.shtml)
-- 2026-06-29 12:29 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](http://www.blog.kurohicncr.top/Article/details/5296809.shtml)
-- 2026-06-29 12:27 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](http://www.blog.minike.top/Article/details/795579790.shtml)
-- 2026-06-29 12:05 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](http://www.share.kurohicncr.top/Article/details/76850028488.shtml)
-- 2026-06-29 12:29 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](http://www.share.minike.top/Article/details/771410.shtml)
-- 2026-06-29 12:19 - [银行业首个行业级“数据分类分级”大模型发布](http://www.share.kurohicncr.top/Article/details/56156.shtml)
-- 2026-06-29 12:10 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](http://www.blog.minike.top/Article/details/8181782465.shtml)
+- 2026-06-29 12:09 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [从承诺到行动 多方共议以多边合作引领可持续发展](http://www.blog.minike.top/Article/details/95549009338.shtml)
+- 2026-06-29 12:24 - [特朗普：美伊第二轮谈判最快或于周五举行](http://www.share.minike.top/Article/details/0373308173.shtml)
+- 2026-06-29 12:28 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [柬埔寨首相洪玛奈会见王毅一行](http://www.share.minike.top/Article/details/10319159.shtml)
+- 2026-06-29 12:25 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](http://www.blog.minike.top/Article/details/30513704.shtml)
+- 2026-06-29 12:18 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](http://www.blog.minike.top/Article/details/13784424.shtml)
+- 2026-06-29 12:30 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [重组计划会影响IPO吗？阿维塔回应](http://www.share.kurohicncr.top/Article/details/11758217172.shtml)
+- 2026-06-29 12:11 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](http://www.share.minike.top/Article/details/191993768.shtml)
+- 2026-06-29 12:13 - [亚马逊深化与Anthropic的合作](http://www.blog.kurohicncr.top/Article/details/447392701.shtml)
+- 2026-06-29 12:10 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [莎士比亚经典喜剧《第十二夜》在成都上演](http://www.blog.minike.top/Article/details/29464684.shtml)
+- 2026-06-29 12:24 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.share.kurohicncr.top/Article/details/39493225427.shtml)

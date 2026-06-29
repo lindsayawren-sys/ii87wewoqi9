@@ -1,46 +1,56 @@
-# 微创医疗遭小摩减持约142.79万股 每股作价9.2016港元
+# 伊朗大量美制设备集体失灵，暴露数字安全新威胁
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月22日，小摩减持微创医疗（00853）142.7872万股，每股作价9.2016港元，总金额约为1313.87万港元。减持后最新持股数目约为1.91亿股，最新持股比例为9.98%。责任编辑：卢昱君
+寻常不过的路由器，却成了战场的“叛变者”。 这不是科幻，而是伊朗刚刚经历的噩梦。据新华社援引伊朗媒体4月14日报道，伊朗见证了诡异的一幕：全国范围内，大量美国品牌的路由器、防火墙竟集体死机。 不是一台两台，而是大量网络设备，它们在同一时间窗口内同步崩溃。 它们也不是无名之辈，而是思科、飞塔和朱尼珀等响当当的美国大牌。 更诡异的是，设备失灵与美以打击行动，在时间上做到了精准吻合。
 
 ## 正文
 
-香港联交所最新数据显示，4月22日，小摩减持微创医疗（00853）142.7872万股，每股作价9.2016港元，总金额约为1313.87万港元。
+寻常不过的路由器，却成了战场的“叛变者”。
 
-减持后最新持股数目约为1.91亿股，最新持股比例为9.98%。
+这不是科幻，而是伊朗刚刚经历的噩梦。
 
-责任编辑：卢昱君
+据新华社援引伊朗媒体4月14日报道，伊朗见证了诡异的一幕：全国范围内，大量美国品牌的路由器、防火墙竟集体死机。
+
+不是一台两台，而是大量网络设备，它们在同一时间窗口内同步崩溃。
+
+它们也不是无名之辈，而是思科、飞塔和朱尼珀等响当当的美国大牌。
+
+更诡异的是，设备失灵与美以打击行动，在时间上做到了精准吻合。
+
+也就是说，导弹落地之前，网络设备瘫痪已经使雷达失联，指挥链路中断，部队瞬间“失明”。
+
+有媒体感慨，这是一场经过精密策划的“数字斩首”。
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [五一机票又“跳水”了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:10 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:07 - [日本公然宣称为“长期战争”做准备 中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:05 - [金石为开——西安·沈阳名碑拓片特展开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:20 - [铁路文旅创新融合绘就发展新图景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:17 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:14 - [AI赋能“一人公司” 个体创新潜力持续激活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:18 - [中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:09 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:05 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:35 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:18 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:15 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:08 - [百思买任命资深人士为CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:14 - [辽宁海城：梨花成海 粉樱作伴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:35 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:26 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:24 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:14 - [英国石油公司高管将出任OMV首位女性首席执行官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:34 - [“新时代、新品质、新气象：清华大学美术学院新世纪成果展”研讨会举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:19 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](http://www.share.minike.top/Article/details/117888575.shtml)
-- 2026-06-29 12:18 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](http://www.blog.minike.top/Article/details/289136.shtml)
-- 2026-06-29 12:08 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](http://www.blog.kurohicncr.top/Article/details/945104423.shtml)
-- 2026-06-29 12:12 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](http://www.blog.kurohicncr.top/Article/details/62726720683.shtml)
-- 2026-06-29 12:29 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](http://www.share.minike.top/Article/details/742181994.shtml)
-- 2026-06-29 12:25 - [银行业首个行业级“数据分类分级”大模型发布](http://www.blog.minike.top/Article/details/867278430.shtml)
-- 2026-06-29 12:26 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](http://www.blog.kurohicncr.top/Article/details/433105757689.shtml)
-- 2026-06-29 12:11 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](http://www.blog.minike.top/Article/details/849415992.shtml)
-- 2026-06-29 12:08 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](http://www.share.kurohicncr.top/Article/details/97928.shtml)
-- 2026-06-29 12:07 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](http://www.blog.kurohicncr.top/Article/details/2051389.shtml)
-- 2026-06-29 12:13 - [新西兰央行行长：已准备好应对持续的价格压力](http://www.blog.minike.top/Article/details/3531780375.shtml)
-- 2026-06-29 12:08 - [重庆罗斯福图书馆旧址将焕新开放](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [北京首都机场“五一”假期预计运送旅客超100万人次](http://www.share.kurohicncr.top/Article/details/68960387940.shtml)
-- 2026-06-29 12:08 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](http://www.blog.kurohicncr.top/Article/details/06435922140.shtml)
-- 2026-06-29 12:11 - [本科专业再上新，高校专业调整比例首次突破10%](http://www.share.minike.top/Article/details/40362892897.shtml)
+- 2026-06-29 12:12 - [重组计划会影响IPO吗？阿维塔回应](http://www.blog.kurohicncr.top/Article/details/6229582996.shtml)
+- 2026-06-29 12:28 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](http://www.share.minike.top/Article/details/72986.shtml)
+- 2026-06-29 12:06 - [亚马逊深化与Anthropic的合作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](http://www.blog.kurohicncr.top/Article/details/65019022241.shtml)
+- 2026-06-29 12:10 - [莎士比亚经典喜剧《第十二夜》在成都上演](http://www.share.kurohicncr.top/Article/details/3635973919.shtml)
+- 2026-06-29 12:11 - [汉诺威工博会观察：中国企业加速AI应用落地](http://www.share.kurohicncr.top/Article/details/27890.shtml)
+- 2026-06-29 12:30 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.share.minike.top/Article/details/553087489.shtml)
+- 2026-06-29 12:34 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [产业链上话稼穑 同心耕作“希望的田野”](http://www.blog.minike.top/Article/details/569698.shtml)
+- 2026-06-29 12:11 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](http://www.share.minike.top/Article/details/85156462.shtml)
+- 2026-06-29 12:28 - [亚盛医药-B多项研究入选2026年ASCO](http://www.blog.minike.top/Article/details/5586882216.shtml)
+- 2026-06-29 12:35 - [四张图看懂蒂姆・库克的非凡职业生涯](http://www.share.minike.top/Article/details/380841322.shtml)
+- 2026-06-29 12:18 - [安峰获批担任马上消费金融副总经理](http://www.share.minike.top/Article/details/143608605467.shtml)
+- 2026-06-29 12:08 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](http://www.share.kurohicncr.top/Article/details/79031.shtml)
+- 2026-06-29 12:34 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](http://www.blog.kurohicncr.top/Article/details/59820203278.shtml)

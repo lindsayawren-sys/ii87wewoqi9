@@ -1,56 +1,59 @@
-# 全国五一劳动奖章获得者张传武：愿以车轮践初心
+# 中东危机引发通胀担忧，韩国4月消费者信心降至一年来最低
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网上海4月28日电 (记者 许婧)“风里雨里，奔走岗位，在奋斗中扎根上海，用车轮跑出属于自己的精彩人生。”张传武，这位穿梭在上海青浦城区街巷的“95后”年轻骑士，如是总结了自己四年在上海的配送生涯。 张传武与上海有着不解之缘。他在上海出生，年少时回到老家安徽读书，寒暑假常来沪探亲，早已对这座城市倍感熟悉。2021年，他曾在上海一家餐厅务工，后因门店倒闭陷入迷茫，经朋友介绍转
+韩国央行周四表示，由于中东持续冲突和高油价加剧了人们对通胀和更广泛经济影响的担忧，4月份消费者信心跌至一年来的最低水平。 根据韩国央行（BOK）的调查，本月综合消费者信心指数（CCSI）为99.2，较3月份下降7.8点。 这是自2025年4月以来的最低水平，当时该指数为93.6，原因是时任总统尹锡悦因其在2024年12月颁布的备受争议的戒严令而被弹劾，导致韩国政局动荡。 自2月
 
 ## 正文
 
-中新网上海4月28日电 (记者 许婧)“风里雨里，奔走岗位，在奋斗中扎根上海，用车轮跑出属于自己的精彩人生。
+韩国央行周四表示，由于中东持续冲突和高油价加剧了人们对通胀和更广泛经济影响的担忧，4月份消费者信心跌至一年来的最低水平。
 
-”张传武，这位穿梭在上海青浦城区街巷的“95后”年轻骑士，如是总结了自己四年在上海的配送生涯。
+根据韩国央行（BOK）的调查，本月综合消费者信心指数（CCSI）为99.2，较3月份下降7.8点。
 
-张传武与上海有着不解之缘。
+这是自2025年4月以来的最低水平，当时该指数为93.6，原因是时任总统尹锡悦因其在2024年12月颁布的备受争议的戒严令而被弹劾，导致韩国政局动荡。
 
-他在上海出生，年少时回到老家安徽读书，寒暑假常来沪探亲，早已对这座城市倍感熟悉。
+自2月中东冲突爆发以来，韩国消费者信心指数已连续两个月下跌，并自2025年4月以来首次跌破100点。
 
-2021年，他曾在上海一家餐厅务工，后因门店倒闭陷入迷茫，经朋友介绍转行成为外卖骑手。
+高于100的读数表明乐观者多于悲观者，而低于100的读数则表明相反的情况。
 
-刚入行时，张传武也曾有过失误——因赶时间疏忽核对订单，混淆不同平台同单号餐品，折返整改的经历让他铭记初心，养成了沉稳细致的工作态度。
+韩国央行一位官员表示：“尽管出口表现强劲，但由于能源供应中断以及国内外经济形势的不确定性加剧，人们对通胀压力和经济增长的担忧有所加深。
 
-入职仅两个月，他便熟记青浦片区所有商户的出餐速度与周边路线，初期靠查阅地图补齐不熟路段，如今已成为无需导航的“活地图”。
+” 他补充道：“由于原油和其他原材料供应中断，预计未来一年的通胀率将上升0.2个百分点，至2.9%。
 
-他还摸索出一套高效配送技巧，通过分析商场电梯动线、门禁路径，将取送效率精确到分钟级，多单同送时，总能凭借最优路径规划，既保证时效，又避免延误。
+”责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [末局逆转！成都AG夺得2026PEL春季赛总决赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:06 - [韩国综合股价指数开盘下跌0.3% 日股休市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:24 - [招股书曾写错毛利，微脉二闯港交所：AI医疗故事背后，三年亏超6亿 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:13 - [东方甄选股权激励！300名员工人均获授市值141万元股份，俞敏洪超4400万元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:07 - [美国流行音乐天后“霉霉”申请注册其声音和肖像商标，以抵御AI深度伪造技术侵害](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:18 - [磷石膏废弃物还能建房子？九三学社调研带你看从废渣到宝藏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:29 - [梁文锋增持DeepSeek 持股比例大幅上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:13 - [A股极致分化，创业板失守3600点，医疗等板块走强| 华宝基金3A日报（2026.4.28）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:05 - [美国7年期国债中标收益率略高于发行前交易水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:03 - [OpenAI增长失速冲击AI板块：超大规模资本支出模式遭遇“信任危机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:22 - [“6.0%”的浙江看点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:09 - [沃什听证会高能：被骂“提线木偶”、怒批美联储迷失、否认向特朗普承诺降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:27 - [近期降雨过程范围广、雨势强 多部门会商部署防汛抢险救灾工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:24 - [特朗普政府拟周三调整大麻管制分级，概念股集体飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:31 - [孟买天际线之战：亿万富翁的“云端豪宅”与城市的“生存空间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:15 - [假冒官员诱骗内地留学生返港买金粒，3男被捕涉款700万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:14 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:23 - [刚买就亏，银行理财不香了？年内超40只产品发行失败，有固收理财近1月年化回报低至-10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:15 - [比特币较2月份低点上涨超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:06 - [雪佛龙得州炼油厂发生原油泄漏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:30 - [大宗商品综述：原油上涨 铜和黄金下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:34 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:34 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料](http://www.share.kurohicncr.top/Article/details/911987.shtml)
-- 2026-06-29 12:16 - [转让底价6573万元，华泰保险集团880万股股份再度挂牌](http://www.blog.minike.top/Article/details/616523024620.shtml)
-- 2026-06-29 12:14 - [翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局](http://www.share.kurohicncr.top/Article/details/158613329878.shtml)
-- 2026-06-29 12:22 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](http://www.share.minike.top/Article/details/77789426922.shtml)
-- 2026-06-29 12:06 - [深化中国—东盟经贸合作 专家提十大建议](http://www.blog.minike.top/Article/details/315749.shtml)
-- 2026-06-29 12:11 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](http://www.blog.kurohicncr.top/Article/details/453178.shtml)
-- 2026-06-29 12:06 - [千年晋祠难老泉高位复流 带动周边产业焕新生](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [一江清水向东流——凝心聚力共绘长江发展新画卷](http://www.blog.minike.top/Article/details/73770063.shtml)
-- 2026-06-29 12:14 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](http://www.blog.kurohicncr.top/Article/details/99057730338.shtml)
-- 2026-06-29 12:14 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](http://www.blog.kurohicncr.top/Article/details/84693732180.shtml)
-- 2026-06-29 12:16 - [四川蓝莓首次出口](http://www.blog.kurohicncr.top/Article/details/396647.shtml)
-- 2026-06-29 12:00 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](http://www.blog.kurohicncr.top/Article/details/7444122968.shtml)
-- 2026-06-29 12:02 - [中钢协：积极开展产能治理、产量调控、行业自律](http://www.blog.kurohicncr.top/Article/details/88476.shtml)
-- 2026-06-29 12:20 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](http://www.share.kurohicncr.top/Article/details/493608.shtml)
-- 2026-06-29 12:21 - [快乐出行不“掉坑”，这份网络安全指南请查收！](http://www.share.kurohicncr.top/Article/details/96171500680.shtml)
+- 2026-06-29 12:22 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](http://www.share.minike.top/Article/details/56013.shtml)
+- 2026-06-29 12:25 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](http://www.share.kurohicncr.top/Article/details/2310493073.shtml)
+- 2026-06-29 12:21 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](http://www.share.minike.top/Article/details/448292.shtml)
+- 2026-06-29 12:07 - [库克时代落幕，苹果新帅面临AI关键战役](http://www.share.minike.top/Article/details/93432040483.shtml)
+- 2026-06-29 12:07 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](http://www.share.kurohicncr.top/Article/details/65037388369.shtml)
+- 2026-06-29 12:35 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](http://www.share.kurohicncr.top/Article/details/2122550.shtml)
+- 2026-06-29 12:35 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [聚焦人工智能应用 印尼教育界人士来鄂研修](http://www.share.minike.top/Article/details/177551915793.shtml)
+- 2026-06-29 12:14 - [苹果换帅时机或预示财报利好，分析师看好短期表现](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](http://www.blog.kurohicncr.top/Article/details/2522290.shtml)
+- 2026-06-29 12:18 - [中国隧道连续皮带机首次出口西班牙](http://www.blog.minike.top/Article/details/996722489830.shtml)
+- 2026-06-29 12:09 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](http://www.share.kurohicncr.top/Article/details/149386.shtml)
+- 2026-06-29 12:18 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](https://github.com/lisacumin64-arch)

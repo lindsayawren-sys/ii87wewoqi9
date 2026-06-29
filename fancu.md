@@ -1,60 +1,59 @@
-# 受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%
+# 特朗普：美伊第二轮谈判最快或于周五举行
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-受中东冲突影响，泰国财政部周二将今年经济增长预期从2.0%下调至1.6%，不过该部表示，政府采取的措施将对经济活动提供一定支撑。 泰国财政部财政政策办公室主任Vinit Visessuvanapoom在新闻发布会上表示，作为泰国经济增长关键动力的出口，今年预计将增长6.2%，而1月份的预测为增长1.0%。 他表示，战争推高了能源成本，但无需担心滞胀，因为通胀仍处于目标范围内，且
+当地时间周三，特朗普及巴基斯坦消息人士透露，有关美伊举行第二轮谈判的“好消息”最快可能在周五出炉。 伊斯兰堡方面消息称，巴方对伊朗的斡旋取得积极进展，未来“36至72小时内”重启更多和平谈判的可能性重新出现。就这一可能的突破向特朗普求证时，他在短信中回复：“有可能！特朗普总统。”（It’s possible！ President DJT） 这一最新进展公布的前一天，这位美国总统
 
 ## 正文
 
-受中东冲突影响，泰国财政部周二将今年经济增长预期从2.0%下调至1.6%，不过该部表示，政府采取的措施将对经济活动提供一定支撑。
+当地时间周三，特朗普及巴基斯坦消息人士透露，有关美伊举行第二轮谈判的“好消息”最快可能在周五出炉。
 
-泰国财政部财政政策办公室主任Vinit Visessuvanapoom在新闻发布会上表示，作为泰国经济增长关键动力的出口，今年预计将增长6.2%，而1月份的预测为增长1.0%。
+伊斯兰堡方面消息称，巴方对伊朗的斡旋取得积极进展，未来“36至72小时内”重启更多和平谈判的可能性重新出现。
 
-他表示，战争推高了能源成本，但无需担心滞胀，因为通胀仍处于目标范围内，且投资持续扩张，并补充说财政部和央行正在密切监测局势。
+就这一可能的突破向特朗普求证时，他在短信中回复：“有可能！
 
-泰国财政部表示，预计今年整体通胀率将达到3.0%，而此前预测为0.3%。
+特朗普总统。
 
-泰国央行的通胀目标区间为1%至3%。
+”（It’s possible！
 
-该部称，预计今年民间投资将增长3.2%，政府投资将增长1.7%，并补充称，预计今年民间消费将增长2.3%。
+President DJT） 这一最新进展公布的前一天，这位美国总统曾宣布，将延长当前对伊朗的停火期限，直至内部分歧明显的伊朗领导层拿出一份“统一方案”。
 
-Vinit表示，增长预测已将政府支持措施纳入考量，其中包括一项消费补贴计划。
+他周二在真实社交平台发文称：“我已……指示我方军方继续实施封锁，同时在其他所有方面保持戒备与作战能力，并因此延长停火，直至他们提交方案，谈判以某种方式结束为止。
 
-政府还计划在10月前借贷最高5000亿泰铢（154.2亿美元）以支持经济。
+” 一名巴基斯坦消息人士表示，在此后的数小时里，伊斯兰堡方面持续通过外交渠道与伊朗沟通，上述时间范围正是基于对这一斡旋进程的评估得出。
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:07 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:16 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:12 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:18 - [银行业首个行业级“数据分类分级”大模型发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:16 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:23 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:15 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:12 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:07 - [新西兰央行行长：已准备好应对持续的价格压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:29 - [重庆罗斯福图书馆旧址将焕新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:20 - [北京首都机场“五一”假期预计运送旅客超100万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:28 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:11 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:30 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:32 - [亚马逊深化与Anthropic的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:30 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:06 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:17 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:24 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:23 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:08 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:30 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:08 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:08 - [四张图看懂蒂姆・库克的非凡职业生涯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:31 - [安峰获批担任马上消费金融副总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:17 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:06 - [中钢协：一季度钢材价格总体走势平稳但处于近年同期最低水平](http://www.blog.kurohicncr.top/Article/details/72862728747.shtml)
-- 2026-06-29 12:00 - [谷歌不顾员工反对，与美国国防部签署机密人工智能合作协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [穿越机视角领略婺源“江南第一奇谷”飞瀑景观](http://www.share.minike.top/Article/details/42523095.shtml)
-- 2026-06-29 12:10 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](http://www.share.minike.top/Article/details/26045844.shtml)
-- 2026-06-29 12:07 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](http://www.share.minike.top/Article/details/936018.shtml)
-- 2026-06-29 12:02 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](http://www.blog.kurohicncr.top/Article/details/436970986.shtml)
-- 2026-06-29 12:17 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](http://www.blog.kurohicncr.top/Article/details/748205897.shtml)
-- 2026-06-29 12:11 - [指数级增长 2025年我国词元调用量约21100万亿](http://www.blog.kurohicncr.top/Article/details/77189007.shtml)
-- 2026-06-29 12:22 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](http://www.share.minike.top/Article/details/9388693189.shtml)
-- 2026-06-29 12:08 - [中共中央政治局会议要点对比及解读](http://www.blog.minike.top/Article/details/645592.shtml)
-- 2026-06-29 12:12 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](http://www.blog.minike.top/Article/details/25193.shtml)
-- 2026-06-29 12:04 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.blog.minike.top/Article/details/487519.shtml)
-- 2026-06-29 12:07 - [谷歌员工反对将AI用于机密任务](http://www.blog.kurohicncr.top/Article/details/233864140671.shtml)
-- 2026-06-29 12:28 - [春到桑干河](http://www.blog.kurohicncr.top/Article/details/9244611694.shtml)
+- 2026-06-29 12:30 - [生态产品价值如何实现？自然资源部介绍典型案例](http://www.share.minike.top/Article/details/699162204407.shtml)
+- 2026-06-29 12:12 - [【国际漫评】解禁](http://www.blog.kurohicncr.top/Article/details/6650593756.shtml)
+- 2026-06-29 12:24 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](http://www.blog.minike.top/Article/details/984015.shtml)
+- 2026-06-29 12:12 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.share.minike.top/Article/details/79147.shtml)
+- 2026-06-29 12:10 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](http://www.share.minike.top/Article/details/393270158273.shtml)
+- 2026-06-29 12:24 - [梁玉宁：中文与诗歌是中华文明的重要载体](http://www.share.kurohicncr.top/Article/details/061904.shtml)
+- 2026-06-29 12:28 - [美国海军部长约翰·费伦将离职](http://www.blog.minike.top/Article/details/4871237.shtml)
+- 2026-06-29 12:25 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](http://www.share.kurohicncr.top/Article/details/91543.shtml)
+- 2026-06-29 12:26 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.share.kurohicncr.top/Article/details/07776128.shtml)
+- 2026-06-29 12:29 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](http://www.share.kurohicncr.top/Article/details/47307.shtml)
+- 2026-06-29 12:10 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [辽宁省委书记许昆林到大商所调研](http://www.blog.minike.top/Article/details/906681183773.shtml)
+- 2026-06-29 12:19 - [一季度长三角地区出口合计占全国41%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.blog.kurohicncr.top/Article/details/446678554.shtml)
+- 2026-06-29 12:29 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.blog.kurohicncr.top/Article/details/8846473.shtml)

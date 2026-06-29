@@ -1,57 +1,60 @@
-# 法官审查Visa、万事达卡380亿美元“刷卡费”和解案
+# 两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-布鲁克林联邦地区法官周一就Visa和万事达卡提出的380亿美元反垄断和解协议举行听证会，以评估该协议是否能就两家公司长达二十年的信用卡刷卡费纠纷达成最终解决方案。 和解协议面临密集审查 这一和解最早于2025年11月宣布，是美国历史上最大的反垄断和解案之一。该协议旨在解决商户关于Visa和万事达卡非法联合固定刷卡费率的指控——即消费者用信用卡支付时商户需支付的费用，全美商户为此
+国盛证券2026年一季度业绩引发市场高度关注。4月20日，国盛证券同步披露2025年年报与2026年一季度业绩快报，两份公告在数据方面呈现巨大反差。归母净利润从2025年大增63.05%到2026年一季度暴跌97.91%。对此，国盛证券归因于重仓的HTT股票的市值波动。与此同时，国盛证券拟不进行2025年度利润分配，与业内多家券商大举分红形成鲜明对比。4月21日，国盛证券以跌停
 
 ## 正文
 
-布鲁克林联邦地区法官周一就Visa和万事达卡提出的380亿美元反垄断和解协议举行听证会，以评估该协议是否能就两家公司长达二十年的信用卡刷卡费纠纷达成最终解决方案。
+国盛证券2026年一季度业绩引发市场高度关注。
 
-和解协议面临密集审查 这一和解最早于2025年11月宣布，是美国历史上最大的反垄断和解案之一。
+4月20日，国盛证券同步披露2025年年报与2026年一季度业绩快报，两份公告在数据方面呈现巨大反差。
 
-该协议旨在解决商户关于Visa和万事达卡非法联合固定刷卡费率的指控——即消费者用信用卡支付时商户需支付的费用，全美商户为此每年花费逾1000亿美元。
+归母净利润从2025年大增63.05%到2026年一季度暴跌97.91%。
 
-根据和解条款，两家公司已同意在未来五年内将部分信用卡交换费率降低约0.1个百分点，并将部分费率的涨幅上限定为1.25%，此项规定将持续约八年。
+对此，国盛证券归因于重仓的HTT股票的市值波动。
 
-商户还将获得更多灵活性，可以选择拒绝接受某些高费率信用卡，并可对消费者收取附加费来覆盖部分成本。
+与此同时，国盛证券拟不进行2025年度利润分配，与业内多家券商大举分红形成鲜明对比。
 
-知名商户提出强烈反对 许多行业组织对和解条款表示不满，他们认为和解带来的实际影响微乎其微。
+4月21日，国盛证券以跌停收盘，市场的质疑由此可见。
 
-国家便利店协会指出，即便费率经削减后，美国商户支付的刷卡费仍远高于世界其他地区。
+有业内人士表示，此次业绩披露暴露了公司前期投资决策的失误和风险管理的滞后性，值得行业警醒。
 
-美国全国零售联合会此前也表示会反对该和解协议，称其提供的临时救济“太少、太迟”。
+重仓HTT导致业绩断崖4月20日，国盛证券发布2025年年报和2026年一季度业绩快报。
 
 ## 相关推荐
 
-- 2026-06-29 12:14 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:03 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:04 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:03 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:00 - [指数级增长 2025年我国词元调用量约21100万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:19 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:22 - [中共中央政治局会议要点对比及解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:03 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:19 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:23 - [谷歌员工反对将AI用于机密任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:01 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:12 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:32 - [梁玉宁：中文与诗歌是中华文明的重要载体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:31 - [美国海军部长约翰·费伦将离职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:15 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:13 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:30 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:11 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:19 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:15 - [一季度长三角地区出口合计占全国41%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:12 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:35 - [酒钢宏兴：2025年净亏损19.98亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:33 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:35 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:34 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:18 - [助力打造内陆开放高地 重庆涉外律所已达81家](http://www.share.kurohicncr.top/Article/details/01505063701.shtml)
-- 2026-06-29 12:24 - [光大期货：4月28日能源化工日报](http://www.share.kurohicncr.top/Article/details/8274064072.shtml)
-- 2026-06-29 12:19 - [中国国内首个Pre6G试验网在南京投运 6G商用进入提速通道](http://www.blog.minike.top/Article/details/994921870.shtml)
-- 2026-06-29 12:08 - [大摩：宁德时代维持“与大市同步”评级 目标价上调至695港元](http://www.blog.kurohicncr.top/Article/details/010950.shtml)
-- 2026-06-29 12:24 - [战争催生非洲能源新前沿：投资者竞相填补燃料缺口](http://www.blog.kurohicncr.top/Article/details/77514.shtml)
-- 2026-06-29 12:29 - [河南两项目入选2025年度全国十大考古新发现](http://www.share.kurohicncr.top/Article/details/8021106.shtml)
-- 2026-06-29 12:06 - [ATF:美国消费者信心今晚登场 美元黄金与美股或迎来方向测试](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [2026本科专业“上新”，“新”在何处？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [外媒：阿富汗遭巴基斯坦导弹袭击，造成3人死亡、45人受伤](http://www.share.kurohicncr.top/Article/details/7979479.shtml)
-- 2026-06-29 12:24 - [亿缕阳光｜治愈的瞬间](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [2026年孟连海关部门预算公开](http://www.blog.minike.top/Article/details/1184882396.shtml)
-- 2026-06-29 12:17 - [东珠生态（603359）投资者索赔分析](http://www.share.kurohicncr.top/Article/details/04784227319.shtml)
-- 2026-06-29 12:29 - [香港引入首辆飞机专用重型电拖车](http://www.blog.kurohicncr.top/Article/details/59131023.shtml)
-- 2026-06-29 12:28 - [瑞银：华润置地目标价36港元 维持“买入”评级](http://www.share.kurohicncr.top/Article/details/75552072.shtml)
-- 2026-06-29 12:18 - [《习近平谈治国理政》第五卷英文版中印尼推介会在雅加达举行](http://www.blog.minike.top/Article/details/664678849.shtml)
+- 2026-06-29 12:31 - [马克龙访问波兰 聚焦法波防务及核能合作](http://www.blog.kurohicncr.top/Article/details/0818163.shtml)
+- 2026-06-29 12:25 - [Vatee万腾:中部走廊战略价值分析](http://www.blog.kurohicncr.top/Article/details/4931969.shtml)
+- 2026-06-29 12:28 - [莫桑比克总统：感谢中国的热情款待 期待莫中关系迈上新台阶](http://www.blog.kurohicncr.top/Article/details/0235979.shtml)
+- 2026-06-29 12:22 - [花旗：德昌电机控股维持“中性”评级 目标价32港元](http://www.blog.kurohicncr.top/Article/details/9737722.shtml)
+- 2026-06-29 12:25 - [14560.35%涨幅背后：天孚通信为何成为光通信赛道焦点](http://www.blog.kurohicncr.top/Article/details/6306193.shtml)
+- 2026-06-29 12:31 - [苹果候任CEO特努斯：苹果将“再次改变世界”](http://www.blog.kurohicncr.top/Article/details/826655943525.shtml)
+- 2026-06-29 12:30 - [登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中](http://www.blog.kurohicncr.top/Article/details/45781122.shtml)
+- 2026-06-29 12:13 - [确定！方一天出任华安基金党委副书记，获提名总经理](http://www.blog.minike.top/Article/details/004294841.shtml)
+- 2026-06-29 12:13 - [【这个城市有点潮】宿迁：在“项王故里”邂逅水韵柔情](http://www.blog.minike.top/Article/details/438469319420.shtml)
+- 2026-06-29 12:07 - [一笔一笔走近你](http://www.blog.kurohicncr.top/Article/details/86830652705.shtml)
+- 2026-06-29 12:07 - [伊朗否认举行美伊新谈判 指特朗普“又说谎了”](http://www.share.minike.top/Article/details/791212.shtml)
+- 2026-06-29 12:23 - [欧洲股市小幅走高，市场陷入“观望停滞状态”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [西门子数字化工业集团CEO：人工智能助力西门子深化与中国合作](http://www.blog.kurohicncr.top/Article/details/6092671299.shtml)
+- 2026-06-29 12:23 - [白宫向福克斯新闻透露：特朗普将伊朗停火期限延长3-5天](http://www.share.kurohicncr.top/Article/details/163919706.shtml)
+- 2026-06-29 12:08 - [上市公司市值管理实践：中国建筑从“战术”到“战略”](http://www.share.minike.top/Article/details/04824325640.shtml)

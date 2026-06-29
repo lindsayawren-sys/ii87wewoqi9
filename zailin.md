@@ -1,45 +1,45 @@
-# 央行今日开展259亿元7天期逆回购操作
+# 习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，据央行公告，2026年4月29日中国人民银行以固定利率、数量招标方式开展了259亿元7天期逆回购操作，全额满足了一级交易商需求。 责任编辑：曹睿潼
+发布时间：2026年04月21日 21:41 来源：央视新闻客户端 责任编辑：【李太源】
 
 ## 正文
 
-4月29日金融一线消息，据央行公告，2026年4月29日中国人民银行以固定利率、数量招标方式开展了259亿元7天期逆回购操作，全额满足了一级交易商需求。
-
-责任编辑：曹睿潼
+发布时间：2026年04月21日 21:41 来源：央视新闻客户端 责任编辑：【李太源】
 
 ## 相关推荐
 
-- 2026-06-29 12:05 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:24 - [渝昆高铁川滇段无砟轨道施工全部完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:12 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:25 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:19 - [西安通报5起违反中央八项规定精神问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:10 - [GTC泽汇资本:黄金整理静待方向明朗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:12 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:29 - [OpenAI称已更新与微软的合作伙伴关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:17 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:17 - [【市场聚焦】棉花：美国主产区干旱持续发酵带动全球棉市价格上行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:28 - [“伊斯兰国”袭击尼日利亚东北部 造成至少29人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:22 - [从三组卫星遥感图看生态保护成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:30 - [东方证券“吞并”上海证券，券业整合进入深水区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:08 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:35 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:21 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:32 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:28 - [瑞典大瀑布电力退出苏格兰浮式风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:18 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:08 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:32 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:06 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:15 - [生态产品价值如何实现？自然资源部介绍典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:31 - [【国际漫评】解禁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:29 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](http://www.blog.minike.top/Article/details/615038002949.shtml)
-- 2026-06-29 12:28 - [截至去年12月我国已出台网络领域立法180余部](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [美光与闪迪股价持续走高，存储芯片需求有望长期旺盛](http://www.blog.minike.top/Article/details/673343933451.shtml)
-- 2026-06-29 12:06 - [从新疆到巴黎 艾德莱斯秀出中国职教风采](http://www.share.kurohicncr.top/Article/details/295671569328.shtml)
-- 2026-06-29 12:04 - [中远海能第一季度归母净利润21.73亿元 同比增长206.74%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [二手时尚交易平台Vinted估值达80亿欧元，挑战eBay市场地位](http://www.share.kurohicncr.top/Article/details/3818141104.shtml)
-- 2026-06-29 12:13 - [企业无端扩大适用范围 竞业限制的边界到底在哪里？](http://www.blog.kurohicncr.top/Article/details/98434.shtml)
-- 2026-06-29 12:10 - [谷歌就专利局“既定预期”规则向美国最高法院提起上诉](http://www.blog.minike.top/Article/details/4701409985.shtml)
-- 2026-06-29 12:07 - [阿里平头哥重磅发布，支持万卡AI集群高速互联！港股AI反弹，百亿港股互联网ETF华宝（513770）盘中冲击2%！](http://www.blog.kurohicncr.top/Article/details/77709.shtml)
-- 2026-06-29 12:16 - [美银证券：金风科技重申“买入”评级 目标价升至18.5港元](http://www.blog.minike.top/Article/details/8464643092.shtml)
-- 2026-06-29 12:01 - [中国太保(02601)涨超5%：一季度净利润同比增长4.3% 期缴规模与价值实现双升](http://www.blog.minike.top/Article/details/36160917.shtml)
-- 2026-06-29 12:12 - [OpenAI终止与微软的独家合作，为与亚马逊谷歌达成协议铺平道路](http://www.share.kurohicncr.top/Article/details/403704.shtml)
-- 2026-06-29 12:14 - [贵州：推荐徐来任茅台集团副总经理、总会计师](http://www.blog.kurohicncr.top/Article/details/86656214980.shtml)
-- 2026-06-29 12:13 - [长护险全国推开后，普惠保险如何补上“保基本”之外的缺口？](http://www.share.minike.top/Article/details/94959.shtml)
-- 2026-06-29 12:25 - [蒋某某故意杀人、强奸案一审宣判](http://www.blog.minike.top/Article/details/402022646076.shtml)
+- 2026-06-29 12:23 - [华为迟林春：乾崑智驾累计辅助驾驶里程达100亿公里，预计今年10月超越特斯拉位居全球第一](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [多浦乐2025年度归母净利润约6649万元 同比增28.85%](http://www.blog.kurohicncr.top/Article/details/50966636.shtml)
+- 2026-06-29 12:22 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.blog.kurohicncr.top/Article/details/775968.shtml)
+- 2026-06-29 12:34 - [原油：油价上涨 投资者对美伊会谈的疑虑加剧](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.blog.kurohicncr.top/Article/details/7667789540.shtml)
+- 2026-06-29 12:17 - [百思买CEO科里・巴里因公司多年增长疲软卸任](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [因伊朗冲突等不确定性 IBM对业绩指引保持谨慎](http://www.share.minike.top/Article/details/79148.shtml)
+- 2026-06-29 12:21 - [Keurig与雀巢续签协议，延续星巴克咖啡分销合作](http://www.share.kurohicncr.top/Article/details/19304.shtml)
+- 2026-06-29 12:30 - [登山、换“蔬”、穿汉服……阅读周，“悦”读正当时](http://www.blog.kurohicncr.top/Article/details/841699.shtml)
+- 2026-06-29 12:18 - [破解临时用工难题 专家建议国家出台相关规范指引](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [法治浙江二十年主题宣传活动启幕](http://www.share.kurohicncr.top/Article/details/8574061.shtml)
+- 2026-06-29 12:13 - [Engie CEO称勒庞能源计划对法国而言是“灾难”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [一季度江西外贸进出口增长16% 汽车出口大增](http://www.share.minike.top/Article/details/8025285.shtml)
+- 2026-06-29 12:07 - [中超第七轮：上海海港不敌黑马新军 北京国安绝杀深圳新鹏城](http://www.share.kurohicncr.top/Article/details/6225201.shtml)

@@ -1,58 +1,46 @@
-# 邻里结对、互助帮扶 多地打造农村养老“暖心样本”
+# 【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-互助性养老服务是指通过邻里或村(社区)居民间的互相帮扶，为老年人提供自愿性、非营利性养老服务的活动。民政部等11部门公布了《关于推进互助性养老服务发展的意见》，这是我国首次在全国层面就如何推进互助性养老服务发展作出系统性、总体性部署。《关于推进互助性养老服务发展的意见》今天公布 《关于推进互助性养老服务发展的意见》明确，要建立完善互助服务模式。根据大多数老年人在家养老的实际，发
+发布时间：2026年04月22日 11:09 来源：中国新闻网 4月17日下午，乌鲁木齐市突发沙尘天气 。兵团第十二师中学三名学生，自发冲向旗杆，逆着强烈的沙尘，几十秒完成护旗、收旗，她们用行动守护国旗。 责任编辑：【李光伟】
 
 ## 正文
 
-互助性养老服务是指通过邻里或村(社区)居民间的互相帮扶，为老年人提供自愿性、非营利性养老服务的活动。
+发布时间：2026年04月22日 11:09 来源：中国新闻网 4月17日下午，乌鲁木齐市突发沙尘天气 。
 
-民政部等11部门公布了《关于推进互助性养老服务发展的意见》，这是我国首次在全国层面就如何推进互助性养老服务发展作出系统性、总体性部署。
+兵团第十二师中学三名学生，自发冲向旗杆，逆着强烈的沙尘，几十秒完成护旗、收旗，她们用行动守护国旗。
 
-《关于推进互助性养老服务发展的意见》今天公布 《关于推进互助性养老服务发展的意见》明确，要建立完善互助服务模式。
-
-根据大多数老年人在家养老的实际，发展社区支持的居家互助服务，支持以村干部、社区工作者、楼门长等为骨干，以低龄健康老年人为主体组建互助服务队伍提供服务。
-
-根据农村老年人需求和农村地区特点，《意见》提出，要通过邻里互助、多户搭伙、结对帮扶等方式，积极开展农村互助性养老服务。
-
-有条件的地方可以建立统一的互助服务时间(积分)管理系统；鼓励按规定开发设置农村助老岗位，支持开展互助性养老服务。
-
-《意见》明确，到2030年，具备互助服务功能的城乡社区养老服务设施覆盖率不低于70%；到2035年，互助性养老服务组织化程度进一步提高，服务支持体系进一步健全。
-
-“互助幸福院”解决农村牧区养老难题 在乌兰察布市南店村的互助幸福院里，住着200多位老人。
+责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:11 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:28 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:09 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:06 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:04 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:26 - [“五一”假期预计约600万人次进出香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:23 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:25 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:06 - [央行今日开展259亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:28 - [传递“乌尔朵”的守边人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:28 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:06 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:12 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:29 - [4月22日“农产品批发价格200指数”与昨天持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:26 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:24 - [228件作品荟萃第四届当代陶瓷艺术展览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:18 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:15 - [推动实体经济发展，内蒙古“放大招”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:32 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:21 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:09 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:01 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.share.kurohicncr.top/Article/details/772899.shtml)
-- 2026-06-29 12:04 - [谷歌员工反对将AI用于机密任务](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [春到桑干河](http://www.blog.minike.top/Article/details/4852172715.shtml)
-- 2026-06-29 12:25 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [中国选手赵一程打破男子速度攀岩世界纪录](http://www.blog.kurohicncr.top/Article/details/8604430688.shtml)
-- 2026-06-29 12:15 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [“华住会”App崩了？客服回应](http://www.blog.kurohicncr.top/Article/details/7821178.shtml)
-- 2026-06-29 12:01 - [“五一”假期小型客车继续施行免收通行费政策](http://www.blog.kurohicncr.top/Article/details/0532918070.shtml)
-- 2026-06-29 12:27 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](http://www.blog.minike.top/Article/details/9910821149.shtml)
-- 2026-06-29 12:20 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.blog.minike.top/Article/details/9171418912.shtml)
-- 2026-06-29 12:01 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.share.kurohicncr.top/Article/details/126792.shtml)
-- 2026-06-29 12:16 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](http://www.blog.minike.top/Article/details/102126759.shtml)
-- 2026-06-29 12:17 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](http://www.share.kurohicncr.top/Article/details/11099473731.shtml)
+- 2026-06-29 12:24 - [一季度长三角地区出口合计占全国41%](http://www.blog.minike.top/Article/details/2998239.shtml)
+- 2026-06-29 12:19 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.share.minike.top/Article/details/1900149830.shtml)
+- 2026-06-29 12:09 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.blog.minike.top/Article/details/7719746.shtml)
+- 2026-06-29 12:12 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](http://www.share.kurohicncr.top/Article/details/82507480169.shtml)
+- 2026-06-29 12:23 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](http://www.blog.minike.top/Article/details/6276417.shtml)
+- 2026-06-29 12:18 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.share.minike.top/Article/details/75610669.shtml)
+- 2026-06-29 12:29 - [日本126名议员集体参拜靖国神社](http://www.blog.minike.top/Article/details/3112692385.shtml)
+- 2026-06-29 12:33 - [绿的谐波：一季度净利润同比增长61.17%](http://www.share.minike.top/Article/details/85381586.shtml)
+- 2026-06-29 12:35 - [全球电力回顾报告：2025年化石燃料发电量零增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](http://www.share.minike.top/Article/details/91808377115.shtml)
+- 2026-06-29 12:07 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](http://www.blog.kurohicncr.top/Article/details/439467293582.shtml)
+- 2026-06-29 12:28 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.share.kurohicncr.top/Article/details/50501745.shtml)
+- 2026-06-29 12:25 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](http://www.share.minike.top/Article/details/24315488.shtml)
+- 2026-06-29 12:10 - [美股三大指数集体高开，布油重回100美元上方](http://www.blog.kurohicncr.top/Article/details/35195347954.shtml)

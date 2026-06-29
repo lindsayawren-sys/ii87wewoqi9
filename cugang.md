@@ -1,61 +1,59 @@
-# 这几大症状出现，是颈椎在发出警告！6条预防措施，必看！
+# 上海发布广告人才新政 面向全球招揽行业英才
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-随着生活节奏的加快，颈椎病已悄然成为了日常生活中，一种常见的健康问题。 据统计，我国颈椎病的发病率接近 20%，30 岁以下的颈椎病患者占比越来越高，且发病有逐年增长、逐步年轻化的趋势。手机和平板的使用率和普及率越来越高，低头族越来越多，许多学生由于长时间上网，小小年纪就已经有了颈椎病。 我们应该怎么判断自己是否得了颈椎病呢？又该怎么预防颈椎病呢？ 什么是颈椎病？颈椎病，是一种
+中新社上海4月22日电 (记者 许婧)上海22日发布最新广告人才政策，涉及人才引进、落户支持、技能提升、创业扶持等，面向全球广告人才发出诚意邀约。 当天，“才汇上海，广纳未来”——2026上海市广告人才专场招聘会在上海举办，聚焦广告全产业链人才需求，破解广告业“招聘难与就业难”的双重困境。开幕式上，上海市市场监管局、上海市人社局和上海市人才工作局共同启动“Welcome to
 
 ## 正文
 
-随着生活节奏的加快，颈椎病已悄然成为了日常生活中，一种常见的健康问题。
+中新社上海4月22日电 (记者 许婧)上海22日发布最新广告人才政策，涉及人才引进、落户支持、技能提升、创业扶持等，面向全球广告人才发出诚意邀约。
 
-据统计，我国颈椎病的发病率接近 20%，30 岁以下的颈椎病患者占比越来越高，且发病有逐年增长、逐步年轻化的趋势。
+当天，“才汇上海，广纳未来”——2026上海市广告人才专场招聘会在上海举办，聚焦广告全产业链人才需求，破解广告业“招聘难与就业难”的双重困境。
 
-手机和平板的使用率和普及率越来越高，低头族越来越多，许多学生由于长时间上网，小小年纪就已经有了颈椎病。
+开幕式上，上海市市场监管局、上海市人社局和上海市人才工作局共同启动“Welcome to Shanghai”上海市广告人才政策发布仪式。
 
-我们应该怎么判断自己是否得了颈椎病呢？
+数据显示，截至2025年底，上海主营广告企业达87722户，拥有外商投资企业11314户。
 
-又该怎么预防颈椎病呢？
+去年上海广告营收首次突破4000亿元(人民币，下同)，跃居全国第一。
 
-什么是颈椎病？
+上海产业生态良好，外资企业活跃，“国际数字广告之都”加速崛起。
 
-颈椎病，是一种以退行性病理改变为基础的疾患。
+上海市市场监管局相关负责人介绍，本次发布的新政亮点颇多，比如上海广告业高端人才被纳入上海市东方英才计划拔尖、青年项目(综合平台)市场监管领域申报范围；广告设计师在上海工作期间取得职业技能等级认定证书且专业、工种与所聘岗位相符，可获得居住证积分30分至140分；企业职工职业技能提升补贴最高可达每人3700元；鼓励平台经营者、大模型企业通过提供运营帮扶、AI创作培训、流量支持等方式支持广告设计师等个体工商户开展AI内容创作经营；符合条件的广告OPC(一人公司)创业者可享受首年免租金工位、最高10万元创业启动资金、最长3年人才租房补贴等支持。
 
-主要由于颈椎长期劳损、骨质增生，或椎间盘脱出、韧带增厚，致使颈椎脊髓、神经根或椎动脉受压，出现一系列功能障碍的临床综合征。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:28 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:01 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:02 - [一季度生态成绩单亮眼，高质量发展绿意盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:07 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:11 - [普京称西方正将领导地位让位于全球南方国家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:10 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:01 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:16 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:24 - [破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:21 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:28 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:15 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:14 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:03 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:21 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:27 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:26 - [2026年广东省行业企业职业技能竞赛计划发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:17 - [多支欧洲足球劲旅将于8月会师香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:19 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:09 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:25 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:06 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:23 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:12 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:22 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:31 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:25 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:23 - [中天策略:4月28日市场分析](http://www.blog.minike.top/Article/details/936589585.shtml)
-- 2026-06-29 12:24 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](http://www.blog.kurohicncr.top/Article/details/8917278277.shtml)
-- 2026-06-29 12:26 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](http://www.blog.kurohicncr.top/Article/details/41656.shtml)
-- 2026-06-29 12:07 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](http://www.share.minike.top/Article/details/69675113492.shtml)
-- 2026-06-29 12:11 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](http://www.share.minike.top/Article/details/0858182.shtml)
-- 2026-06-29 12:27 - [商务部：2026年1-3月我国电子商务持续平稳发展](http://www.share.minike.top/Article/details/95570810925.shtml)
-- 2026-06-29 12:02 - [民政部：着力推进普惠性、基础性、兜底性民生建设](http://www.share.kurohicncr.top/Article/details/5803259.shtml)
-- 2026-06-29 12:07 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](http://www.blog.minike.top/Article/details/005827225263.shtml)
-- 2026-06-29 12:15 - [2026年度丽江海关部门预算公开](http://www.blog.kurohicncr.top/Article/details/2672335988.shtml)
-- 2026-06-29 12:22 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](http://www.share.minike.top/Article/details/8139042821.shtml)
-- 2026-06-29 12:08 - [重庆秀山：烟雨“边城” 古韵映春](http://www.share.kurohicncr.top/Article/details/78959158368.shtml)
-- 2026-06-29 12:15 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](http://www.share.kurohicncr.top/Article/details/201107.shtml)
-- 2026-06-29 12:25 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](http://www.share.minike.top/Article/details/3880714884.shtml)
-- 2026-06-29 12:26 - [韩国宣布与Google DeepMind建立合作](http://www.share.kurohicncr.top/Article/details/5555854.shtml)
-- 2026-06-29 12:09 - [光大期货：4月28日金融日报](http://www.share.minike.top/Article/details/4625200435.shtml)
+- 2026-06-29 12:33 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](http://www.share.kurohicncr.top/Article/details/3903878.shtml)
+- 2026-06-29 12:20 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](http://www.blog.minike.top/Article/details/24703.shtml)
+- 2026-06-29 12:07 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](http://www.share.kurohicncr.top/Article/details/8357976.shtml)
+- 2026-06-29 12:07 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](http://www.blog.kurohicncr.top/Article/details/60188298372.shtml)
+- 2026-06-29 12:32 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](http://www.share.kurohicncr.top/Article/details/635424776.shtml)
+- 2026-06-29 12:12 - [高雅光学公布于4月23日上午起停牌](http://www.share.minike.top/Article/details/123327.shtml)
+- 2026-06-29 12:28 - [波音季度亏损收窄，股价早盘上涨4.5%](http://www.blog.minike.top/Article/details/728654.shtml)
+- 2026-06-29 12:17 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](http://www.blog.kurohicncr.top/Article/details/97890652841.shtml)
+- 2026-06-29 12:06 - [重庆今年一季度离境退税实退税额同比增长1倍](http://www.share.minike.top/Article/details/929082.shtml)
+- 2026-06-29 12:33 - [一见·世界地球日，看“赋能型大国”的绿色担当](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [美国多家航空公司面临燃油压力](http://www.blog.minike.top/Article/details/1268198.shtml)
+- 2026-06-29 12:12 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](http://www.share.minike.top/Article/details/2536172406.shtml)
+- 2026-06-29 12:20 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](http://www.share.kurohicncr.top/Article/details/9593897.shtml)
+- 2026-06-29 12:27 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](http://www.share.minike.top/Article/details/3324142.shtml)

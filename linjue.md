@@ -1,60 +1,56 @@
-# 招股书曾写错毛利，微脉二闯港交所：AI医疗故事背后，三年亏超6亿 | 长三角资本局
+# 近期降雨过程范围广、雨势强 多部门会商部署防汛抢险救灾工作
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 那个曾因招股书财务数据修订引发争议的微脉，又回到了港交所门口。 4月20日，AI数字医疗服务商微脉技术有限公司再次向港交所主板递交招股书，重启IPO进程。这是微脉第二次冲刺港股上市。 第一次递表时，最受关注的不是它的AI医疗故事，而是招股书里一处“低级财务差错”：公开报道显示，微脉曾将2024年毛利数据由-1.29亿元更正为1.29亿元。这个错误未必是
+4月21日，国家防总办公室、应急管理部组织气象、水利等部门会商研判西南、江南、华南地区强降雨发展趋势，研究部署重点地区防汛抢险救灾工作。 会商指出，近期湖南、贵州、江西局地雨量打破同期纪录，20日开始的一轮降雨过程范围广、雨势强，据预测，26日起南方还将迎来一轮降雨过程。持续降雨导致部分地区土壤饱和，山洪地质灾害风险增大。 会商要求，要强化监测预报预警，综合运用多种手段提高短临
 
 ## 正文
 
-文|新浪财经上海站 十里 那个曾因招股书财务数据修订引发争议的微脉，又回到了港交所门口。
+4月21日，国家防总办公室、应急管理部组织气象、水利等部门会商研判西南、江南、华南地区强降雨发展趋势，研究部署重点地区防汛抢险救灾工作。
 
-4月20日，AI数字医疗服务商微脉技术有限公司再次向港交所主板递交招股书，重启IPO进程。
+会商指出，近期湖南、贵州、江西局地雨量打破同期纪录，20日开始的一轮降雨过程范围广、雨势强，据预测，26日起南方还将迎来一轮降雨过程。
 
-这是微脉第二次冲刺港股上市。
+持续降雨导致部分地区土壤饱和，山洪地质灾害风险增大。
 
-第一次递表时，最受关注的不是它的AI医疗故事，而是招股书里一处“低级财务差错”：公开报道显示，微脉曾将2024年毛利数据由-1.29亿元更正为1.29亿元。
+会商要求，要强化监测预报预警，综合运用多种手段提高短临预报精准度，扩大预警覆盖面，确保预警信息第一时间传递到镇村、入户到人，加强上下游联动，构建“上游吹哨、下游快撤”的防汛协同机制。
 
-这个错误未必是其首轮申请失效的直接原因，但对于一家冲刺资本市场的医疗科技公司而言，已经足够刺眼。
+要强化风险研判调度，针对暴雨、山洪、中小河流洪水的高等级预警以及突发重大险情灾情，加强对重点市县的指挥调度和督促提醒，确保应对措施落实落细。
 
-这一次，微脉仍然把自己放在“AI+全病程管理”的叙事里。
+要强化人员转移避险，切实落实直达基层责任人的临灾预警“叫应”和跟踪反馈机制，严格执行转移避险“四个一律”要求，抓好施工工地安全管理九条硬措施落实，果断转移受威胁群众，确保应转早转、应转尽转。
 
-按照招股书说法，公司做的不是单纯线上问诊，也不是卖一套系统给医院，而是深度嵌入公立医院诊疗流程，把服务覆盖到诊前、治疗中、出院后复查、康复和随访等环节。
+要强化风险隐患排查整治，加强专家服务指导，将养老机构、施工营地、旅游景区纳入防汛重点，动态调整清单台账。
 
-这套模式的核心，是绑定医院资源。
+要强化抢险救援救灾，抓实水库、堤防、涉水涉河重要基础设施的巡查防守，有针对性做好应急处突力量和救灾物资装备的预置布防，用好“老把式”和专业技术力量，科学有序抢险救援救灾。
 
 ## 相关推荐
 
-- 2026-06-29 12:11 - [OpenAI增长失速冲击AI板块：超大规模资本支出模式遭遇“信任危机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:06 - [第二届西南农资骨干流通走廊建设推进大会在重庆涪陵举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:10 - [英伟达股价下跌，公司正继续在美国以外增加产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:25 - [美国能源部长：霍尔木兹海峡无需清除所有水雷也可以开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:15 - [消费者信心疲软致达美乐披萨销量增长停滞，股价承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:28 - [中国首个脑机接口本科专业在天津大学设立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:09 - [司机月收入跌破2000元、聚合平台流量费连涨 T3出行难破网约车港股“破发魔咒”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:15 - [五粮液开盘最高跌超3%，股价跌破100元，创6年新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:14 - [中天期货:焦煤持续震荡 橡胶震荡上行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:19 - [“中国式现代化离不开农业农村现代化”（总书记的人民情怀）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:02 - [两部门启动2026年“模数共振”行动 依托重点城市打造智能体工厂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:15 - [4月28日外盘头条：特朗普与幕僚讨论伊朗最新提议 欧盟向谷歌发布AI竞争合规指南 美光与闪迪股价持续走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:22 - [国台办回应“金门考察团遭刻意审查卡关”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:22 - [马斯克在对OpenAI的诉讼案中首日出庭作证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:23 - [雪佛龙得州炼油厂发生原油泄漏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:25 - [大宗商品综述：原油上涨 铜和黄金下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:17 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:28 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:36 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:09 - [百思买任命杰森・邦菲格为新任CEO，将于10 月底接替巴里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:20 - [《三体》之后，下一个“破圈”之作在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:17 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:20 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:23 - [国光股份：2025年大田作物推广面积比2024年有不错的增长，2026年计划推广150万亩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:28 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](http://www.blog.kurohicncr.top/Article/details/382097.shtml)
-- 2026-06-29 12:29 - [四川蓝莓首次出口](http://www.share.minike.top/Article/details/10748989957.shtml)
-- 2026-06-29 12:12 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](http://www.blog.minike.top/Article/details/90210438045.shtml)
-- 2026-06-29 12:01 - [中钢协：积极开展产能治理、产量调控、行业自律](http://www.blog.minike.top/Article/details/717324812.shtml)
-- 2026-06-29 12:20 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](http://www.blog.minike.top/Article/details/00100050913.shtml)
-- 2026-06-29 12:29 - [快乐出行不“掉坑”，这份网络安全指南请查收！](http://www.share.minike.top/Article/details/5751598.shtml)
-- 2026-06-29 12:19 - [企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](http://www.blog.minike.top/Article/details/71568.shtml)
-- 2026-06-29 12:15 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](http://www.blog.minike.top/Article/details/2756520.shtml)
-- 2026-06-29 12:05 - [晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考](http://www.blog.kurohicncr.top/Article/details/3476808261.shtml)
-- 2026-06-29 12:00 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](http://www.share.kurohicncr.top/Article/details/625332.shtml)
-- 2026-06-29 12:23 - [国铁沈阳局五一小长假预计发送旅客740万人次](http://www.share.kurohicncr.top/Article/details/72886.shtml)
-- 2026-06-29 12:06 - [香港3月进出口货值现两位数增长](http://www.share.minike.top/Article/details/3197904832.shtml)
-- 2026-06-29 12:26 - [涉嫌严重违纪违法 内蒙古两厅官被查](http://www.share.minike.top/Article/details/29258.shtml)
+- 2026-06-29 12:13 - [聚焦人工智能应用 印尼教育界人士来鄂研修](http://www.blog.minike.top/Article/details/838079265.shtml)
+- 2026-06-29 12:08 - [苹果换帅时机或预示财报利好，分析师看好短期表现](http://www.share.minike.top/Article/details/227922.shtml)
+- 2026-06-29 12:15 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](http://www.blog.kurohicncr.top/Article/details/863092.shtml)
+- 2026-06-29 12:06 - [中国隧道连续皮带机首次出口西班牙](http://www.blog.minike.top/Article/details/3042991.shtml)
+- 2026-06-29 12:21 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](http://www.share.minike.top/Article/details/897049264007.shtml)
+- 2026-06-29 12:20 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](http://www.share.minike.top/Article/details/4666500.shtml)
+- 2026-06-29 12:07 - [德国电信据悉考虑与T-Mobile US进行全面合并](http://www.blog.kurohicncr.top/Article/details/6683746.shtml)
+- 2026-06-29 12:28 - [中国海军以最高礼仪迎接烈士遗骸回国](http://www.blog.kurohicncr.top/Article/details/340845313.shtml)
+- 2026-06-29 12:24 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [RadexMarkets瑞德克斯:能源市场面临极端压力](http://www.share.minike.top/Article/details/58937517.shtml)
+- 2026-06-29 12:28 - [上海发布广告人才新政 面向全球招揽行业英才](http://www.blog.kurohicncr.top/Article/details/92724469131.shtml)
+- 2026-06-29 12:30 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.blog.minike.top/Article/details/532122865111.shtml)
+- 2026-06-29 12:32 - [全球共享发展行动论坛第三届高级别会议发布成果清单](http://www.blog.kurohicncr.top/Article/details/2652481444.shtml)
+- 2026-06-29 12:34 - [源达信息量化策略研究：重要股东增持单因子策略](http://www.blog.minike.top/Article/details/931633170.shtml)

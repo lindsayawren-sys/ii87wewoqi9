@@ -1,60 +1,56 @@
-# 四川蓝莓首次出口
+# 苹果换帅时机或预示财报利好，分析师看好短期表现
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网成都4月29日电 (记者 张浪)成都海关29日消息：首批3.96吨四川会东蓝莓近日经成都海关所属攀枝花海关检验检疫合格后在泰国顺利通关。这标志着四川蓝莓出口“零突破”，为“川果出海”产业版图再添一抹绚丽色块。 为保障首批蓝莓顺利走出国门，成都海关靠前发力、精准对接，全面落实助力特色农产品出口举措。关员多次深入田间地头，实地调研产业现状，量身定制“一品一策”帮扶方案；常态化
+苹果公司周一宣布，现任首席执行官蒂姆·库克将于2026年9月1日卸任，转任董事会执行主席，硬件工程高级副总裁约翰·特努斯将接任CEO一职。这一备受瞩目的领导层变动，恰好发生在苹果即将公布季度财报的前夕，引发市场对两者关联性的广泛关注。 财报发布在即，市场预期乐观 苹果计划于4月30日发布2026财年第二季度财报。华尔街分析师普遍预计，苹果本季度将交出亮眼成绩单。数据显示，市场预
 
 ## 正文
 
-中新网成都4月29日电 (记者 张浪)成都海关29日消息：首批3.96吨四川会东蓝莓近日经成都海关所属攀枝花海关检验检疫合格后在泰国顺利通关。
+苹果公司周一宣布，现任首席执行官蒂姆·库克将于2026年9月1日卸任，转任董事会执行主席，硬件工程高级副总裁约翰·特努斯将接任CEO一职。
 
-这标志着四川蓝莓出口“零突破”，为“川果出海”产业版图再添一抹绚丽色块。
+这一备受瞩目的领导层变动，恰好发生在苹果即将公布季度财报的前夕，引发市场对两者关联性的广泛关注。
 
-为保障首批蓝莓顺利走出国门，成都海关靠前发力、精准对接，全面落实助力特色农产品出口举措。
+财报发布在即，市场预期乐观 苹果计划于4月30日发布2026财年第二季度财报。
 
-关员多次深入田间地头，实地调研产业现状，量身定制“一品一策”帮扶方案；常态化开展“关长送政策上门”，全程指导企业取得出境水果果园及包装厂注册登记资质，强化有害生物监测与源头质量管控；动态对接通关流程，高效统筹监管与服务，确保鲜果出口监管“严而有序”与通关“快而有感”有机统一。
+华尔街分析师普遍预计，苹果本季度将交出亮眼成绩单。
 
-不仅仅是蓝莓，成都海关始终将助力特色农食产品出口作为服务乡村振兴、支持外贸高质量发展的重要抓手。
+数据显示，市场预期苹果每股收益为1.94美元，同比增长超17%；营收预计达1093.5亿美元，同比增长逾16%。
 
-通过持续深化“一品一策”精准帮扶模式，海关监管红利正加速转化为产业发展动能，全力支持四川特色农食产品扩大出口。
+多家机构分析师指出，库克选择在此时宣布卸任，很可能意味着公司对即将公布的业绩充满信心。
 
-今年一季度，四川农产品出口达20.9亿元，同比增长3.7%，产业出口活力持续释放。
+一位分析师表示：“如果财报数据不理想，他绝不会选择在这个时候离开。
 
-下一步，成都海关将持续落实跨境贸易便利化专项行动政策，积极推进检验检疫监管模式改革试点。
+他们即将公布的业绩一定会很出色，业绩指引也将是积极的”。
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:26 - [晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:25 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:03 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:18 - [国铁沈阳局五一小长假预计发送旅客740万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:21 - [香港3月进出口货值现两位数增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:26 - [涉嫌严重违纪违法 内蒙古两厅官被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:12 - [港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:22 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:05 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:20 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:27 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:13 - [一季度生态成绩单亮眼，高质量发展绿意盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:05 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:14 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:26 - [RadexMarkets瑞德克斯:能源市场面临极端压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:27 - [上海发布广告人才新政 面向全球招揽行业英才](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:12 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:08 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:22 - [全球共享发展行动论坛第三届高级别会议发布成果清单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:33 - [源达信息量化策略研究：重要股东增持单因子策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:08 - [300883，连亏三年后，一季度又亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:13 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:08 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:14 - [铁路文旅创新融合绘就发展新图景](http://www.blog.minike.top/Article/details/30179566914.shtml)
-- 2026-06-29 12:18 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](http://www.blog.minike.top/Article/details/24525437.shtml)
-- 2026-06-29 12:21 - [AI赋能“一人公司” 个体创新潜力持续激活](http://www.blog.kurohicncr.top/Article/details/2571320.shtml)
-- 2026-06-29 12:09 - [中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%](http://www.blog.kurohicncr.top/Article/details/3264822.shtml)
-- 2026-06-29 12:10 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](http://www.blog.kurohicncr.top/Article/details/54058671.shtml)
-- 2026-06-29 12:21 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](http://www.blog.minike.top/Article/details/41287266881.shtml)
-- 2026-06-29 12:22 - [促进高质量充分就业 多项政策出台](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](http://www.blog.kurohicncr.top/Article/details/290847113381.shtml)
-- 2026-06-29 12:17 - [中天策略:4月28日市场分析](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](http://www.share.minike.top/Article/details/260436557.shtml)
-- 2026-06-29 12:01 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](http://www.blog.minike.top/Article/details/9027584.shtml)
-- 2026-06-29 12:03 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](http://www.share.minike.top/Article/details/19352.shtml)
-- 2026-06-29 12:20 - [商务部：2026年1-3月我国电子商务持续平稳发展](http://www.share.kurohicncr.top/Article/details/71193720.shtml)
+- 2026-06-29 12:13 - [辽宁海城：梨花成海 粉樱作伴](http://www.share.kurohicncr.top/Article/details/612680769153.shtml)
+- 2026-06-29 12:11 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [英国石油公司高管将出任OMV首位女性首席执行官](http://www.share.minike.top/Article/details/56238.shtml)
+- 2026-06-29 12:10 - [“新时代、新品质、新气象：清华大学美术学院新世纪成果展”研讨会举办](http://www.blog.minike.top/Article/details/578296492026.shtml)
+- 2026-06-29 12:35 - [东山精密业绩大增27.67%，利润增速远超预期！靠什么？](http://www.share.minike.top/Article/details/4009936.shtml)
+- 2026-06-29 12:12 - [摩根士丹利策略师：地缘政治动荡往往创造良好买入机会](http://www.share.kurohicncr.top/Article/details/514229343827.shtml)
+- 2026-06-29 12:21 - [为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元](http://www.blog.kurohicncr.top/Article/details/69951.shtml)
+- 2026-06-29 12:23 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](http://www.blog.kurohicncr.top/Article/details/148240098.shtml)
+- 2026-06-29 12:34 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](http://www.blog.kurohicncr.top/Article/details/79744.shtml)
+- 2026-06-29 12:31 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](http://www.blog.kurohicncr.top/Article/details/884549517.shtml)
+- 2026-06-29 12:11 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](http://www.share.minike.top/Article/details/456970.shtml)
+- 2026-06-29 12:07 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](http://www.share.minike.top/Article/details/13394.shtml)
+- 2026-06-29 12:09 - [高雅光学公布于4月23日上午起停牌](http://www.share.kurohicncr.top/Article/details/3013733068.shtml)

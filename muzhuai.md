@@ -1,61 +1,53 @@
-# 向榜样学习！工行这些劳动者获得中华全国总工会表彰
+# 韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-来源：中国工商银行 4月28日，中华全国总工会召开庆祝“五一”国际劳动节暨全国五一劳动奖表彰大会，表彰激励先进典型，大力弘扬劳模精神、劳动精神、工匠精神。工行广西南宁自贸区五象支行获得全国五一劳动奖状；工行软件开发中心高级经理徐琳玲获得全国五一劳动奖章；工行山西忻州神堂坪支行（女职工集体）、工行上海分行金融市场部、工行四川内江分行营业部（女职工集体）、工行海南三沙支行（女职工集
+中新社北京4月22日电 中国国家副主席韩正22日在北京集体会见出席全球共享发展行动论坛第三届高级别会议的外方代表。 韩正表示，习近平主席提出全球发展倡议五年来，得到国际社会积极响应和广泛支持，在各方共同努力下，倡议的落实取得显著进展。中方愿以此次会议为契机，同各方进一步凝聚共识，坚持行动导向，加大全球发展合作资源投入，推进重点领域合作，促进绿色可持续发展，让发展成果更多惠及人民
 
 ## 正文
 
-来源：中国工商银行 4月28日，中华全国总工会召开庆祝“五一”国际劳动节暨全国五一劳动奖表彰大会，表彰激励先进典型，大力弘扬劳模精神、劳动精神、工匠精神。
+中新社北京4月22日电 中国国家副主席韩正22日在北京集体会见出席全球共享发展行动论坛第三届高级别会议的外方代表。
 
-工行广西南宁自贸区五象支行获得全国五一劳动奖状；工行软件开发中心高级经理徐琳玲获得全国五一劳动奖章；工行山西忻州神堂坪支行（女职工集体）、工行上海分行金融市场部、工行四川内江分行营业部（女职工集体）、工行海南三沙支行（女职工集体）、工行苏州工业园区支行营业部（女职工集体）获得全国工人先锋号。
+韩正表示，习近平主席提出全球发展倡议五年来，得到国际社会积极响应和广泛支持，在各方共同努力下，倡议的落实取得显著进展。
 
-上述受表彰的先进女职工个人和集体同时被授予全国五一巾帼标兵和全国五一巾帼标兵岗。
+中方愿以此次会议为契机，同各方进一步凝聚共识，坚持行动导向，加大全球发展合作资源投入，推进重点领域合作，促进绿色可持续发展，让发展成果更多惠及人民，推动构建全球发展命运共同体。
 
-全国五一劳动奖状 工行广西南宁自贸区五象支行 全国五一劳动奖章 工行软件开发中心徐琳玲 全国工人先锋号 工行山西忻州神堂坪支行（女职工集体） 工行上海分行金融市场部 工行四川内江分行营业部（女职工集体） 工行海南三沙支行（女职工集体） 工行苏州工业园区支行营业部（女职工集体） 工行广西南宁自贸区五象支行 为更好服务中国（广西）自由贸易试验区建设，工行在自贸区南宁片区设立五象支行。
+与会外方代表祝贺中方成功举办本次会议，表示全力支持习近平主席提出的全球发展倡议，高度赞赏中方为全球发展所作贡献，重申各国政府坚定恪守一个中国原则，愿同中方深化协作，携手共促全球发展事业取得更大进展。
 
-该行聚焦自贸区重点企业、重点项目，创新数智化服务模式，整合信贷、结算、投行、理财、国际业务等多元服务，提供全面金融解决方案。
-
-积极搭建自贸区一站式金融服务窗口，成功落地多笔自贸区首单创新业务，精准赋能桂企“出海”和外企“入桂”，支持广西建设面向东盟的金融开放门户。
-
-该行曾荣获总行“五一劳动奖状”“青年文明号”等荣誉称号。
-
-徐琳玲 徐琳玲，现任工行软件开发中心大数据和人工智能实验室高级经理。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [康宁一季度利润与核心营收双双增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:24 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:12 - [五一机票又“跳水”了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:13 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:13 - [日本公然宣称为“长期战争”做准备 中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:24 - [金石为开——西安·沈阳名碑拓片特展开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:03 - [铁路文旅创新融合绘就发展新图景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:02 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:06 - [AI赋能“一人公司” 个体创新潜力持续激活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:28 - [中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:28 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:10 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:21 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:09 - [促进高质量充分就业 多项政策出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:21 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:07 - [西安银行发布2025年度利润分配方案 拟每10派1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:35 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:17 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:19 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:14 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:21 - [百思买任命资深人士为CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:14 - [辽宁海城：梨花成海 粉樱作伴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:19 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:24 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:21 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:23 - [英国石油公司高管将出任OMV首位女性首席执行官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:17 - [“新时代、新品质、新气象：清华大学美术学院新世纪成果展”研讨会举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:24 - [东山精密业绩大增27.67%，利润增速远超预期！靠什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:23 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](http://www.share.minike.top/Article/details/52033213.shtml)
-- 2026-06-29 12:27 - [2026年盈江海关部门预算公开](http://www.blog.minike.top/Article/details/442451844051.shtml)
-- 2026-06-29 12:29 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](http://www.blog.kurohicncr.top/Article/details/7613628.shtml)
-- 2026-06-29 12:06 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](http://www.share.kurohicncr.top/Article/details/23461.shtml)
-- 2026-06-29 12:05 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](http://www.share.kurohicncr.top/Article/details/074573.shtml)
-- 2026-06-29 12:12 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](http://www.blog.kurohicncr.top/Article/details/73528043523.shtml)
-- 2026-06-29 12:03 - [银行业首个行业级“数据分类分级”大模型发布](http://www.share.minike.top/Article/details/2987614.shtml)
-- 2026-06-29 12:00 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](http://www.blog.minike.top/Article/details/05817235.shtml)
-- 2026-06-29 12:16 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](http://www.share.kurohicncr.top/Article/details/70881.shtml)
-- 2026-06-29 12:03 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](http://www.blog.minike.top/Article/details/33914.shtml)
-- 2026-06-29 12:04 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](http://www.blog.minike.top/Article/details/51697435889.shtml)
-- 2026-06-29 12:27 - [新西兰央行行长：已准备好应对持续的价格压力](http://www.share.kurohicncr.top/Article/details/7509895.shtml)
-- 2026-06-29 12:13 - [重庆罗斯福图书馆旧址将焕新开放](http://www.blog.minike.top/Article/details/135344.shtml)
-- 2026-06-29 12:07 - [北京首都机场“五一”假期预计运送旅客超100万人次](http://www.share.minike.top/Article/details/4062152.shtml)
+- 2026-06-29 12:29 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](http://www.blog.minike.top/Article/details/67964782.shtml)
+- 2026-06-29 12:18 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](http://www.share.kurohicncr.top/Article/details/76161.shtml)
+- 2026-06-29 12:26 - [重组计划会影响IPO吗？阿维塔回应](http://www.share.minike.top/Article/details/398899.shtml)
+- 2026-06-29 12:16 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](http://www.blog.minike.top/Article/details/73979143.shtml)
+- 2026-06-29 12:25 - [亚马逊深化与Anthropic的合作](http://www.blog.minike.top/Article/details/1769794433.shtml)
+- 2026-06-29 12:21 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](http://www.blog.minike.top/Article/details/119711058622.shtml)
+- 2026-06-29 12:17 - [莎士比亚经典喜剧《第十二夜》在成都上演](http://www.share.kurohicncr.top/Article/details/6704042.shtml)
+- 2026-06-29 12:24 - [汉诺威工博会观察：中国企业加速AI应用落地](http://www.blog.kurohicncr.top/Article/details/049762.shtml)
+- 2026-06-29 12:27 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.blog.minike.top/Article/details/51240875.shtml)
+- 2026-06-29 12:15 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](http://www.blog.minike.top/Article/details/157792.shtml)
+- 2026-06-29 12:31 - [产业链上话稼穑 同心耕作“希望的田野”](http://www.share.minike.top/Article/details/441872.shtml)
+- 2026-06-29 12:13 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](http://www.blog.kurohicncr.top/Article/details/8117952.shtml)
+- 2026-06-29 12:31 - [亚盛医药-B多项研究入选2026年ASCO](http://www.share.kurohicncr.top/Article/details/76172034.shtml)
+- 2026-06-29 12:12 - [四张图看懂蒂姆・库克的非凡职业生涯](http://www.blog.kurohicncr.top/Article/details/4343315063.shtml)
+- 2026-06-29 12:19 - [安峰获批担任马上消费金融副总经理](https://github.com/lisacumin64-arch)

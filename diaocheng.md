@@ -1,60 +1,44 @@
-# 从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变
+# 亚马逊深化与Anthropic的合作
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网西宁4月28日电 题：从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变 中新网记者 孙睿 海拔4000多米的青海省海西蒙古族藏族自治州(简称“海西州”)天峻县，曾草场退化、黄沙裸露，一片片黑土滩像伤疤般刻在高原上。如今，牧草连片、溪流清澈，曾经寸草难生的荒滩重披绿装。 天峻县位于青海湖源头、祁连山南麓，草原面积超3800万亩，是青藏高原重要生态屏障。受高寒气候、鼠害侵
+亚马逊（AMZN）目前已向Anthropic投资50亿美元，并承诺未来再投资至多200亿美元；同时，Anthropic承诺在AWS上支出超过1000亿美元，并为人工智能工作负载提供高达5吉瓦的Trainium芯片算力。责任编辑：张俊 SF065
 
 ## 正文
 
-中新网西宁4月28日电 题：从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变 中新网记者 孙睿 海拔4000多米的青海省海西蒙古族藏族自治州(简称“海西州”)天峻县，曾草场退化、黄沙裸露，一片片黑土滩像伤疤般刻在高原上。
+亚马逊（AMZN）目前已向Anthropic投资50亿美元，并承诺未来再投资至多200亿美元；同时，Anthropic承诺在AWS上支出超过1000亿美元，并为人工智能工作负载提供高达5吉瓦的Trainium芯片算力。
 
-如今，牧草连片、溪流清澈，曾经寸草难生的荒滩重披绿装。
-
-天峻县位于青海湖源头、祁连山南麓，草原面积超3800万亩，是青藏高原重要生态屏障。
-
-受高寒气候、鼠害侵扰、超载放牧影响，全县重度退化黑土滩(坡)面积达206.8万亩，草场沙化、水源涵养能力下降，牧民生产生活受到严重影响。
-
-2019年以来，天峻县累计治理黑土滩(坡)面积13.5万亩，覆盖当地7个乡镇，采取补播改良、围栏封育、鼠害防控、植被恢复等综合措施，让退化草场逐步复绿。
-
-为巩固治理成效，当地官方严格落实三年禁牧、草畜平衡制度，推行网格化监管。
-
-全县选聘290名生态管护员常态化巡护，人均年增收2.4万元，牧民从生态受益者变为生态守护者。
-
-天峻县木里镇复绿区生态管护员久买每天骑着马在自己负责的区域巡查，“草地不断恢复，我平常巡护的时候也能看到很多野生动物，比如野驴、野牛、野鸭等等。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 12:19 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:06 - [新西兰央行行长：已准备好应对持续的价格压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:07 - [重庆罗斯福图书馆旧址将焕新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:03 - [北京首都机场“五一”假期预计运送旅客超100万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:01 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:02 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:26 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:12 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:21 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:14 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:25 - [“五一”假期预计约600万人次进出香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:06 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:29 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:09 - [央行今日开展259亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:18 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:17 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:25 - [四张图看懂蒂姆・库克的非凡职业生涯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:07 - [安峰获批担任马上消费金融副总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:27 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:20 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:16 - [4月22日“农产品批发价格200指数”与昨天持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:18 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:29 - [228件作品荟萃第四届当代陶瓷艺术展览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:29 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:07 - [指数级增长 2025年我国词元调用量约21100万亿](http://www.share.minike.top/Article/details/7329896.shtml)
-- 2026-06-29 12:28 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [中共中央政治局会议要点对比及解读](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.blog.minike.top/Article/details/327812.shtml)
-- 2026-06-29 12:12 - [谷歌员工反对将AI用于机密任务](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [春到桑干河](http://www.blog.minike.top/Article/details/08017114291.shtml)
-- 2026-06-29 12:28 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](http://www.share.minike.top/Article/details/24511.shtml)
-- 2026-06-29 12:08 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [重庆国际消费节启幕 打造全域消费新场景](http://www.blog.minike.top/Article/details/3692572212.shtml)
-- 2026-06-29 12:21 - [中国选手赵一程打破男子速度攀岩世界纪录](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](http://www.blog.minike.top/Article/details/8139996.shtml)
-- 2026-06-29 12:29 - [“华住会”App崩了？客服回应](http://www.blog.minike.top/Article/details/034010080.shtml)
-- 2026-06-29 12:05 - [“五一”假期小型客车继续施行免收通行费政策](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](http://www.blog.minike.top/Article/details/188479.shtml)
+- 2026-06-29 12:31 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.share.kurohicncr.top/Article/details/25156113490.shtml)
+- 2026-06-29 12:15 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](http://www.share.minike.top/Article/details/0176937.shtml)
+- 2026-06-29 12:34 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [辽宁省委书记许昆林到大商所调研](http://www.share.kurohicncr.top/Article/details/77920833.shtml)
+- 2026-06-29 12:19 - [一季度长三角地区出口合计占全国41%](http://www.blog.kurohicncr.top/Article/details/32433544324.shtml)
+- 2026-06-29 12:08 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.blog.kurohicncr.top/Article/details/316638.shtml)
+- 2026-06-29 12:22 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.share.minike.top/Article/details/1304485.shtml)
+- 2026-06-29 12:21 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](http://www.blog.kurohicncr.top/Article/details/462822415.shtml)
+- 2026-06-29 12:20 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.share.minike.top/Article/details/514548570.shtml)
+- 2026-06-29 12:10 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](http://www.share.minike.top/Article/details/81934089870.shtml)
+- 2026-06-29 12:09 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [日本126名议员集体参拜靖国神社](http://www.share.kurohicncr.top/Article/details/3611894802.shtml)
+- 2026-06-29 12:12 - [绿的谐波：一季度净利润同比增长61.17%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [全球电力回顾报告：2025年化石燃料发电量零增长](http://www.blog.kurohicncr.top/Article/details/04404184.shtml)
+- 2026-06-29 12:33 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](http://www.share.minike.top/Article/details/902306783959.shtml)

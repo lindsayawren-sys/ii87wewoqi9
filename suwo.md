@@ -1,52 +1,54 @@
-# 博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期
+# 沪农商行发布2025年度利润分配方案 拟每10派1.94元
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-博雷顿（01333）早盘涨近10%，截至发稿，股价上涨9.83%，现报23.92港元，成交额4528.41万港元。 4月28日，博雷顿发布公告，就公司股份在首次公开发售前，其全体股东（包括控股股东）所持有的股份须受禁售期限制，该等禁售期限均将于2026年5月6日届满，近日，公司接获控股股东及一致行动人士的通知，据此，其各自承诺自原禁售期届满日期至其后的6个月延长禁售期期间，不会
+4月22日金融一线消息，沪农商行发布2025年度利润分配方案，拟每 10 股派发现金股利人民币1.94 元（含税）。以实施权益分派股权登记日登记的总股本为基数，对普通股每10股分配现金红利人民币1.94元（含税），共计人民币18.71亿元（含税）；加上2025年中期已派发现金红利23.24亿元（含税），2025年累计派发现金红利41.95亿元（含税），占2025年本集团归属于母
 
 ## 正文
 
-博雷顿（01333）早盘涨近10%，截至发稿，股价上涨9.83%，现报23.92港元，成交额4528.41万港元。
+4月22日金融一线消息，沪农商行发布2025年度利润分配方案，拟每 10 股派发现金股利人民币1.94 元（含税）。
 
-4月28日，博雷顿发布公告，就公司股份在首次公开发售前，其全体股东（包括控股股东）所持有的股份须受禁售期限制，该等禁售期限均将于2026年5月6日届满，近日，公司接获控股股东及一致行动人士的通知，据此，其各自承诺自原禁售期届满日期至其后的6个月延长禁售期期间，不会以任何方式减持彼等各自持有的公司股份。
+以实施权益分派股权登记日登记的总股本为基数，对普通股每10股分配现金红利人民币1.94元（含税），共计人民币18.71亿元（含税）；加上2025年中期已派发现金红利23.24亿元（含税），2025年累计派发现金红利41.95亿元（含税），占2025年本集团归属于母公司股东净利润的34.07%。
 
-公司认为，禁售期延长表明前述股东对公司的未来前景及长期价值充满信心。
+经上述分配后，剩余的未分配利润结转下年。
 
-前述股东亦将持续审阅公司的业绩，且或基于公司的业务发展情况考虑进一步延长禁售期。
+本次利润分配方案尚需提交本公司2025年度股东会审议通过后方可实施。
 
-责任编辑：卢昱君
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:26 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:01 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:23 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:06 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:05 - [“五一”假期预计约600万人次进出香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:19 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:15 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:16 - [央行今日开展259亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:16 - [传递“乌尔朵”的守边人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:01 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:02 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:26 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:27 - [4月22日“农产品批发价格200指数”与昨天持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:28 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:06 - [228件作品荟萃第四届当代陶瓷艺术展览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:15 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:16 - [推动实体经济发展，内蒙古“放大招”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:16 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:10 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:12 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:24 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:16 - [美联储主席提名人沃什阐述美联储政策主张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:31 - [日经指数首次升破60000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:16 - [俄军总参谋长：已完全控制卢甘斯克地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:28 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:06 - [谷歌员工反对将AI用于机密任务](http://www.share.minike.top/Article/details/793216.shtml)
-- 2026-06-29 12:13 - [春到桑干河](http://www.blog.kurohicncr.top/Article/details/61965.shtml)
-- 2026-06-29 12:14 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](http://www.blog.minike.top/Article/details/00407856.shtml)
-- 2026-06-29 12:29 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [重庆国际消费节启幕 打造全域消费新场景](http://www.blog.kurohicncr.top/Article/details/05143.shtml)
-- 2026-06-29 12:26 - [中国选手赵一程打破男子速度攀岩世界纪录](http://www.share.minike.top/Article/details/1778804.shtml)
-- 2026-06-29 12:28 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](http://www.blog.minike.top/Article/details/46188872307.shtml)
-- 2026-06-29 12:24 - [“华住会”App崩了？客服回应](http://www.blog.kurohicncr.top/Article/details/61480089494.shtml)
-- 2026-06-29 12:00 - [“五一”假期小型客车继续施行免收通行费政策](http://www.blog.kurohicncr.top/Article/details/612221337.shtml)
-- 2026-06-29 12:26 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](http://www.blog.kurohicncr.top/Article/details/829974.shtml)
-- 2026-06-29 12:15 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.share.kurohicncr.top/Article/details/696291644770.shtml)
-- 2026-06-29 12:01 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](http://www.blog.kurohicncr.top/Article/details/3936531.shtml)
-- 2026-06-29 12:20 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](http://www.share.minike.top/Article/details/953987852504.shtml)
-- 2026-06-29 12:19 - [“十四五”期间中国新发现大中型油气田225处](http://www.blog.kurohicncr.top/Article/details/6361933959.shtml)
+- 2026-06-29 12:25 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.blog.kurohicncr.top/Article/details/4349424.shtml)
+- 2026-06-29 12:29 - [酒钢宏兴：2025年净亏损19.98亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](http://www.blog.minike.top/Article/details/245007382378.shtml)
+- 2026-06-29 12:32 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.share.kurohicncr.top/Article/details/634584.shtml)
+- 2026-06-29 12:23 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](http://www.share.minike.top/Article/details/36578670.shtml)
+- 2026-06-29 12:13 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.blog.kurohicncr.top/Article/details/4855337762.shtml)
+- 2026-06-29 12:10 - [日本126名议员集体参拜靖国神社](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [绿的谐波：一季度净利润同比增长61.17%](http://www.blog.minike.top/Article/details/49714309111.shtml)
+- 2026-06-29 12:15 - [全球电力回顾报告：2025年化石燃料发电量零增长](http://www.blog.kurohicncr.top/Article/details/94493783.shtml)
+- 2026-06-29 12:09 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](http://www.blog.minike.top/Article/details/93173162998.shtml)
+- 2026-06-29 12:27 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](http://www.share.minike.top/Article/details/006768185915.shtml)
+- 2026-06-29 12:25 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.share.minike.top/Article/details/50356.shtml)
+- 2026-06-29 12:23 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](http://www.share.minike.top/Article/details/33837638.shtml)
+- 2026-06-29 12:23 - [美股三大指数集体高开，布油重回100美元上方](http://www.share.kurohicncr.top/Article/details/7106692.shtml)
+- 2026-06-29 12:17 - [美股回吐涨幅，美债收益率上行](http://www.blog.minike.top/Article/details/22940150.shtml)

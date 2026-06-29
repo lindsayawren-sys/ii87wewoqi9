@@ -1,60 +1,61 @@
-# 司机月收入跌破2000元、聚合平台流量费连涨 T3出行难破网约车港股“破发魔咒”？
+# 《三体》之后，下一个“破圈”之作在哪里
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：木予 港交所又将迎来一家网约车企业。 4月22日，出行平台T3出行的母公司南京领行科技股份有限公司（简称：T3出行）正式递交招股申请，拟冲击港股主板挂牌上市，由中金公司、中信建投国际担任联席保荐人。自2024年6月以来，嘀嗒出行、如祺出行、曹操出行先后成功“上岸”，享道出行也已于2025年10月递表，网约车平台纷纷奔赴港交所叩开资本市场大门。
+【记者观察】 编者按： 4月23日是世界读书日。本期，我们来关注一个越来越受欢迎的阅读对象——科幻文学。 中国科普研究所日前发布的《2026中国科幻产业报告》显示，2025年，我国科幻阅读产业总营收51.9亿元，继续保持稳步增长，其中科幻网络文学增速更是高达113.5%。但繁荣的背后，不乏隐忧——虽然我们有《三体》这样的“破圈”之作，但对于规模和品位都在不断提升的读者群体而言，
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：木予 港交所又将迎来一家网约车企业。
+【记者观察】 编者按： 4月23日是世界读书日。
 
-4月22日，出行平台T3出行的母公司南京领行科技股份有限公司（简称：T3出行）正式递交招股申请，拟冲击港股主板挂牌上市，由中金公司、中信建投国际担任联席保荐人。
+本期，我们来关注一个越来越受欢迎的阅读对象——科幻文学。
 
-自2024年6月以来，嘀嗒出行、如祺出行、曹操出行先后成功“上岸”，享道出行也已于2025年10月递表，网约车平台纷纷奔赴港交所叩开资本市场大门。
+中国科普研究所日前发布的《2026中国科幻产业报告》显示，2025年，我国科幻阅读产业总营收51.9亿元，继续保持稳步增长，其中科幻网络文学增速更是高达113.5%。
 
-据招股书披露，2023-2025年，T3出行分别实现总营收148.96亿元、161.06亿元、171.09亿元，毛利率由0.4%显著提升至13.0%，净利润则由巨亏19.68亿元扭转为盈利744.00万元。
+但繁荣的背后，不乏隐忧——虽然我们有《三体》这样的“破圈”之作，但对于规模和品位都在不断提升的读者群体而言，科幻文学精品仍不够。
 
-若剔除以权益结算的股份支付开支，T3出行2025年经调整净利润达5299.90万元，经调整净利润率顺利翻正，录得0.3%。
+中国科幻文学如何创造更多“破圈”之作？
 
-值得关注的是，尽管公司业绩表现明显改善，其“自造血能力”却并不稳定。
+请跟随记者的采访，寻找答案。
 
-2023年，T3出行经营活动产生的现金净流出高达6.98亿元，2024年为净流入3.17亿元，2025年再次净流出1.24亿元。
+1261亿元，同比增长15.7%，连续三年突破千亿元大关——这是2025年中国科幻产业交出的成绩单。
 
-如此正负交替波动的背后，是T3出行利润薄如蝉翼、流量仰人鼻息的窘境。
+中国科幻正在经历前所未有的规模扩张，科幻文学对科幻产业的贡献也越来越大。
 
 ## 相关推荐
 
-- 2026-06-29 12:12 - [马斯克在对OpenAI的诉讼案中首日出庭作证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:06 - [光大期货0428热点追踪：玻璃弱势下行，供需压力仍存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:29 - [中国创新药出海，如何从“能出去”到 “走得远”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:07 - [受贿9220万余元 江西省人大常委会原副主任洪礼和一审获刑20年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:20 - [消失的欧亚水獭重回成都 “公园城市”迎“动物邻居”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:21 - [吴征铠院士铜像在复旦大学揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:02 - [宁德时代获大摩增持约77.82万股 每股均价约708.25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:14 - [我国太空金属增材制造技术取得突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:03 - [中国银联董事长董俊峰出席APEC工商咨询理事会会议 参加与墨西哥政府高层双边会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:22 - [凯莱英午前涨超8% 第一季度经调整归母净利润增近28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:19 - [新华时评丨借尸还魂的“大将”“大佐”们](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:17 - [北美与欧洲增长放缓，Spotify Q2利润指引不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:14 - [城堡证券高管称伊朗冲突风险消退 股债市场有望同步上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:12 - [酒价内参4月29日价格发布：五粮液1618保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:16 - [广东数智文娱企业加速拓展马来西亚市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:35 - [俞白眉：未来绝大多数演员有AI分身是大趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:19 - [吉林高新技术产业开发区党工委书记张守华接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:07 - [露露乐蒙任命耐克前高管奥尼尔为新CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:27 - [国台办：民进党当局应取消针对大陆居民赴台旅游不合理限制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:24 - [“春之声·歌游内蒙古”专场文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:11 - [明德生物已被“*ST”，修正业绩引发索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:16 - [贵阳银行：一季度归母净利润14.77亿元，同比增加2.37%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:21 - [美股周一创下4月6日以来最大零售股票买入日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:35 - [第九届进博会推介会暨虹桥论坛咨商会在非盟总部举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:25 - [惠誉评级：中资银行息差有望筑底，零售风险需关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:23 - [SEC警示私募信贷“新兴压力”，监管风暴山雨欲来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:25 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:27 - [“护苗”典型案例｜非法印制并销售侵权盗版中小学教辅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:17 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:01 - [香港3月进出口货值现两位数增长](http://www.share.kurohicncr.top/Article/details/03414.shtml)
-- 2026-06-29 12:22 - [涉嫌严重违纪违法 内蒙古两厅官被查](http://www.blog.minike.top/Article/details/423780625149.shtml)
-- 2026-06-29 12:00 - [港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？](http://www.share.kurohicncr.top/Article/details/69912.shtml)
-- 2026-06-29 12:18 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](http://www.share.minike.top/Article/details/4463729407.shtml)
-- 2026-06-29 12:21 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](http://www.blog.kurohicncr.top/Article/details/799866.shtml)
-- 2026-06-29 12:13 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](http://www.blog.kurohicncr.top/Article/details/8579755733.shtml)
-- 2026-06-29 12:28 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](http://www.share.minike.top/Article/details/071897747580.shtml)
-- 2026-06-29 12:08 - [一季度生态成绩单亮眼，高质量发展绿意盎然](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](http://www.blog.minike.top/Article/details/7395448.shtml)
-- 2026-06-29 12:17 - [普京称西方正将领导地位让位于全球南方国家](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](http://www.blog.minike.top/Article/details/91982.shtml)
-- 2026-06-29 12:16 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](http://www.blog.minike.top/Article/details/3176336.shtml)
-- 2026-06-29 12:13 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用](http://www.blog.minike.top/Article/details/201177546752.shtml)
-- 2026-06-29 12:06 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](http://www.share.kurohicncr.top/Article/details/974314548324.shtml)
+- 2026-06-29 12:15 - [全球共享发展行动论坛第三届高级别会议发布成果清单](http://www.blog.kurohicncr.top/Article/details/8850888203.shtml)
+- 2026-06-29 12:27 - [源达信息量化策略研究：重要股东增持单因子策略](http://www.blog.minike.top/Article/details/510756816.shtml)
+- 2026-06-29 12:22 - [300883，连亏三年后，一季度又亏](http://www.share.kurohicncr.top/Article/details/55561175579.shtml)
+- 2026-06-29 12:34 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](http://www.blog.minike.top/Article/details/10788891.shtml)
+- 2026-06-29 12:21 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [2026年广东省行业企业职业技能竞赛计划发布](http://www.share.kurohicncr.top/Article/details/2949540292.shtml)
+- 2026-06-29 12:21 - [多支欧洲足球劲旅将于8月会师香港](http://www.share.minike.top/Article/details/9125771664.shtml)
+- 2026-06-29 12:32 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.blog.kurohicncr.top/Article/details/86499379698.shtml)
+- 2026-06-29 12:33 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](http://www.share.kurohicncr.top/Article/details/920287834.shtml)
+- 2026-06-29 12:07 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](http://www.share.minike.top/Article/details/31661140.shtml)
+- 2026-06-29 12:20 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.share.kurohicncr.top/Article/details/11872686.shtml)
+- 2026-06-29 12:25 - [2026年渣打香港马拉松带来3.38亿港元经济效益](http://www.share.minike.top/Article/details/469148388803.shtml)
+- 2026-06-29 12:31 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](http://www.share.minike.top/Article/details/3255912637.shtml)

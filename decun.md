@@ -1,55 +1,55 @@
-# 梁文锋增持DeepSeek 持股比例大幅上升
+# 台安全部门称大陆对台新举措可能是“介选”行为 国台办回应
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网4月28日电(吴家驹)企查查网站显示，近日，DeepSeek关联公司杭州深度求索人工智能基础技术研究有限公司发生工商变更，宁波程恩企业管理咨询合伙企业(有限合伙)持股比例由99%降至66%，梁文锋持股比例由1%升至34%。此外，梁文锋为该公司实际控制人、受益所有人。 国家企业信用信息公示系统显示，目前，梁文锋认缴出资额为510万元，认缴出资日期为2026年4月24日。宁波
+4月22日，国务院台办举行例行新闻发布会。有记者问，对于中国国民党主席郑丽文率团来大陆访问，台安全部门负责人称，两岸交流应该由台湾当局主导，不应该由党对党决定；大陆推出对台新举措可能是“介选”行为，希望影响岛内选举。请问对此有何评论？ 发言人张晗答问表示，民进党当局顽固坚持“台独”分裂立场，导致两岸对话协商停摆，还刻意抹黑攻击打压岛内其他政党、团体和社会各界与大陆的正常交往交流
 
 ## 正文
 
-中新网4月28日电(吴家驹)企查查网站显示，近日，DeepSeek关联公司杭州深度求索人工智能基础技术研究有限公司发生工商变更，宁波程恩企业管理咨询合伙企业(有限合伙)持股比例由99%降至66%，梁文锋持股比例由1%升至34%。
+4月22日，国务院台办举行例行新闻发布会。
 
-此外，梁文锋为该公司实际控制人、受益所有人。
+有记者问，对于中国国民党主席郑丽文率团来大陆访问，台安全部门负责人称，两岸交流应该由台湾当局主导，不应该由党对党决定；大陆推出对台新举措可能是“介选”行为，希望影响岛内选举。
 
-国家企业信用信息公示系统显示，目前，梁文锋认缴出资额为510万元，认缴出资日期为2026年4月24日。
+请问对此有何评论？
 
-宁波程恩企业管理咨询合伙企业(有限合伙)认缴出资额为990万元，认缴出资日期为2023年8月15日。
+发言人张晗答问表示，民进党当局顽固坚持“台独”分裂立场，导致两岸对话协商停摆，还刻意抹黑攻击打压岛内其他政党、团体和社会各界与大陆的正常交往交流。
 
-此前，据媒体援引多位知情人士消息，DeepSeek正启动成立以来的首次外部股权融资。
+我们推出10项促进两岸交流合作的政策措施，岛内社会各界、广大台湾同胞都叫好都支持，都想早谋其利，只有民进党当局跳出来攻击、污蔑、反对。
 
-(完)
+这再次充分暴露了民进党当局图谋“台独”的真实面目，以及破坏两岸交流合作、损害民众福祉、与民众对着干的邪恶本性。
+
+(记者赵博、尚昊)
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [消费者信心疲软致达美乐披萨销量增长停滞，股价承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:18 - [中国首个脑机接口本科专业在天津大学设立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:09 - [司机月收入跌破2000元、聚合平台流量费连涨 T3出行难破网约车港股“破发魔咒”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:05 - [五粮液开盘最高跌超3%，股价跌破100元，创6年新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:01 - [中天期货:焦煤持续震荡 橡胶震荡上行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:10 - [“中国式现代化离不开农业农村现代化”（总书记的人民情怀）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:20 - [两部门启动2026年“模数共振”行动 依托重点城市打造智能体工厂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:15 - [4月28日外盘头条：特朗普与幕僚讨论伊朗最新提议 欧盟向谷歌发布AI竞争合规指南 美光与闪迪股价持续走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:24 - [国台办回应“金门考察团遭刻意审查卡关”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:19 - [马斯克在对OpenAI的诉讼案中首日出庭作证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:05 - [光大期货0428热点追踪：玻璃弱势下行，供需压力仍存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:24 - [中国创新药出海，如何从“能出去”到 “走得远”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:03 - [受贿9220万余元 江西省人大常委会原副主任洪礼和一审获刑20年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:26 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:10 - [百思买任命杰森・邦菲格为新任CEO，将于10 月底接替巴里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:35 - [《三体》之后，下一个“破圈”之作在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:15 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:23 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:35 - [国光股份：2025年大田作物推广面积比2024年有不错的增长，2026年计划推广150万亩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:33 - [霍尔木兹海峡持续关闭，原油市场供应严重受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:13 - [杭州优化知识产权创新生态 全球创新指数排名跃升至13位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:28 - [基金日报 | 今年以来新发基金规模超3500亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:11 - [广东数智文娱企业加速拓展马来西亚市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:28 - [俞白眉：未来绝大多数演员有AI分身是大趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:17 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](http://www.share.minike.top/Article/details/734697340.shtml)
-- 2026-06-29 12:00 - [快乐出行不“掉坑”，这份网络安全指南请查收！](http://www.blog.kurohicncr.top/Article/details/09730600.shtml)
-- 2026-06-29 12:18 - [企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并](http://www.share.kurohicncr.top/Article/details/357228.shtml)
-- 2026-06-29 12:28 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](http://www.blog.minike.top/Article/details/99921.shtml)
-- 2026-06-29 12:23 - [晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](http://www.blog.minike.top/Article/details/7112058656.shtml)
-- 2026-06-29 12:18 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](http://www.blog.minike.top/Article/details/950902.shtml)
-- 2026-06-29 12:01 - [国铁沈阳局五一小长假预计发送旅客740万人次](http://www.blog.minike.top/Article/details/538751185.shtml)
-- 2026-06-29 12:03 - [香港3月进出口货值现两位数增长](http://www.share.kurohicncr.top/Article/details/4325399095.shtml)
-- 2026-06-29 12:25 - [涉嫌严重违纪违法 内蒙古两厅官被查](http://www.blog.kurohicncr.top/Article/details/0061139153.shtml)
-- 2026-06-29 12:13 - [港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？](http://www.blog.kurohicncr.top/Article/details/4008049.shtml)
-- 2026-06-29 12:09 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](http://www.blog.kurohicncr.top/Article/details/8531220264.shtml)
-- 2026-06-29 12:24 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](http://www.blog.minike.top/Article/details/7592256804.shtml)
-- 2026-06-29 12:16 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](http://www.blog.minike.top/Article/details/33035333973.shtml)
+- 2026-06-29 12:14 - [德国电信据悉考虑与T-Mobile US进行全面合并](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [中国海军以最高礼仪迎接烈士遗骸回国](http://www.blog.kurohicncr.top/Article/details/6192616151.shtml)
+- 2026-06-29 12:12 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [RadexMarkets瑞德克斯:能源市场面临极端压力](http://www.blog.minike.top/Article/details/8705192386.shtml)
+- 2026-06-29 12:30 - [上海发布广告人才新政 面向全球招揽行业英才](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.share.kurohicncr.top/Article/details/778618898.shtml)
+- 2026-06-29 12:25 - [全球共享发展行动论坛第三届高级别会议发布成果清单](http://www.share.minike.top/Article/details/350190.shtml)
+- 2026-06-29 12:11 - [源达信息量化策略研究：重要股东增持单因子策略](http://www.blog.kurohicncr.top/Article/details/65273.shtml)
+- 2026-06-29 12:06 - [300883，连亏三年后，一季度又亏](http://www.blog.kurohicncr.top/Article/details/8960204.shtml)
+- 2026-06-29 12:18 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](http://www.blog.kurohicncr.top/Article/details/275488.shtml)

@@ -1,58 +1,51 @@
-# 商务部：2026年1-3月我国电子商务持续平稳发展
+# 高雅光学公布于4月23日上午起停牌
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据商务部网站消息，2026年1-3月，我国电子商务持续平稳发展，政策、活动双轮驱动，赋能带动作用不断深化，国际经贸合作走深走实，“十五五”首年首季实现良好开局。 电子商务服务实体经济。出台《关于更好服务实体经济 推进电子商务高质量发展的指导意见》，激发电子商务内生动力、创新潜力，助力壮大实体经济。据商务大数据监测，1-3月全国农产品网零增长14.7%，重点监
+高雅光学（00907）公布，于2026年4月22日，公司接获上市复核委员会的函件，通知经考虑公司及上市科提交的意见书（包括公司在聆讯时提交的意见书）后，上市复核委员会决定维持上市委员会决定，即根据上市规则第6.01（3）条暂停公司股份买卖，理由是公司未能遵守上市规则第13.24条所规定的维持足够的营运水平及有足够价值的资产支持其营运，从而保证其股份继续上市。公司股份将自2026
 
 ## 正文
 
-中新网4月29日电 据商务部网站消息，2026年1-3月，我国电子商务持续平稳发展，政策、活动双轮驱动，赋能带动作用不断深化，国际经贸合作走深走实，“十五五”首年首季实现良好开局。
+高雅光学（00907）公布，于2026年4月22日，公司接获上市复核委员会的函件，通知经考虑公司及上市科提交的意见书（包括公司在聆讯时提交的意见书）后，上市复核委员会决定维持上市委员会决定，即根据上市规则第6.01（3）条暂停公司股份买卖，理由是公司未能遵守上市规则第13.24条所规定的维持足够的营运水平及有足够价值的资产支持其营运，从而保证其股份继续上市。
 
-电子商务服务实体经济。
+公司股份将自2026年4月23日上午九时正起暂停于联交所买卖。
 
-出台《关于更好服务实体经济 推进电子商务高质量发展的指导意见》，激发电子商务内生动力、创新潜力，助力壮大实体经济。
-
-据商务大数据监测，1-3月全国农产品网零增长14.7%，重点监测工业品产业电商交易额增长10.5%。
-
-电商平台成为人工智能大模型研发、应用重要力量。
-
-据工业和信息化部数据，1-2月我国移动互联网流量增长20.4%，云计算和大数据服务收入增长11.4%。
-
-数字消费提升融合体验。
-
-第八届双品网购节积极服务“购在中国”，线上线下融合的数字消费成为消费增长重要动力。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:02 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:07 - [韩国宣布与Google DeepMind建立合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:25 - [光大期货：4月28日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:08 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:16 - [深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:04 - [华盛顿发生两起枪击事件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:14 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:15 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:27 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:12 - [国务院任免国家工作人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:07 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:02 - [第139届广交会二期闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:11 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:06 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:08 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:17 - [美国国家安全局被曝使用Anthropic受限模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:14 - [浙江进入汛期以来首次区域性强降雨过程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:13 - [金埔园林2025年度归母净利润亏损约2.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:09 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:23 - [从承诺到行动 多方共议以多边合作引领可持续发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:08 - [特朗普：美伊第二轮谈判最快或于周五举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:29 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:18 - [柬埔寨首相洪玛奈会见王毅一行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:07 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:18 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:35 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:27 - [重组计划会影响IPO吗？阿维塔回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](http://www.blog.kurohicncr.top/Article/details/937932330397.shtml)
-- 2026-06-29 12:25 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](http://www.share.minike.top/Article/details/4692925.shtml)
-- 2026-06-29 12:28 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](http://www.blog.kurohicncr.top/Article/details/220837.shtml)
-- 2026-06-29 12:23 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](http://www.share.kurohicncr.top/Article/details/36156534487.shtml)
-- 2026-06-29 12:05 - [渝昆高铁川滇段无砟轨道施工全部完成](http://www.blog.minike.top/Article/details/06458487517.shtml)
-- 2026-06-29 12:18 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](http://www.blog.minike.top/Article/details/67374638954.shtml)
-- 2026-06-29 12:14 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [西安通报5起违反中央八项规定精神问题](http://www.share.minike.top/Article/details/46862537.shtml)
-- 2026-06-29 12:07 - [GTC泽汇资本:黄金整理静待方向明朗](http://www.share.kurohicncr.top/Article/details/628500790310.shtml)
-- 2026-06-29 12:23 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](http://www.share.minike.top/Article/details/423549036.shtml)
-- 2026-06-29 12:20 - [OpenAI称已更新与微软的合作伙伴关系](http://www.share.minike.top/Article/details/6788732.shtml)
-- 2026-06-29 12:15 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](http://www.share.kurohicncr.top/Article/details/08691.shtml)
-- 2026-06-29 12:00 - [【市场聚焦】棉花：美国主产区干旱持续发酵带动全球棉市价格上行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [“伊斯兰国”袭击尼日利亚东北部 造成至少29人丧生](http://www.blog.minike.top/Article/details/409512246870.shtml)
+- 2026-06-29 12:24 - [日经指数首次升破60000点](http://www.share.kurohicncr.top/Article/details/0616852.shtml)
+- 2026-06-29 12:29 - [俄军总参谋长：已完全控制卢甘斯克地区](http://www.blog.kurohicncr.top/Article/details/03996061.shtml)
+- 2026-06-29 12:09 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](http://www.blog.kurohicncr.top/Article/details/72231034063.shtml)
+- 2026-06-29 12:08 - [从三组卫星遥感图看生态保护成效](http://www.blog.kurohicncr.top/Article/details/57917.shtml)
+- 2026-06-29 12:30 - [东方证券“吞并”上海证券，券业整合进入深水区](http://www.blog.kurohicncr.top/Article/details/40066.shtml)
+- 2026-06-29 12:07 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](http://www.blog.kurohicncr.top/Article/details/574917.shtml)
+- 2026-06-29 12:07 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](http://www.share.minike.top/Article/details/79038473.shtml)
+- 2026-06-29 12:31 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.minike.top/Article/details/736082423237.shtml)
+- 2026-06-29 12:34 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [瑞典大瀑布电力退出苏格兰浮式风电项目](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](https://github.com/lisacumin64-arch)

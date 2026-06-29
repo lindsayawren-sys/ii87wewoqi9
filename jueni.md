@@ -1,56 +1,57 @@
-# 大牌加码创作者营销预算，但中小品牌仍主导合作市场
+# 中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-众多坐拥百万播放与粉丝的内容创作者，依旧难以获得头部广告商的青睐 内容摘要 内容创作者在美国广告营销中的重要性持续提升，今年美国品牌在达人赞助内容上的支出预计达439 亿美元。 创作者经济正在抢占越来越多的用户注意力，但行业高速扩张，也让品牌与寻求商业合作的创作者陷入更复杂的市场环境。 部分头部广告主表示，正将投放预算从电视广告、传统数字广告转移至社交平台达人内容；但创作者营销
+视频｜中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕视频：中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕来源：光明网 光明网讯(记者 茹行止)4月20日，2026年“国际中文日”暨“诗约四海”全球中文诗友会在北京正式启动。活动现场设置了丰富多彩的诗词文化体验，吸引众多中文和中国古诗词爱好者参与体验。 活动当天，教育
 
 ## 正文
 
-众多坐拥百万播放与粉丝的内容创作者，依旧难以获得头部广告商的青睐 内容摘要 内容创作者在美国广告营销中的重要性持续提升，今年美国品牌在达人赞助内容上的支出预计达439 亿美元。
+视频｜中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕视频：中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕来源：光明网 光明网讯(记者 茹行止)4月20日，2026年“国际中文日”暨“诗约四海”全球中文诗友会在北京正式启动。
 
-创作者经济正在抢占越来越多的用户注意力，但行业高速扩张，也让品牌与寻求商业合作的创作者陷入更复杂的市场环境。
+活动现场设置了丰富多彩的诗词文化体验，吸引众多中文和中国古诗词爱好者参与体验。
 
-部分头部广告主表示，正将投放预算从电视广告、传统数字广告转移至社交平台达人内容；但创作者营销的资金增速，仍落后于消费趋势变化与创作者数量爆发式增长。
+活动当天，教育部中外语言交流合作中心发布的一段特别视频中，中外嘉宾通过镜头分享了各自最喜欢的中文诗词，以诗传情，深化中外人文交流与文明互鉴。
 
-创作者普遍反映，预算被过度分散，高性价比的长期深度合作不断减少，大量中小创作者被市场边缘化。
+据主办方介绍，“国际中文日”于2020年创立，迄今已成功举办六届。
 
-YouTube、TikTok 坐拥千万粉丝的创作者桑布查（本名山姆・贝雷斯）表示： “所有创作者都渴望和大品牌合作。
+六年来，全球160多个国家的上千家教育文化机构累计举办6000余场中国语言文化活动，吸引海内外4亿民众参与。
 
-我们主动抛出合作意向，期待获得合理报酬，但愿意入局投放的品牌终究太少。
+2026年“国际中文日”主题为“中文：点亮多彩梦想”，将在全球100多个国家举办上千场活动，持续推动中外人文交流与民心相通。
 
-” 广告行业机构互动广告局去年夏季调研显示：48% 的营销人员将达人内容列为媒体投放的 “必选项目”，重要性仅次于搜索广告与社交信息流广告。
+“诗约四海”全球中文诗友会活动以“人与自然和谐相处”为年度主题，面向全球中文学习者和中华文化爱好者，通过社交媒体挑战、全球视频作品征集、青年推荐官互动、多城线下诗会等系列活动，搭建线上线下联动、跨文化共创的交流平台，呈现中国古诗词韵律、意境、情感之美。
 
-机构数据显示，2026 年美国广告商在达人赞助帖及相关广告的支出将达 439 亿美元，较 2025 年的 371 亿美元大幅增长。
+视频来源：教育部中外语言合作交流中心
 
 ## 相关推荐
 
-- 2026-06-29 12:20 - [中钢协：积极开展产能治理、产量调控、行业自律](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:17 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:22 - [快乐出行不“掉坑”，这份网络安全指南请查收！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:28 - [企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:29 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:16 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:26 - [晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:14 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:04 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:19 - [国铁沈阳局五一小长假预计发送旅客740万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:35 - [中国隧道连续皮带机首次出口西班牙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:21 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:21 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:18 - [德国电信据悉考虑与T-Mobile US进行全面合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:30 - [中国海军以最高礼仪迎接烈士遗骸回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:18 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:06 - [RadexMarkets瑞德克斯:能源市场面临极端压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:27 - [上海发布广告人才新政 面向全球招揽行业英才](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:33 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:09 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:23 - [全球共享发展行动论坛第三届高级别会议发布成果清单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:04 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [五一机票又“跳水”了？](http://www.blog.kurohicncr.top/Article/details/50823.shtml)
-- 2026-06-29 12:20 - [聚焦琼港澳人才交流 海南将举行两场品牌活动](http://www.share.kurohicncr.top/Article/details/96975186.shtml)
-- 2026-06-29 12:14 - [日本公然宣称为“长期战争”做准备 中方回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [金石为开——西安·沈阳名碑拓片特展开幕](http://www.share.kurohicncr.top/Article/details/0454141811.shtml)
-- 2026-06-29 12:01 - [铁路文旅创新融合绘就发展新图景](http://www.blog.minike.top/Article/details/7138149.shtml)
-- 2026-06-29 12:07 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](http://www.share.kurohicncr.top/Article/details/545093.shtml)
-- 2026-06-29 12:03 - [AI赋能“一人公司” 个体创新潜力持续激活](http://www.blog.minike.top/Article/details/932737831.shtml)
-- 2026-06-29 12:12 - [中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%](http://www.share.minike.top/Article/details/135049190592.shtml)
-- 2026-06-29 12:06 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](http://www.share.kurohicncr.top/Article/details/150856.shtml)
-- 2026-06-29 12:26 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](http://www.share.minike.top/Article/details/36635418.shtml)
-- 2026-06-29 12:08 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](http://www.blog.kurohicncr.top/Article/details/003015563.shtml)
-- 2026-06-29 12:20 - [促进高质量充分就业 多项政策出台](http://www.share.minike.top/Article/details/15845.shtml)
-- 2026-06-29 12:16 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](http://www.share.minike.top/Article/details/265888889626.shtml)
-- 2026-06-29 12:08 - [中天策略:4月28日市场分析](http://www.blog.minike.top/Article/details/2792421419.shtml)
+- 2026-06-29 12:24 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](http://www.blog.kurohicncr.top/Article/details/5729899.shtml)
+- 2026-06-29 12:24 - [售价29999元，华为星钻手镯表5月15日开售](http://www.blog.kurohicncr.top/Article/details/127304203.shtml)
+- 2026-06-29 12:17 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](http://www.blog.kurohicncr.top/Article/details/25536656489.shtml)
+- 2026-06-29 12:15 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](http://www.blog.kurohicncr.top/Article/details/5483538755.shtml)
+- 2026-06-29 12:09 - [百思买任命资深人士为CEO](http://www.blog.minike.top/Article/details/8521427.shtml)
+- 2026-06-29 12:15 - [辽宁海城：梨花成海 粉樱作伴](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](http://www.share.minike.top/Article/details/2415998.shtml)
+- 2026-06-29 12:34 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.blog.minike.top/Article/details/684260106035.shtml)
+- 2026-06-29 12:29 - [英国石油公司高管将出任OMV首位女性首席执行官](http://www.blog.minike.top/Article/details/02970660390.shtml)
+- 2026-06-29 12:32 - [“新时代、新品质、新气象：清华大学美术学院新世纪成果展”研讨会举办](http://www.share.minike.top/Article/details/309437.shtml)
+- 2026-06-29 12:15 - [东山精密业绩大增27.67%，利润增速远超预期！靠什么？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [摩根士丹利策略师：地缘政治动荡往往创造良好买入机会](http://www.share.minike.top/Article/details/173438.shtml)
+- 2026-06-29 12:18 - [为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元](http://www.blog.minike.top/Article/details/056936211379.shtml)
+- 2026-06-29 12:14 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](http://www.blog.kurohicncr.top/Article/details/72488729177.shtml)

@@ -1,59 +1,49 @@
-# 谷歌不顾员工反对，与美国国防部签署机密人工智能合作协议
+# 【国际漫评】解禁
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-据知情人士透露，谷歌与美国国防部达成一项协议，允许五角大楼在机密工作中使用谷歌的人工智能模型。 该知情人士称，这份协议准许美国国防部将谷歌人工智能技术用于任何合法的政府用途，这一表述与其他人工智能企业同五角大楼合作争议条款措辞一致。 就在该协议签署之际，逾 600 名谷歌员工于周一致信谷歌首席执行官桑达尔・皮查伊，要求其拒绝签署这份协议。员工们主张，拒绝承接机密项目，是杜绝谷歌
+近日，日本政府通过内阁决议，完成了对“防卫装备转移三原则”及其运用指南的修改，原则上将允许杀伤性武器对外出口，甚至可向冲突国家出口。此举严重违背和平宪法，挣脱了战后束缚军国主义的“铁链”，将彻底破坏地区战略平衡，更将日本自身与亚太安全一同推向危险的深渊。 出品｜国际在线 总策划｜钟仁宗 监制｜陈刚 制片｜蒋丽丽 主编｜刘沐晨 策划｜梁宁
 
 ## 正文
 
-据知情人士透露，谷歌与美国国防部达成一项协议，允许五角大楼在机密工作中使用谷歌的人工智能模型。
+近日，日本政府通过内阁决议，完成了对“防卫装备转移三原则”及其运用指南的修改，原则上将允许杀伤性武器对外出口，甚至可向冲突国家出口。
 
-该知情人士称，这份协议准许美国国防部将谷歌人工智能技术用于任何合法的政府用途，这一表述与其他人工智能企业同五角大楼合作争议条款措辞一致。
+此举严重违背和平宪法，挣脱了战后束缚军国主义的“铁链”，将彻底破坏地区战略平衡，更将日本自身与亚太安全一同推向危险的深渊。
 
-就在该协议签署之际，逾 600 名谷歌员工于周一致信谷歌首席执行官桑达尔・皮查伊，要求其拒绝签署这份协议。
-
-员工们主张，拒绝承接机密项目，是杜绝谷歌人工智能技术遭到滥用的唯一途径。
-
-此次签约，与谷歌八年前的立场形成鲜明反差。
-
-当年，因数千名员工联名抗议，谷歌退出了美国国防部的 “Maven 项目” 合同，该项目旨在将人工智能应用于无人机瞄准领域。
-
-谷歌早在去年 11 月就已签订一份协议，准许五角大楼在非机密业务场景中使用其人工智能技术。
-
-负责美国政府业务的谷歌公共部门发言人表示，这份新协议是对现有合同的补充修订。
+出品｜国际在线 总策划｜钟仁宗 监制｜陈刚 制片｜蒋丽丽 主编｜刘沐晨 策划｜梁宁
 
 ## 相关推荐
 
-- 2026-06-29 12:12 - [指数级增长 2025年我国词元调用量约21100万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:26 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:15 - [中共中央政治局会议要点对比及解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:12 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:22 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:17 - [谷歌员工反对将AI用于机密任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:13 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:18 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:28 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:16 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:05 - [中国选手赵一程打破男子速度攀岩世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:11 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:07 - [“华住会”App崩了？客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:18 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:29 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:23 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:18 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:10 - [一季度长三角地区出口合计占全国41%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:22 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:35 - [酒钢宏兴：2025年净亏损19.98亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:25 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:08 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:14 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:18 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:12 - [日本126名议员集体参拜靖国神社](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:09 - [绿的谐波：一季度净利润同比增长61.17%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:24 - [战争催生非洲能源新前沿：投资者竞相填补燃料缺口](http://www.share.minike.top/Article/details/716287.shtml)
-- 2026-06-29 12:11 - [河南两项目入选2025年度全国十大考古新发现](http://www.share.kurohicncr.top/Article/details/653517197109.shtml)
-- 2026-06-29 12:05 - [ATF:美国消费者信心今晚登场 美元黄金与美股或迎来方向测试](http://www.blog.minike.top/Article/details/39416305.shtml)
-- 2026-06-29 12:21 - [2026本科专业“上新”，“新”在何处？](http://www.blog.minike.top/Article/details/35745.shtml)
-- 2026-06-29 12:11 - [外媒：阿富汗遭巴基斯坦导弹袭击，造成3人死亡、45人受伤](http://www.share.minike.top/Article/details/7982168951.shtml)
-- 2026-06-29 12:10 - [亿缕阳光｜治愈的瞬间](http://www.share.kurohicncr.top/Article/details/887702162.shtml)
-- 2026-06-29 12:09 - [2026年孟连海关部门预算公开](http://www.blog.kurohicncr.top/Article/details/932714523.shtml)
-- 2026-06-29 12:27 - [东珠生态（603359）投资者索赔分析](http://www.share.minike.top/Article/details/86487580.shtml)
-- 2026-06-29 12:06 - [香港引入首辆飞机专用重型电拖车](http://www.blog.kurohicncr.top/Article/details/5604103908.shtml)
-- 2026-06-29 12:20 - [瑞银：华润置地目标价36港元 维持“买入”评级](http://www.share.minike.top/Article/details/69514.shtml)
-- 2026-06-29 12:24 - [《习近平谈治国理政》第五卷英文版中印尼推介会在雅加达举行](http://www.blog.minike.top/Article/details/5303250.shtml)
-- 2026-06-29 12:22 - [江西省省长：加快让人形机器人等未来产业形成新经济增长点](http://www.blog.minike.top/Article/details/12377.shtml)
-- 2026-06-29 12:29 - [国泰君安期货：玻璃跌破前低 下跌趋势延续](http://www.blog.kurohicncr.top/Article/details/5186125003.shtml)
-- 2026-06-29 12:20 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.kurohicncr.top/Article/details/68894647608.shtml)
-- 2026-06-29 12:21 - [全球首艘10800车汽车运输船在广州命名交付](http://www.share.kurohicncr.top/Article/details/96874760.shtml)
+- 2026-06-29 12:20 - [14560.35%涨幅背后：天孚通信为何成为光通信赛道焦点](http://www.blog.kurohicncr.top/Article/details/42924308137.shtml)
+- 2026-06-29 12:11 - [苹果候任CEO特努斯：苹果将“再次改变世界”](http://www.blog.kurohicncr.top/Article/details/476854958.shtml)
+- 2026-06-29 12:13 - [登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中](http://www.share.minike.top/Article/details/469760.shtml)
+- 2026-06-29 12:11 - [确定！方一天出任华安基金党委副书记，获提名总经理](http://www.blog.kurohicncr.top/Article/details/0499821088.shtml)
+- 2026-06-29 12:25 - [【这个城市有点潮】宿迁：在“项王故里”邂逅水韵柔情](http://www.share.kurohicncr.top/Article/details/575584236991.shtml)
+- 2026-06-29 12:29 - [一笔一笔走近你](http://www.blog.minike.top/Article/details/81596.shtml)
+- 2026-06-29 12:32 - [伊朗否认举行美伊新谈判 指特朗普“又说谎了”](http://www.share.minike.top/Article/details/348714321836.shtml)
+- 2026-06-29 12:12 - [欧洲股市小幅走高，市场陷入“观望停滞状态”](http://www.blog.kurohicncr.top/Article/details/723326668399.shtml)
+- 2026-06-29 12:32 - [西门子数字化工业集团CEO：人工智能助力西门子深化与中国合作](http://www.blog.kurohicncr.top/Article/details/499147429683.shtml)
+- 2026-06-29 12:24 - [白宫向福克斯新闻透露：特朗普将伊朗停火期限延长3-5天](http://www.share.minike.top/Article/details/9848141856.shtml)
+- 2026-06-29 12:25 - [上市公司市值管理实践：中国建筑从“战术”到“战略”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [延边州首个百兆瓦级独立构网型储能电站开建](http://www.blog.minike.top/Article/details/280899.shtml)
+- 2026-06-29 12:24 - [特朗普称最快周五或重启美伊新一轮和谈](http://www.share.kurohicncr.top/Article/details/211603.shtml)
+- 2026-06-29 12:25 - [劳埃德银行试点AI投资指导工具，英国监管机构正研究其影响](http://www.blog.minike.top/Article/details/646064623063.shtml)
+- 2026-06-29 12:17 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.share.kurohicncr.top/Article/details/1584752095.shtml)

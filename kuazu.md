@@ -1,48 +1,58 @@
-# 美国能源部长：霍尔木兹海峡无需清除所有水雷也可以开放
+# 聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月28日电美国能源部长克里斯·赖特对彭博新闻社称，霍尔木兹海峡无需清除所有水雷也可以开放。（完）责任编辑：宋雅芳
+中新网北京4月22日电 (记者 陈杭)北京天坛医院手术室内，一枚硬币大小的“北脑一号”体内机通过微创骨窗精准贴敷于患者硬脑膜外，这是“北脑一号”植入式脑机接口手术首次进行全国公开直播。术后两周，这位因车祸导致四肢截瘫两年半的患者将开始利用脑机接口设备进行手功能康复训练。脑机接口是在大脑与外部设备之间建立直接连接的通路，获取、解读脑电波特征，将其转化为计算机指令并发送给肢体，实现
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京4月22日电 (记者 陈杭)北京天坛医院手术室内，一枚硬币大小的“北脑一号”体内机通过微创骨窗精准贴敷于患者硬脑膜外，这是“北脑一号”植入式脑机接口手术首次进行全国公开直播。
 
-新华社华盛顿4月28日电美国能源部长克里斯·赖特对彭博新闻社称，霍尔木兹海峡无需清除所有水雷也可以开放。
+术后两周，这位因车祸导致四肢截瘫两年半的患者将开始利用脑机接口设备进行手功能康复训练。
 
-（完）责任编辑：宋雅芳
+脑机接口是在大脑与外部设备之间建立直接连接的通路，获取、解读脑电波特征，将其转化为计算机指令并发送给肢体，实现人与机器或外部环境的交互联通，从而恢复、重建甚至加强人体功能。
+
+随着科技快速发展，作为多学科交叉新兴技术的脑机接口，展现出广阔发展前景，有望广泛应用于医疗康养、工业安全、教育体育、智慧生活等领域。
+
+根据脑信号的采集路径，脑机接口有非侵入式、半侵入式和侵入式三种技术路线。
+
+其中，“北脑一号”智能脑机系统由北京脑科学与类脑研究所(以下简称“北京脑所”)联合北京芯智达神经技术有限公司开发，是全球首个实现百通道以上高通量、无线全植入、准实用化的半侵入式脑机产品。
+
+北京脑所所长罗敏敏在接受采访时表示，“北脑一号”优势在于采用半侵入式硬脑膜外植入路径，无需打开硬脑膜、不直接接触脑组织，仅需在颅骨开一微小骨窗即可完成电极贴敷，在安全性与信号精度之间达到最优平衡。
+
+脑机接口技术正加快从实验室走向患者。
 
 ## 相关推荐
 
-- 2026-06-29 12:22 - [两部门启动2026年“模数共振”行动 依托重点城市打造智能体工厂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:22 - [4月28日外盘头条：特朗普与幕僚讨论伊朗最新提议 欧盟向谷歌发布AI竞争合规指南 美光与闪迪股价持续走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:01 - [国台办回应“金门考察团遭刻意审查卡关”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:29 - [马斯克在对OpenAI的诉讼案中首日出庭作证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:01 - [光大期货0428热点追踪：玻璃弱势下行，供需压力仍存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:18 - [中国创新药出海，如何从“能出去”到 “走得远”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:17 - [受贿9220万余元 江西省人大常委会原副主任洪礼和一审获刑20年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:00 - [消失的欧亚水獭重回成都 “公园城市”迎“动物邻居”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:14 - [吴征铠院士铜像在复旦大学揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:16 - [宁德时代获大摩增持约77.82万股 每股均价约708.25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:16 - [我国太空金属增材制造技术取得突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:22 - [中国银联董事长董俊峰出席APEC工商咨询理事会会议 参加与墨西哥政府高层双边会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:14 - [霍尔木兹海峡持续关闭，原油市场供应严重受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:27 - [杭州优化知识产权创新生态 全球创新指数排名跃升至13位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:33 - [基金日报 | 今年以来新发基金规模超3500亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:07 - [广东数智文娱企业加速拓展马来西亚市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:20 - [俞白眉：未来绝大多数演员有AI分身是大趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:29 - [吉林高新技术产业开发区党工委书记张守华接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:10 - [露露乐蒙任命耐克前高管奥尼尔为新CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:13 - [国台办：民进党当局应取消针对大陆居民赴台旅游不合理限制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:10 - [“春之声·歌游内蒙古”专场文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:25 - [明德生物已被“*ST”，修正业绩引发索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:34 - [贵阳银行：一季度归母净利润14.77亿元，同比增加2.37%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:09 - [美股周一创下4月6日以来最大零售股票买入日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](http://www.blog.minike.top/Article/details/63404503.shtml)
-- 2026-06-29 12:02 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](http://www.blog.kurohicncr.top/Article/details/77355745.shtml)
-- 2026-06-29 12:12 - [国铁沈阳局五一小长假预计发送旅客740万人次](http://www.share.kurohicncr.top/Article/details/2955120428.shtml)
-- 2026-06-29 12:03 - [香港3月进出口货值现两位数增长](http://www.share.kurohicncr.top/Article/details/921158602082.shtml)
-- 2026-06-29 12:28 - [涉嫌严重违纪违法 内蒙古两厅官被查](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？](http://www.share.kurohicncr.top/Article/details/7977647705.shtml)
-- 2026-06-29 12:13 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](http://www.share.kurohicncr.top/Article/details/348367.shtml)
-- 2026-06-29 12:17 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](http://www.share.kurohicncr.top/Article/details/11758.shtml)
-- 2026-06-29 12:14 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](http://www.blog.kurohicncr.top/Article/details/30544649.shtml)
-- 2026-06-29 12:08 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [一季度生态成绩单亮眼，高质量发展绿意盎然](http://www.blog.kurohicncr.top/Article/details/16001.shtml)
-- 2026-06-29 12:26 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](http://www.blog.minike.top/Article/details/59983.shtml)
-- 2026-06-29 12:01 - [普京称西方正将领导地位让位于全球南方国家](http://www.blog.minike.top/Article/details/59194316743.shtml)
-- 2026-06-29 12:13 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](http://www.share.kurohicncr.top/Article/details/42435.shtml)
-- 2026-06-29 12:08 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](http://www.share.kurohicncr.top/Article/details/369021.shtml)
+- 2026-06-29 12:16 - [上海发布广告人才新政 面向全球招揽行业英才](http://www.share.minike.top/Article/details/872013.shtml)
+- 2026-06-29 12:35 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.blog.minike.top/Article/details/8206999.shtml)
+- 2026-06-29 12:17 - [全球共享发展行动论坛第三届高级别会议发布成果清单](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [源达信息量化策略研究：重要股东增持单因子策略](http://www.blog.minike.top/Article/details/07403665.shtml)
+- 2026-06-29 12:28 - [300883，连亏三年后，一季度又亏](http://www.share.kurohicncr.top/Article/details/934985301632.shtml)
+- 2026-06-29 12:35 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](http://www.blog.kurohicncr.top/Article/details/18165181.shtml)
+- 2026-06-29 12:17 - [特朗普称将 “记住” 不申请关税退款的公司](http://www.share.kurohicncr.top/Article/details/466567488.shtml)
+- 2026-06-29 12:35 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](http://www.share.kurohicncr.top/Article/details/48965610.shtml)
+- 2026-06-29 12:19 - [2026年广东省行业企业职业技能竞赛计划发布](http://www.blog.minike.top/Article/details/27427.shtml)
+- 2026-06-29 12:28 - [多支欧洲足球劲旅将于8月会师香港](http://www.share.minike.top/Article/details/79247540.shtml)
+- 2026-06-29 12:06 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [世界读书日：寻访巷陌深处的“老昆明”](http://www.share.kurohicncr.top/Article/details/872581700915.shtml)
+- 2026-06-29 12:18 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](http://www.blog.kurohicncr.top/Article/details/62127.shtml)

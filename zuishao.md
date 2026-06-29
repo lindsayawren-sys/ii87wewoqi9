@@ -1,61 +1,54 @@
-# 一季度生态成绩单亮眼，高质量发展绿意盎然
+# 多支欧洲足球劲旅将于8月会师香港
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-【好评中国】一季度生态成绩单亮眼，高质量发展绿意盎然 生态环境部4月27日举行新闻发布会，通报我国一季度生态环境质量总体情况，以及在我国生态环境质量持续改善的五年过程当中，生态环境监测体系不断向新向优、提质增效的基本情况。据了解，我国目前已建成全球规模最大、布局科学合理的生态环境监测网络，涵盖了空气、地表水、地下水、海洋、土壤、生态等各领域，初步具备对污染防治、生态保护与应对气
+发布时间：2026年04月22日 11:25 来源：中国新闻网 4月21日，“2026年奥迪足球峰会”启动仪式在香港举行，本次峰会将于今年夏季登陆香港。届时，德甲豪门拜仁慕尼黑队将访港，在启德体育园与英超阿斯顿维拉队展开一场对决。启动仪式现场，有球队代表向中新社记者表示，十分乐见这两支世界顶尖的球队能够在香港为球迷们带来精彩的表现。 据了解，8月还将有英超曼城队、英超切尔西队、
 
 ## 正文
 
-【好评中国】一季度生态成绩单亮眼，高质量发展绿意盎然 生态环境部4月27日举行新闻发布会，通报我国一季度生态环境质量总体情况，以及在我国生态环境质量持续改善的五年过程当中，生态环境监测体系不断向新向优、提质增效的基本情况。
+发布时间：2026年04月22日 11:25 来源：中国新闻网 4月21日，“2026年奥迪足球峰会”启动仪式在香港举行，本次峰会将于今年夏季登陆香港。
 
-据了解，我国目前已建成全球规模最大、布局科学合理的生态环境监测网络，涵盖了空气、地表水、地下水、海洋、土壤、生态等各领域，初步具备对污染防治、生态保护与应对气候变化的全方位支撑能力。
+届时，德甲豪门拜仁慕尼黑队将访港，在启德体育园与英超阿斯顿维拉队展开一场对决。
 
-人不负青山，青山定不负人。
+启动仪式现场，有球队代表向中新社记者表示，十分乐见这两支世界顶尖的球队能够在香港为球迷们带来精彩的表现。
 
-一季度生态环境质量“成绩单”亮眼，高质量发展绿意盎然。
+据了解，8月还将有英超曼城队、英超切尔西队、意甲国际米兰队、意甲尤文图斯队等在香港会师。
 
-一组组向好的数据、一处处可见的变化，见证蓝天、碧水、净土保卫战的好成效，各项生态环境指标持续优化，青山叠翠、绿水潺潺、空气清新的美好图景，在神州大地愈发清晰，勾勒出美丽中国的生动模样。
-
-这份沉甸甸的生态答卷，既是久久为功推进环境保护的有力印证，更是发展理念转型升级、民生福祉不断增进的生动体现，在绿意奔涌中，高质量发展的步伐更加坚实、更有力量。
-
-晒成绩、看变化，生态颜值持续向好。
-
-从空气质量优良天数比例持续提升，到重点流域水环境质量不断改善，从土壤污染风险得到有效管控，到生态系统质量和稳定性持续增强，一组组实打实的数据，一个个看得见、感受得到的变化，彰显着生态治理的扎实成效。
+(记者 陈子彦) 责任编辑：【曲克】
 
 ## 相关推荐
 
-- 2026-06-29 12:06 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:01 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:17 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:04 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:02 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:23 - [泰国央行维持关键利率不变 以抵御油价对经济的冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:23 - [全国首单银行间市场消费类定向资产支持票据发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:01 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:25 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:22 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:08 - [如何看待中方叫停Manus并购案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:19 - [南京银行董事长谢宁解读“好银行”发展理念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:28 - [“漂流书包”十年：一份民主党派的阅读答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:16 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:04 - [康宁一季度利润与核心营收双双增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:35 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:18 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:13 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:23 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:25 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:07 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:22 - [崖沙燕“如约”重返永定河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:29 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:17 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:07 - [伊朗大量美制设备集体失灵，暴露数字安全新威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:17 - [603169、000909、603363、000892，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:06 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:15 - [手机成新农具，物流通万家！乡村消费早已不一样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:30 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [重庆秀山：烟雨“边城” 古韵映春](http://www.blog.kurohicncr.top/Article/details/63742.shtml)
-- 2026-06-29 12:03 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](http://www.blog.kurohicncr.top/Article/details/7221168.shtml)
-- 2026-06-29 12:14 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](http://www.blog.minike.top/Article/details/0261691.shtml)
-- 2026-06-29 12:29 - [韩国宣布与Google DeepMind建立合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [光大期货：4月28日金融日报](http://www.blog.minike.top/Article/details/39144.shtml)
-- 2026-06-29 12:25 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](http://www.share.kurohicncr.top/Article/details/092967254.shtml)
-- 2026-06-29 12:06 - [深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [华盛顿发生两起枪击事件](http://www.share.kurohicncr.top/Article/details/71821.shtml)
-- 2026-06-29 12:27 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](http://www.share.minike.top/Article/details/00957634.shtml)
-- 2026-06-29 12:04 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [国务院任免国家工作人员](http://www.share.minike.top/Article/details/471867631950.shtml)
-- 2026-06-29 12:01 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](http://www.share.minike.top/Article/details/14097514505.shtml)
-- 2026-06-29 12:11 - [第139届广交会二期闭幕](http://www.share.kurohicncr.top/Article/details/0263155299.shtml)
-- 2026-06-29 12:21 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](http://www.share.kurohicncr.top/Article/details/201624211175.shtml)
+- 2026-06-29 12:13 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [美国多家航空公司面临燃油压力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](http://www.share.minike.top/Article/details/408650748307.shtml)
+- 2026-06-29 12:18 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](http://www.share.minike.top/Article/details/890609.shtml)
+- 2026-06-29 12:21 - [美国国家安全局被曝使用Anthropic受限模型](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [浙江进入汛期以来首次区域性强降雨过程](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [金埔园林2025年度归母净利润亏损约2.41亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [从承诺到行动 多方共议以多边合作引领可持续发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [特朗普：美伊第二轮谈判最快或于周五举行](http://www.share.minike.top/Article/details/25665.shtml)
+- 2026-06-29 12:35 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [柬埔寨首相洪玛奈会见王毅一行](http://www.blog.minike.top/Article/details/27591.shtml)
+- 2026-06-29 12:28 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](http://www.blog.kurohicncr.top/Article/details/03432.shtml)
+- 2026-06-29 12:15 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lisacumin64-arch)

@@ -1,53 +1,61 @@
-# 指数级增长 2025年我国词元调用量约21100万亿
+# 消息人士：特朗普计划为伊朗提交统一方案设有限期限
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-数据，被称为人工智能发展的“原料”。今天，《全国数据资源调查报告(2025年)》在第九届数字中国建设峰会上发布，报告显示，我国数据资源正以更大力度，赋能人工智能创新发展。 “词元”(Token)，是人工智能大模型为了高效处理数据，把数据进行拆分后的最小信息单元。2025年，全国日均词元调用量从年初的超万亿增长到年末的100万亿，呈现指数级增长；全年词元累计调用量达到约21100
+据两位熟悉内部讨论的消息人士透露，美国总统唐纳德·特朗普计划为伊朗设定一个有限期限，要求其提出统一方案，以推动外交谈判重回正轨。 目前尚不清楚特朗普的相关意向是否已传达至伊朗方面。 消息人士称，美方不希望无限期延长停火，也不想给伊朗留出时间进一步拖延谈判。 特朗普对在周三最后期限后延长初始停火持谨慎态度。他希望尽快敲定协议，并曾希望最后期限的压力能迫使伊朗在停火到期前回到谈判桌
 
 ## 正文
 
-数据，被称为人工智能发展的“原料”。
+据两位熟悉内部讨论的消息人士透露，美国总统唐纳德·特朗普计划为伊朗设定一个有限期限，要求其提出统一方案，以推动外交谈判重回正轨。
 
-今天，《全国数据资源调查报告(2025年)》在第九届数字中国建设峰会上发布，报告显示，我国数据资源正以更大力度，赋能人工智能创新发展。
+目前尚不清楚特朗普的相关意向是否已传达至伊朗方面。
 
-“词元”(Token)，是人工智能大模型为了高效处理数据，把数据进行拆分后的最小信息单元。
+消息人士称，美方不希望无限期延长停火，也不想给伊朗留出时间进一步拖延谈判。
 
-2025年，全国日均词元调用量从年初的超万亿增长到年末的100万亿，呈现指数级增长；全年词元累计调用量达到约21100万亿。
+特朗普对在周三最后期限后延长初始停火持谨慎态度。
 
-(总台央视记者 刘颖 刘柏煊 制图 艾玖玫)
+他希望尽快敲定协议，并曾希望最后期限的压力能迫使伊朗在停火到期前回到谈判桌。
+
+然而，正如媒体此前报道，特朗普的高级助手认为伊朗领导层内部存在分歧，且伊朗方面在赋予谈判权以敲定协议的立场上尚未达成共识。
+
+消息人士表示，特朗普给予德黑兰更多时间提交其所谓的“统一方案”，反映出美方希望通过外交途径解决战争，同时也不愿恢复实质性军事打击。
+
+与此同时，总统认为美国对霍尔木兹海峡的封锁将在谈判期间持续向伊朗施压。
 
 ## 相关推荐
 
-- 2026-06-29 12:13 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:09 - [阿联酋能源部长：退出欧佩克对市场影响有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:13 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:24 - [中国选手赵一程打破男子速度攀岩世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:04 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:19 - [“华住会”App崩了？客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:22 - [“五一”假期小型客车继续施行免收通行费政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:21 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:02 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:27 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:20 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:27 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:05 - [“十四五”期间中国新发现大中型油气田225处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:29 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:27 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:21 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:28 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:09 - [日本126名议员集体参拜靖国神社](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:12 - [绿的谐波：一季度净利润同比增长61.17%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:32 - [全球电力回顾报告：2025年化石燃料发电量零增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:30 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:34 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:07 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:09 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:08 - [美股三大指数集体高开，布油重回100美元上方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:08 - [美股回吐涨幅，美债收益率上行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:08 - [华为迟林春：乾崑智驾累计辅助驾驶里程达100亿公里，预计今年10月超越特斯拉位居全球第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:29 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:25 - [东珠生态（603359）投资者索赔分析](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [香港引入首辆飞机专用重型电拖车](http://www.share.minike.top/Article/details/3492811424.shtml)
-- 2026-06-29 12:28 - [瑞银：华润置地目标价36港元 维持“买入”评级](http://www.share.kurohicncr.top/Article/details/372025796.shtml)
-- 2026-06-29 12:09 - [《习近平谈治国理政》第五卷英文版中印尼推介会在雅加达举行](http://www.blog.kurohicncr.top/Article/details/665645405.shtml)
-- 2026-06-29 12:25 - [江西省省长：加快让人形机器人等未来产业形成新经济增长点](http://www.blog.kurohicncr.top/Article/details/01964993.shtml)
-- 2026-06-29 12:25 - [国泰君安期货：玻璃跌破前低 下跌趋势延续](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.minike.top/Article/details/731967486.shtml)
-- 2026-06-29 12:07 - [全球首艘10800车汽车运输船在广州命名交付](http://www.blog.minike.top/Article/details/20329326615.shtml)
-- 2026-06-29 12:29 - [截至4月28日，今年全国共发生7次大范围强对流天气过程](http://www.blog.kurohicncr.top/Article/details/85921827616.shtml)
-- 2026-06-29 12:05 - [中方：巴勒斯坦问题在任何情况下都不应被边缘化](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [广东湛江吴川国际机场首条全货机定期航线开通](http://www.share.kurohicncr.top/Article/details/947043553.shtml)
-- 2026-06-29 12:24 - [人社部：一季度全国城镇新增就业299万人](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [长安汽车战略协同，阿维塔品牌独立运营不变：协同降本空间打开，港股IPO照常推进](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [丁二烯：一季度进口下滑出口增加，二季度趋势或延续](http://www.blog.kurohicncr.top/Article/details/652106279.shtml)
-- 2026-06-29 12:27 - [南京银行董事长谢宁：“好银行”至少应具备经营发展好等三大特征](http://www.blog.kurohicncr.top/Article/details/52281.shtml)
+- 2026-06-29 12:23 - [欧洲股市小幅走高，市场陷入“观望停滞状态”](http://www.blog.minike.top/Article/details/00389.shtml)
+- 2026-06-29 12:15 - [西门子数字化工业集团CEO：人工智能助力西门子深化与中国合作](http://www.blog.kurohicncr.top/Article/details/416366014.shtml)
+- 2026-06-29 12:12 - [白宫向福克斯新闻透露：特朗普将伊朗停火期限延长3-5天](http://www.share.kurohicncr.top/Article/details/68768.shtml)
+- 2026-06-29 12:30 - [上市公司市值管理实践：中国建筑从“战术”到“战略”](http://www.share.kurohicncr.top/Article/details/81194002613.shtml)
+- 2026-06-29 12:20 - [延边州首个百兆瓦级独立构网型储能电站开建](http://www.blog.minike.top/Article/details/23002.shtml)
+- 2026-06-29 12:21 - [特朗普称最快周五或重启美伊新一轮和谈](http://www.blog.minike.top/Article/details/77035063.shtml)
+- 2026-06-29 12:24 - [劳埃德银行试点AI投资指导工具，英国监管机构正研究其影响](http://www.blog.minike.top/Article/details/3051514427.shtml)
+- 2026-06-29 12:20 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.blog.minike.top/Article/details/6977148.shtml)
+- 2026-06-29 12:09 - [哈尔滨音乐学院原党委副书记、工会主席刘东兴被“双开”](http://www.share.kurohicncr.top/Article/details/417739.shtml)
+- 2026-06-29 12:24 - [连亏5年，越亏越多！知名超市学胖东来效果不佳，去年关店414家，巨亏9.57亿元，最新市值仅35亿元](http://www.blog.kurohicncr.top/Article/details/686234421.shtml)
+- 2026-06-29 12:24 - [Mhmarkets迈汇:贵金属需求持续走强](http://www.blog.minike.top/Article/details/671079709221.shtml)
+- 2026-06-29 12:20 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](http://www.share.kurohicncr.top/Article/details/2248468.shtml)
+- 2026-06-29 12:07 - [落地15年来持续升级 海南离岛免税政策激活发展动力](http://www.blog.kurohicncr.top/Article/details/483565650659.shtml)
+- 2026-06-29 12:15 - [最可爱的人回来了！迎接烈士回国 塔台对话听到泪目](http://www.share.minike.top/Article/details/2283702.shtml)
+- 2026-06-29 12:13 - [放量突破！高“光”创业板人工智能ETF华宝（159363）猛攻3%再创新高！光模块+算力租赁双轮驱动！](http://www.share.minike.top/Article/details/035620820.shtml)

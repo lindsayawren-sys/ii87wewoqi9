@@ -1,61 +1,56 @@
-# 中国银联董事长董俊峰出席APEC工商咨询理事会会议 参加与墨西哥政府高层双边会谈
+# 美股周一创下4月6日以来最大零售股票买入日
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-来源：中国银联 当地时间4月23日，中国银联董事长兼银联国际董事长董俊峰应邀出席在墨西哥首都墨西哥城举办的2026年亚太经合组织（以下简称“APEC”）工商咨询理事会（ABAC）第二次会议。会议期间，董俊峰参加与墨西哥经济部长马塞洛·埃布拉德、墨西哥众议院墨中友好小组主席雷蒙多·巴斯克斯的双边会谈，就深化中墨支付合作、服务双边经贸发展等议题深入交流。 墨西哥是拉丁美洲地区的人口
+散户交易的动能正在积聚，随着纳税日逆风的减弱，周一成为自4月6日以来散户买入规模最大的一天。 与此同时，中东地缘政治紧张局势的缓和以及波动性的降低，也应有助于提升散户的参与度。 周一的交易量与散户活动通常在4月中旬后逐渐增强的季节性规律相符。但退一步看，更广泛的市场股票持仓格局表明，参与度仍有提升空间。迄今为止，美国股市的仓位调整自低点以来的回补幅度，大约仅为类似快速复苏行情中
 
 ## 正文
 
-来源：中国银联 当地时间4月23日，中国银联董事长兼银联国际董事长董俊峰应邀出席在墨西哥首都墨西哥城举办的2026年亚太经合组织（以下简称“APEC”）工商咨询理事会（ABAC）第二次会议。
+散户交易的动能正在积聚，随着纳税日逆风的减弱，周一成为自4月6日以来散户买入规模最大的一天。
 
-会议期间，董俊峰参加与墨西哥经济部长马塞洛·埃布拉德、墨西哥众议院墨中友好小组主席雷蒙多·巴斯克斯的双边会谈，就深化中墨支付合作、服务双边经贸发展等议题深入交流。
+与此同时，中东地缘政治紧张局势的缓和以及波动性的降低，也应有助于提升散户的参与度。
 
-墨西哥是拉丁美洲地区的人口大国、经济大国、第一贸易大国和重要的外国直接投资目的地，制造业、农业、能源资源丰富。
+周一的交易量与散户活动通常在4月中旬后逐渐增强的季节性规律相符。
 
-中国与墨西哥同为发展中大国和新兴市场国家，双边经贸合作硕果累累。
+但退一步看，更广泛的市场股票持仓格局表明，参与度仍有提升空间。
 
-中国已连续多年成为墨西哥全球第二大贸易伙伴，墨西哥则稳居中国在拉美第二大贸易伙伴地位。
+迄今为止，美国股市的仓位调整自低点以来的回补幅度，大约仅为类似快速复苏行情中通常所见水平的一半。
 
-两国日益密切的经贸与人员交流，对跨境支付服务提出了更高需求。
-
-董俊峰在会谈中表示，作为全球展业的国际卡组织，银联网络已延伸至183个国家和地区，持续为各国持卡人提供安全、高效、普惠的支付服务。
-
-中国银联愿与墨方深化跨境互联互通合作，推动双方支付基础设施深度融合，为中墨两国经贸合作提供高质量支付供给。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 12:18 - [中国国家文化产业拟向周星驰等认购方发行合共4680万份认股权证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:01 - [银行理财子加速“扫货”权益市场，打新报价量两月激增近九成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:27 - [【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:00 - [转让底价6573万元，华泰保险集团880万股股份再度挂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:04 - [翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:14 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:20 - [深化中国—东盟经贸合作 专家提十大建议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:28 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:11 - [千年晋祠难老泉高位复流 带动周边产业焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:13 - [一江清水向东流——凝心聚力共绘长江发展新画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:15 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:07 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:17 - [四川蓝莓首次出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:28 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:23 - [中钢协：积极开展产能治理、产量调控、行业自律](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:21 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:33 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:07 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:24 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:09 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:29 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:14 - [库克时代落幕，苹果新帅面临AI关键战役](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:28 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:25 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:13 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:35 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:10 - [聚焦人工智能应用 印尼教育界人士来鄂研修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:17 - [苹果换帅时机或预示财报利好，分析师看好短期表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:19 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](http://www.share.minike.top/Article/details/058399.shtml)
-- 2026-06-29 12:20 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](http://www.blog.minike.top/Article/details/52106.shtml)
-- 2026-06-29 12:05 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](http://www.blog.kurohicncr.top/Article/details/695973574617.shtml)
-- 2026-06-29 12:03 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](http://www.blog.kurohicncr.top/Article/details/166142627673.shtml)
-- 2026-06-29 12:13 - [泰国央行维持关键利率不变 以抵御油价对经济的冲击](http://www.share.kurohicncr.top/Article/details/48152.shtml)
-- 2026-06-29 12:30 - [全国首单银行间市场消费类定向资产支持票据发行](http://www.blog.minike.top/Article/details/120808.shtml)
-- 2026-06-29 12:20 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](http://www.share.kurohicncr.top/Article/details/149745.shtml)
-- 2026-06-29 12:14 - [如何看待中方叫停Manus并购案？](http://www.blog.kurohicncr.top/Article/details/94277.shtml)
-- 2026-06-29 12:14 - [南京银行董事长谢宁解读“好银行”发展理念](http://www.blog.kurohicncr.top/Article/details/633691346.shtml)
-- 2026-06-29 12:10 - [“漂流书包”十年：一份民主党派的阅读答卷](http://www.share.minike.top/Article/details/01385916731.shtml)
-- 2026-06-29 12:13 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](http://www.share.kurohicncr.top/Article/details/346115.shtml)
-- 2026-06-29 12:07 - [康宁一季度利润与核心营收双双增长](http://www.blog.minike.top/Article/details/15515105764.shtml)
-- 2026-06-29 12:05 - [大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火](http://www.blog.minike.top/Article/details/6038177.shtml)
+- 2026-06-29 12:13 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.blog.kurohicncr.top/Article/details/995998.shtml)
+- 2026-06-29 12:24 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](http://www.blog.kurohicncr.top/Article/details/46939084.shtml)
+- 2026-06-29 12:09 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](http://www.share.kurohicncr.top/Article/details/82409559538.shtml)
+- 2026-06-29 12:35 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](http://www.blog.kurohicncr.top/Article/details/3015267873.shtml)
+- 2026-06-29 12:27 - [崖沙燕“如约”重返永定河](http://www.blog.kurohicncr.top/Article/details/3596969038.shtml)
+- 2026-06-29 12:11 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.blog.minike.top/Article/details/8687848579.shtml)
+- 2026-06-29 12:10 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](http://www.share.minike.top/Article/details/80590.shtml)
+- 2026-06-29 12:26 - [伊朗大量美制设备集体失灵，暴露数字安全新威胁](http://www.share.minike.top/Article/details/8448513.shtml)
+- 2026-06-29 12:26 - [603169、000909、603363、000892，被证监会立案！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [以军称黎巴嫩真主党“违反停火协议”](http://www.blog.minike.top/Article/details/64719317900.shtml)
+- 2026-06-29 12:19 - [手机成新农具，物流通万家！乡村消费早已不一样](http://www.share.minike.top/Article/details/3845164214.shtml)
+- 2026-06-29 12:09 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [西安银行发布2025年度利润分配方案 拟每10派1元](http://www.blog.minike.top/Article/details/2545762.shtml)
+- 2026-06-29 12:22 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](https://github.com/lisacumin64-arch)

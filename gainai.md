@@ -1,53 +1,50 @@
-# 雅迪、爱玛、台铃、九号、小牛、小刀、新日、绿源，被约谈
+# 青海热贡唐卡亮相2026中国知识产权保护高层论坛
 
-> 更新时间：2026-06-29 12:30:04 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-今年以来，北京市场监管部门实施贯穿全年的电动自行车超标改装专项整治行动，查处电动自行车超标改装等违法案件84起，会同公安部门打掉4处超标改装车辆“黑窝点”，查扣超标改装车辆120余辆。 4月份以来，北京市场监管部门集中执法力量，针对线上视频引流、线下送货上门的超标改装新特点连续出击、靶向施治。朝阳区市场监管局联合公安部门对隐匿于平房乡一城中村内的销售窝点开展联合执法，查获超标改
+中新网西宁4月21日电 (祁绣娟 蔡爱民)21日，记者从青海省黄南藏族自治州同仁市委宣传部获悉，2026中国知识产权保护高层论坛在京举办期间，同仁市热贡唐卡作为青海省唯一代表，成功入选全国六省非物质文化遗产精品名录并受邀参展，展现非物质文化遗产保护传承与创新发展成效。 黄南藏族自治州地处青藏高原与黄土高原的过渡地带，是热贡艺术的发祥地、国家级文化生态保护区，也是青海省旅游资源最
 
 ## 正文
 
-今年以来，北京市场监管部门实施贯穿全年的电动自行车超标改装专项整治行动，查处电动自行车超标改装等违法案件84起，会同公安部门打掉4处超标改装车辆“黑窝点”，查扣超标改装车辆120余辆。
+中新网西宁4月21日电 (祁绣娟 蔡爱民)21日，记者从青海省黄南藏族自治州同仁市委宣传部获悉，2026中国知识产权保护高层论坛在京举办期间，同仁市热贡唐卡作为青海省唯一代表，成功入选全国六省非物质文化遗产精品名录并受邀参展，展现非物质文化遗产保护传承与创新发展成效。
 
-4月份以来，北京市场监管部门集中执法力量，针对线上视频引流、线下送货上门的超标改装新特点连续出击、靶向施治。
+黄南藏族自治州地处青藏高原与黄土高原的过渡地带，是热贡艺术的发祥地、国家级文化生态保护区，也是青海省旅游资源最富集的地区之一，被认证为“世界最大规模的唐卡艺术之都”。
 
-朝阳区市场监管局联合公安部门对隐匿于平房乡一城中村内的销售窝点开展联合执法，查获超标改装车辆51辆，抓获违法人员2名；通过线上巡查、线下暗访，通州区市场监管局联合公安部门对隐匿于台湖镇碱厂村农村出租大院内的一处销售窝点实施精准打击，查获加装、改装电池且尺寸、重量超标的违规车辆45辆，已依法立案查处。
+作为国家级非物质文化遗产，热贡唐卡绘制技艺精湛、文化内涵深厚，兼具极高的艺术价值与知识产权价值。
 
-针对专项整治行动中发现的典型问题，北京市市场监管局于近日对雅迪、爱玛、台铃、九号、小牛、小刀、新日、绿源8家电动自行车生产企业及其在京销售代理企业开展警示约谈，明确“两落实、五严禁”： 严格落实质量安全主体责任，严格落实强制性产品认证规定； 严禁生产销售车辆与认证样品不一致，严禁预留改装空间，严禁销售未经认证车辆，严禁销售不合格车辆，严禁加装改装电动自行车，切实保障消费者出行安全。
+论坛期间，中国工艺美术大师、国家级非物质文化遗产代表性项目热贡艺术代表性传承人娘本受邀在分论坛发言，与会领导及嘉宾现场观看了热贡唐卡非物质文化遗产艺术成果及知识产权保护情况。
 
-责任编辑：刘万里 SF014
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:02 - [利欧股份（002131）涉嫌信披违规 受损股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:18 - [机器人产业爆发前夜，机器人ETF华夏（562500）或许是布局这一轮科技革命的最优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:23 - [末局逆转！成都AG夺得2026PEL春季赛总决赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:28 - [韩国综合股价指数开盘下跌0.3% 日股休市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:28 - [招股书曾写错毛利，微脉二闯港交所：AI医疗故事背后，三年亏超6亿 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:29 - [东方甄选股权激励！300名员工人均获授市值141万元股份，俞敏洪超4400万元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:11 - [美国流行音乐天后“霉霉”申请注册其声音和肖像商标，以抵御AI深度伪造技术侵害](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:13 - [磷石膏废弃物还能建房子？九三学社调研带你看从废渣到宝藏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:03 - [梁文锋增持DeepSeek 持股比例大幅上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:28 - [A股极致分化，创业板失守3600点，医疗等板块走强| 华宝基金3A日报（2026.4.28）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:29 - [美国7年期国债中标收益率略高于发行前交易水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:12 - [OpenAI增长失速冲击AI板块：超大规模资本支出模式遭遇“信任危机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:06 - [第二届西南农资骨干流通走廊建设推进大会在重庆涪陵举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:33 - [美政府警告：数周内机场安检员工资资金即将耗尽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:31 - [优必选伺服驱动器专利荣获广东专利金奖，助力人形机器人迈入量产商业化时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:30 - [“6.0%”的浙江看点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:29 - [沃什听证会高能：被骂“提线木偶”、怒批美联储迷失、否认向特朗普承诺降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:09 - [近期降雨过程范围广、雨势强 多部门会商部署防汛抢险救灾工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:25 - [特朗普政府拟周三调整大麻管制分级，概念股集体飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:27 - [孟买天际线之战：亿万富翁的“云端豪宅”与城市的“生存空间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:33 - [假冒官员诱骗内地留学生返港买金粒，3男被捕涉款700万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:30 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:20 - [刚买就亏，银行理财不香了？年内超40只产品发行失败，有固收理财近1月年化回报低至-10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:27 - [中国国家文化产业拟向周星驰等认购方发行合共4680万份认股权证](http://www.share.kurohicncr.top/Article/details/20957364564.shtml)
-- 2026-06-29 12:17 - [银行理财子加速“扫货”权益市场，打新报价量两月激增近九成](http://www.blog.minike.top/Article/details/44180019066.shtml)
-- 2026-06-29 12:25 - [【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料](http://www.blog.minike.top/Article/details/71945928731.shtml)
-- 2026-06-29 12:27 - [转让底价6573万元，华泰保险集团880万股股份再度挂牌](http://www.share.minike.top/Article/details/632306465674.shtml)
-- 2026-06-29 12:09 - [翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局](http://www.share.kurohicncr.top/Article/details/831504.shtml)
-- 2026-06-29 12:04 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](http://www.share.kurohicncr.top/Article/details/81292836087.shtml)
-- 2026-06-29 12:10 - [深化中国—东盟经贸合作 专家提十大建议](http://www.share.kurohicncr.top/Article/details/4560736.shtml)
-- 2026-06-29 12:11 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](http://www.blog.kurohicncr.top/Article/details/86300918789.shtml)
-- 2026-06-29 12:05 - [千年晋祠难老泉高位复流 带动周边产业焕新生](http://www.share.kurohicncr.top/Article/details/1665109849.shtml)
-- 2026-06-29 12:16 - [一江清水向东流——凝心聚力共绘长江发展新画卷](http://www.share.minike.top/Article/details/6741297.shtml)
-- 2026-06-29 12:18 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](http://www.share.minike.top/Article/details/978750.shtml)
-- 2026-06-29 12:05 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](http://www.share.minike.top/Article/details/2814286218.shtml)
-- 2026-06-29 12:15 - [四川蓝莓首次出口](http://www.share.minike.top/Article/details/537546330384.shtml)
-- 2026-06-29 12:13 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](http://www.blog.minike.top/Article/details/3286352.shtml)
-- 2026-06-29 12:16 - [中钢协：积极开展产能治理、产量调控、行业自律](http://www.share.kurohicncr.top/Article/details/71798154.shtml)
+- 2026-06-29 12:24 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](http://www.share.minike.top/Article/details/55325829.shtml)
+- 2026-06-29 12:19 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](http://www.blog.minike.top/Article/details/046561591186.shtml)
+- 2026-06-29 12:33 - [王毅出席全球共享发展行动论坛第三届高级别会议](http://www.share.kurohicncr.top/Article/details/4079313.shtml)
+- 2026-06-29 12:33 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](http://www.share.kurohicncr.top/Article/details/965032074252.shtml)
+- 2026-06-29 12:15 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](http://www.blog.kurohicncr.top/Article/details/386750187292.shtml)
+- 2026-06-29 12:18 - [库克时代落幕，苹果新帅面临AI关键战役](http://www.share.minike.top/Article/details/246162638.shtml)
+- 2026-06-29 12:13 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](http://www.share.kurohicncr.top/Article/details/36660.shtml)
+- 2026-06-29 12:27 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](http://www.share.minike.top/Article/details/3356602028.shtml)
+- 2026-06-29 12:12 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](http://www.share.kurohicncr.top/Article/details/517448223473.shtml)
+- 2026-06-29 12:35 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](http://www.blog.minike.top/Article/details/0261106241.shtml)
+- 2026-06-29 12:22 - [聚焦人工智能应用 印尼教育界人士来鄂研修](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [苹果换帅时机或预示财报利好，分析师看好短期表现](http://www.share.minike.top/Article/details/7337980376.shtml)
+- 2026-06-29 12:12 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](http://www.share.minike.top/Article/details/027859.shtml)
+- 2026-06-29 12:30 - [中国隧道连续皮带机首次出口西班牙](http://www.blog.kurohicncr.top/Article/details/420903795.shtml)

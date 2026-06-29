@@ -1,59 +1,57 @@
-# 广西河池凤山突发岩石崩塌 44户130人紧急转移
+# 手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-受近期强降雨影响，4月28日，广西河池市凤山县一处山体突发岩石崩塌，造成两人受伤，交通中断，现场排险和危岩清理工作正在展开。 记者从凤山县了解到，经凤山县自然资源局会同市自然资源局、河池地质环境监测站、县应急管理局、公安局、消防救援局、交通运输局、凤城镇人民政府等部门现场调查发现，此次岩石崩塌原因是受近期连续降雨影响，岩体结构面较为发育导致稳定性下降，在重力作用下崩塌体与母岩分
+快科技4月22日消息，千里科技联席董事长赵明公开表示，自己来到车圈的第一场发布会已准备就绪，目前正在彩排中。本场发布会为千里科技AI战略暨产品发布会，将于今晚19:00正式举行。发布会将全面展示AI+车最新落地成果，首次对外阐述AI商业化战略与目标，并重磅发布“脑体协同”技术合作，聚焦智能驾驶、智能座舱等核心领域。赵明此前为荣耀CEO，在从华为独立后，带领荣耀一步步成为头部手机
 
 ## 正文
 
-受近期强降雨影响，4月28日，广西河池市凤山县一处山体突发岩石崩塌，造成两人受伤，交通中断，现场排险和危岩清理工作正在展开。
+快科技4月22日消息，千里科技联席董事长赵明公开表示，自己来到车圈的第一场发布会已准备就绪，目前正在彩排中。
 
-记者从凤山县了解到，经凤山县自然资源局会同市自然资源局、河池地质环境监测站、县应急管理局、公安局、消防救援局、交通运输局、凤城镇人民政府等部门现场调查发现，此次岩石崩塌原因是受近期连续降雨影响，岩体结构面较为发育导致稳定性下降，在重力作用下崩塌体与母岩分离。
+本场发布会为千里科技AI战略暨产品发布会，将于今晚19:00正式举行。
 
-崩塌点位于凤山县东环路南侧山体中部陡壁处，崩塌点与山脚高差约135米。
+发布会将全面展示AI+车最新落地成果，首次对外阐述AI商业化战略与目标，并重磅发布“脑体协同”技术合作，聚焦智能驾驶、智能座舱等核心领域。
 
-崩塌岩体规模：宽约10米，高约20米，厚度约5米，总体积约1000立方米。
+赵明此前为荣耀CEO，在从华为独立后，带领荣耀一步步成为头部手机品牌。
 
-崩塌岩体向下砸中下部山体分解后向下滚落。
+2025年1月离开荣耀，2026年2月正式加入千里科技，3月出任联席董事长，负责商业模式落地与规模化运营，与印奇形成技术+市场的互补格局。
 
-目前，现场已完成危险区划定，设立了警示标识及警戒线，已组织潜在受威胁群众44户130人紧急转移安置，已联系专业施工队伍赶赴现场开展排险及危岩清理工作。
+从战略层面来看，千里科技董事长印奇侧重于把握AI科技的战略方向，赵明则重点推进AI商业模式的闭环战略，牵引技术向市场转化。
 
-(总台记者 廖汨 陈小鹏)
+资料显示，千里科技前身为重庆民营企业代表力帆科技，目前聚焦“AI+车”核心战略，致力于打造面向全球市场的智能出行科技品牌。
+
+2025年3月，吉利控股行政总裁桂生悦表示，吉利要与千里科技一起打造“第二个华为”，只有这样，吉利才可能在未来的智能化、自动驾驶方面取得领先。
 
 ## 相关推荐
 
-- 2026-06-29 12:05 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:16 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:04 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:12 - [破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:08 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:00 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:03 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:21 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:11 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:18 - [泰国央行维持关键利率不变 以抵御油价对经济的冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:29 - [全国首单银行间市场消费类定向资产支持票据发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:25 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:23 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:10 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:13 - [如何看待中方叫停Manus并购案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:07 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:24 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:14 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:21 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:15 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:35 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:15 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:26 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:16 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:28 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:23 - [崖沙燕“如约”重返永定河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [民政部：着力推进普惠性、基础性、兜底性民生建设](http://www.share.kurohicncr.top/Article/details/98528613134.shtml)
-- 2026-06-29 12:14 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](http://www.blog.minike.top/Article/details/99425656.shtml)
-- 2026-06-29 12:07 - [2026年度丽江海关部门预算公开](http://www.share.minike.top/Article/details/57193.shtml)
-- 2026-06-29 12:28 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](http://www.share.minike.top/Article/details/1585672.shtml)
-- 2026-06-29 12:27 - [重庆秀山：烟雨“边城” 古韵映春](http://www.share.minike.top/Article/details/124517.shtml)
-- 2026-06-29 12:29 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](http://www.share.minike.top/Article/details/581368463249.shtml)
-- 2026-06-29 12:21 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](http://www.blog.kurohicncr.top/Article/details/08554.shtml)
-- 2026-06-29 12:11 - [韩国宣布与Google DeepMind建立合作](http://www.blog.kurohicncr.top/Article/details/39356151451.shtml)
-- 2026-06-29 12:20 - [光大期货：4月28日金融日报](http://www.blog.kurohicncr.top/Article/details/410663.shtml)
-- 2026-06-29 12:27 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](http://www.blog.minike.top/Article/details/48091371.shtml)
-- 2026-06-29 12:07 - [深入学习贯彻习近平总书记在庆祝中华全国总工会成立100周年暨全国劳动模范和先进工作者表彰大会上的重要讲话精神理论研讨会在京举行](http://www.blog.minike.top/Article/details/49599333886.shtml)
-- 2026-06-29 12:07 - [华盛顿发生两起枪击事件](http://www.blog.minike.top/Article/details/6996685434.shtml)
-- 2026-06-29 12:03 - [中国航发燃机双项目同日点火成功 为海油增气上产注入强劲动力](http://www.share.minike.top/Article/details/63614203150.shtml)
-- 2026-06-29 12:10 - [日本多名议员参拜靖国神社 中方回应：公然严重践踏历史正义](http://www.share.minike.top/Article/details/901019.shtml)
-- 2026-06-29 12:03 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [波音季度亏损收窄，股价早盘上涨4.5%](http://www.blog.kurohicncr.top/Article/details/577087209.shtml)
+- 2026-06-29 12:17 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](http://www.share.kurohicncr.top/Article/details/81278.shtml)
+- 2026-06-29 12:12 - [重庆今年一季度离境退税实退税额同比增长1倍](http://www.blog.kurohicncr.top/Article/details/62496787.shtml)
+- 2026-06-29 12:28 - [一见·世界地球日，看“赋能型大国”的绿色担当](http://www.share.minike.top/Article/details/470295702.shtml)
+- 2026-06-29 12:21 - [Revolut目标估值2000亿美元，IPO计划初具雏形](http://www.share.minike.top/Article/details/43092497.shtml)
+- 2026-06-29 12:20 - [美国多家航空公司面临燃油压力](http://www.share.minike.top/Article/details/74878146331.shtml)
+- 2026-06-29 12:23 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](http://www.blog.kurohicncr.top/Article/details/456695504931.shtml)
+- 2026-06-29 12:18 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](http://www.share.minike.top/Article/details/21587.shtml)
+- 2026-06-29 12:26 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](http://www.blog.kurohicncr.top/Article/details/986184.shtml)
+- 2026-06-29 12:23 - [美国国家安全局被曝使用Anthropic受限模型](http://www.share.kurohicncr.top/Article/details/602004.shtml)
+- 2026-06-29 12:20 - [浙江进入汛期以来首次区域性强降雨过程](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [金埔园林2025年度归母净利润亏损约2.41亿元](http://www.share.kurohicncr.top/Article/details/76488628.shtml)
+- 2026-06-29 12:12 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](http://www.blog.minike.top/Article/details/90258.shtml)
+- 2026-06-29 12:31 - [从承诺到行动 多方共议以多边合作引领可持续发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [特朗普：美伊第二轮谈判最快或于周五举行](http://www.blog.minike.top/Article/details/977364.shtml)

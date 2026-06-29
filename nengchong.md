@@ -1,59 +1,50 @@
-# 挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境
+# 特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。挪威驻华大使戴伟恩（H.E． Vebjørn Dysvik）表示，当前世界面临诸多挑战，但担忧不能成为政策策略的全部，更需推动局势向积极方向发展。 他提到， 挪威支持和保护贸易相关的移动平台工具。挪威是开放经济体，受益于全球化，与北欧国家和欧盟共享共同价值观
+中新网4月22日电 美国总统特朗普21日在社交媒体发表声明称，将延长同伊朗的停火期限，直至伊朗方面提交其方案并完成相关磋商。 特朗普在声明中表示，伊朗政府“内部已严重分裂”，并称在巴基斯坦陆军参谋长及总理的请求下，“我们被要求暂缓对伊朗发动进攻，直至其领导人及代表能够拿出一份意见一致的方案”。 特朗普说，他已指示美军继续维持对伊朗港口的海上交通封锁，并保持战备状态，同时，他将延
 
 ## 正文
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
+中新网4月22日电 美国总统特朗普21日在社交媒体发表声明称，将延长同伊朗的停火期限，直至伊朗方面提交其方案并完成相关磋商。
 
-挪威驻华大使戴伟恩（H.E． Vebjørn Dysvik）表示，当前世界面临诸多挑战，但担忧不能成为政策策略的全部，更需推动局势向积极方向发展。
+特朗普在声明中表示，伊朗政府“内部已严重分裂”，并称在巴基斯坦陆军参谋长及总理的请求下，“我们被要求暂缓对伊朗发动进攻，直至其领导人及代表能够拿出一份意见一致的方案”。
 
-他提到， 挪威支持和保护贸易相关的移动平台工具。
-
-挪威是开放经济体，受益于全球化，与北欧国家和欧盟共享共同价值观和利益，通过欧洲经济区开展合作。
-
-“我们与中国一样，重视维护基于规则的全球贸易体系。
-
-” 他呼吁到，未来，要为发达经济体和发展中国家创造更公平的竞争环境，审视补贴、产业政策和物价稳定等问题，同时完善安全措施。
-
-既要维护现有全球贸易体系，也要推动其现代化，制定规则应对新挑战，需要各成员作出新的、修订后的承诺，重申对核心价值观的坚守。
-
-“应对全球挑战需要集体解决方案，尊重国际法、遵守共同规则的组织，是欧中关系新篇章的关键。
+特朗普说，他已指示美军继续维持对伊朗港口的海上交通封锁，并保持战备状态，同时，他将延长停火，直至伊朗方面提交其方案并完成相关磋商。
 
 ## 相关推荐
 
-- 2026-06-29 12:00 - [港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:01 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:06 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:06 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:21 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:29 - [一季度生态成绩单亮眼，高质量发展绿意盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:20 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:10 - [普京称西方正将领导地位让位于全球南方国家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:03 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:28 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:01 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:22 - [破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:10 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:08 - [300883，连亏三年后，一季度又亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:11 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:09 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:11 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:28 - [2026年广东省行业企业职业技能竞赛计划发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:20 - [多支欧洲足球劲旅将于8月会师香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:32 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:11 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:31 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:34 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:35 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:27 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:13 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:12 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:20 - [促进高质量充分就业 多项政策出台](http://www.share.minike.top/Article/details/27285480832.shtml)
-- 2026-06-29 12:18 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](http://www.share.minike.top/Article/details/60634560.shtml)
-- 2026-06-29 12:16 - [中天策略:4月28日市场分析](http://www.blog.minike.top/Article/details/30695936176.shtml)
-- 2026-06-29 12:27 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](http://www.share.kurohicncr.top/Article/details/6395591.shtml)
-- 2026-06-29 12:29 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](http://www.blog.minike.top/Article/details/3034699136.shtml)
-- 2026-06-29 12:25 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](http://www.share.minike.top/Article/details/692985.shtml)
-- 2026-06-29 12:14 - [商务部：2026年1-3月我国电子商务持续平稳发展](http://www.share.minike.top/Article/details/16812938715.shtml)
-- 2026-06-29 12:00 - [民政部：着力推进普惠性、基础性、兜底性民生建设](http://www.blog.kurohicncr.top/Article/details/96193692549.shtml)
-- 2026-06-29 12:26 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](http://www.blog.minike.top/Article/details/10914926.shtml)
-- 2026-06-29 12:10 - [2026年度丽江海关部门预算公开](http://www.blog.minike.top/Article/details/6156670433.shtml)
-- 2026-06-29 12:27 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](http://www.blog.minike.top/Article/details/170538547369.shtml)
-- 2026-06-29 12:17 - [重庆秀山：烟雨“边城” 古韵映春](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](http://www.blog.kurohicncr.top/Article/details/11691114.shtml)
-- 2026-06-29 12:08 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](http://www.blog.minike.top/Article/details/63546.shtml)
+- 2026-06-29 12:25 - [摩根士丹利策略师：地缘政治动荡往往创造良好买入机会](http://www.blog.minike.top/Article/details/964549254713.shtml)
+- 2026-06-29 12:09 - [为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元](http://www.blog.kurohicncr.top/Article/details/0038785.shtml)
+- 2026-06-29 12:21 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](http://www.blog.minike.top/Article/details/67011076762.shtml)
+- 2026-06-29 12:11 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](http://www.share.minike.top/Article/details/76453278793.shtml)
+- 2026-06-29 12:26 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](http://www.blog.kurohicncr.top/Article/details/21466578612.shtml)
+- 2026-06-29 12:09 - [高雅光学公布于4月23日上午起停牌](http://www.share.kurohicncr.top/Article/details/5757417.shtml)
+- 2026-06-29 12:25 - [波音季度亏损收窄，股价早盘上涨4.5%](http://www.share.minike.top/Article/details/10248.shtml)
+- 2026-06-29 12:07 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](http://www.share.kurohicncr.top/Article/details/86322885.shtml)
+- 2026-06-29 12:32 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [一见·世界地球日，看“赋能型大国”的绿色担当](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [美国多家航空公司面临燃油压力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](http://www.blog.kurohicncr.top/Article/details/26368.shtml)

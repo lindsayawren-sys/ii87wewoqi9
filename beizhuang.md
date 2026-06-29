@@ -1,61 +1,61 @@
-# 央行上海总部：境内居民、境外旅客可使用银行卡在上海地铁刷卡过闸
+# 针对日本可能存在强震风险 中国驻日使馆发布提醒
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-4月28日，中国人民银行上海总部召开2026年第二季度新闻发布会，介绍今年一季度上海金融运行情况。央行上海总部金融服务一部副主任辛然在回答澎湃新闻提问时表示，人民银行上海总部在巩固、优化已有工作成果的基础上，积极探索、持续发力，组织各支付服务主体结合上海市提振消费、促进入境旅游等重点工作部署，进一步完善重点场景支付受理环境。 一是成功在上海地铁试点上线刷卡过闸功能。试点以来至2
+中新网4月22日电 据中国驻日本大使馆22日发布的消息，日本是地震多发国家，每年发生2000次以上有感地震，地震发生时间、地点、震级具有较大随机性，难以精确预测。 4月20日，日本岩手县东部三陆冲海域发生7.7级地震，日本气象厅已发布“北海道·三陆冲后发地震注意信息”，提醒北海道、青森县、岩手县、宫城县、福岛县、茨城县、千叶县等7个地区居民一周内注意防范强烈地震。中国驻日本大使
 
 ## 正文
 
-4月28日，中国人民银行上海总部召开2026年第二季度新闻发布会，介绍今年一季度上海金融运行情况。
+中新网4月22日电 据中国驻日本大使馆22日发布的消息，日本是地震多发国家，每年发生2000次以上有感地震，地震发生时间、地点、震级具有较大随机性，难以精确预测。
 
-央行上海总部金融服务一部副主任辛然在回答澎湃新闻提问时表示，人民银行上海总部在巩固、优化已有工作成果的基础上，积极探索、持续发力，组织各支付服务主体结合上海市提振消费、促进入境旅游等重点工作部署，进一步完善重点场景支付受理环境。
+4月20日，日本岩手县东部三陆冲海域发生7.7级地震，日本气象厅已发布“北海道·三陆冲后发地震注意信息”，提醒北海道、青森县、岩手县、宫城县、福岛县、茨城县、千叶县等7个地区居民一周内注意防范强烈地震。
 
-一是成功在上海地铁试点上线刷卡过闸功能。
+中国驻日本大使馆提醒中国公民近期避免前往日本，提醒已在日中国公民，特别是新近来日人员加强地震灾害应急防范。
 
-试点以来至2026年3月末，上海轨道交通全线网累计发生刷卡过闸交易160万余笔、金额超700万元。
+一、做好日常防灾备灾。
 
-辛然表示，上海总部会同市委金融办分别协调人民银行数字货币数研所、中国银联、主要国际卡组织、主要银行和申通地铁全力推进上海地铁刷卡过闸项目，2025年6月14日推动在上海磁浮线试点上线银行卡及数字人民币硬钱包刷卡过闸功能，2025年6月28日，试点扩大至上海轨道交通全线网，境内居民、境外旅客等可以使用银联、Visa、Mastercard、American Express、JCB银行卡和数字人民币硬钱包在上海地铁刷卡过闸。
+日本法律规定，1981年6月以后建造的建筑物须可抵御烈度6强地震不倒塌。
 
-二是有效提升离境退税“即买即退”支付服务质效。
+地震多数伤亡由屋内倾倒物品引起，建议为书架、衣柜、电视、电脑等易晃易倒物品加装固定件、防倒件；提前确认附近避难场所信息，适当储备饮用水、食品、安全帽、口哨等应急物资。
 
-为改善外籍来沪人员购物和退税体验，央行上海总部联合市商务委、市税务局等指导相关机构积极探索优化离境退税“即买即退”支付服务。
+二、掌握基本避险技能。
 
-具体来说，一是指导支付宝公司等于2025年6月创新推出离境退税扫码退付服务，境外旅客购买退税商品后可使用支付宝“碰一下”“扫一下”实现快速退税；自上线以来至2026年3月末，上海市累计发生扫码退付交易1000余笔，实退税额超50万元。
+地震发生时，应保持冷静，就地避险，选择坚固家具旁或承重墙角躲避，远离玻璃、吊灯等易坠物品。
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [东方甄选股权激励！300名员工人均获授市值141万元股份，俞敏洪超4400万元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:27 - [美国流行音乐天后“霉霉”申请注册其声音和肖像商标，以抵御AI深度伪造技术侵害](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:07 - [磷石膏废弃物还能建房子？九三学社调研带你看从废渣到宝藏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:09 - [梁文锋增持DeepSeek 持股比例大幅上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:16 - [A股极致分化，创业板失守3600点，医疗等板块走强| 华宝基金3A日报（2026.4.28）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:13 - [美国7年期国债中标收益率略高于发行前交易水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:21 - [OpenAI增长失速冲击AI板块：超大规模资本支出模式遭遇“信任危机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:23 - [第二届西南农资骨干流通走廊建设推进大会在重庆涪陵举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:11 - [英伟达股价下跌，公司正继续在美国以外增加产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:24 - [美国能源部长：霍尔木兹海峡无需清除所有水雷也可以开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:16 - [消费者信心疲软致达美乐披萨销量增长停滞，股价承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:27 - [中国首个脑机接口本科专业在天津大学设立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:24 - [司机月收入跌破2000元、聚合平台流量费连涨 T3出行难破网约车港股“破发魔咒”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:21 - [五粮液开盘最高跌超3%，股价跌破100元，创6年新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:00 - [中天期货:焦煤持续震荡 橡胶震荡上行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:34 - [特朗普政府拟周三调整大麻管制分级，概念股集体飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:14 - [孟买天际线之战：亿万富翁的“云端豪宅”与城市的“生存空间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:09 - [假冒官员诱骗内地留学生返港买金粒，3男被捕涉款700万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:27 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:17 - [刚买就亏，银行理财不香了？年内超40只产品发行失败，有固收理财近1月年化回报低至-10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:14 - [比特币较2月份低点上涨超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:31 - [雪佛龙得州炼油厂发生原油泄漏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:30 - [大宗商品综述：原油上涨 铜和黄金下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:21 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:13 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:06 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:09 - [百思买任命杰森・邦菲格为新任CEO，将于10 月底接替巴里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:12 - [《三体》之后，下一个“破圈”之作在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:17 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:17 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:11 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](http://www.blog.minike.top/Article/details/28499594166.shtml)
-- 2026-06-29 12:25 - [深化中国—东盟经贸合作 专家提十大建议](http://www.share.kurohicncr.top/Article/details/479438.shtml)
-- 2026-06-29 12:24 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](http://www.share.minike.top/Article/details/66057.shtml)
-- 2026-06-29 12:08 - [千年晋祠难老泉高位复流 带动周边产业焕新生](http://www.share.minike.top/Article/details/37710578176.shtml)
-- 2026-06-29 12:25 - [一江清水向东流——凝心聚力共绘长江发展新画卷](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](http://www.share.kurohicncr.top/Article/details/65826744.shtml)
-- 2026-06-29 12:01 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](http://www.share.minike.top/Article/details/345547426.shtml)
-- 2026-06-29 12:09 - [四川蓝莓首次出口](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](http://www.blog.minike.top/Article/details/13351433487.shtml)
-- 2026-06-29 12:14 - [中钢协：积极开展产能治理、产量调控、行业自律](http://www.share.minike.top/Article/details/57270262749.shtml)
-- 2026-06-29 12:17 - [中国选手赵一程亚沙会“双喜临门”：刷新世界纪录 夺得冠军](http://www.blog.minike.top/Article/details/6353972952.shtml)
-- 2026-06-29 12:24 - [快乐出行不“掉坑”，这份网络安全指南请查收！](http://www.blog.kurohicncr.top/Article/details/49519.shtml)
-- 2026-06-29 12:02 - [企鹅兰登书屋母公司贝塔斯曼，将旗下音乐部门与康科德集团合并](http://www.share.kurohicncr.top/Article/details/96135473782.shtml)
-- 2026-06-29 12:17 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](http://www.share.kurohicncr.top/Article/details/09294.shtml)
-- 2026-06-29 12:16 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](http://www.blog.kurohicncr.top/Article/details/85223.shtml)
+- 2026-06-29 12:15 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](http://www.blog.kurohicncr.top/Article/details/0938696.shtml)
+- 2026-06-29 12:12 - [库克时代落幕，苹果新帅面临AI关键战役](http://www.share.kurohicncr.top/Article/details/6587589027.shtml)
+- 2026-06-29 12:18 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](http://www.blog.minike.top/Article/details/9151744866.shtml)
+- 2026-06-29 12:15 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](http://www.blog.kurohicncr.top/Article/details/00225562177.shtml)
+- 2026-06-29 12:20 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](http://www.blog.minike.top/Article/details/783820.shtml)
+- 2026-06-29 12:15 - [聚焦人工智能应用 印尼教育界人士来鄂研修](http://www.blog.kurohicncr.top/Article/details/66684754295.shtml)
+- 2026-06-29 12:27 - [苹果换帅时机或预示财报利好，分析师看好短期表现](http://www.share.kurohicncr.top/Article/details/42555.shtml)
+- 2026-06-29 12:29 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](http://www.blog.minike.top/Article/details/5496746.shtml)
+- 2026-06-29 12:07 - [中国隧道连续皮带机首次出口西班牙](http://www.blog.kurohicncr.top/Article/details/64144283.shtml)
+- 2026-06-29 12:07 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](http://www.blog.kurohicncr.top/Article/details/2621100.shtml)
+- 2026-06-29 12:32 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [德国电信据悉考虑与T-Mobile US进行全面合并](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [中国海军以最高礼仪迎接烈士遗骸回国](http://www.share.kurohicncr.top/Article/details/044157.shtml)
+- 2026-06-29 12:34 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](http://www.blog.minike.top/Article/details/781962047.shtml)

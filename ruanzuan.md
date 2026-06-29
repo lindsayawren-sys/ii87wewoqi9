@@ -1,58 +1,58 @@
-# “0糖”饮料不含糖？东鹏特饮被骂冤不冤
+# 儿童打击乐音乐剧《花木兰》用中国审美呈现经典IP的民族特色
 
-> 更新时间：2026-06-29 12:30:04 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 22:31 来源：中国新闻网 近日，东鹏特饮“0糖”实为注册商标的消息登上热搜，引发热议。全糖的写0脂，全脂的写0糖。有媒体检索发现，东鹏饮料(集团)股份有限公司已申请注册多枚“东鹏0糖”“东鹏0糖特饮”“0糖特饮”商标，国际分类涉及啤酒饮料、运输工具、健身器材等，目前部分商标已注册成功。商标本是企业的信誉符号，如今却被异化为文字迷宫。对于近一
+中新网北京4月22日电 (记者 应妮)作为中国儿童艺术剧院建院70周年展演季的启幕大戏，儿童打击乐音乐剧《花木兰》将于4月25日至5月17日在中国儿童剧场开启首轮18场演出。 “花木兰”是家喻户晓的经典IP，该剧首次将打击乐与音乐剧结合，通过鲜活的人物塑造，趣味化的舞台表达，打造合家欢的艺术体验。 导演毛尔南在二度创作时，为经典故事注入了鲜活的新力量。他认为花木兰的故事所蕴含的
 
 ## 正文
 
-发布时间：2026年04月27日 22:31 来源：中国新闻网 近日，东鹏特饮“0糖”实为注册商标的消息登上热搜，引发热议。
+中新网北京4月22日电 (记者 应妮)作为中国儿童艺术剧院建院70周年展演季的启幕大戏，儿童打击乐音乐剧《花木兰》将于4月25日至5月17日在中国儿童剧场开启首轮18场演出。
 
-全糖的写0脂，全脂的写0糖。
+“花木兰”是家喻户晓的经典IP，该剧首次将打击乐与音乐剧结合，通过鲜活的人物塑造，趣味化的舞台表达，打造合家欢的艺术体验。
 
-有媒体检索发现，东鹏饮料(集团)股份有限公司已申请注册多枚“东鹏0糖”“东鹏0糖特饮”“0糖特饮”商标，国际分类涉及啤酒饮料、运输工具、健身器材等，目前部分商标已注册成功。
+导演毛尔南在二度创作时，为经典故事注入了鲜活的新力量。
 
-商标本是企业的信誉符号，如今却被异化为文字迷宫。
+他认为花木兰的故事所蕴含的，从来不只是替父从军的忠孝大义，更是一场少年寻找自我、追寻自我、认识自我的成长冒险。
 
-对于近一段时间“心机商标”引起的关注，国家知识产权局23日也表示，正在采取有力措施进行专项整治，以“零容忍”的态度坚决处置以虚假描述方式欺骗误导公众违规使用的注册商标，与市场监管部门联动加强对“心机商标”的执法打击力度。
+“人生在不断成长中，如果失去了勇敢，也有可能会失去自我。
 
-治理“心机商标”，不能只靠消费者擦亮眼睛和监管亮剑，企业更应当自省。
+所以我们在剧中对这个主题进行了深入探索。
 
-(民生调查局) 责任编辑：【程春雨】
+同时，我们把《木兰辞》融入剧目，进行了贯穿表达，也是对中华传统文化的致敬。
+
+” 对儿童而言，打击乐是打开音乐世界的钥匙，是最易上手且受喜爱的音乐形式之一。
 
 ## 相关推荐
 
-- 2026-06-29 12:20 - [中新健康｜查出肺结节怎么办？医生教你看懂CT报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:21 - [硬核！海军大连舰艇学院原创MV《勇心破浪峰》超燃发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:18 - [央行上海总部：境内居民、境外旅客可使用银行卡在上海地铁刷卡过闸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:07 - [东珠生态2025年报“变脸”：营收骤降至2.9亿触发退市风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:10 - [利欧股份（002131）涉嫌信披违规 受损股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:02 - [机器人产业爆发前夜，机器人ETF华夏（562500）或许是布局这一轮科技革命的最优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:18 - [末局逆转！成都AG夺得2026PEL春季赛总决赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:21 - [韩国综合股价指数开盘下跌0.3% 日股休市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:16 - [招股书曾写错毛利，微脉二闯港交所：AI医疗故事背后，三年亏超6亿 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:13 - [东方甄选股权激励！300名员工人均获授市值141万元股份，俞敏洪超4400万元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:26 - [美国流行音乐天后“霉霉”申请注册其声音和肖像商标，以抵御AI深度伪造技术侵害](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:09 - [磷石膏废弃物还能建房子？九三学社调研带你看从废渣到宝藏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:22 - [梁文锋增持DeepSeek 持股比例大幅上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:24 - [A股极致分化，创业板失守3600点，医疗等板块走强| 华宝基金3A日报（2026.4.28）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:22 - [德国政府大幅下调2026年经济增长预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:17 - [原创图像小说《雪鹿》入选2025年度“中国好书”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:31 - [针对日本可能存在强震风险 中国驻日使馆发布提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:08 - [万亿中原银行董事长、行长同一天换人！三类行业贷款不良率超5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:32 - [美政府警告：数周内机场安检员工资资金即将耗尽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:22 - [优必选伺服驱动器专利荣获广东专利金奖，助力人形机器人迈入量产商业化时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:24 - [“6.0%”的浙江看点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:34 - [沃什听证会高能：被骂“提线木偶”、怒批美联储迷失、否认向特朗普承诺降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:22 - [近期降雨过程范围广、雨势强 多部门会商部署防汛抢险救灾工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:09 - [特朗普政府拟周三调整大麻管制分级，概念股集体飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:14 - [孟买天际线之战：亿万富翁的“云端豪宅”与城市的“生存空间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:16 - [假冒官员诱骗内地留学生返港买金粒，3男被捕涉款700万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [北美与欧洲增长放缓，Spotify Q2利润指引不及预期](http://www.blog.minike.top/Article/details/591800.shtml)
-- 2026-06-29 12:20 - [城堡证券高管称伊朗冲突风险消退 股债市场有望同步上涨](http://www.share.minike.top/Article/details/55760084881.shtml)
-- 2026-06-29 12:16 - [酒价内参4月29日价格发布：五粮液1618保持不变](http://www.share.kurohicncr.top/Article/details/881001.shtml)
-- 2026-06-29 12:18 - [爱奇艺的“AI赌局”：当降本逻辑撞上内容本质](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [中国国家文化产业拟向周星驰等认购方发行合共4680万份认股权证](http://www.blog.minike.top/Article/details/47873427437.shtml)
-- 2026-06-29 12:02 - [银行理财子加速“扫货”权益市场，打新报价量两月激增近九成](http://www.blog.kurohicncr.top/Article/details/726739392.shtml)
-- 2026-06-29 12:25 - [【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料](http://www.share.minike.top/Article/details/933261.shtml)
-- 2026-06-29 12:24 - [转让底价6573万元，华泰保险集团880万股股份再度挂牌](http://www.share.kurohicncr.top/Article/details/87645213.shtml)
-- 2026-06-29 12:07 - [翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局](http://www.blog.minike.top/Article/details/79640068.shtml)
-- 2026-06-29 12:26 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](http://www.blog.minike.top/Article/details/7768038462.shtml)
-- 2026-06-29 12:16 - [深化中国—东盟经贸合作 专家提十大建议](http://www.blog.minike.top/Article/details/840657316118.shtml)
-- 2026-06-29 12:12 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](http://www.blog.kurohicncr.top/Article/details/2401610.shtml)
-- 2026-06-29 12:24 - [千年晋祠难老泉高位复流 带动周边产业焕新生](http://www.share.minike.top/Article/details/470331653.shtml)
-- 2026-06-29 12:13 - [一江清水向东流——凝心聚力共绘长江发展新画卷](http://www.share.minike.top/Article/details/9991505.shtml)
-- 2026-06-29 12:08 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](http://www.share.kurohicncr.top/Article/details/6935319.shtml)
+- 2026-06-29 12:32 - [SEC警示私募信贷“新兴压力”，监管风暴山雨欲来](http://www.share.minike.top/Article/details/6219275608.shtml)
+- 2026-06-29 12:20 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [“护苗”典型案例｜非法印制并销售侵权盗版中小学教辅](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](http://www.blog.kurohicncr.top/Article/details/148634178.shtml)
+- 2026-06-29 12:22 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](http://www.blog.kurohicncr.top/Article/details/812797650779.shtml)
+- 2026-06-29 12:18 - [外国游客打卡西藏拉萨布达拉宫广场](http://www.blog.minike.top/Article/details/637333.shtml)
+- 2026-06-29 12:15 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](http://www.blog.minike.top/Article/details/1735624525.shtml)
+- 2026-06-29 12:17 - [王毅出席全球共享发展行动论坛第三届高级别会议](http://www.blog.minike.top/Article/details/037171089.shtml)
+- 2026-06-29 12:21 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](http://www.share.minike.top/Article/details/131399366093.shtml)
+- 2026-06-29 12:25 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [库克时代落幕，苹果新帅面临AI关键战役](http://www.share.minike.top/Article/details/80717407520.shtml)
+- 2026-06-29 12:12 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](http://www.blog.kurohicncr.top/Article/details/2162619555.shtml)

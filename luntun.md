@@ -1,58 +1,61 @@
-# 四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元
+# 瑞典大瀑布电力退出苏格兰浮式风电项目
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-四只获批，商业不动产REITs要来了！ 来源：金融时报 近日，证监会网站披露准予4只商业不动产REITs注册的批复，我国公募REITs市场再迈出坚实一步。 具体来看，4只获批产品分别为中金唯品会封闭式商业不动产证券投资基金、汇添富上海地产封闭式商业不动产证券投资基金、国泰海通砂之船封闭式商业不动产证券投资基金和中信建投首农食品集团封闭式商业不动产证券投资基金，募资规模预计合计1
+瑞典大瀑布电力公司与弗雷德·奥尔森海洋风电公司已达成协议，弗雷德·奥尔森海洋风电公司将全资收购位于苏格兰的Muir Mhòr浮式海上风电项目。 这一变更将通过股份出售方式执行，大瀑布电力公司将其持有的股份出售给其合资伙伴，交易尚需获得包括苏格兰皇家地产局批准在内的监管许可。 该项目位于彼得黑德海岸约63公里处，在获得包括海上批准在内的剩余开发许可的前提下，将继续按计划推进。两家
 
 ## 正文
 
-四只获批，商业不动产REITs要来了！
+瑞典大瀑布电力公司与弗雷德·奥尔森海洋风电公司已达成协议，弗雷德·奥尔森海洋风电公司将全资收购位于苏格兰的Muir Mhòr浮式海上风电项目。
 
-来源：金融时报 近日，证监会网站披露准予4只商业不动产REITs注册的批复，我国公募REITs市场再迈出坚实一步。
+这一变更将通过股份出售方式执行，大瀑布电力公司将其持有的股份出售给其合资伙伴，交易尚需获得包括苏格兰皇家地产局批准在内的监管许可。
 
-具体来看，4只获批产品分别为中金唯品会封闭式商业不动产证券投资基金、汇添富上海地产封闭式商业不动产证券投资基金、国泰海通砂之船封闭式商业不动产证券投资基金和中信建投首农食品集团封闭式商业不动产证券投资基金，募资规模预计合计145.18亿元。
+该项目位于彼得黑德海岸约63公里处，在获得包括海上批准在内的剩余开发许可的前提下，将继续按计划推进。
 
-与此同时，还有多只REITs产品正在推进审核注册工作。
+两家公司表示，此次所有权变更旨在支持项目的开发，并使其能够参与早期分配轮次。
 
-据《金融时报》记者统计，截至目前，全市场已受理17只商业不动产REITs，参与方既有央国企，也涵盖外资企业、民企等主体，其中9只产品已答复反馈意见，正在稳步推进中。
+Muir Mhòr项目规划装机容量高达1吉瓦，是苏格兰最早期的商业化规模浮式海上风电项目之一。
 
-根据相关规定，前述四只REITs产品在完成发售前准备和网下询价与定价后，即可正式向投资者公开发售。
+预计在2030年代初投入运营后，可为约120万户家庭供电。
 
-中信证券基础设施和现代服务产业首席分析师陈聪预计，二季度开始，商业不动产REITs有望挂牌上市。
+该项目在2022年ScotWind租赁轮次中获得了海床使用权，并于2025年获得了陆上许可。
 
-商业不动产REITs推出所带来的发行规模增长，将有助于繁荣整个市场生态，推动增量资金入市。
+大瀑布电力公司表示，此举反映了其投资组合的优先事项，公司将专注于其他海上风电项目，包括德国的Nordlicht I和II以及荷兰的Zeevonk。
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [穿越机视角领略婺源“江南第一奇谷”飞瀑景观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:25 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:08 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:19 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:19 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:10 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:07 - [指数级增长 2025年我国词元调用量约21100万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:29 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:19 - [中共中央政治局会议要点对比及解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:16 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:23 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:29 - [谷歌员工反对将AI用于机密任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:33 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:23 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:13 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:32 - [梁玉宁：中文与诗歌是中华文明的重要载体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:09 - [美国海军部长约翰·费伦将离职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:32 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:15 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:26 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:28 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:34 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:27 - [一季度长三角地区出口合计占全国41%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:16 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:30 - [酒钢宏兴：2025年净亏损19.98亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:09 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:23 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:22 - [长护险全国推开后，普惠保险如何补上“保基本”之外的缺口？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [蒋某某故意杀人、强奸案一审宣判](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [助力打造内陆开放高地 重庆涉外律所已达81家](http://www.blog.kurohicncr.top/Article/details/666049.shtml)
-- 2026-06-29 12:18 - [光大期货：4月28日能源化工日报](http://www.share.kurohicncr.top/Article/details/8118137.shtml)
-- 2026-06-29 12:25 - [中国国内首个Pre6G试验网在南京投运 6G商用进入提速通道](http://www.share.kurohicncr.top/Article/details/69255120780.shtml)
-- 2026-06-29 12:17 - [大摩：宁德时代维持“与大市同步”评级 目标价上调至695港元](http://www.share.kurohicncr.top/Article/details/110951525.shtml)
-- 2026-06-29 12:01 - [战争催生非洲能源新前沿：投资者竞相填补燃料缺口](http://www.share.kurohicncr.top/Article/details/27332891086.shtml)
-- 2026-06-29 12:23 - [河南两项目入选2025年度全国十大考古新发现](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [ATF:美国消费者信心今晚登场 美元黄金与美股或迎来方向测试](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [2026本科专业“上新”，“新”在何处？](http://www.share.kurohicncr.top/Article/details/897357755849.shtml)
-- 2026-06-29 12:15 - [外媒：阿富汗遭巴基斯坦导弹袭击，造成3人死亡、45人受伤](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [亿缕阳光｜治愈的瞬间](http://www.blog.kurohicncr.top/Article/details/239159538.shtml)
-- 2026-06-29 12:23 - [2026年孟连海关部门预算公开](http://www.blog.minike.top/Article/details/434767601995.shtml)
-- 2026-06-29 12:05 - [东珠生态（603359）投资者索赔分析](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [香港引入首辆飞机专用重型电拖车](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [一季度江西外贸进出口增长16% 汽车出口大增](http://www.share.minike.top/Article/details/59217.shtml)
+- 2026-06-29 12:06 - [中超第七轮：上海海港不敌黑马新军 北京国安绝杀深圳新鹏城](http://www.blog.minike.top/Article/details/119201180.shtml)
+- 2026-06-29 12:27 - [马克龙访问波兰 聚焦法波防务及核能合作](http://www.blog.kurohicncr.top/Article/details/584546.shtml)
+- 2026-06-29 12:14 - [Vatee万腾:中部走廊战略价值分析](http://www.share.minike.top/Article/details/2194351.shtml)
+- 2026-06-29 12:31 - [莫桑比克总统：感谢中国的热情款待 期待莫中关系迈上新台阶](http://www.blog.kurohicncr.top/Article/details/386748640.shtml)
+- 2026-06-29 12:16 - [花旗：德昌电机控股维持“中性”评级 目标价32港元](http://www.share.kurohicncr.top/Article/details/784549103.shtml)
+- 2026-06-29 12:19 - [14560.35%涨幅背后：天孚通信为何成为光通信赛道焦点](http://www.share.minike.top/Article/details/8731770.shtml)
+- 2026-06-29 12:08 - [苹果候任CEO特努斯：苹果将“再次改变世界”](http://www.share.kurohicncr.top/Article/details/323881.shtml)
+- 2026-06-29 12:11 - [登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中](http://www.share.minike.top/Article/details/19115.shtml)
+- 2026-06-29 12:19 - [确定！方一天出任华安基金党委副书记，获提名总经理](http://www.share.minike.top/Article/details/661947.shtml)
+- 2026-06-29 12:11 - [【这个城市有点潮】宿迁：在“项王故里”邂逅水韵柔情](http://www.share.minike.top/Article/details/6998486.shtml)
+- 2026-06-29 12:27 - [一笔一笔走近你](http://www.blog.kurohicncr.top/Article/details/88919.shtml)
+- 2026-06-29 12:25 - [伊朗否认举行美伊新谈判 指特朗普“又说谎了”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [欧洲股市小幅走高，市场陷入“观望停滞状态”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [西门子数字化工业集团CEO：人工智能助力西门子深化与中国合作](http://www.share.minike.top/Article/details/265624.shtml)

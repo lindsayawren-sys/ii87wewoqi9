@@ -1,59 +1,61 @@
-# 韩国宣布与Google DeepMind建立合作
+# 广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-韩国政府周一表示，已与谷歌旗下人工智能研究实验室Google DeepMind建立合作，共同推进以人工智能为主导的科技创新项目。 韩国科学技术信息通信部称，该部当天在首尔与Google DeepMind首席执行官兼联合创始人德米斯·哈萨比斯签署了谅解备忘录（MOU）。 Google DeepMind以其开发的AI程序AlphaGo而闻名。2016年，AlphaGo在首尔以五局击
+中新网广州4月22日电 (记者 程景伟)广东省2026年“全民阅读活动周”启动仪式22日在广州白鹅潭大湾区艺术中心举行。作为本次启动仪式的重要环节，广东全民经典阅读大赛宣布正式启动。 作为广东推动全民阅读、建设书香社会的重要举措，广东全民经典阅读大赛以“粤读粤精彩”为主题，由广东省委教育工作领导小组、广东全民终身学习平台主办，广东省委宣传部牵头。大赛秉持“全民参与”宗旨，创新“
 
 ## 正文
 
-韩国政府周一表示，已与谷歌旗下人工智能研究实验室Google DeepMind建立合作，共同推进以人工智能为主导的科技创新项目。
+中新网广州4月22日电 (记者 程景伟)广东省2026年“全民阅读活动周”启动仪式22日在广州白鹅潭大湾区艺术中心举行。
 
-韩国科学技术信息通信部称，该部当天在首尔与Google DeepMind首席执行官兼联合创始人德米斯·哈萨比斯签署了谅解备忘录（MOU）。
+作为本次启动仪式的重要环节，广东全民经典阅读大赛宣布正式启动。
 
-Google DeepMind以其开发的AI程序AlphaGo而闻名。
+作为广东推动全民阅读、建设书香社会的重要举措，广东全民经典阅读大赛以“粤读粤精彩”为主题，由广东省委教育工作领导小组、广东全民终身学习平台主办，广东省委宣传部牵头。
 
-2016年，AlphaGo在首尔以五局击败了围棋世界冠军李世石。
+大赛秉持“全民参与”宗旨，创新“赛学一体、以赛促读”的机制，深度对接“广东全民终身学习平台”，实现参赛者学习行为记录与成果认证，是推动学习型社会建设的生动实践。
 
-哈萨比斯还因在基于AI的蛋白质结构预测研究方面的贡献，于2024年获得诺贝尔化学奖。
+大赛以“赛学一体、以赛促读”为机制，不设门槛、不限形式，将全民阅读化作可参与、可竞技、可分享的公共话题，让一个人的静读，变成一群人的共鸣、一座城的风尚。
 
-根据备忘录，双方将在科学技术与AI领域的联合研究、AI人才培养以及负责任的AI使用等方面开展合作。
+本次大赛面向广东全省广大群众，不限年龄、职业、地域，人人皆可参赛。
 
-双方特别同意，在韩国政府以AI为核心的“K-Moonshot”项目框架下，探索与Google DeepMind在技术、基础设施和研究人员交流等方面具体的合作方式。
+赛事设置三大赛道，分别为青少年组(18岁以下)、成人组(18岁及以上)、家庭/团队组(成员不超过8人)，广泛征集与经典阅读相关的“读写讲演”图文及视频。
 
-双方计划在生命科学、气象、气候及AI等多个科学技术领域开展合作，同时推动以将于下月投入运营的国家科学AI研究中心为中心的联合研究和研究人员交流。
+参赛作品需根据大赛推荐书目，紧密围绕粤港澳大湾区发展、绿美广东、历史人物、乡土民俗、风景名胜等岭南元素展开创新解读与深度演绎，展现岭南文化的时代精神与地方品格。
 
 ## 相关推荐
 
-- 2026-06-29 12:15 - [受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:14 - [国务院任免国家工作人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:02 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:18 - [第139届广交会二期闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:27 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:18 - [2026年盈江海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:10 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:21 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:11 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:22 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:09 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:03 - [银行业首个行业级“数据分类分级”大模型发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:01 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:25 - [特朗普：美伊第二轮谈判最快或于周五举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:19 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:30 - [柬埔寨首相洪玛奈会见王毅一行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:08 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:27 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:26 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:18 - [重组计划会影响IPO吗？阿维塔回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:27 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:08 - [亚马逊深化与Anthropic的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:13 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:09 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:13 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:08 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:27 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:30 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [西安通报5起违反中央八项规定精神问题](http://www.share.minike.top/Article/details/1305099.shtml)
-- 2026-06-29 12:20 - [GTC泽汇资本:黄金整理静待方向明朗](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [OpenAI称已更新与微软的合作伙伴关系](http://www.blog.kurohicncr.top/Article/details/64338054917.shtml)
-- 2026-06-29 12:12 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [【市场聚焦】棉花：美国主产区干旱持续发酵带动全球棉市价格上行](http://www.blog.minike.top/Article/details/78439441.shtml)
-- 2026-06-29 12:07 - [“伊斯兰国”袭击尼日利亚东北部 造成至少29人丧生](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [中钢协：一季度钢材价格总体走势平稳但处于近年同期最低水平](http://www.blog.kurohicncr.top/Article/details/95842884261.shtml)
-- 2026-06-29 12:06 - [谷歌不顾员工反对，与美国国防部签署机密人工智能合作协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [穿越机视角领略婺源“江南第一奇谷”飞瀑景观](http://www.blog.kurohicncr.top/Article/details/940029955292.shtml)
-- 2026-06-29 12:25 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](http://www.share.minike.top/Article/details/97007444.shtml)
-- 2026-06-29 12:25 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](http://www.share.minike.top/Article/details/3064845891.shtml)
-- 2026-06-29 12:20 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](http://www.blog.minike.top/Article/details/99706.shtml)
-- 2026-06-29 12:28 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](http://www.share.minike.top/Article/details/840750850.shtml)
+- 2026-06-29 12:13 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.kurohicncr.top/Article/details/95084311.shtml)
+- 2026-06-29 12:17 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](http://www.blog.minike.top/Article/details/7871757495.shtml)
+- 2026-06-29 12:22 - [瑞典大瀑布电力退出苏格兰浮式风电项目](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](http://www.blog.minike.top/Article/details/45016.shtml)
+- 2026-06-29 12:11 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.share.kurohicncr.top/Article/details/3789701.shtml)
+- 2026-06-29 12:13 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](http://www.share.minike.top/Article/details/235713883.shtml)
+- 2026-06-29 12:32 - [生态产品价值如何实现？自然资源部介绍典型案例](http://www.share.kurohicncr.top/Article/details/69211.shtml)
+- 2026-06-29 12:13 - [【国际漫评】解禁](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](http://www.blog.kurohicncr.top/Article/details/0914149.shtml)
+- 2026-06-29 12:35 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](http://www.blog.minike.top/Article/details/38406914.shtml)
+- 2026-06-29 12:07 - [梁玉宁：中文与诗歌是中华文明的重要载体](http://www.blog.kurohicncr.top/Article/details/681478062226.shtml)
+- 2026-06-29 12:09 - [美国海军部长约翰·费伦将离职](http://www.blog.kurohicncr.top/Article/details/163295925508.shtml)
+- 2026-06-29 12:17 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](http://www.blog.minike.top/Article/details/576045184.shtml)

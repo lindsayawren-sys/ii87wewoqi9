@@ -1,45 +1,42 @@
-# 中天期货:焦煤持续震荡 橡胶震荡上行
+# 第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-热点品种分析 一、商品指数 二、股指 中国上证综指4月28日（周二）收盘下跌7.71点，跌幅0.19%，报4078.64点； 中国深证成指4月28日（周二）收盘下跌165.29点，跌幅1.10%，报14830.46点； 中国沪深300指4月28日（周二）收盘下跌12.74点，跌幅0.27%，报4758.21点； 中国创业板指4月28日（周二）收盘下跌52.08点，跌幅1.43%
+发布时间：2026年04月22日 09:55 来源：央视网 责任编辑：【杨彦宇】
 
 ## 正文
 
-热点品种分析 一、商品指数 二、股指 中国上证综指4月28日（周二）收盘下跌7.71点，跌幅0.19%，报4078.64点； 中国深证成指4月28日（周二）收盘下跌165.29点，跌幅1.10%，报14830.46点； 中国沪深300指4月28日（周二）收盘下跌12.74点，跌幅0.27%，报4758.21点； 中国创业板指4月28日（周二）收盘下跌52.08点，跌幅1.43%，报3596.71点； 中国科创50 4月28日（周二）收盘下跌19.72点，跌幅1.31%，报1488.66点。
-
-三、原油2606 四、白银2606 五、碳酸锂 2609 六、螺纹 2610 七、焦煤2609 八、 PTA 2609 九、棉花2609 十、白糖 2609 十一、橡胶 2609 十二、PVC 2609 十三、棕榈2609 十四、纯碱2609 十五、玻璃2609 十六、豆粕2609 十七、生猪2609 十八、红枣2609 责任编辑：陈平
+发布时间：2026年04月22日 09:55 来源：央视网 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [中国创新药出海，如何从“能出去”到 “走得远”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:27 - [受贿9220万余元 江西省人大常委会原副主任洪礼和一审获刑20年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:03 - [消失的欧亚水獭重回成都 “公园城市”迎“动物邻居”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:07 - [吴征铠院士铜像在复旦大学揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:15 - [宁德时代获大摩增持约77.82万股 每股均价约708.25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:23 - [我国太空金属增材制造技术取得突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:13 - [中国银联董事长董俊峰出席APEC工商咨询理事会会议 参加与墨西哥政府高层双边会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:06 - [凯莱英午前涨超8% 第一季度经调整归母净利润增近28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:10 - [新华时评丨借尸还魂的“大将”“大佐”们](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:08 - [北美与欧洲增长放缓，Spotify Q2利润指引不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:10 - [城堡证券高管称伊朗冲突风险消退 股债市场有望同步上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:11 - [吉林高新技术产业开发区党工委书记张守华接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:14 - [露露乐蒙任命耐克前高管奥尼尔为新CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:13 - [国台办：民进党当局应取消针对大陆居民赴台旅游不合理限制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:22 - [“春之声·歌游内蒙古”专场文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:26 - [明德生物已被“*ST”，修正业绩引发索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:22 - [贵阳银行：一季度归母净利润14.77亿元，同比增加2.37%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:11 - [美股周一创下4月6日以来最大零售股票买入日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:22 - [第九届进博会推介会暨虹桥论坛咨商会在非盟总部举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:34 - [惠誉评级：中资银行息差有望筑底，零售风险需关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:19 - [SEC警示私募信贷“新兴压力”，监管风暴山雨欲来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:27 - [港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？](http://www.share.minike.top/Article/details/420355623.shtml)
-- 2026-06-29 12:02 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](http://www.blog.kurohicncr.top/Article/details/0759872986.shtml)
-- 2026-06-29 12:04 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [一季度生态成绩单亮眼，高质量发展绿意盎然](http://www.share.minike.top/Article/details/73019324.shtml)
-- 2026-06-29 12:25 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](http://www.share.minike.top/Article/details/04129421799.shtml)
-- 2026-06-29 12:18 - [普京称西方正将领导地位让位于全球南方国家](http://www.blog.minike.top/Article/details/8403033.shtml)
-- 2026-06-29 12:25 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](http://www.blog.kurohicncr.top/Article/details/34996850.shtml)
-- 2026-06-29 12:13 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](http://www.blog.kurohicncr.top/Article/details/58790.shtml)
-- 2026-06-29 12:15 - [破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](http://www.blog.kurohicncr.top/Article/details/275997.shtml)
-- 2026-06-29 12:03 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](http://www.share.minike.top/Article/details/86477528.shtml)
-- 2026-06-29 12:00 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](http://www.share.kurohicncr.top/Article/details/87003.shtml)
+- 2026-06-29 12:12 - [300883，连亏三年后，一季度又亏](http://www.share.kurohicncr.top/Article/details/0236784382.shtml)
+- 2026-06-29 12:35 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](http://www.share.kurohicncr.top/Article/details/21750841.shtml)
+- 2026-06-29 12:26 - [特朗普称将 “记住” 不申请关税退款的公司](http://www.blog.kurohicncr.top/Article/details/82586.shtml)
+- 2026-06-29 12:19 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](http://www.blog.minike.top/Article/details/052807.shtml)
+- 2026-06-29 12:20 - [2026年广东省行业企业职业技能竞赛计划发布](http://www.share.kurohicncr.top/Article/details/3778426256.shtml)
+- 2026-06-29 12:06 - [多支欧洲足球劲旅将于8月会师香港](http://www.blog.kurohicncr.top/Article/details/695260.shtml)
+- 2026-06-29 12:19 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.blog.kurohicncr.top/Article/details/801387358942.shtml)
+- 2026-06-29 12:17 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](http://www.share.kurohicncr.top/Article/details/08183215.shtml)
+- 2026-06-29 12:17 - [世界读书日：寻访巷陌深处的“老昆明”](http://www.blog.kurohicncr.top/Article/details/754216086500.shtml)
+- 2026-06-29 12:36 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](http://www.blog.minike.top/Article/details/402801433625.shtml)
+- 2026-06-29 12:26 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.blog.kurohicncr.top/Article/details/605955685351.shtml)
+- 2026-06-29 12:13 - [2026年渣打香港马拉松带来3.38亿港元经济效益](http://www.blog.kurohicncr.top/Article/details/7886064474.shtml)
+- 2026-06-29 12:26 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.blog.minike.top/Article/details/74457780310.shtml)
+- 2026-06-29 12:08 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](http://www.blog.kurohicncr.top/Article/details/332137736366.shtml)

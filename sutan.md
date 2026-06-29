@@ -1,61 +1,60 @@
-# 净利润连续4年下跌！青银理财回应：单位产品产出处行业中上
+# 聚焦人工智能应用 印尼教育界人士来鄂研修
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-作为青岛银行“一体两翼”核心板块、北方首家城商行理财子公司，青银理财2025年业绩继续承压。数据显示，该公司全年营收4.02亿元、净利润1.87亿元，同比分别下滑26.91%和37.04%，净利润已连续四年下行。与此同时，该公司管理规模增长近三年几乎停滞，代销渠道以中小银行为主，去年客户投诉量同比翻倍。 针对市场关切，青银理财近日在回复南都湾财社记者采访时作出解释，强调其“单位
+中新网武汉4月21日电 (马芙蓉 刘方)“印度尼西亚校长人工智能应用能力提升研修班”21日在武汉开班，来自印尼中爪哇省的20名大中小学校长、老师等，开启为期6天研修之旅。 此次研修班由华中师范大学全球教师发展学院主办，课程既涵盖生成式AI赋能教学设计、AI驱动的教育评价、智慧校园建设等理论教学，也设置中小学AI教育实践参访、国家级工程研究中心实地研学等实践环节。 华中师范大学副
 
 ## 正文
 
-作为青岛银行“一体两翼”核心板块、北方首家城商行理财子公司，青银理财2025年业绩继续承压。
+中新网武汉4月21日电 (马芙蓉 刘方)“印度尼西亚校长人工智能应用能力提升研修班”21日在武汉开班，来自印尼中爪哇省的20名大中小学校长、老师等，开启为期6天研修之旅。
 
-数据显示，该公司全年营收4.02亿元、净利润1.87亿元，同比分别下滑26.91%和37.04%，净利润已连续四年下行。
+此次研修班由华中师范大学全球教师发展学院主办，课程既涵盖生成式AI赋能教学设计、AI驱动的教育评价、智慧校园建设等理论教学，也设置中小学AI教育实践参访、国家级工程研究中心实地研学等实践环节。
 
-与此同时，该公司管理规模增长近三年几乎停滞，代销渠道以中小银行为主，去年客户投诉量同比翻倍。
+华中师范大学副校长吴丹介绍，该校于2025年入选教育部全球教师发展学院首批建设单位，承担着统筹区域教师国际交流与培训、推动中外教育文明互鉴的使命。
 
-针对市场关切，青银理财近日在回复南都湾财社记者采访时作出解释，强调其“单位产品规模的营业收入和净利润处于行业中上水平”，并披露了产品结构优化、渠道分层赋能等应对举措。
+本次研修班是深化中印尼教育交流合作的重要实践。
 
-净利润四年“腰斩” 青银理财：单位产出处行业中上水平 财务数据显示，2025年青银理财实现营收4.02亿元、净利润1.87亿元，同比分别下滑26.91%和37.04%。
+“华中师范大学在教育人工智能领域的优势，与我们致力于培养适应力强、技术驱动、具备全球竞争力的教育工作者与学生的转型方向高度契合。
 
-该公司净利润自2021年达到4.08亿元峰值后一路下滑，2025年降幅较上年进一步扩大。
+”印尼学员代表卢特凡·蒙塔库(Lutfan Muntaqo)表示，期待此次研修班不止于知识的传递，更迈向包括科研合作、学术交流等在内的更具体、更持续的合作。
 
-对于净利润连年下滑，青银理财表示，公司成立以来坚持高质量发展，“单位产品规模产出，即单位产品规模的营业收入和净利润一直处于行业中上水平，自身经营的内功不断增强”。
+据了解，华中师范大学与印尼教育人文交流往来密切，截至目前已累计培养各类印尼学生700余人。
 
-公司同时强调，其产品规模2021-2025年四年复合增长率为5.21%，高于银行理财市场整体的3.51%。
+该校与印尼泗水国立大学合作共建孔子学院，建有中印尼人文交流研究中心。
 
 ## 相关推荐
 
-- 2026-06-29 12:05 - [世界文化遗产西夏陵：五一带你“走”进千年前的西夏王朝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:08 - [挪威驻华大使戴伟恩：未来，要为发达经济体和发展中国家创造更公平竞争环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:27 - [晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:15 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:18 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:25 - [国铁沈阳局五一小长假预计发送旅客740万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:16 - [香港3月进出口货值现两位数增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:19 - [涉嫌严重违纪违法 内蒙古两厅官被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:16 - [港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:18 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:15 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:05 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:17 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:12 - [一季度生态成绩单亮眼，高质量发展绿意盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:13 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:30 - [中国海军以最高礼仪迎接烈士遗骸回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:07 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:18 - [RadexMarkets瑞德克斯:能源市场面临极端压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:21 - [上海发布广告人才新政 面向全球招揽行业英才](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:10 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:28 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:18 - [全球共享发展行动论坛第三届高级别会议发布成果清单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:11 - [源达信息量化策略研究：重要股东增持单因子策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:23 - [300883，连亏三年后，一季度又亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:27 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:26 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:22 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:18 - [2026年广东省行业企业职业技能竞赛计划发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:09 - [多支欧洲足球劲旅将于8月会师香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [金石为开——西安·沈阳名碑拓片特展开幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [铁路文旅创新融合绘就发展新图景](http://www.share.kurohicncr.top/Article/details/63424.shtml)
-- 2026-06-29 12:24 - [欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”](http://www.blog.minike.top/Article/details/0905687249.shtml)
-- 2026-06-29 12:20 - [AI赋能“一人公司” 个体创新潜力持续激活](http://www.share.minike.top/Article/details/7862371962.shtml)
-- 2026-06-29 12:26 - [中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%](http://www.share.minike.top/Article/details/2557014804.shtml)
-- 2026-06-29 12:09 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](http://www.share.minike.top/Article/details/157719.shtml)
-- 2026-06-29 12:10 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](http://www.share.kurohicncr.top/Article/details/72312374870.shtml)
-- 2026-06-29 12:29 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](http://www.share.minike.top/Article/details/3305024.shtml)
-- 2026-06-29 12:01 - [促进高质量充分就业 多项政策出台](http://www.share.kurohicncr.top/Article/details/63947171526.shtml)
-- 2026-06-29 12:06 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](http://www.blog.kurohicncr.top/Article/details/914141258622.shtml)
-- 2026-06-29 12:09 - [中天策略:4月28日市场分析](http://www.share.minike.top/Article/details/62960.shtml)
-- 2026-06-29 12:20 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](http://www.share.kurohicncr.top/Article/details/953095.shtml)
-- 2026-06-29 12:14 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](http://www.share.minike.top/Article/details/8667941.shtml)
-- 2026-06-29 12:25 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](http://www.share.minike.top/Article/details/18148694.shtml)
+- 2026-06-29 12:16 - [百思买任命资深人士为CEO](http://www.blog.minike.top/Article/details/5086079006.shtml)
+- 2026-06-29 12:13 - [辽宁海城：梨花成海 粉樱作伴](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](http://www.share.minike.top/Article/details/934437.shtml)
+- 2026-06-29 12:15 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.share.kurohicncr.top/Article/details/05539057.shtml)
+- 2026-06-29 12:26 - [英国石油公司高管将出任OMV首位女性首席执行官](http://www.share.kurohicncr.top/Article/details/112763487949.shtml)
+- 2026-06-29 12:06 - [“新时代、新品质、新气象：清华大学美术学院新世纪成果展”研讨会举办](http://www.share.minike.top/Article/details/61439428651.shtml)
+- 2026-06-29 12:35 - [东山精密业绩大增27.67%，利润增速远超预期！靠什么？](http://www.share.minike.top/Article/details/54581364425.shtml)
+- 2026-06-29 12:17 - [摩根士丹利策略师：地缘政治动荡往往创造良好买入机会](http://www.share.kurohicncr.top/Article/details/951703850.shtml)
+- 2026-06-29 12:23 - [为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](http://www.share.minike.top/Article/details/7517993116.shtml)
+- 2026-06-29 12:35 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](http://www.share.kurohicncr.top/Article/details/62117.shtml)
+- 2026-06-29 12:30 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](http://www.blog.minike.top/Article/details/46273903.shtml)
+- 2026-06-29 12:10 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](http://www.blog.minike.top/Article/details/5841456.shtml)
+- 2026-06-29 12:08 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](http://www.blog.minike.top/Article/details/1290855266.shtml)

@@ -1,58 +1,57 @@
-# 中钢协：积极开展产能治理、产量调控、行业自律
+# 中国隧道连续皮带机首次出口西班牙
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，后期要控总量，积极开展产能治理、产量调控、行业自律。 政府工作报告明确提出，综合运用产能调控、标准引领、价格执法、质量监管等手段，深入整治“内卷式”竞争，营造良好市场生态。钢铁行业要根除“内卷式”竞争，必须发挥制度优势，政府、行业、企业协同治理，在当前严格落实粗钢产量调控政策、不断优化调控机制的基础上，推动产能治理新机制尽
+中新网长沙4月21日电(胡清)21日，由中国企业自主研制的大型隧道连续皮带机在长沙完成安装调试，即将发运交付。这是中国连续皮带机首次进入西班牙市场，标志着国产高端隧道出渣装备在欧洲高端市场实现新突破。 此次出口的连续皮带机全长4500米，包含7条各类皮带机，作为盾构机配套出渣设备，将服务于西班牙巴塞罗那地铁8号线扩建工程。该工程位于西班牙广场与格拉西亚车站之间，隧道全长约4公里
 
 ## 正文
 
-4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，后期要控总量，积极开展产能治理、产量调控、行业自律。
+中新网长沙4月21日电(胡清)21日，由中国企业自主研制的大型隧道连续皮带机在长沙完成安装调试，即将发运交付。
 
-政府工作报告明确提出，综合运用产能调控、标准引领、价格执法、质量监管等手段，深入整治“内卷式”竞争，营造良好市场生态。
+这是中国连续皮带机首次进入西班牙市场，标志着国产高端隧道出渣装备在欧洲高端市场实现新突破。
 
-钢铁行业要根除“内卷式”竞争，必须发挥制度优势，政府、行业、企业协同治理，在当前严格落实粗钢产量调控政策、不断优化调控机制的基础上，推动产能治理新机制尽快落地，采用市场化、法治化方式严控增量、优化存量、畅通退出，清理违法违规产能，淘汰技术落后、环境污染重、生产效率低的装备，建立完善科学有效的长效机制。
+此次出口的连续皮带机全长4500米，包含7条各类皮带机，作为盾构机配套出渣设备，将服务于西班牙巴塞罗那地铁8号线扩建工程。
 
-严格落实部分钢铁产品实施出口许可证管理措施，按照“促高端、稳周边、严监管”的导向，进一步优化出口结构、规范出口秩序，实现出口平稳有序、有效化解外部风险。
+该工程位于西班牙广场与格拉西亚车站之间，隧道全长约4公里，配合直径10.6米的土压平衡盾构机开挖，是当地重要民生工程。
 
-按照党中央、国务院关于治理价格无序竞争的工作部署，发挥行业协会作用，开展分品种产能监测预警工作，建立中国钢铁行业价格监督员制度，构建“监测—识别—报告—研判—调解—认定—处置”闭环工作机制，引导企业严格自律。
+该套系统由中国铁建重工集团研制。
 
-同时，按照《关于推动行业协会商会深化改革的意见》提出的“行业协会商会要建立健全行业自律管理制度和自律约束机制，依法开展行业信用评价工作，提升行业诚信建设水平”等工作要求，有效衔接价格监督与信用评价，将行业价格监督作为行业信用评价体系的重要内容。
+据悉，上述服务项目地处城市核心区，周边建筑密集、人流车流繁忙，欧洲当地对施工降噪、粉尘控制、场地利用及作业效率均提出严苛标准。
 
-责任编辑：李铁民
+研发团队历时8个月完成定制化研制，系统集成连续出渣、智能控制、环保降噪、安全防护等功能，精准适配城市密集区隧道施工需求。
+
+铁建重工掘进机研究设计院副院长李培介绍，为适配欧洲严苛的施工要求，装备搭载三项行业首创技术，有效破解城市施工痛点。
 
 ## 相关推荐
 
-- 2026-06-29 12:02 - [这几大症状出现，是颈椎在发出警告！6条预防措施，必看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:09 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:05 - [国铁沈阳局五一小长假预计发送旅客740万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:12 - [香港3月进出口货值现两位数增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:01 - [涉嫌严重违纪违法 内蒙古两厅官被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:15 - [港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:14 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:10 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:17 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:28 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:13 - [一季度生态成绩单亮眼，高质量发展绿意盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:02 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:12 - [普京称西方正将领导地位让位于全球南方国家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:16 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:34 - [上海发布广告人才新政 面向全球招揽行业英才](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:32 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:35 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:25 - [全球共享发展行动论坛第三届高级别会议发布成果清单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:15 - [源达信息量化策略研究：重要股东增持单因子策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:32 - [300883，连亏三年后，一季度又亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:30 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:26 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:17 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:08 - [2026年广东省行业企业职业技能竞赛计划发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:17 - [多支欧洲足球劲旅将于8月会师香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:22 - [AI赋能“一人公司” 个体创新潜力持续激活](http://www.blog.kurohicncr.top/Article/details/39523.shtml)
-- 2026-06-29 12:14 - [中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%](http://www.share.kurohicncr.top/Article/details/063039574173.shtml)
-- 2026-06-29 12:20 - [跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”](http://www.blog.kurohicncr.top/Article/details/97395503170.shtml)
-- 2026-06-29 12:22 - [机构：日本央行维持利率不变，或既为捍卫日元也为控制通胀](http://www.blog.minike.top/Article/details/114948558.shtml)
-- 2026-06-29 12:08 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](http://www.blog.kurohicncr.top/Article/details/028464.shtml)
-- 2026-06-29 12:20 - [促进高质量充分就业 多项政策出台](http://www.blog.minike.top/Article/details/478635752.shtml)
-- 2026-06-29 12:24 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](http://www.share.kurohicncr.top/Article/details/256773565725.shtml)
-- 2026-06-29 12:08 - [中天策略:4月28日市场分析](http://www.blog.kurohicncr.top/Article/details/69704.shtml)
-- 2026-06-29 12:01 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](http://www.blog.kurohicncr.top/Article/details/78657117.shtml)
-- 2026-06-29 12:23 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](http://www.share.kurohicncr.top/Article/details/680838369502.shtml)
-- 2026-06-29 12:09 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](http://www.share.minike.top/Article/details/0706139.shtml)
-- 2026-06-29 12:04 - [商务部：2026年1-3月我国电子商务持续平稳发展](http://www.share.kurohicncr.top/Article/details/230433332456.shtml)
-- 2026-06-29 12:19 - [民政部：着力推进普惠性、基础性、兜底性民生建设](http://www.share.kurohicncr.top/Article/details/341879516317.shtml)
-- 2026-06-29 12:19 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](http://www.share.minike.top/Article/details/36880.shtml)
+- 2026-06-29 12:34 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](http://www.blog.minike.top/Article/details/234146.shtml)
+- 2026-06-29 12:08 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.share.minike.top/Article/details/62394095252.shtml)
+- 2026-06-29 12:08 - [英国石油公司高管将出任OMV首位女性首席执行官](http://www.share.minike.top/Article/details/77589.shtml)
+- 2026-06-29 12:27 - [“新时代、新品质、新气象：清华大学美术学院新世纪成果展”研讨会举办](http://www.blog.minike.top/Article/details/6428205.shtml)
+- 2026-06-29 12:07 - [东山精密业绩大增27.67%，利润增速远超预期！靠什么？](http://www.share.minike.top/Article/details/50446098.shtml)
+- 2026-06-29 12:15 - [摩根士丹利策略师：地缘政治动荡往往创造良好买入机会](http://www.share.kurohicncr.top/Article/details/342876472.shtml)
+- 2026-06-29 12:09 - [为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](http://www.blog.minike.top/Article/details/9927072.shtml)
+- 2026-06-29 12:19 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](http://www.share.minike.top/Article/details/91004.shtml)
+- 2026-06-29 12:18 - [高雅光学公布于4月23日上午起停牌](http://www.blog.minike.top/Article/details/346458.shtml)
+- 2026-06-29 12:32 - [波音季度亏损收窄，股价早盘上涨4.5%](http://www.blog.kurohicncr.top/Article/details/401468.shtml)
+- 2026-06-29 12:25 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](http://www.share.kurohicncr.top/Article/details/03947.shtml)

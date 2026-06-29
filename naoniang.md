@@ -1,60 +1,47 @@
-# 金石为开——西安·沈阳名碑拓片特展开幕
+# 百思买任命资深人士为CEO
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网沈阳4月28日电 (韩宏)金石为开——西安·沈阳名碑拓片特展28日在沈阳开幕。 本次展览由沈阳博物馆、西安碑林博物馆、盛京碑林陈列馆联合主办，以碑刻拓片为核心，精选40余件西安碑林珍藏名碑、辽沈地区重要金石遗珍的拓本，系统呈现中国碑刻艺术的历史脉络与文化内涵。 西安碑林始建于北宋元祐二年(1087年)，后经历代收集，规模逐渐扩大，最终建成为中国最早、收藏最丰富的碑刻博物馆
+百思买任命杰森-邦菲格为首席执行官，自10月31日起生效，即将离任的首席执行官科里-巴里（Corie Barry）将担任六个月的战略顾问；2026财年展望维持不变，预计营收为412亿至421亿美元，调整后每股收益为6.30至6.60美元。责任编辑：张俊 SF065
 
 ## 正文
 
-中新网沈阳4月28日电 (韩宏)金石为开——西安·沈阳名碑拓片特展28日在沈阳开幕。
+百思买任命杰森-邦菲格为首席执行官，自10月31日起生效，即将离任的首席执行官科里-巴里（Corie Barry）将担任六个月的战略顾问；2026财年展望维持不变，预计营收为412亿至421亿美元，调整后每股收益为6.30至6.60美元。
 
-本次展览由沈阳博物馆、西安碑林博物馆、盛京碑林陈列馆联合主办，以碑刻拓片为核心，精选40余件西安碑林珍藏名碑、辽沈地区重要金石遗珍的拓本，系统呈现中国碑刻艺术的历史脉络与文化内涵。
-
-西安碑林始建于北宋元祐二年(1087年)，后经历代收集，规模逐渐扩大，最终建成为中国最早、收藏最丰富的碑刻博物馆，被誉为“东方文化的宝库”“书法艺术的渊薮”。
-
-盛京碑林陈列馆珍藏明清至民国时期石碑118通，碑首、碑座等文物200余件，内容涉及文化教育、人物纪事等多个方面，为研究沈阳历史文化提供了重要实物证据。
-
-本次展览分为四个单元，从国家典章到个人修为，从书法法度到艺术融合，展出了极具代表性与历史价值的西安碑林与辽沈碑刻精品拓本。
-
-包括唐·颜真卿三方名碑《多宝塔碑》《颜勤礼碑》《颜氏家庙碑》；唐·柳公权两方名碑《玄秘塔碑》《迴元观钟楼铭》等。
-
-其中，被誉为“汉石之宝”的《曹全碑》是汉碑中保存最为完好的一通，隶书秀丽典雅，用笔刚柔兼济，数百年来为金石家和书法家所钟爱。
-
-现存最早的秦篆刻石《峄山碑》，由宰相李斯亲笔书写，强健有力，一展秦王朝的恢弘气象。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [从“第二选择”到“心之所向”：巴基斯坦医生的海南创业记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:15 - [促进高质量充分就业 多项政策出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:05 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:22 - [中天策略:4月28日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:25 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:07 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:09 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:19 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:14 - [商务部：2026年1-3月我国电子商务持续平稳发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:26 - [民政部：着力推进普惠性、基础性、兜底性民生建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:16 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:20 - [2026年度丽江海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:11 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:20 - [重庆秀山：烟雨“边城” 古韵映春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:32 - [东山精密业绩大增27.67%，利润增速远超预期！靠什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:15 - [摩根士丹利策略师：地缘政治动荡往往创造良好买入机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:24 - [为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:35 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:26 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:28 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:17 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:16 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:07 - [高雅光学公布于4月23日上午起停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:14 - [波音季度亏损收窄，股价早盘上涨4.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:29 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:29 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:21 - [一见·世界地球日，看“赋能型大国”的绿色担当](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:28 - [新西兰央行行长：已准备好应对持续的价格压力](http://www.blog.kurohicncr.top/Article/details/723243077.shtml)
-- 2026-06-29 12:22 - [重庆罗斯福图书馆旧址将焕新开放](http://www.share.minike.top/Article/details/791908.shtml)
-- 2026-06-29 12:04 - [北京首都机场“五一”假期预计运送旅客超100万人次](http://www.blog.minike.top/Article/details/142562234.shtml)
-- 2026-06-29 12:15 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [本科专业再上新，高校专业调整比例首次突破10%](http://www.blog.minike.top/Article/details/102540.shtml)
-- 2026-06-29 12:21 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](http://www.share.kurohicncr.top/Article/details/97793101419.shtml)
-- 2026-06-29 12:25 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [“五一”假期预计约600万人次进出香港](http://www.blog.minike.top/Article/details/302606.shtml)
-- 2026-06-29 12:16 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](http://www.blog.kurohicncr.top/Article/details/51176.shtml)
-- 2026-06-29 12:13 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](http://www.blog.kurohicncr.top/Article/details/92306.shtml)
-- 2026-06-29 12:10 - [央行今日开展259亿元7天期逆回购操作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [传递“乌尔朵”的守边人](http://www.blog.minike.top/Article/details/976513166865.shtml)
-- 2026-06-29 12:02 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](http://www.share.minike.top/Article/details/96313266.shtml)
+- 2026-06-29 12:17 - [亚盛医药-B多项研究入选2026年ASCO](http://www.share.minike.top/Article/details/26553.shtml)
+- 2026-06-29 12:14 - [四张图看懂蒂姆・库克的非凡职业生涯](http://www.blog.minike.top/Article/details/22028179.shtml)
+- 2026-06-29 12:29 - [安峰获批担任马上消费金融副总经理](http://www.blog.kurohicncr.top/Article/details/13757975929.shtml)
+- 2026-06-29 12:19 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](http://www.share.kurohicncr.top/Article/details/4653208063.shtml)
+- 2026-06-29 12:25 - [4月22日“农产品批发价格200指数”与昨天持平](http://www.blog.kurohicncr.top/Article/details/116203899.shtml)
+- 2026-06-29 12:25 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](http://www.blog.kurohicncr.top/Article/details/193003787626.shtml)
+- 2026-06-29 12:29 - [228件作品荟萃第四届当代陶瓷艺术展览](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [多部门协同发力 陕西持续优化老年人优待服务](http://www.share.minike.top/Article/details/35698101.shtml)
+- 2026-06-29 12:35 - [推动实体经济发展，内蒙古“放大招”](http://www.share.kurohicncr.top/Article/details/931360593598.shtml)
+- 2026-06-29 12:08 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](http://www.blog.minike.top/Article/details/44534600347.shtml)
+- 2026-06-29 12:27 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](http://www.share.kurohicncr.top/Article/details/931151935.shtml)
+- 2026-06-29 12:21 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](http://www.blog.kurohicncr.top/Article/details/75253724.shtml)
+- 2026-06-29 12:28 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](http://www.blog.minike.top/Article/details/16836948.shtml)
+- 2026-06-29 12:25 - [美联储主席提名人沃什阐述美联储政策主张](http://www.share.minike.top/Article/details/515281018401.shtml)

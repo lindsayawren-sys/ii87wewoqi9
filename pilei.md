@@ -1,57 +1,58 @@
-# 亚马逊已在 AWS 上架多款全新 OpenAI 产品
+# 多部门协同发力 陕西持续优化老年人优待服务
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-就在 OpenAI 宣布，其主要投资方兼云端合作方微软不再享有旗下任何产品的独家使用权后不久，亚马逊便立刻表现出强势姿态。 周一，OpenAI 与微软公布修订版合作协议。随后，亚马逊首席执行官安迪・贾西在推文里称，这是一则 “耐人寻味的公告”。这份新协议扫清了合作障碍，允许亚马逊云科技（AWS）上架 OpenAI 全系产品。此前，OpenAI 与亚马逊达成最高500 亿美元合作
+中新网西安4月21日电 (李一璠)“截至2025年末，陕西省60岁及以上老年人口已达914万人，占比23.22%，高于全国平均水平；预计2035年占比将超过30%，应对人口老龄化任务紧迫。”陕西省民政厅副厅长李平21日表示。 当日，陕西省民政厅联合省司法厅、省文旅厅、省交通运输厅、省卫健委召开政策解读通气会，对新修订的《陕西省老年人优待服务办法》进行集中解读(以下简称《办法》)
 
 ## 正文
 
-就在 OpenAI 宣布，其主要投资方兼云端合作方微软不再享有旗下任何产品的独家使用权后不久，亚马逊便立刻表现出强势姿态。
+中新网西安4月21日电 (李一璠)“截至2025年末，陕西省60岁及以上老年人口已达914万人，占比23.22%，高于全国平均水平；预计2035年占比将超过30%，应对人口老龄化任务紧迫。
 
-周一，OpenAI 与微软公布修订版合作协议。
+”陕西省民政厅副厅长李平21日表示。
 
-随后，亚马逊首席执行官安迪・贾西在推文里称，这是一则 “耐人寻味的公告”。
+当日，陕西省民政厅联合省司法厅、省文旅厅、省交通运输厅、省卫健委召开政策解读通气会，对新修订的《陕西省老年人优待服务办法》进行集中解读(以下简称《办法》)。
 
-这份新协议扫清了合作障碍，允许亚马逊云科技（AWS）上架 OpenAI 全系产品。
+据悉，该《办法》将于今年5月1日起施行，是陕西省积极应对人口老龄化、优化为老服务供给、增强老年人获得感幸福感安全感的重要举措。
 
-此前，OpenAI 与亚马逊达成最高500 亿美元合作协议后，双方产品合作的权限问题便愈发凸显。
+此次修订立足该省人口老龄化发展实际，在保持政策连续性、稳定性的基础上，进一步完善优待范围、丰富优待内容、创新服务方式，推动老年优待服务更加规范、更加便捷、更加可及。
 
-亚马逊于周二正式宣布，旗下 AI 平台Bedrock现已接入 OpenAI 最新大模型、代码生成工具 Codex，以及一款基于 OpenAI 技术打造、用于智能 AI 代理开发的全新产品。
+《办法》明确，户籍或居住地在该省行政区域内的六十五周岁以上老年人可免费申领陕西省敬老优待证，在文旅休闲、交通出行、医疗健康、公共服务等方面享受优待服务，同时着力保留传统服务渠道、帮助老年人跨越“数字鸿沟”，鼓励社会各界积极参与为老服务，共同营造敬老爱老助老的良好社会风尚。
 
-Bedrock 是亚马逊推出的 AI 应用开发与大模型选型服务平台。
+为确保政策落地见效，陕西省有关部门将紧密配合、协同发力，民政部门将会同省老龄委有关成员单位督促各市尽快细化本地老年人优待服务具体内容，加大政策宣传力度，同时指导各地制定应急预案、充实服务力量，保障出行秩序，推动文旅、文物、体育、卫健、交通等部门强化行业指导，落实好本领域老年优待政策，探索依托“身份码”推进敬老优待证电子化；文旅部门将落实A级旅游景区免费优待政策，规范设置服务标识，加快文化和旅游适老化服务设施提升改造，加强工作人员适老化服务培训，持续丰富老年优质文旅产品供给。
 
-亚马逊将这款全新智能代理服务命名为Bedrock Managed Agents。
+此外，陕西省交通部门将全力推进公共交通适老化服务升级，优化敬老公交专线，探索搭建无障碍导乘系统，扩大“一键叫车”服务覆盖面，指导各市制定老年人交通优待服务办法及经费保障长效机制；卫健部门将督促医疗机构落实老年人就医优待政策，深化老年友善医疗机构建设，扩大老年医疗、康复护理、医养结合服务供给，落实六十五周岁以上老年人免费健康体检和中医药服务，完善失能老年人健康评估与长期照护体系。
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:01 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:04 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:09 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:10 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:07 - [渝昆高铁川滇段无砟轨道施工全部完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:14 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:05 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:07 - [西安通报5起违反中央八项规定精神问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:09 - [GTC泽汇资本:黄金整理静待方向明朗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:01 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:20 - [日经指数首次升破60000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:21 - [俄军总参谋长：已完全控制卢甘斯克地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:14 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:13 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:18 - [从三组卫星遥感图看生态保护成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:34 - [东方证券“吞并”上海证券，券业整合进入深水区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:19 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:19 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:09 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:18 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:23 - [瑞典大瀑布电力退出苏格兰浮式风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:21 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:06 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.share.minike.top/Article/details/882914169441.shtml)
-- 2026-06-29 12:24 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](http://www.share.kurohicncr.top/Article/details/666983.shtml)
-- 2026-06-29 12:24 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](http://www.share.minike.top/Article/details/214870476675.shtml)
-- 2026-06-29 12:29 - [“十四五”期间中国新发现大中型油气田225处](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](http://www.blog.minike.top/Article/details/30091.shtml)
-- 2026-06-29 12:29 - [截至去年12月我国已出台网络领域立法180余部](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [美光与闪迪股价持续走高，存储芯片需求有望长期旺盛](http://www.share.minike.top/Article/details/94423259.shtml)
-- 2026-06-29 12:16 - [从新疆到巴黎 艾德莱斯秀出中国职教风采](http://www.share.minike.top/Article/details/26877.shtml)
-- 2026-06-29 12:19 - [中远海能第一季度归母净利润21.73亿元 同比增长206.74%](http://www.share.kurohicncr.top/Article/details/89704.shtml)
-- 2026-06-29 12:13 - [二手时尚交易平台Vinted估值达80亿欧元，挑战eBay市场地位](http://www.share.kurohicncr.top/Article/details/69818840274.shtml)
-- 2026-06-29 12:14 - [企业无端扩大适用范围 竞业限制的边界到底在哪里？](http://www.share.kurohicncr.top/Article/details/24833846.shtml)
-- 2026-06-29 12:15 - [谷歌就专利局“既定预期”规则向美国最高法院提起上诉](http://www.blog.kurohicncr.top/Article/details/45626.shtml)
-- 2026-06-29 12:04 - [阿里平头哥重磅发布，支持万卡AI集群高速互联！港股AI反弹，百亿港股互联网ETF华宝（513770）盘中冲击2%！](http://www.share.kurohicncr.top/Article/details/1750355939.shtml)
-- 2026-06-29 12:21 - [美银证券：金风科技重申“买入”评级 目标价升至18.5港元](http://www.blog.kurohicncr.top/Article/details/88883040.shtml)
-- 2026-06-29 12:00 - [中国太保(02601)涨超5%：一季度净利润同比增长4.3% 期缴规模与价值实现双升](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.blog.kurohicncr.top/Article/details/151514710463.shtml)
+- 2026-06-29 12:22 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](http://www.blog.minike.top/Article/details/742922766654.shtml)
+- 2026-06-29 12:18 - [美股三大指数集体高开，布油重回100美元上方](http://www.share.kurohicncr.top/Article/details/58975413.shtml)
+- 2026-06-29 12:21 - [美股回吐涨幅，美债收益率上行](http://www.share.kurohicncr.top/Article/details/57965.shtml)
+- 2026-06-29 12:17 - [华为迟林春：乾崑智驾累计辅助驾驶里程达100亿公里，预计今年10月超越特斯拉位居全球第一](http://www.share.minike.top/Article/details/9969439125.shtml)
+- 2026-06-29 12:06 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](http://www.share.minike.top/Article/details/8835232552.shtml)
+- 2026-06-29 12:34 - [多浦乐2025年度归母净利润约6649万元 同比增28.85%](http://www.blog.minike.top/Article/details/4339277.shtml)
+- 2026-06-29 12:14 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.share.minike.top/Article/details/6704159.shtml)
+- 2026-06-29 12:13 - [原油：油价上涨 投资者对美伊会谈的疑虑加剧](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.share.kurohicncr.top/Article/details/08417341080.shtml)
+- 2026-06-29 12:26 - [百思买CEO科里・巴里因公司多年增长疲软卸任](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [因伊朗冲突等不确定性 IBM对业绩指引保持谨慎](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [Keurig与雀巢续签协议，延续星巴克咖啡分销合作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [登山、换“蔬”、穿汉服……阅读周，“悦”读正当时](http://www.share.kurohicncr.top/Article/details/492686679566.shtml)
+- 2026-06-29 12:07 - [破解临时用工难题 专家建议国家出台相关规范指引](https://github.com/lisacumin64-arch)

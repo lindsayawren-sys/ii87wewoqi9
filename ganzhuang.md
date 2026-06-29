@@ -1,61 +1,57 @@
-# 消费者信心疲软致达美乐披萨销量增长停滞，股价承压
+# 四川累计外送电量突破2万亿千瓦时
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-消费者信心下滑以及竞争加剧，正在侵蚀达美乐披萨的业务。 达美乐披萨下调了全年美国同店销售额增长预期，该公司股价周一应声下跌10%。这家连锁公司表示，销售额走软，尤其是在3月份。公司高管们称，美国消费者信心已降至新冠疫情最严重时期的水平，低收入购物者尤其缩减了开支。 首席执行官拉塞尔·韦纳（Russell Weiner）在一次投资者电话会议上说：“相信我，我对我们的业绩并不满意。
+中新网成都4月21日电 (刘忠俊 高珩瑞)4月21日，四川电力交易中心发布的最新结算数据显示，四川累计外送电量已突破2万亿千瓦时，达20004.15亿千瓦时，这一规模相当于江苏、浙江、安徽三省2025年全社会用电量的总和。 作为中国重要的清洁能源基地，四川外送的2万亿千瓦时电量中，超99.98%为水电和新能源。这一清洁能源输送规模，相当于替代燃煤消耗约6.5亿吨，减排二氧化碳约
 
 ## 正文
 
-消费者信心下滑以及竞争加剧，正在侵蚀达美乐披萨的业务。
+中新网成都4月21日电 (刘忠俊 高珩瑞)4月21日，四川电力交易中心发布的最新结算数据显示，四川累计外送电量已突破2万亿千瓦时，达20004.15亿千瓦时，这一规模相当于江苏、浙江、安徽三省2025年全社会用电量的总和。
 
-达美乐披萨下调了全年美国同店销售额增长预期，该公司股价周一应声下跌10%。
+作为中国重要的清洁能源基地，四川外送的2万亿千瓦时电量中，超99.98%为水电和新能源。
 
-这家连锁公司表示，销售额走软，尤其是在3月份。
+这一清洁能源输送规模，相当于替代燃煤消耗约6.5亿吨，减排二氧化碳约16亿吨，为我国“双碳”目标落地提供了坚实的能源支撑。
 
-公司高管们称，美国消费者信心已降至新冠疫情最严重时期的水平，低收入购物者尤其缩减了开支。
+作为“西电东送”战略的重要枢纽，四川持续加快特高压骨干网架建设，全力构建省内“三送三受”、跨区“多进多出”的立体枢纽电网。
 
-首席执行官拉塞尔·韦纳（Russell Weiner）在一次投资者电话会议上说：“相信我，我对我们的业绩并不满意。
+目前，四川已建成7条特高压直流外送通道，跨区跨省外送能力超6260万千瓦，稳居全国首位。
 
-” 韦纳表示，竞争对手加大了促销力度，其中一些促销活动模仿了达美乐披萨自己的推广活动。
+另据最新统计数据，四川电力总装机已突破1.6亿千瓦，其中水电装机超1亿千瓦，占比约三分之二；风电、光伏等新能源装机超3200万千瓦，占比约20%，历史性超过火电，成为四川电力第二大电源。
 
-作为回应，该公司正在加大自身的促销力度，并推出新的披萨产品。
+当前，四川正加快推进金沙江上游、雅砻江、大渡河流域水风光一体化清洁能源基地规划建设，引导甘孜、阿坝、凉山等风光资源富集地区，推动新能源实现规模化、基地化、集约化发展。
 
-责任编辑：李桐
+据悉，“十五五”期间，四川预计将新增新能源装机5000万千瓦以上，进一步深化多能互补电源建设。
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [4月28日外盘头条：特朗普与幕僚讨论伊朗最新提议 欧盟向谷歌发布AI竞争合规指南 美光与闪迪股价持续走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:04 - [国台办回应“金门考察团遭刻意审查卡关”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:09 - [马斯克在对OpenAI的诉讼案中首日出庭作证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:03 - [光大期货0428热点追踪：玻璃弱势下行，供需压力仍存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:12 - [中国创新药出海，如何从“能出去”到 “走得远”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:25 - [受贿9220万余元 江西省人大常委会原副主任洪礼和一审获刑20年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:23 - [消失的欧亚水獭重回成都 “公园城市”迎“动物邻居”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:06 - [吴征铠院士铜像在复旦大学揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:10 - [宁德时代获大摩增持约77.82万股 每股均价约708.25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:06 - [我国太空金属增材制造技术取得突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:18 - [中国银联董事长董俊峰出席APEC工商咨询理事会会议 参加与墨西哥政府高层双边会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:12 - [凯莱英午前涨超8% 第一季度经调整归母净利润增近28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:25 - [新华时评丨借尸还魂的“大将”“大佐”们](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:01 - [北美与欧洲增长放缓，Spotify Q2利润指引不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:07 - [城堡证券高管称伊朗冲突风险消退 股债市场有望同步上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:29 - [杭州优化知识产权创新生态 全球创新指数排名跃升至13位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:27 - [基金日报 | 今年以来新发基金规模超3500亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:19 - [广东数智文娱企业加速拓展马来西亚市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:19 - [俞白眉：未来绝大多数演员有AI分身是大趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:15 - [吉林高新技术产业开发区党工委书记张守华接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:07 - [露露乐蒙任命耐克前高管奥尼尔为新CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:30 - [国台办：民进党当局应取消针对大陆居民赴台旅游不合理限制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:35 - [“春之声·歌游内蒙古”专场文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:06 - [明德生物已被“*ST”，修正业绩引发索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:34 - [贵阳银行：一季度归母净利润14.77亿元，同比增加2.37%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:32 - [美股周一创下4月6日以来最大零售股票买入日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:25 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](http://www.share.kurohicncr.top/Article/details/38017771227.shtml)
-- 2026-06-29 12:11 - [国铁沈阳局五一小长假预计发送旅客740万人次](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [香港3月进出口货值现两位数增长](http://www.blog.kurohicncr.top/Article/details/1480008.shtml)
-- 2026-06-29 12:28 - [涉嫌严重违纪违法 内蒙古两厅官被查](http://www.blog.minike.top/Article/details/50514477084.shtml)
-- 2026-06-29 12:16 - [港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？](http://www.blog.kurohicncr.top/Article/details/949728841.shtml)
-- 2026-06-29 12:22 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](http://www.blog.minike.top/Article/details/60875458351.shtml)
-- 2026-06-29 12:19 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](http://www.share.kurohicncr.top/Article/details/7537306798.shtml)
-- 2026-06-29 12:18 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](http://www.share.minike.top/Article/details/30815.shtml)
-- 2026-06-29 12:25 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](http://www.share.kurohicncr.top/Article/details/32657572.shtml)
-- 2026-06-29 12:16 - [一季度生态成绩单亮眼，高质量发展绿意盎然](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [普京称西方正将领导地位让位于全球南方国家](http://www.share.minike.top/Article/details/4632354.shtml)
-- 2026-06-29 12:13 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](http://www.blog.kurohicncr.top/Article/details/00187.shtml)
-- 2026-06-29 12:27 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](http://www.share.minike.top/Article/details/05959.shtml)
-- 2026-06-29 12:01 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](http://www.blog.kurohicncr.top/Article/details/0487691.shtml)
+- 2026-06-29 12:25 - [一件旧衣的“重生” 一座民营博物馆的“新生”](http://www.share.kurohicncr.top/Article/details/5126922025.shtml)
+- 2026-06-29 12:27 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.share.minike.top/Article/details/1814268734.shtml)
+- 2026-06-29 12:30 - [全球共享发展行动论坛第三届高级别会议发布成果清单](http://www.blog.minike.top/Article/details/4710479791.shtml)
+- 2026-06-29 12:19 - [源达信息量化策略研究：重要股东增持单因子策略](http://www.blog.kurohicncr.top/Article/details/1481777339.shtml)
+- 2026-06-29 12:33 - [300883，连亏三年后，一季度又亏](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](http://www.blog.kurohicncr.top/Article/details/609734910.shtml)
+- 2026-06-29 12:13 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](http://www.share.kurohicncr.top/Article/details/5543733.shtml)
+- 2026-06-29 12:26 - [2026年广东省行业企业职业技能竞赛计划发布](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [多支欧洲足球劲旅将于8月会师香港](http://www.blog.minike.top/Article/details/67602757.shtml)
+- 2026-06-29 12:11 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.blog.kurohicncr.top/Article/details/226251578949.shtml)
+- 2026-06-29 12:32 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](http://www.blog.kurohicncr.top/Article/details/039348.shtml)
+- 2026-06-29 12:22 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](http://www.share.minike.top/Article/details/45824.shtml)
+- 2026-06-29 12:22 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.blog.kurohicncr.top/Article/details/975969980.shtml)

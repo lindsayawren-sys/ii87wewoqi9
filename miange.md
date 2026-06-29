@@ -1,56 +1,58 @@
-# 本科专业再上新，高校专业调整比例首次突破10%
+# 台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网北京4月28日电(记者 袁秀月)近日，教育部发布《普通高等学校本科专业目录(2026年)》。目前，本科专业目录共涵盖13个门类、92个专业类、883种专业。与去年的本科专业目录相比，共新增38种普通高校本科新专业。今年，教育部持续推进专业设置调整优化工作，引导和支持高校积极增设服务国家战略和现代产业发展需求的新专业。 其中，精准对接国家战略需求，增设能源科学与工程、深地科
+发布时间：2026年04月21日 17:43 来源：中国新闻网 台湾民间智库“民主文教基金会”20日公布民调显示，近六成受访者不相信“台海若发生战事，美国会派兵保护台湾”。中国国民党籍民意代表翁晓玲表示，有过半受访民众认为，两岸必须要交流。台湾中流文教基金会董事长周阳山直言，57%的台湾民众认为美军不会来“护台”。新党副主席李胜峰指出，有50%受访者愿意面对统一，这是很大的质变
 
 ## 正文
 
-中新网北京4月28日电(记者 袁秀月)近日，教育部发布《普通高等学校本科专业目录(2026年)》。
+发布时间：2026年04月21日 17:43 来源：中国新闻网 台湾民间智库“民主文教基金会”20日公布民调显示，近六成受访者不相信“台海若发生战事，美国会派兵保护台湾”。
 
-目前，本科专业目录共涵盖13个门类、92个专业类、883种专业。
+中国国民党籍民意代表翁晓玲表示，有过半受访民众认为，两岸必须要交流。
 
-与去年的本科专业目录相比，共新增38种普通高校本科新专业。
+台湾中流文教基金会董事长周阳山直言，57%的台湾民众认为美军不会来“护台”。
 
-今年，教育部持续推进专业设置调整优化工作，引导和支持高校积极增设服务国家战略和现代产业发展需求的新专业。
+新党副主席李胜峰指出，有50%受访者愿意面对统一，这是很大的质变。
 
-其中，精准对接国家战略需求，增设能源科学与工程、深地科学与工程等专业；服务传统产业优化升级，增设交通能源融合工程、农业机器人等专业；推动新兴产业和未来产业创新发展，增设生物制造、脑机科学与技术等专业；立足服务业扩能提质，增设数字文旅、商业人工智能等专业；聚焦打造智能经济新形态，增设数字贸易、数字金融等专业。
+媒体人张钧凯则认为，郑丽文访问大陆期间，台湾社会对和平的想象变得更宽广。
 
-同时，进一步完善战略急需专业超常设置机制，支持哈尔滨工业大学、北京航空航天大学等9所高校增设具身智能新专业，推动新一代人工智能与实体经济深度融合，赋能经济社会高质量发展。
+台湾有舆论认为，岛内民意正发生实质性变化。
 
-为加强学科专业目录协同联动，推动本科专业目录与研究生教育学科专业目录有机衔接、上下贯通，更好适应新兴交叉学科发展和复合型人才培养需求，2026年本科专业目录在“交叉学科”门类中首批列入未来机器人、交叉工程等11种目录内已有专业和具身智能、脑机科学与技术等4种本次列入目录的新专业。
-
-据统计，“十四五”期间，全国高校新增本科专业布点1.02万个、撤销或停招1.22万个。
+(策划/制作：燕新台 君言晚 明昭言 中新网“燕新台”工作室出品) 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:14 - [央行今日开展259亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:04 - [传递“乌尔朵”的守边人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:17 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:19 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:13 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:16 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:27 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:10 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:05 - [渝昆高铁川滇段无砟轨道施工全部完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:30 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:29 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:27 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:11 - [美联储主席提名人沃什阐述美联储政策主张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:34 - [日经指数首次升破60000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:34 - [俄军总参谋长：已完全控制卢甘斯克地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:11 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:07 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:25 - [从三组卫星遥感图看生态保护成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:13 - [东方证券“吞并”上海证券，券业整合进入深水区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:15 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:34 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:33 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:31 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:14 - [“华住会”App崩了？客服回应](http://www.blog.kurohicncr.top/Article/details/69777.shtml)
-- 2026-06-29 12:25 - [“五一”假期小型客车继续施行免收通行费政策](http://www.blog.kurohicncr.top/Article/details/5224315760.shtml)
-- 2026-06-29 12:28 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.share.kurohicncr.top/Article/details/205669.shtml)
-- 2026-06-29 12:01 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.share.minike.top/Article/details/2037619800.shtml)
-- 2026-06-29 12:20 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](http://www.blog.kurohicncr.top/Article/details/9358641662.shtml)
-- 2026-06-29 12:11 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](http://www.share.kurohicncr.top/Article/details/4455413595.shtml)
-- 2026-06-29 12:16 - [“十四五”期间中国新发现大中型油气田225处](http://www.share.kurohicncr.top/Article/details/6254677644.shtml)
-- 2026-06-29 12:01 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](http://www.blog.minike.top/Article/details/4213398.shtml)
-- 2026-06-29 12:29 - [截至去年12月我国已出台网络领域立法180余部](http://www.share.minike.top/Article/details/83862092.shtml)
-- 2026-06-29 12:21 - [美光与闪迪股价持续走高，存储芯片需求有望长期旺盛](http://www.share.kurohicncr.top/Article/details/6765309.shtml)
-- 2026-06-29 12:27 - [从新疆到巴黎 艾德莱斯秀出中国职教风采](http://www.blog.kurohicncr.top/Article/details/5145177058.shtml)
-- 2026-06-29 12:00 - [中远海能第一季度归母净利润21.73亿元 同比增长206.74%](http://www.share.minike.top/Article/details/999258259.shtml)
-- 2026-06-29 12:15 - [二手时尚交易平台Vinted估值达80亿欧元，挑战eBay市场地位](http://www.blog.minike.top/Article/details/57816.shtml)
-- 2026-06-29 12:20 - [企业无端扩大适用范围 竞业限制的边界到底在哪里？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [绿的谐波：一季度净利润同比增长61.17%](http://www.blog.minike.top/Article/details/59782.shtml)
+- 2026-06-29 12:33 - [全球电力回顾报告：2025年化石燃料发电量零增长](http://www.blog.kurohicncr.top/Article/details/71193348.shtml)
+- 2026-06-29 12:18 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](http://www.share.minike.top/Article/details/131004821433.shtml)
+- 2026-06-29 12:09 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.blog.minike.top/Article/details/59442.shtml)
+- 2026-06-29 12:19 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](http://www.blog.minike.top/Article/details/0082927.shtml)
+- 2026-06-29 12:26 - [美股三大指数集体高开，布油重回100美元上方](http://www.blog.minike.top/Article/details/824150814.shtml)
+- 2026-06-29 12:12 - [美股回吐涨幅，美债收益率上行](http://www.share.minike.top/Article/details/53045287146.shtml)
+- 2026-06-29 12:24 - [华为迟林春：乾崑智驾累计辅助驾驶里程达100亿公里，预计今年10月超越特斯拉位居全球第一](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](http://www.share.minike.top/Article/details/546091255.shtml)
+- 2026-06-29 12:14 - [多浦乐2025年度归母净利润约6649万元 同比增28.85%](http://www.share.kurohicncr.top/Article/details/556994759.shtml)
+- 2026-06-29 12:18 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.share.minike.top/Article/details/229404010513.shtml)
+- 2026-06-29 12:17 - [原油：油价上涨 投资者对美伊会谈的疑虑加剧](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.blog.minike.top/Article/details/474649957.shtml)
+- 2026-06-29 12:22 - [百思买CEO科里・巴里因公司多年增长疲软卸任](http://www.share.kurohicncr.top/Article/details/473442172334.shtml)

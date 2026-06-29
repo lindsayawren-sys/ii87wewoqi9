@@ -1,56 +1,59 @@
-# 晶泰控股扭亏为账面富贵现金流仍失血 警惕业绩高波动？首付款成色待考
+# RadexMarkets瑞德克斯:能源市场面临极端压力
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：晶泰控股首次盈亏为盈，是否意味着AI制药赛道即将迎来放量爆发曙光？晶泰控股首次扭亏或仅为账面富贵，在金融资产公允价值等“财技”加持下公司实现账面盈利，公司经验活动净现金流仍在持续“失血”。需要强调的是，公司在“一次性收入”首付款加持下，使得业绩爆发式增长。在单一客户依赖背景下，随着首付款收入确认完毕后，未来公司业绩是否维持
+4月21日，近期，全球能源市场正处于高度紧张状态。RadexMarkets瑞德克斯认为，关键运输通道的不稳定和供应链波动正对原油价格构成直接压力。随着国际谈判的最后期限临近，能源供应的不确定性仍在持续增加。根据市场观察，原油价格已经显示出大幅波动，部分原因在于主要产油国的出口受限以及供应链调配难度加大，这种环境可能导致原油价格短期内显著上升，对全球市场和消费者产生直接影响。 能
 
 ## 正文
 
-出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：晶泰控股首次盈亏为盈，是否意味着AI制药赛道即将迎来放量爆发曙光？
+4月21日，近期，全球能源市场正处于高度紧张状态。
 
-晶泰控股首次扭亏或仅为账面富贵，在金融资产公允价值等“财技”加持下公司实现账面盈利，公司经验活动净现金流仍在持续“失血”。
+RadexMarkets瑞德克斯认为，关键运输通道的不稳定和供应链波动正对原油价格构成直接压力。
 
-需要强调的是，公司在“一次性收入”首付款加持下，使得业绩爆发式增长。
+随着国际谈判的最后期限临近，能源供应的不确定性仍在持续增加。
 
-在单一客户依赖背景下，随着首付款收入确认完毕后，未来公司业绩是否维持高增长或有待进一步观察？
+根据市场观察，原油价格已经显示出大幅波动，部分原因在于主要产油国的出口受限以及供应链调配难度加大，这种环境可能导致原油价格短期内显著上升，对全球市场和消费者产生直接影响。
 
-此外，公司首付款占交易总额占比不足2%，相关交易含金量或也有待观察。
+能源运输和供应格局的微妙变化，对价格形成了强烈影响。
 
-2025年，AI制药企业晶泰控股首次迎来盈利。
+RadexMarkets瑞德克斯表示，关键海上运输通道的管制和临时封锁可能导致原油市场供需失衡。
 
-2025年年报显示，2025年集团实现营业收入8.03亿元，同比增长201.2%；年内利润1.35亿元，经调整利润净额2.58亿元，首次实现年度盈利，成为AIforScience（AI4S）领域首家盈利的港股上市公司。
+虽然官方消息显示双方在谈判中取得一定进展，但实际操作中仍存在不确定性。
 
-值得注意的是，晶泰控股2021年至2024年已经累计亏损70亿元左右。
+市场数据表明，如果通道限制持续，原油价格可能触及历史高位，而炼油厂和终端市场的调整速度远不及价格变化速度。
 
 ## 相关推荐
 
-- 2026-06-29 12:03 - [广西河池凤山突发岩石崩塌 44户130人紧急转移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:20 - [2026“世界市长对话·西安”活动启幕 多国嘉宾共探丝路城市高质量发展之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:23 - [警惕贷款变破财，催收也藏坑！信息通信行业反诈中心披露近期高发虚假贷款诈骗APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:29 - [华尔街交易商增持美国国债 持仓规模创2007年以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:12 - [一季度生态成绩单亮眼，高质量发展绿意盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:00 - [视频|洋河员工持股“造富梦”破灭，5100名骨干浮亏四成，顾宇如何向洋海员工交代呢？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:16 - [普京称西方正将领导地位让位于全球南方国家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:24 - [吉利汽车午后涨超3% 第一季度归母净利润45.6亿元同比增长31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:09 - [Information：OpenAI预计用户将大幅转向更便宜的ChatGPT套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:09 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:20 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:13 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:22 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:35 - [2026年广东省行业企业职业技能竞赛计划发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:08 - [多支欧洲足球劲旅将于8月会师香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:22 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:06 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:13 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:07 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:10 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:25 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:15 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:17 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:07 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](http://www.blog.kurohicncr.top/Article/details/07015711622.shtml)
-- 2026-06-29 12:23 - [中天策略:4月28日市场分析](http://www.share.minike.top/Article/details/949296.shtml)
-- 2026-06-29 12:08 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](http://www.blog.minike.top/Article/details/7234725872.shtml)
-- 2026-06-29 12:29 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](http://www.share.minike.top/Article/details/222968274511.shtml)
-- 2026-06-29 12:25 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](http://www.blog.minike.top/Article/details/01838.shtml)
-- 2026-06-29 12:02 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [商务部：2026年1-3月我国电子商务持续平稳发展](http://www.share.kurohicncr.top/Article/details/67785.shtml)
-- 2026-06-29 12:24 - [民政部：着力推进普惠性、基础性、兜底性民生建设](http://www.share.minike.top/Article/details/4828972372.shtml)
-- 2026-06-29 12:02 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](http://www.share.minike.top/Article/details/688603168.shtml)
-- 2026-06-29 12:12 - [2026年度丽江海关部门预算公开](http://www.blog.kurohicncr.top/Article/details/323182008.shtml)
-- 2026-06-29 12:12 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](http://www.blog.kurohicncr.top/Article/details/81879558236.shtml)
-- 2026-06-29 12:26 - [重庆秀山：烟雨“边城” 古韵映春](http://www.blog.minike.top/Article/details/339721.shtml)
-- 2026-06-29 12:04 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](http://www.blog.minike.top/Article/details/1906815816.shtml)
-- 2026-06-29 12:10 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](http://www.share.minike.top/Article/details/225875.shtml)
-- 2026-06-29 12:27 - [韩国宣布与Google DeepMind建立合作](http://www.share.minike.top/Article/details/550757571540.shtml)
+- 2026-06-29 12:18 - [为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元](http://www.share.minike.top/Article/details/32262.shtml)
+- 2026-06-29 12:35 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](http://www.share.kurohicncr.top/Article/details/74407.shtml)
+- 2026-06-29 12:14 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](http://www.blog.minike.top/Article/details/820581151.shtml)
+- 2026-06-29 12:16 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](http://www.share.minike.top/Article/details/739980.shtml)
+- 2026-06-29 12:29 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [高雅光学公布于4月23日上午起停牌](http://www.blog.kurohicncr.top/Article/details/0236027.shtml)
+- 2026-06-29 12:35 - [波音季度亏损收窄，股价早盘上涨4.5%](http://www.share.minike.top/Article/details/57535308.shtml)
+- 2026-06-29 12:06 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](http://www.share.kurohicncr.top/Article/details/1764841829.shtml)
+- 2026-06-29 12:29 - [重庆今年一季度离境退税实退税额同比增长1倍](http://www.blog.kurohicncr.top/Article/details/484857.shtml)
+- 2026-06-29 12:19 - [一见·世界地球日，看“赋能型大国”的绿色担当](http://www.share.minike.top/Article/details/798608.shtml)
+- 2026-06-29 12:17 - [Revolut目标估值2000亿美元，IPO计划初具雏形](http://www.share.minike.top/Article/details/73037465422.shtml)
+- 2026-06-29 12:23 - [美国多家航空公司面临燃油压力](http://www.blog.kurohicncr.top/Article/details/626781805083.shtml)
+- 2026-06-29 12:20 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](http://www.share.kurohicncr.top/Article/details/35124452318.shtml)
+- 2026-06-29 12:32 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](http://www.share.kurohicncr.top/Article/details/48032760949.shtml)

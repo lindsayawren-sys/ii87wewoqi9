@@ -1,56 +1,60 @@
-# 银行业首个行业级“数据分类分级”大模型发布
+# 汉诺威工博会观察：中国企业加速AI应用落地
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-来源：邮储银行+ 近日，“数据分类分级人工智能大模型暨高质量数据集建设成果交流发布会”在京召开，中国人民银行党委委员、副行长邹澜出席会议并讲话。国家发改委、国家数据局，部分国有商业银行、城商行、农商行、外资银行，金融基础设施单位相关负责同志参加会议。中国邮政储蓄银行作为模型训练代表机构做专题分享。 数据分类分级人工智能大模型旨在探索解决金融机构在数据分类分级工作中面临的标准理解
+中新社汉诺威4月22日电 题：汉诺威工博会观察：中国企业加速AI应用落地 中新社记者 马秀秀 2026年德国汉诺威工业博览会正在举行。其间，“人工智能”成为贯穿各展区核心主线。从全球科技巨头到中型工业企业，再到科研机构和初创公司，纷纷展示具体的AI应用案例。中新社记者现场走访发现，中国企业也正以不同路径切入AI应用，助推产业转型升级。 作为面向高端装备制造领域的工业软件企业，恒
 
 ## 正文
 
-来源：邮储银行+ 近日，“数据分类分级人工智能大模型暨高质量数据集建设成果交流发布会”在京召开，中国人民银行党委委员、副行长邹澜出席会议并讲话。
+中新社汉诺威4月22日电 题：汉诺威工博会观察：中国企业加速AI应用落地 中新社记者 马秀秀 2026年德国汉诺威工业博览会正在举行。
 
-国家发改委、国家数据局，部分国有商业银行、城商行、农商行、外资银行，金融基础设施单位相关负责同志参加会议。
+其间，“人工智能”成为贯穿各展区核心主线。
 
-中国邮政储蓄银行作为模型训练代表机构做专题分享。
+从全球科技巨头到中型工业企业，再到科研机构和初创公司，纷纷展示具体的AI应用案例。
 
-数据分类分级人工智能大模型旨在探索解决金融机构在数据分类分级工作中面临的标准理解不一、执行尺度不齐、自动化水平不足等痛点。
+中新社记者现场走访发现，中国企业也正以不同路径切入AI应用，助推产业转型升级。
 
-邮储银行深度参与数据分类分级人工智能大模型训练工作，在发布会上介绍了模型选型与结构设计、关键超参数优化、模型四轮迭代演进路径、模型与高质量数据集双向提升等重点实践。
+作为面向高端装备制造领域的工业软件企业，恒远科技此次带来一套“AI原生”工业软件系统。
 
-中国人民银行组织相关机构按照“共建、共享、共用、共治”原则协同攻关，通过凝练头部机构经验共识，再借助大模型转化为通用、自动化工具供给中小金融机构使用。
+恒远科技董事、总经理杨磊介绍，与传统依赖代码开发、功能固定的工业软件不同，这一系统通过对话即可动态生成应用界面和业务流程。
 
-数据分类分级人工智能大模型凝聚行业智慧，实现“1+1>2”的聚合放大效应，探索出一套科学规范、可复制的行业大模型协同建设模式和高质量数据集建设工艺，为人工智能在金融领域创新应用提供实践参考。
+相较于传统系统往往只能“监测问题”，该系统不仅能够理解需求，还能在运行中实现自主决策和执行，并根据反馈不断优化。
 
-近年来，邮储银行全面加速数智化转型落地，将智能技术作为驱动变革的关键抓手和决胜未来的战略高地，构建了大模型能力体系。
+这种模式不仅显著降低企业对软件开发和运维的依赖，也让AI在企业内部得到更大规模应用，尤其有助于中小企业降低使用成本。
 
 ## 相关推荐
 
-- 2026-06-29 12:25 - [北京首都机场“五一”假期预计运送旅客超100万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:26 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:12 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:18 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:29 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:26 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:15 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:29 - [“五一”假期预计约600万人次进出香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:17 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:18 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:17 - [安峰获批担任马上消费金融副总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:28 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:17 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:06 - [4月22日“农产品批发价格200指数”与昨天持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:27 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:30 - [228件作品荟萃第四届当代陶瓷艺术展览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:29 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:31 - [推动实体经济发展，内蒙古“放大招”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:17 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:30 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:28 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:17 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:28 - [美联储主席提名人沃什阐述美联储政策主张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:23 - [日经指数首次升破60000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:11 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](http://www.share.minike.top/Article/details/20667110.shtml)
-- 2026-06-29 12:26 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.blog.kurohicncr.top/Article/details/58179007.shtml)
-- 2026-06-29 12:26 - [谷歌员工反对将AI用于机密任务](http://www.blog.kurohicncr.top/Article/details/132264.shtml)
-- 2026-06-29 12:24 - [春到桑干河](http://www.share.kurohicncr.top/Article/details/1433992.shtml)
-- 2026-06-29 12:14 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](http://www.blog.kurohicncr.top/Article/details/21678190014.shtml)
-- 2026-06-29 12:25 - [阿联酋能源部长：退出欧佩克对市场影响有限](http://www.share.kurohicncr.top/Article/details/290197890.shtml)
-- 2026-06-29 12:17 - [重庆国际消费节启幕 打造全域消费新场景](http://www.share.minike.top/Article/details/012856.shtml)
-- 2026-06-29 12:24 - [中国选手赵一程打破男子速度攀岩世界纪录](http://www.share.kurohicncr.top/Article/details/48940495617.shtml)
-- 2026-06-29 12:15 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](http://www.blog.minike.top/Article/details/478856753412.shtml)
-- 2026-06-29 12:11 - [“华住会”App崩了？客服回应](http://www.share.kurohicncr.top/Article/details/2031087178.shtml)
-- 2026-06-29 12:10 - [“五一”假期小型客车继续施行免收通行费政策](http://www.share.kurohicncr.top/Article/details/867193.shtml)
-- 2026-06-29 12:05 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](http://www.blog.kurohicncr.top/Article/details/13526.shtml)
-- 2026-06-29 12:17 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.blog.kurohicncr.top/Article/details/71135323688.shtml)
-- 2026-06-29 12:23 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.blog.kurohicncr.top/Article/details/253421089097.shtml)
-- 2026-06-29 12:26 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](http://www.share.kurohicncr.top/Article/details/07757.shtml)
+- 2026-06-29 12:10 - [辽宁省委书记许昆林到大商所调研](http://www.share.kurohicncr.top/Article/details/2146385249.shtml)
+- 2026-06-29 12:09 - [一季度长三角地区出口合计占全国41%](http://www.share.kurohicncr.top/Article/details/375036.shtml)
+- 2026-06-29 12:15 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.share.minike.top/Article/details/52107.shtml)
+- 2026-06-29 12:08 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.share.kurohicncr.top/Article/details/4936864072.shtml)
+- 2026-06-29 12:06 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.blog.kurohicncr.top/Article/details/196988677.shtml)
+- 2026-06-29 12:10 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](http://www.share.kurohicncr.top/Article/details/36947784.shtml)
+- 2026-06-29 12:06 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [日本126名议员集体参拜靖国神社](http://www.share.kurohicncr.top/Article/details/3373346368.shtml)
+- 2026-06-29 12:14 - [绿的谐波：一季度净利润同比增长61.17%](http://www.blog.minike.top/Article/details/429141680185.shtml)
+- 2026-06-29 12:18 - [全球电力回顾报告：2025年化石燃料发电量零增长](http://www.blog.minike.top/Article/details/87299460.shtml)
+- 2026-06-29 12:35 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](http://www.blog.kurohicncr.top/Article/details/19727631.shtml)
+- 2026-06-29 12:06 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.blog.kurohicncr.top/Article/details/82062337845.shtml)
+- 2026-06-29 12:14 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](http://www.blog.minike.top/Article/details/74795688314.shtml)

@@ -1,61 +1,61 @@
-# 欧盟预算大战在即：1.8万亿欧元开支计划引发“南北对峙”
+# 国台办：两岸空中直航是沟通桥梁，非政治筹码
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-随着欧盟准备制定2028-2034年的七年财政框架，一场围绕约1.8万亿欧元巨资的“预算争夺战”已悄然打响。在资金需求与财政纪律之间，欧盟各国领导人正面临艰难的抉择。 资金规模与南北分歧 欧盟委员会最初提出的七年预算约为1.8万亿欧元。欧洲议会更进一步，主张将预算提升至1.78万亿欧元，较委员会提案增加约1750亿欧元。 然而，以荷兰、德国为首的“节俭派”国家坚决反对扩大预算规
+中新社北京4月22日电 (朱贺 黄欣欣)大陆方面近期再次促请台方全面恢复两岸空中客运直航正常化，民进党当局却称“实际需求没想象高”。国务院台办发言人张晗22日回应指，空中直航是沟通桥梁，不是政治筹码。 国台办例行新闻发布会当天在北京举行。大陆方面日前发布十项促进两岸交流合作的政策措施，涵盖两岸空中客运直航、赴岛内个人游试点等内容，持续受到媒体关注。 回答有关两岸空中直航的提问时
 
 ## 正文
 
-随着欧盟准备制定2028-2034年的七年财政框架，一场围绕约1.8万亿欧元巨资的“预算争夺战”已悄然打响。
+中新社北京4月22日电 (朱贺 黄欣欣)大陆方面近期再次促请台方全面恢复两岸空中客运直航正常化，民进党当局却称“实际需求没想象高”。
 
-在资金需求与财政纪律之间，欧盟各国领导人正面临艰难的抉择。
+国务院台办发言人张晗22日回应指，空中直航是沟通桥梁，不是政治筹码。
 
-资金规模与南北分歧 欧盟委员会最初提出的七年预算约为1.8万亿欧元。
+国台办例行新闻发布会当天在北京举行。
 
-欧洲议会更进一步，主张将预算提升至1.78万亿欧元，较委员会提案增加约1750亿欧元。
+大陆方面日前发布十项促进两岸交流合作的政策措施，涵盖两岸空中客运直航、赴岛内个人游试点等内容，持续受到媒体关注。
 
-然而，以荷兰、德国为首的“节俭派”国家坚决反对扩大预算规模。
+回答有关两岸空中直航的提问时，张晗援引2025年及今年一季度相关数据。
 
-他们主张预算应更加精简，这与希望增加支出的南欧和东欧国家形成了鲜明对立。
+她说，这印证两岸空中直航市场的旺盛需求和民众往来的强烈需求和意愿。
 
-德国因其净贡献国地位，在此次预算调整中可能成为“最大输家”之一。
+民进党当局应正视市场需求，停止政治操弄，停止阻挠两岸人员往来，让两岸空中直航回归服务民生、促进交流的本质，还两岸同胞一条畅通、便捷、高效的空中之路。
 
-新旧优先事项的博弈 新版预算的核心矛盾在于新旧开支项目的角力。
+针对大陆推动恢复上海及福建居民赴岛内个人游试点，张晗敦促民进党当局正视岛内旅游业界和民众呼声，停止政治操弄，取消针对大陆居民赴台旅游的种种不合理限制，采取务实举措，为两岸人员往来正常化创造有利条件，而不是一味以各种站不住脚的理由设卡立障，与民众为敌、挡民众获利。
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [前谷歌深度思维研究员创立AI初创公司，斩获11亿美元创纪录种子轮融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:07 - [中天策略:4月28日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:02 - [五一出行遇到问题别慌，吃住行游购每类投诉都有对应入口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:01 - [北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:02 - [通用汽车CFO：5亿美元关税返还背后的谨慎乐观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:00 - [华尔街开盘涨跌互现，AI需求忧虑重返市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:22 - [商务部：2026年1-3月我国电子商务持续平稳发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:21 - [民政部：着力推进普惠性、基础性、兜底性民生建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:12 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:07 - [2026年度丽江海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:07 - [361度拟折让约10.69%先旧后新配售最多1亿股 净筹约6.11亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:01 - [重庆秀山：烟雨“边城” 古韵映春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:29 - [确诊恶性肿瘤理赔遭拒，保险公司未主动询问被判赔付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:20 - [中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:24 - [韩国宣布与Google DeepMind建立合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:35 - [为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:20 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:35 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:13 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:25 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:30 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:33 - [高雅光学公布于4月23日上午起停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:06 - [波音季度亏损收窄，股价早盘上涨4.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:24 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:17 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:06 - [一见·世界地球日，看“赋能型大国”的绿色担当](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:06 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:36 - [美国多家航空公司面临燃油压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:17 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:07 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [北京首都机场“五一”假期预计运送旅客超100万人次](http://www.blog.minike.top/Article/details/39190.shtml)
-- 2026-06-29 12:06 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [【理响中国】指尖传新声，理论宣讲有声有色](http://www.share.minike.top/Article/details/6961376.shtml)
-- 2026-06-29 12:00 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](http://www.share.minike.top/Article/details/13784766.shtml)
-- 2026-06-29 12:10 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](http://www.blog.minike.top/Article/details/960496297076.shtml)
-- 2026-06-29 12:06 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](http://www.share.minike.top/Article/details/512745572.shtml)
-- 2026-06-29 12:04 - [“五一”假期预计约600万人次进出香港](http://www.share.kurohicncr.top/Article/details/232360629386.shtml)
-- 2026-06-29 12:14 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](http://www.share.minike.top/Article/details/7749159368.shtml)
-- 2026-06-29 12:01 - [央行今日开展259亿元7天期逆回购操作](http://www.share.kurohicncr.top/Article/details/32777077278.shtml)
-- 2026-06-29 12:21 - [传递“乌尔朵”的守边人](http://www.share.minike.top/Article/details/31629699.shtml)
-- 2026-06-29 12:13 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](http://www.share.kurohicncr.top/Article/details/43807.shtml)
-- 2026-06-29 12:22 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [安峰获批担任马上消费金融副总经理](http://www.blog.minike.top/Article/details/0522184580.shtml)
+- 2026-06-29 12:14 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](http://www.blog.kurohicncr.top/Article/details/729075693834.shtml)
+- 2026-06-29 12:10 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](http://www.blog.kurohicncr.top/Article/details/720152.shtml)
+- 2026-06-29 12:33 - [4月22日“农产品批发价格200指数”与昨天持平](http://www.blog.minike.top/Article/details/338499266.shtml)
+- 2026-06-29 12:11 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](http://www.share.minike.top/Article/details/81880240.shtml)
+- 2026-06-29 12:24 - [228件作品荟萃第四届当代陶瓷艺术展览](http://www.blog.minike.top/Article/details/9026805144.shtml)
+- 2026-06-29 12:30 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [推动实体经济发展，内蒙古“放大招”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](http://www.blog.minike.top/Article/details/3695987.shtml)
+- 2026-06-29 12:26 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](http://www.share.kurohicncr.top/Article/details/736467.shtml)
+- 2026-06-29 12:10 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](http://www.share.minike.top/Article/details/823994494.shtml)
+- 2026-06-29 12:23 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](http://www.share.kurohicncr.top/Article/details/90442.shtml)
+- 2026-06-29 12:09 - [美联储主席提名人沃什阐述美联储政策主张](http://www.blog.kurohicncr.top/Article/details/670118641.shtml)
+- 2026-06-29 12:20 - [日经指数首次升破60000点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [俄军总参谋长：已完全控制卢甘斯克地区](http://www.blog.kurohicncr.top/Article/details/8968084185.shtml)

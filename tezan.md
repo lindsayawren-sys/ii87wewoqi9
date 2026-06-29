@@ -1,61 +1,57 @@
-# 成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改
+# 操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网成都4月29日电 (记者 刘忠俊)4月29日，成都市市场监管局就近期该市多家茶楼因“未办食品经营许可证泡茶、售卖零食”等问题遭投诉举报一事作出回应，明确已组织相关区(市)县市场监管部门开展调查处理，并部署专项排查、整改指导等后续工作。近期，成都市部分区(市)县市场监管局陆续收到集中投诉举报，反映当地部分茶楼存在“未取得食品经营许可”从事食品经营活动的情况。接到投诉后，成都
+专题：风险溢价回落 看好中国制造与科技出海 影响股市利好与利空消息 宏观新闻 1、国务院日前印发《关于推进服务业扩能提质的意见》。意见明确，到2030年，服务业总规模迈上100万亿元台阶。意见指出，建设一批高质量行业数据集，有序推进算力布局与边缘算力建设。意见还指出，深入实施“人工智能+”行动，加快智能编程工具研发使用，支持采购大模型、智能体服务。 2、外交部发言人郭嘉昆昨日主
 
 ## 正文
 
-中新网成都4月29日电 (记者 刘忠俊)4月29日，成都市市场监管局就近期该市多家茶楼因“未办食品经营许可证泡茶、售卖零食”等问题遭投诉举报一事作出回应，明确已组织相关区(市)县市场监管部门开展调查处理，并部署专项排查、整改指导等后续工作。
+专题：风险溢价回落 看好中国制造与科技出海 影响股市利好与利空消息 宏观新闻 1、国务院日前印发《关于推进服务业扩能提质的意见》。
 
-近期，成都市部分区(市)县市场监管局陆续收到集中投诉举报，反映当地部分茶楼存在“未取得食品经营许可”从事食品经营活动的情况。
+意见明确，到2030年，服务业总规模迈上100万亿元台阶。
 
-接到投诉后，成都市市场监管局迅速统筹部署，组织相关区(市)县市场监管局开展专项调查处理工作。
+意见指出，建设一批高质量行业数据集，有序推进算力布局与边缘算力建设。
 
-根据《中华人民共和国食品安全法》《四川省食品安全条例》相关规定，从事食品生产、食品销售、餐饮服务，应当依法取得许可或者备案。
+意见还指出，深入实施“人工智能+”行动，加快智能编程工具研发使用，支持采购大模型、智能体服务。
 
-其中，对未按规定备案的商家，责令限期改正；对未取得食品经营许可的初次违法行为，若符合市场监管总局《市场监管行政违法行为首违不罚清单(一)》相关条件，可依法不予处罚。
+2、外交部发言人郭嘉昆昨日主持例行记者会。
 
-目前，成都市市场监管局已责成各区(市)县市场监管局，在全市范围内开展棋牌室、茶楼专项排查工作。
+美国前常驻联合国代表黑莉发帖称，美国在霍尔木兹海峡扣押的船只是从中国开往伊朗的，与用于制造导弹的化学品运输有关。
 
-经查，部分茶楼确实存在未取得食品经营许可或未按规定备案从事食品经营的行为。
+郭嘉昆表示，据了解，这是一艘外籍集装箱船。
 
-针对此类商家，市场监管部门已依法责令其整改，并逐一指导其补办食品经营许可证或按规定完成备案。
+中方反对任何的恶意关联和炒作。
 
 ## 相关推荐
 
-- 2026-06-29 12:02 - [传递“乌尔朵”的守边人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:09 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:25 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:05 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:15 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:24 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:01 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:21 - [渝昆高铁川滇段无砟轨道施工全部完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:14 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:03 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:15 - [西安通报5起违反中央八项规定精神问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:06 - [GTC泽汇资本:黄金整理静待方向明朗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:25 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:18 - [OpenAI称已更新与微软的合作伙伴关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:03 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:21 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:17 - [美联储主席提名人沃什阐述美联储政策主张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:07 - [日经指数首次升破60000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:15 - [俄军总参谋长：已完全控制卢甘斯克地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:19 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:31 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:28 - [从三组卫星遥感图看生态保护成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:22 - [东方证券“吞并”上海证券，券业整合进入深水区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:25 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:31 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:33 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:00 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](http://www.share.minike.top/Article/details/5756825306.shtml)
-- 2026-06-29 12:21 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.blog.kurohicncr.top/Article/details/725744448169.shtml)
-- 2026-06-29 12:10 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.share.minike.top/Article/details/30197640659.shtml)
-- 2026-06-29 12:11 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [“十四五”期间中国新发现大中型油气田225处](http://www.blog.minike.top/Article/details/426680235.shtml)
-- 2026-06-29 12:12 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](http://www.blog.minike.top/Article/details/74643.shtml)
-- 2026-06-29 12:05 - [截至去年12月我国已出台网络领域立法180余部](http://www.blog.kurohicncr.top/Article/details/34391852.shtml)
-- 2026-06-29 12:10 - [美光与闪迪股价持续走高，存储芯片需求有望长期旺盛](http://www.share.minike.top/Article/details/2382595.shtml)
-- 2026-06-29 12:17 - [从新疆到巴黎 艾德莱斯秀出中国职教风采](http://www.blog.kurohicncr.top/Article/details/957899.shtml)
-- 2026-06-29 12:06 - [中远海能第一季度归母净利润21.73亿元 同比增长206.74%](http://www.blog.kurohicncr.top/Article/details/2996553134.shtml)
-- 2026-06-29 12:21 - [二手时尚交易平台Vinted估值达80亿欧元，挑战eBay市场地位](http://www.share.minike.top/Article/details/54333.shtml)
-- 2026-06-29 12:27 - [企业无端扩大适用范围 竞业限制的边界到底在哪里？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [谷歌就专利局“既定预期”规则向美国最高法院提起上诉](http://www.share.minike.top/Article/details/02989.shtml)
-- 2026-06-29 12:27 - [阿里平头哥重磅发布，支持万卡AI集群高速互联！港股AI反弹，百亿港股互联网ETF华宝（513770）盘中冲击2%！](http://www.blog.minike.top/Article/details/054589424599.shtml)
+- 2026-06-29 12:33 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](http://www.share.kurohicncr.top/Article/details/4151290342.shtml)
+- 2026-06-29 12:21 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](http://www.blog.kurohicncr.top/Article/details/949147.shtml)
+- 2026-06-29 12:16 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](http://www.share.minike.top/Article/details/524583.shtml)
+- 2026-06-29 12:10 - [美股三大指数集体高开，布油重回100美元上方](http://www.blog.minike.top/Article/details/8241515.shtml)
+- 2026-06-29 12:12 - [美股回吐涨幅，美债收益率上行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [华为迟林春：乾崑智驾累计辅助驾驶里程达100亿公里，预计今年10月超越特斯拉位居全球第一](http://www.share.kurohicncr.top/Article/details/38690269.shtml)
+- 2026-06-29 12:18 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](http://www.share.minike.top/Article/details/22122903215.shtml)
+- 2026-06-29 12:29 - [多浦乐2025年度归母净利润约6649万元 同比增28.85%](http://www.share.kurohicncr.top/Article/details/269450253562.shtml)
+- 2026-06-29 12:18 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.blog.kurohicncr.top/Article/details/939860.shtml)
+- 2026-06-29 12:25 - [原油：油价上涨 投资者对美伊会谈的疑虑加剧](http://www.blog.minike.top/Article/details/77527.shtml)
+- 2026-06-29 12:28 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.share.kurohicncr.top/Article/details/1471716.shtml)
+- 2026-06-29 12:18 - [百思买CEO科里・巴里因公司多年增长疲软卸任](http://www.blog.minike.top/Article/details/29477.shtml)
+- 2026-06-29 12:28 - [因伊朗冲突等不确定性 IBM对业绩指引保持谨慎](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [Keurig与雀巢续签协议，延续星巴克咖啡分销合作](http://www.share.kurohicncr.top/Article/details/75727.shtml)

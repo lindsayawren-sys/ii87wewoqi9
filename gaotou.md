@@ -1,42 +1,57 @@
-# 2026年盈江海关部门预算公开
+# 6万亿差距拉开 居民财富重构 公募基金规模大超银行理财
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-2026年盈江海关部门预算公开.pdf
+居民财富管理正在深度重构。 近期，公募基金规模持续攀升、发行市场“暖意盎然”。同时，数据显示，公募基金实现“弯道超车”，逐渐取代银行理财，成为普通投资者的首选项。记者了解到，今年一季度末，银行理财规模跌至32万亿元之下。而在今年2月末，公募基金的规模已经突破38万亿元，创下历史新高，优势进一步扩大。若以2月末公募基金规模与3月末银行理财规模计算，约6万亿规模的差距已经拉开。 银
 
 ## 正文
 
-2026年盈江海关部门预算公开.pdf
+居民财富管理正在深度重构。
+
+近期，公募基金规模持续攀升、发行市场“暖意盎然”。
+
+同时，数据显示，公募基金实现“弯道超车”，逐渐取代银行理财，成为普通投资者的首选项。
+
+记者了解到，今年一季度末，银行理财规模跌至32万亿元之下。
+
+而在今年2月末，公募基金的规模已经突破38万亿元，创下历史新高，优势进一步扩大。
+
+若以2月末公募基金规模与3月末银行理财规模计算，约6万亿规模的差距已经拉开。
+
+银行理财一季度规模下降1.38万亿元 4月17日，银行业理财登记托管中心发布《中国银行业理财市场季度报告（2026年一季度）》（以下简称《报告》）显示，截至2026年一季度末，全市场共存续产品4.80万只，同比增加18.23%；存续规模31.91万亿元，同比增加9.51%。
+
+虽然存续规模同比出现增长，但环比却出现明显下降。
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:16 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:26 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:18 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:18 - [新西兰央行行长：已准备好应对持续的价格压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:14 - [重庆罗斯福图书馆旧址将焕新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:18 - [北京首都机场“五一”假期预计运送旅客超100万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:04 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:13 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:17 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:28 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:32 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:07 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:33 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:23 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:15 - [四张图看懂蒂姆・库克的非凡职业生涯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:20 - [安峰获批担任马上消费金融副总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:14 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:14 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:29 - [4月22日“农产品批发价格200指数”与昨天持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:21 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:20 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](http://www.blog.kurohicncr.top/Article/details/547265293.shtml)
-- 2026-06-29 12:10 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](http://www.blog.minike.top/Article/details/88491111843.shtml)
-- 2026-06-29 12:02 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](http://www.blog.minike.top/Article/details/709059243480.shtml)
-- 2026-06-29 12:29 - [指数级增长 2025年我国词元调用量约21100万亿](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [中共中央政治局会议要点对比及解读](http://www.share.kurohicncr.top/Article/details/02023.shtml)
-- 2026-06-29 12:15 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](http://www.blog.kurohicncr.top/Article/details/557386026.shtml)
-- 2026-06-29 12:20 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.share.kurohicncr.top/Article/details/967058.shtml)
-- 2026-06-29 12:24 - [谷歌员工反对将AI用于机密任务](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [春到桑干河](http://www.blog.minike.top/Article/details/1863475.shtml)
-- 2026-06-29 12:16 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [阿联酋能源部长：退出欧佩克对市场影响有限](http://www.share.minike.top/Article/details/661848.shtml)
-- 2026-06-29 12:00 - [重庆国际消费节启幕 打造全域消费新场景](http://www.blog.minike.top/Article/details/5871110279.shtml)
-- 2026-06-29 12:16 - [中国选手赵一程打破男子速度攀岩世界纪录](http://www.blog.kurohicncr.top/Article/details/347277064179.shtml)
-- 2026-06-29 12:29 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [梁玉宁：中文与诗歌是中华文明的重要载体](http://www.blog.minike.top/Article/details/165797792315.shtml)
+- 2026-06-29 12:16 - [美国海军部长约翰·费伦将离职](http://www.blog.minike.top/Article/details/54206205087.shtml)
+- 2026-06-29 12:16 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.blog.minike.top/Article/details/199569.shtml)
+- 2026-06-29 12:13 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](http://www.share.kurohicncr.top/Article/details/583513065.shtml)
+- 2026-06-29 12:10 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](http://www.blog.minike.top/Article/details/00728.shtml)
+- 2026-06-29 12:25 - [辽宁省委书记许昆林到大商所调研](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [一季度长三角地区出口合计占全国41%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.share.minike.top/Article/details/918076638836.shtml)
+- 2026-06-29 12:10 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](http://www.blog.minike.top/Article/details/750681753484.shtml)
+- 2026-06-29 12:34 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.share.minike.top/Article/details/591064403029.shtml)
+- 2026-06-29 12:15 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](http://www.share.minike.top/Article/details/79936679.shtml)
+- 2026-06-29 12:14 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.blog.kurohicncr.top/Article/details/12495206998.shtml)
+- 2026-06-29 12:09 - [日本126名议员集体参拜靖国神社](http://www.blog.kurohicncr.top/Article/details/84121126.shtml)

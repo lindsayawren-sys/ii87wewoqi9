@@ -1,58 +1,61 @@
-# 第139届广交会二期闭幕
+# 蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网广州4月27日电 (记者 程景伟)第139届广交会第二期27日闭幕。据广交会新闻中心通报，本届广交会自4月15日开幕以来，截至27日17时，共有来自219个国家和地区的24.5万名境外采购商到会，比上届同期(下同)增长2.2%。 同时，140家境外工商机构组团参会；468个采购团中，美国塔吉特、墨西哥利物浦、英国乐购、德国麦德龙等344家头部企业组团参会，增长4.9%。
+此前曾扬言要阻挠下一任美联储主席提名通过的共和党参议员汤姆・蒂利斯，于周二表态，自己完全支持凯文・沃什出任美联储主席。 蒂利斯表示：“以史为鉴，倘若有人认为总统任命人选后，自身便能独断掌控一切事务，那这名主席必然履职不力。你曾在多位优秀前任手下任职，我相信你会坚守本分、正确履职。” 但他同时提出附加条件：除非美国司法部终止针对美联储主席杰罗姆・鲍威尔的刑事调查，否则他不会放行沃
 
 ## 正文
 
-中新网广州4月27日电 (记者 程景伟)第139届广交会第二期27日闭幕。
+此前曾扬言要阻挠下一任美联储主席提名通过的共和党参议员汤姆・蒂利斯，于周二表态，自己完全支持凯文・沃什出任美联储主席。
 
-据广交会新闻中心通报，本届广交会自4月15日开幕以来，截至27日17时，共有来自219个国家和地区的24.5万名境外采购商到会，比上届同期(下同)增长2.2%。
+蒂利斯表示：“以史为鉴，倘若有人认为总统任命人选后，自身便能独断掌控一切事务，那这名主席必然履职不力。
 
-同时，140家境外工商机构组团参会；468个采购团中，美国塔吉特、墨西哥利物浦、英国乐购、德国麦德龙等344家头部企业组团参会，增长4.9%。
+你曾在多位优秀前任手下任职，我相信你会坚守本分、正确履职。
 
-本届广交会分三期在广州举办，展览总面积155万平方米，展位总数7.57万个，参展企业超3.2万家。
+” 但他同时提出附加条件：除非美国司法部终止针对美联储主席杰罗姆・鲍威尔的刑事调查，否则他不会放行沃什进入后续提名流程。
 
-其中，第二期聚焦“品质家居”主题，展览面积51.5万平方米，展位2.5万个，包括家庭用品、礼品及装饰品、建材及家具三大板块，新设时尚饰品、竹木餐具、竹木家居用品、集成房屋及庭院设施4个专区。
+该项调查缘起美联储总部耗资数十亿美元的办公楼翻新工程相关事宜。
 
-本届广交会第二期共举办165场新品首发活动，重点围绕绿色建材、创意家居及餐厨好物等主题，全方位展示中国制造的向新、向绿、向智特色。
+沃什的提名要进入参议院全体大会审议，必须先获得参议院银行委员会的多数赞成票。
 
-据悉，本届广交会第三期将于5月1日至5日举行，展品涉及玩具及婴孕童、时尚、家用纺织品、文具、健康休闲等领域。
+该委员会由 13 名共和党议员、11 名民主党议员组成。
 
-(完)
+一旦缺少蒂利斯的支持，委员会投票将形成 12 票赞成、12 票反对的僵持局面，此次提名直接作废。
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:24 - [银行业首个行业级“数据分类分级”大模型发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:14 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:28 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:03 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:24 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:09 - [新西兰央行行长：已准备好应对持续的价格压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:20 - [重庆罗斯福图书馆旧址将焕新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:14 - [北京首都机场“五一”假期预计运送旅客超100万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:04 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:17 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:25 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:34 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:34 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:08 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:29 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:28 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:12 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:14 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:20 - [四张图看懂蒂姆・库克的非凡职业生涯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:19 - [安峰获批担任马上消费金融副总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:07 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:20 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:23 - [4月22日“农产品批发价格200指数”与昨天持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:30 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:18 - [228件作品荟萃第四届当代陶瓷艺术展览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:33 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](http://www.share.kurohicncr.top/Article/details/10049228564.shtml)
-- 2026-06-29 12:12 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](http://www.share.minike.top/Article/details/179901639100.shtml)
-- 2026-06-29 12:16 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](http://www.share.kurohicncr.top/Article/details/4247676210.shtml)
-- 2026-06-29 12:15 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [指数级增长 2025年我国词元调用量约21100万亿](http://www.share.kurohicncr.top/Article/details/293337609009.shtml)
-- 2026-06-29 12:17 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](http://www.blog.kurohicncr.top/Article/details/832227735246.shtml)
-- 2026-06-29 12:18 - [中共中央政治局会议要点对比及解读](http://www.share.kurohicncr.top/Article/details/0827491.shtml)
-- 2026-06-29 12:06 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](http://www.share.minike.top/Article/details/353546.shtml)
-- 2026-06-29 12:20 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.blog.minike.top/Article/details/63224.shtml)
-- 2026-06-29 12:14 - [谷歌员工反对将AI用于机密任务](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [春到桑干河](http://www.share.kurohicncr.top/Article/details/903235.shtml)
-- 2026-06-29 12:20 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [阿联酋能源部长：退出欧佩克对市场影响有限](http://www.share.kurohicncr.top/Article/details/88326909.shtml)
-- 2026-06-29 12:19 - [重庆国际消费节启幕 打造全域消费新场景](http://www.share.minike.top/Article/details/62556.shtml)
+- 2026-06-29 12:25 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](http://www.share.minike.top/Article/details/18381595593.shtml)
+- 2026-06-29 12:13 - [梁玉宁：中文与诗歌是中华文明的重要载体](http://www.blog.minike.top/Article/details/28332.shtml)
+- 2026-06-29 12:30 - [美国海军部长约翰·费伦将离职](http://www.blog.kurohicncr.top/Article/details/936995.shtml)
+- 2026-06-29 12:29 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.share.minike.top/Article/details/254659907641.shtml)
+- 2026-06-29 12:09 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [辽宁省委书记许昆林到大商所调研](http://www.share.minike.top/Article/details/734247.shtml)
+- 2026-06-29 12:30 - [一季度长三角地区出口合计占全国41%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.share.kurohicncr.top/Article/details/475414774985.shtml)
+- 2026-06-29 12:15 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.share.minike.top/Article/details/695912.shtml)
+- 2026-06-29 12:23 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](http://www.share.minike.top/Article/details/1747740721.shtml)
+- 2026-06-29 12:19 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.blog.kurohicncr.top/Article/details/1198664544.shtml)
+- 2026-06-29 12:14 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](http://www.share.minike.top/Article/details/7530598.shtml)

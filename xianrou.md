@@ -1,56 +1,58 @@
-# 中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”
+# 莎士比亚经典喜剧《第十二夜》在成都上演
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网北京4月28日电 (记者 孙自法)中国科学院4月28日在北京正式发布“磐石100”模型体系，以“坚如磐石”的科学基础大模型为智能底座，面向数学、物理、材料、天文、环境、空天、地理、生命等重点领域方向，打造八个学科大模型能力集群，形成体系化创新生态，实现人工智能(AI)赋能科研“八仙过海，各显神通”。 磐石模型体系坚持由科学基础大模型聚焦共性科研需求、促进跨学科突破；学科领
+中新网成都4月22日电 (记者 岳依桐)“2026成都·欧洲文化季”第三场主题活动——莎士比亚经典喜剧《第十二夜》戏剧演出21日晚在成都举行，剑桥莎士比亚戏剧节剧团再度跨越重洋，以纯正英伦戏剧风范，为成都市民献上一场浪漫诙谐、意蕴悠长的艺术盛宴。 《第十二夜》以一场海难为缘起，讲述了薇奥拉女扮男装、机缘巧合步入公爵府后，引发的一系列身份错位、机缘巧合的温情故事，既有诙谐幽默的情
 
 ## 正文
 
-中新网北京4月28日电 (记者 孙自法)中国科学院4月28日在北京正式发布“磐石100”模型体系，以“坚如磐石”的科学基础大模型为智能底座，面向数学、物理、材料、天文、环境、空天、地理、生命等重点领域方向，打造八个学科大模型能力集群，形成体系化创新生态，实现人工智能(AI)赋能科研“八仙过海，各显神通”。
+中新网成都4月22日电 (记者 岳依桐)“2026成都·欧洲文化季”第三场主题活动——莎士比亚经典喜剧《第十二夜》戏剧演出21日晚在成都举行，剑桥莎士比亚戏剧节剧团再度跨越重洋，以纯正英伦戏剧风范，为成都市民献上一场浪漫诙谐、意蕴悠长的艺术盛宴。
 
-磐石模型体系坚持由科学基础大模型聚焦共性科研需求、促进跨学科突破；学科领域大模型专注解决领域基础性问题。
+《第十二夜》以一场海难为缘起，讲述了薇奥拉女扮男装、机缘巧合步入公爵府后，引发的一系列身份错位、机缘巧合的温情故事，既有诙谐幽默的情节铺陈，也有对爱情、真诚与自我身份的细腻思考，是莎士比亚最具代表性的喜剧作品之一。
 
-二者协同，形成支撑全领域科研场景攻关的数智能力。
+据介绍，剑桥莎士比亚戏剧节是英国颇具影响力的五大独立艺术节之一，于1988年由大卫·克里利博士创办。
 
-核心功能“三足鼎立”：AI赋能科研创新 “磐石100”模型体系以磐石·科学基础大模型为根基，学科领域大模型集群为骨干，细分科研场景应用模型和智能体为枝叶，构建了全域覆盖、高效联动的数智化科研创新平台，标志着人工智能赋能科学研究(AI for Science)从分散封闭的单点探索迈向协同高效的平台化创新。
+近四十年来，戏剧节始终秉持严谨的学术追求与纯粹的艺术理念，深耕莎士比亚戏剧经典，在全球戏剧领域享有良好声誉。
 
-自2025年陆续发布磐石·科学基础大模型1.0版、1.5版以来，研发团队持续攻坚，推出此次升级后的1.5pro版本基于650万条高质量科学推理数据，实现科学知识推理能力、多模态理解生成能力与模型可靠性的跨越式提升。
+此次赴蓉演出团队一行十人，坚持以演员语言、表情与肢体表达为核心，力求让成都市民都能轻松领略莎翁经典的独特魅力。
 
-作为智能底座，磐石提供文献罗盘、创新评价、智能体工厂三大核心功能，全方位赋能科研创新全流程。
+英国驻重庆总领事馆总领事李遥表示，英国拥有悠久的戏剧、创意与艺术表达传统。
 
-其中，磐石·智能体工厂提供“工具+智能体”一站式服务，初步实现智能体工具链自主闭环与智能化辅助生成，已沉淀超2000个科研工具，支持10余个细分科研领域。
+从莎士比亚的经典作品到今日充满活力的创意产业，文化始终在连接人心、激发思想、构建跨文化理解方面发挥着核心作用。
 
-此次发布的“磐石100”模型体系，集中展现出中国科学院在科学基础模型、学科领域模型、应用场景协同建设的深厚积累。
+据介绍，近年来，成都与英国在友城、经贸、教育、人文等领域往来密切、成果丰硕。
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [重庆罗斯福图书馆旧址将焕新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:23 - [北京首都机场“五一”假期预计运送旅客超100万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:12 - [Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:07 - [本科专业再上新，高校专业调整比例首次突破10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:30 - [【理响中国】指尖传新声，理论宣讲有声有色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:10 - [成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:28 - [上海论坛2026分论坛-“人工智能时代的劳动市场转型：中国与全球的新挑战”举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:29 - [亚马逊已在 AWS 上架多款全新 OpenAI 产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:07 - [“五一”假期预计约600万人次进出香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:19 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:31 - [四张图看懂蒂姆・库克的非凡职业生涯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:30 - [安峰获批担任马上消费金融副总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:09 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:29 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:17 - [4月22日“农产品批发价格200指数”与昨天持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:25 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:28 - [228件作品荟萃第四届当代陶瓷艺术展览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:23 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:18 - [推动实体经济发展，内蒙古“放大招”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:34 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:22 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:24 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [中共中央政治局会议要点对比及解读](http://www.blog.minike.top/Article/details/149943.shtml)
-- 2026-06-29 12:27 - [拉布布冰箱预售火爆，IP联名能否成为厨电业走出低迷的“救生圈”？](http://www.blog.kurohicncr.top/Article/details/54303.shtml)
-- 2026-06-29 12:16 - [印尼列车碰撞事故：14人死亡 往返雅加达长途列车服务暂停](http://www.share.kurohicncr.top/Article/details/716344.shtml)
-- 2026-06-29 12:06 - [谷歌员工反对将AI用于机密任务](http://www.share.kurohicncr.top/Article/details/88837387.shtml)
-- 2026-06-29 12:05 - [春到桑干河](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [大美边疆看我家丨黑龙江五大连池：北疆边陲的温柔四季](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [阿联酋能源部长：退出欧佩克对市场影响有限](http://www.blog.minike.top/Article/details/18936870554.shtml)
-- 2026-06-29 12:10 - [重庆国际消费节启幕 打造全域消费新场景](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [中国选手赵一程打破男子速度攀岩世界纪录](http://www.blog.kurohicncr.top/Article/details/017423629.shtml)
-- 2026-06-29 12:09 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](http://www.share.minike.top/Article/details/277534864123.shtml)
-- 2026-06-29 12:16 - [“华住会”App崩了？客服回应](http://www.blog.minike.top/Article/details/862835092504.shtml)
-- 2026-06-29 12:24 - [“五一”假期小型客车继续施行免收通行费政策](http://www.blog.kurohicncr.top/Article/details/837040285769.shtml)
-- 2026-06-29 12:18 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](http://www.blog.kurohicncr.top/Article/details/243914073396.shtml)
-- 2026-06-29 12:05 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.share.kurohicncr.top/Article/details/42529784.shtml)
-- 2026-06-29 12:07 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](http://www.blog.kurohicncr.top/Article/details/2948361.shtml)
+- 2026-06-29 12:21 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](http://www.blog.minike.top/Article/details/61896655.shtml)
+- 2026-06-29 12:06 - [辽宁省委书记许昆林到大商所调研](http://www.blog.minike.top/Article/details/6431590.shtml)
+- 2026-06-29 12:32 - [一季度长三角地区出口合计占全国41%](http://www.blog.minike.top/Article/details/50556177.shtml)
+- 2026-06-29 12:22 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.blog.minike.top/Article/details/460590527550.shtml)
+- 2026-06-29 12:22 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.share.minike.top/Article/details/60279080908.shtml)
+- 2026-06-29 12:19 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](http://www.share.kurohicncr.top/Article/details/70377358114.shtml)
+- 2026-06-29 12:19 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.share.kurohicncr.top/Article/details/69159.shtml)
+- 2026-06-29 12:24 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](http://www.share.minike.top/Article/details/0687622.shtml)
+- 2026-06-29 12:21 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.blog.kurohicncr.top/Article/details/353531.shtml)
+- 2026-06-29 12:34 - [日本126名议员集体参拜靖国神社](http://www.share.kurohicncr.top/Article/details/93624713788.shtml)
+- 2026-06-29 12:11 - [绿的谐波：一季度净利润同比增长61.17%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [全球电力回顾报告：2025年化石燃料发电量零增长](http://www.blog.kurohicncr.top/Article/details/455861.shtml)
+- 2026-06-29 12:26 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](http://www.blog.kurohicncr.top/Article/details/8878497294.shtml)
+- 2026-06-29 12:15 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.share.minike.top/Article/details/218798500.shtml)

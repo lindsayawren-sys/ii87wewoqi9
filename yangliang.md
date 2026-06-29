@@ -1,59 +1,45 @@
-# 我国太空金属增材制造技术取得突破
+# 贵阳银行：一季度归母净利润14.77亿元，同比增加2.37%
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-记者4月27日获悉，中国科学院力学研究所联合中国科学院微小卫星创新研究院，近日在轻舟试验飞船上完成太空金属增材制造技术演示验证，标志着太空制造领域取得又一项重要技术进步。 与地面制造相比，太空金属增材制造不仅要面对微重力条件下的复杂机理问题，还必须解决载荷轻量化、精密器件抗发射振动以及在轨操作安全性等一系列工程难题，是国际太空制造领域的前沿方向。 本次技术演示验证中，研究团队围
+贵阳银行4月22日公告，2026年第一季度实现营业收入34.71亿元，同比增长14.60%；归属于上市公司股东的净利润14.77亿元，同比增长2.37%；基本每股收益0.4元。
 
 ## 正文
 
-记者4月27日获悉，中国科学院力学研究所联合中国科学院微小卫星创新研究院，近日在轻舟试验飞船上完成太空金属增材制造技术演示验证，标志着太空制造领域取得又一项重要技术进步。
-
-与地面制造相比，太空金属增材制造不仅要面对微重力条件下的复杂机理问题，还必须解决载荷轻量化、精密器件抗发射振动以及在轨操作安全性等一系列工程难题，是国际太空制造领域的前沿方向。
-
-本次技术演示验证中，研究团队围绕微重力条件下的金属增材制造机理、工艺方法和装备研制持续攻关，在600公里轨道通过地面遥控启动太空金属增材制造载荷，顺利达成预定实验目标。
-
-此次实验表明，我国已初步具备太空金属增材制造关键技术的系统验证能力。
-
-未来，相关技术有望服务于在轨制造与维修应用、空间设施备件制造、深空任务自主保障等重大场景。
-
-据了解，轻舟试验飞船由中国科学院微小卫星创新研究院自主研制，于3月30日搭载力箭二号遥一运载火箭成功发射入轨。
-
-(记者刘祯、胡喆)
+贵阳银行4月22日公告，2026年第一季度实现营业收入34.71亿元，同比增长14.60%；归属于上市公司股东的净利润14.77亿元，同比增长2.37%；基本每股收益0.4元。
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [爱奇艺的“AI赌局”：当降本逻辑撞上内容本质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:03 - [中国国家文化产业拟向周星驰等认购方发行合共4680万份认股权证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:21 - [银行理财子加速“扫货”权益市场，打新报价量两月激增近九成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:03 - [【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:13 - [转让底价6573万元，华泰保险集团880万股股份再度挂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:27 - [翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:20 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:16 - [深化中国—东盟经贸合作 专家提十大建议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:26 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:08 - [千年晋祠难老泉高位复流 带动周边产业焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:16 - [一江清水向东流——凝心聚力共绘长江发展新画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:02 - [从“贷活”到“焕活”：金融赋能文旅体的范式革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:06 - [净利润连续4年下跌！青银理财回应：单位产品产出处行业中上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:20 - [四川蓝莓首次出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:19 - [2026天津“五大道论坛”举行 共议全球治理与城市发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:23 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:32 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:18 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:25 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:08 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:11 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:34 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:17 - [库克时代落幕，苹果新帅面临AI关键战役](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:26 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:11 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:31 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:22 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:26 - [聚焦人工智能应用 印尼教育界人士来鄂研修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:06 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](http://www.share.minike.top/Article/details/70168346.shtml)
-- 2026-06-29 12:01 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](http://www.share.minike.top/Article/details/49052.shtml)
-- 2026-06-29 12:14 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](http://www.share.minike.top/Article/details/31063.shtml)
-- 2026-06-29 12:03 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](http://www.share.kurohicncr.top/Article/details/452726.shtml)
-- 2026-06-29 12:22 - [泰国央行维持关键利率不变 以抵御油价对经济的冲击](http://www.share.minike.top/Article/details/965041868097.shtml)
-- 2026-06-29 12:04 - [全国首单银行间市场消费类定向资产支持票据发行](http://www.blog.minike.top/Article/details/18709.shtml)
-- 2026-06-29 12:25 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](http://www.blog.minike.top/Article/details/45593867.shtml)
-- 2026-06-29 12:24 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](http://www.share.kurohicncr.top/Article/details/23332.shtml)
-- 2026-06-29 12:01 - [如何看待中方叫停Manus并购案？](http://www.share.minike.top/Article/details/431180.shtml)
-- 2026-06-29 12:14 - [南京银行董事长谢宁解读“好银行”发展理念](http://www.share.minike.top/Article/details/132199271.shtml)
-- 2026-06-29 12:14 - [“漂流书包”十年：一份民主党派的阅读答卷](http://www.share.minike.top/Article/details/75023.shtml)
-- 2026-06-29 12:08 - [花江峡谷大桥获“最高的桥”吉尼斯世界纪录称号](http://www.blog.kurohicncr.top/Article/details/9155724.shtml)
-- 2026-06-29 12:11 - [康宁一季度利润与核心营收双双增长](http://www.share.kurohicncr.top/Article/details/611435035395.shtml)
+- 2026-06-29 12:27 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](http://www.share.kurohicncr.top/Article/details/956524670334.shtml)
+- 2026-06-29 12:30 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.share.minike.top/Article/details/61499019.shtml)
+- 2026-06-29 12:15 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](http://www.share.minike.top/Article/details/6448466484.shtml)
+- 2026-06-29 12:14 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](http://www.share.kurohicncr.top/Article/details/535852.shtml)
+- 2026-06-29 12:13 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [崖沙燕“如约”重返永定河](http://www.blog.kurohicncr.top/Article/details/891430.shtml)
+- 2026-06-29 12:09 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.share.kurohicncr.top/Article/details/558365846836.shtml)
+- 2026-06-29 12:30 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](http://www.blog.kurohicncr.top/Article/details/510409032741.shtml)
+- 2026-06-29 12:32 - [伊朗大量美制设备集体失灵，暴露数字安全新威胁](http://www.share.kurohicncr.top/Article/details/039148946740.shtml)
+- 2026-06-29 12:13 - [603169、000909、603363、000892，被证监会立案！](http://www.blog.minike.top/Article/details/6290934977.shtml)
+- 2026-06-29 12:17 - [以军称黎巴嫩真主党“违反停火协议”](http://www.blog.kurohicncr.top/Article/details/740284299.shtml)
+- 2026-06-29 12:28 - [手机成新农具，物流通万家！乡村消费早已不一样](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](http://www.blog.minike.top/Article/details/41604540.shtml)
+- 2026-06-29 12:28 - [西安银行发布2025年度利润分配方案 拟每10派1元](http://www.share.minike.top/Article/details/13127.shtml)

@@ -1,59 +1,58 @@
-# 吴征铠院士铜像在复旦大学揭幕
+# “春之声·歌游内蒙古”专场文艺演出在尼泊尔举行
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-中新网上海4月28日电 在复旦大学化学系创建百年之际，吴征铠院士铜像揭幕仪式日前在复旦大学江湾校区举行。 吴征铠(1913年8月—2007年6月)，江苏扬州人。中国科学院院士，著名物理化学家、放射化学家、化学教育家，我国铀扩散浓缩事业、放射化学、分子光谱学的奠基者之一。1952年任复旦大学化学系主任，此后负责筹建复旦大学原子能系。 复旦大学党委书记裘新在揭幕仪式上表示，吴征铠先
+中新网加德满都4月22日电(记者 崔楠)“春之声·歌游内蒙古”专场文艺演出当地时间21日晚在尼泊尔首都加德满都举行。 当晚，可容纳700余人的尼泊尔军官俱乐部座无虚席。 尼泊尔联邦院前主席蒂米尔西纳、中国驻尼泊尔大使张茂明出席活动并致辞。蒂米尔西纳表示，尼方愿同中方深化经贸合作和人文交流，推动两国关系迈上新台阶。张茂明表示，文明互学互鉴、人民往来交流是赓续中尼友好的关键，中方期
 
 ## 正文
 
-中新网上海4月28日电 在复旦大学化学系创建百年之际，吴征铠院士铜像揭幕仪式日前在复旦大学江湾校区举行。
+中新网加德满都4月22日电(记者 崔楠)“春之声·歌游内蒙古”专场文艺演出当地时间21日晚在尼泊尔首都加德满都举行。
 
-吴征铠(1913年8月—2007年6月)，江苏扬州人。
+当晚，可容纳700余人的尼泊尔军官俱乐部座无虚席。
 
-中国科学院院士，著名物理化学家、放射化学家、化学教育家，我国铀扩散浓缩事业、放射化学、分子光谱学的奠基者之一。
+尼泊尔联邦院前主席蒂米尔西纳、中国驻尼泊尔大使张茂明出席活动并致辞。
 
-1952年任复旦大学化学系主任，此后负责筹建复旦大学原子能系。
+蒂米尔西纳表示，尼方愿同中方深化经贸合作和人文交流，推动两国关系迈上新台阶。
 
-复旦大学党委书记裘新在揭幕仪式上表示，吴征铠先生治学严谨、求索不息，勇攀高峰、为国铸盾，立德树人、甘为人梯，其为人、为学、为师所体现出的品格、襟怀与风范，正是120多年来复旦光荣爱国传统与优良校风的生动写照。
+张茂明表示，文明互学互鉴、人民往来交流是赓续中尼友好的关键，中方期待同尼方携手努力，打造中尼命运共同体。
 
-我们要以吴征铠先生为榜样，继续做强化学等优势基础学科，促进不同学科之间的交叉融合与创新突破，以更多首创引领成果支撑高水平科技自立自强，努力创造出无愧于时代、无愧于祖国、无愧于先贤的崭新业绩。
+演出中，来自内蒙古艺术剧院的艺术家们为尼泊尔观众带来歌曲、舞蹈、呼麦、马头琴演奏等13个富有草原风情的节目。
 
-南京雕塑研究会秘书长田云龙介绍，这尊铜像以半身像形制、写实手法，精准还原了吴征铠先生温润儒雅的学者风范。
+临近尾声时，4名内蒙古艺术家还用尼语演唱尼泊尔家喻户晓的民谣《木棉花开》，引发观众自发跟唱，现场掌声不断。
 
-创作过程中，他精雕细琢面部肌理、眉骨与眼角的每一道皱纹，既镌刻着先生主持复旦化学系、筹建原子能系的呕心沥血，也凝聚着他隐姓埋名、攻坚铀同位素分离技术的执着坚守与坚毅担当。
+来自加德满都附近一座寺院的僧侣宁玛·林奇在观看呼麦表演时，一边认真聆听，一边跟着模仿口型发声。
 
 ## 相关推荐
 
-- 2026-06-29 12:03 - [城堡证券高管称伊朗冲突风险消退 股债市场有望同步上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:21 - [酒价内参4月29日价格发布：五粮液1618保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:18 - [爱奇艺的“AI赌局”：当降本逻辑撞上内容本质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:21 - [中国国家文化产业拟向周星驰等认购方发行合共4680万份认股权证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:20 - [银行理财子加速“扫货”权益市场，打新报价量两月激增近九成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:23 - [【国投期货|化工视点】印尼“0关税”政策提振瓶片，利多原料](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:23 - [转让底价6573万元，华泰保险集团880万股股份再度挂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:00 - [翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:09 - [景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:08 - [深化中国—东盟经贸合作 专家提十大建议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:03 - [大牌加码创作者营销预算，但中小品牌仍主导合作市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:11 - [千年晋祠难老泉高位复流 带动周边产业焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:23 - [一江清水向东流——凝心聚力共绘长江发展新画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:25 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:34 - [“护苗”典型案例｜非法印制并销售侵权盗版中小学教辅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:16 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:12 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:29 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:16 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:29 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:33 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:08 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:22 - [库克时代落幕，苹果新帅面临AI关键战役](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:12 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:09 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:03 - [农村绿皮书：2026年中国大豆进口规模预计保持高位](http://www.blog.minike.top/Article/details/5454457.shtml)
-- 2026-06-29 12:26 - [破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用](http://www.share.kurohicncr.top/Article/details/52170933779.shtml)
-- 2026-06-29 12:19 - [竞争对手收缩叠加中东乱局，芬兰航空业绩大幅改善](http://www.share.kurohicncr.top/Article/details/31112047.shtml)
-- 2026-06-29 12:16 - [保险公司收紧对霍尔木兹海峡过往船只的承保要求](http://www.blog.kurohicncr.top/Article/details/211721.shtml)
-- 2026-06-29 12:07 - [Amadeus斥资 12 亿欧元收购法国生物识别企业 IDEMIA](http://www.share.kurohicncr.top/Article/details/704379159359.shtml)
-- 2026-06-29 12:08 - [穿越秦汉风云，山东琅琊台遗址何以映照中华文明统一性？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [史上最佳一季报！药明康德A股5分钟封死涨停，H股一度暴拉17%！华宝基金医疗ETF逆市大涨2.41%](http://www.blog.minike.top/Article/details/3221000.shtml)
-- 2026-06-29 12:04 - [泰国央行维持关键利率不变 以抵御油价对经济的冲击](http://www.blog.kurohicncr.top/Article/details/42741539.shtml)
-- 2026-06-29 12:19 - [全国首单银行间市场消费类定向资产支持票据发行](http://www.blog.minike.top/Article/details/9038991702.shtml)
-- 2026-06-29 12:22 - [向榜样学习！工行这些劳动者获得中华全国总工会表彰](http://www.share.kurohicncr.top/Article/details/9948374820.shtml)
-- 2026-06-29 12:19 - [傲农生物涉嫌信披违规，适格股民或可索赔损失！](http://www.blog.minike.top/Article/details/0534671.shtml)
-- 2026-06-29 12:16 - [微创医疗遭小摩减持约142.79万股 每股作价9.2016港元](http://www.share.kurohicncr.top/Article/details/2480639.shtml)
-- 2026-06-29 12:06 - [如何看待中方叫停Manus并购案？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [南京银行董事长谢宁解读“好银行”发展理念](http://www.blog.minike.top/Article/details/851249.shtml)
-- 2026-06-29 12:27 - [“漂流书包”十年：一份民主党派的阅读答卷](http://www.blog.minike.top/Article/details/362440564.shtml)
+- 2026-06-29 12:21 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](http://www.blog.minike.top/Article/details/3594485866.shtml)
+- 2026-06-29 12:13 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.blog.minike.top/Article/details/428693492240.shtml)
+- 2026-06-29 12:15 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](http://www.blog.minike.top/Article/details/10492.shtml)
+- 2026-06-29 12:32 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](http://www.blog.kurohicncr.top/Article/details/25844593.shtml)
+- 2026-06-29 12:22 - [崖沙燕“如约”重返永定河](http://www.share.minike.top/Article/details/54389045159.shtml)
+- 2026-06-29 12:21 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.share.minike.top/Article/details/176123.shtml)
+- 2026-06-29 12:08 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](http://www.blog.minike.top/Article/details/61764.shtml)
+- 2026-06-29 12:12 - [伊朗大量美制设备集体失灵，暴露数字安全新威胁](http://www.share.minike.top/Article/details/52483182916.shtml)
+- 2026-06-29 12:15 - [603169、000909、603363、000892，被证监会立案！](http://www.share.minike.top/Article/details/44314775834.shtml)
+- 2026-06-29 12:32 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [手机成新农具，物流通万家！乡村消费早已不一样](http://www.share.kurohicncr.top/Article/details/87679.shtml)

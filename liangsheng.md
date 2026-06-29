@@ -1,60 +1,48 @@
-# Blue Owl投资顾问遭起诉：被指虚增资产价值并收取超额费用
+# 东方证券：维立志博-B维持“买入”评级 目标价103.06港元
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-据媒体周二报道，一名投资者已向曼哈顿联邦法院提起诉讼，指控Blue Owl Capital旗下投资顾问公司违反信托责任，通过系统性虚增基金资产价值以抬高收费基数，进而攫取超额费用。 这份于周一提交的起诉书写道，原告Richard Delman是Blue Owl Capital Corporation的股东。他认为，被告Blue Owl Credit Advisors LLC依据
+东方证券发布研报称，基于2025年报及最新临床进展，调整维立志博-B（09887）2026-2028年每股收益分别为-1.41、-0.44、0.04元（26-28年原预测为-1.66、-1.29和3.18元），采取DCF估值法，给予目标价格为103.06港元（按照港元兑人民币汇率1：0.87697测算），维持给予“买入”评级。责任编辑：卢昱君
 
 ## 正文
 
-据媒体周二报道，一名投资者已向曼哈顿联邦法院提起诉讼，指控Blue Owl Capital旗下投资顾问公司违反信托责任，通过系统性虚增基金资产价值以抬高收费基数，进而攫取超额费用。
+东方证券发布研报称，基于2025年报及最新临床进展，调整维立志博-B（09887）2026-2028年每股收益分别为-1.41、-0.44、0.04元（26-28年原预测为-1.66、-1.29和3.18元），采取DCF估值法，给予目标价格为103.06港元（按照港元兑人民币汇率1：0.87697测算），维持给予“买入”评级。
 
-这份于周一提交的起诉书写道，原告Richard Delman是Blue Owl Capital Corporation的股东。
-
-他认为，被告Blue Owl Credit Advisors LLC依据《1940年投资公司法》收取的费用“如此不成比例地高，以至于与其所提供的服务价值毫无关系”，且不可能通过正常的公平谈判产生。
-
-诉状指出，核心问题在于被告所扮演的“双重角色”。
-
-被告既负责评估OBDC的资产，其收费又与这些资产估值挂钩，这造成了“固有的利益冲突”，并产生了夸大资产规模的动机。
-
-由于该基金的许多投资缺乏流动性，按照会计准则被归为“三级资产”，其价值并非由市场价格决定，而是依赖于内部模型。
-
-原告还指出，OBDC支付的咨询费在2021年至2025年间飙升了约47%，却未见相应的服务增长。
-
-同时，起诉书对“实物支付”利息的做法提出异议，指顾问公司即使在相关现金可能永远无法实现的情况下，仍对这部分非现金收益收取费用。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:13 - [A股获现能力明显增强！全指现金流ETF华泰柏瑞（563390）在同类产品中“吸金”能力较突出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:09 - [中方：期待更多志同道合的国家加入“全球治理之友小组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:26 - [央行今日开展259亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:25 - [传递“乌尔朵”的守边人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:09 - [赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:01 - [逐“绿”而行，为全球能源转型注入强劲动力（和音）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:29 - [中国气象局：到2030年，力争在气象关键领域取得重要突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:09 - [国台办：民进党当局禁限大陆APP 不得人心也不会得逞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:02 - [巴克莱收紧高风险放贷业务，坏账减值支出突破11亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:23 - [谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:22 - [渝昆高铁川滇段无砟轨道施工全部完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:08 - [经济热点快评丨大力发展工业设计，更好赋能中国制造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:28 - [美银证券：洛阳钼业维持“买入”评级 目标价为28港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:17 - [西安通报5起违反中央八项规定精神问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:35 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:27 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:14 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:07 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:07 - [美联储主席提名人沃什阐述美联储政策主张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:10 - [日经指数首次升破60000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:24 - [俄军总参谋长：已完全控制卢甘斯克地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:33 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:31 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:14 - [从三组卫星遥感图看生态保护成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:11 - [东方证券“吞并”上海证券，券业整合进入深水区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:22 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:09 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:27 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:22 - [巴西国家石油公司：若国会批准燃油减税，炼厂汽油价或上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [“华住会”App崩了？客服回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [“五一”假期小型客车继续施行免收通行费政策](http://www.share.minike.top/Article/details/70706595088.shtml)
-- 2026-06-29 12:17 - [重庆：“修旧如旧”激活老影院 工业遗址品出新茶香](http://www.blog.kurohicncr.top/Article/details/417398.shtml)
-- 2026-06-29 12:18 - [上海论坛2026分论坛“中美欧关系的重构及影响” 举行](http://www.blog.kurohicncr.top/Article/details/455738546331.shtml)
-- 2026-06-29 12:12 - [欧盟与匈牙利候任总理磋商冻结资金变通方案](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [罗宾汉一季度财报不及分析师预期，股价大跌10%](http://www.blog.kurohicncr.top/Article/details/30968.shtml)
-- 2026-06-29 12:21 - [4月29日人民币对美元中间价报6.8608元 下调19个基点](http://www.share.minike.top/Article/details/000421059.shtml)
-- 2026-06-29 12:09 - [“十四五”期间中国新发现大中型油气田225处](http://www.share.kurohicncr.top/Article/details/011582044380.shtml)
-- 2026-06-29 12:13 - [晨星：首予老铺黄金公允价值预测900港元 给予“无护城河”评级](http://www.share.kurohicncr.top/Article/details/1420922.shtml)
-- 2026-06-29 12:11 - [截至去年12月我国已出台网络领域立法180余部](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [美光与闪迪股价持续走高，存储芯片需求有望长期旺盛](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [从新疆到巴黎 艾德莱斯秀出中国职教风采](http://www.share.kurohicncr.top/Article/details/85710.shtml)
-- 2026-06-29 12:11 - [中远海能第一季度归母净利润21.73亿元 同比增长206.74%](http://www.share.minike.top/Article/details/42856627.shtml)
-- 2026-06-29 12:08 - [二手时尚交易平台Vinted估值达80亿欧元，挑战eBay市场地位](http://www.blog.minike.top/Article/details/7872804.shtml)
+- 2026-06-29 12:28 - [日本126名议员集体参拜靖国神社](http://www.blog.kurohicncr.top/Article/details/929457767.shtml)
+- 2026-06-29 12:13 - [绿的谐波：一季度净利润同比增长61.17%](http://www.share.kurohicncr.top/Article/details/11831032597.shtml)
+- 2026-06-29 12:11 - [全球电力回顾报告：2025年化石燃料发电量零增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](http://www.share.kurohicncr.top/Article/details/98889.shtml)
+- 2026-06-29 12:31 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](http://www.share.minike.top/Article/details/3270924.shtml)
+- 2026-06-29 12:19 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.blog.minike.top/Article/details/4931623.shtml)
+- 2026-06-29 12:18 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](http://www.blog.kurohicncr.top/Article/details/1329172492.shtml)
+- 2026-06-29 12:26 - [美股三大指数集体高开，布油重回100美元上方](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [美股回吐涨幅，美债收益率上行](http://www.share.kurohicncr.top/Article/details/1616791.shtml)
+- 2026-06-29 12:14 - [华为迟林春：乾崑智驾累计辅助驾驶里程达100亿公里，预计今年10月超越特斯拉位居全球第一](http://www.share.minike.top/Article/details/959182.shtml)
+- 2026-06-29 12:19 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](http://www.share.minike.top/Article/details/1918219.shtml)
+- 2026-06-29 12:25 - [多浦乐2025年度归母净利润约6649万元 同比增28.85%](http://www.share.minike.top/Article/details/214381146.shtml)
+- 2026-06-29 12:17 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.blog.kurohicncr.top/Article/details/43239918.shtml)
+- 2026-06-29 12:07 - [原油：油价上涨 投资者对美伊会谈的疑虑加剧](http://www.blog.minike.top/Article/details/47888.shtml)
+- 2026-06-29 12:11 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.blog.minike.top/Article/details/3770718629.shtml)

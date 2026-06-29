@@ -1,59 +1,60 @@
-# 8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解
+# 美国国家安全局被曝使用Anthropic受限模型
 
-> 更新时间：2026-06-29 12:30:05 UTC+8
+> 更新时间：2026-06-29 12:36:04 UTC+8
 
 ## 摘要
 
-日前，山东省首家“A+H”上市城商行——青岛银行股份有限公司（以下简称：青岛银行）披露2025年年报。 依托青岛国信发展集团、海尔集团、意大利联合圣保罗银行三大实力股东的资源赋能，叠加青岛市港口经济的独特区位优势，青岛银行在2025年交出了一份颇为亮眼的“成绩单”。 2025年年报数据显示，该行总资产突破8000亿元大关，归母净利润同比增速超20%。在区域银行业普遍面临经营压力
+美国国家安全局据报正在使用Anthropic公司最强大的AI模型“Mythos Preview”，尽管其上级机构国防部已将Anthropic列为“供应链风险”并推动切断与该公司合作。 Mythos是Anthropic于4月初发布的前沿模型，专为网络安全任务设计，具备自主发现软件漏洞并编写漏洞利用程序的强大能力。测试显示，该模型成功发现了OpenBSD操作系统中存在27年之久的漏
 
 ## 正文
 
-日前，山东省首家“A+H”上市城商行——青岛银行股份有限公司（以下简称：青岛银行）披露2025年年报。
+美国国家安全局据报正在使用Anthropic公司最强大的AI模型“Mythos Preview”，尽管其上级机构国防部已将Anthropic列为“供应链风险”并推动切断与该公司合作。
 
-依托青岛国信发展集团、海尔集团、意大利联合圣保罗银行三大实力股东的资源赋能，叠加青岛市港口经济的独特区位优势，青岛银行在2025年交出了一份颇为亮眼的“成绩单”。
+Mythos是Anthropic于4月初发布的前沿模型，专为网络安全任务设计，具备自主发现软件漏洞并编写漏洞利用程序的强大能力。
 
-2025年年报数据显示，该行总资产突破8000亿元大关，归母净利润同比增速超20%。
+测试显示，该模型成功发现了OpenBSD操作系统中存在27年之久的漏洞，以及FFmpeg工具中隐藏16年的漏洞，在漏洞利用测试中成功开发了181个可用的漏洞利用程序。
 
-在区域银行业普遍面临经营压力的大背景下，青岛银行始终保持较快扩表节奏，凭借强劲的增长势头，成为北方城商行阵营中极具代表性的增长标杆。
+因担忧该技术可能被滥用于网络攻击，Anthropic未向公众开放访问，仅通过名为“Glasswing”的计划向约40家机构提供受限访问。
 
-但在光鲜数据的另一面，青岛银行现金分红比例紧贴监管底线、核心一级资本充足率持续承压、零售业务呈现收缩态势，其高增长背后暗藏的业务结构失衡与资本困局，仍是亟待破解的发展难题。
+这一做法与五角大楼的立场形成鲜明冲突。
 
-1 总资产站上8000亿 分红比例却“掉队” 青岛银行的前身可追溯至1996年11月成立的城市信用社联合体，2015年12月登陆香港联交所，2019年1月登陆深交所，不仅实现了山东省银行上市零的突破，也成为全国第二家“A+H”上市城商行。
+今年1月，国防部长赫格塞斯要求Anthropic删除AI模型中的安全护栏，允许用于大规模国内监控和自主武器开发，遭到Anthropic拒绝。
 
-依托多元化股权结构与沿海港口区位优势，青岛银行逐步成长为区域金融市场的重要力量。
+作为回应，五角大楼于2月底将Anthropic列为“供应链风险”，特朗普总统随后下令联邦机构停止使用Anthropic技术。
 
-2025年，青岛银行总资产站上8000亿元的新台阶，交出了一份高增长的经营答卷。
+尽管如此，NSA据报正在积极使用Mythos，主要用于扫描系统以发现可被利用的安全漏洞。
 
 ## 相关推荐
 
-- 2026-06-29 12:15 - [Wizz Air对夏季需求和航空燃油供应持乐观态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:14 - [第139届广交会二期闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:24 - [加州海岸委员会向马斯克和SpaceX致歉，承诺未来监管决策不考虑政治因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:02 - [2026年盈江海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:00 - [中钢协：深入实施“提质创品”“能碳提效”“数智转型”三大改造工程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:06 - [标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:20 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:12 - [兰州银行：2025年实现归母净利润18.65亿元，同比减少1.22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:06 - [中国“磐石100”模型体系发布 AI赋能八学科大模型“八仙过海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:01 - [银行业首个行业级“数据分类分级”大模型发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:06 - [邻里结对、互助帮扶 多地打造农村养老“暖心样本”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:12 - [博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:25 - [金力永磁早盘涨近5% 第一季度归母净利润同比增长20.09%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:20 - [柬埔寨首相洪玛奈会见王毅一行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:13 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:30 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:32 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:29 - [重组计划会影响IPO吗？阿维塔回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:29 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:16 - [亚马逊深化与Anthropic的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:23 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:31 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:27 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:21 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:17 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:23 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:21 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [四只获批，商业不动产REITs要来了！中金汇添富国泰海通中信建投募资145.18亿元](http://www.blog.minike.top/Article/details/9104069480.shtml)
-- 2026-06-29 12:21 - [OpenAI称已更新与微软的合作伙伴关系](http://www.share.minike.top/Article/details/5222477.shtml)
-- 2026-06-29 12:18 - [法官审查Visa、万事达卡380亿美元“刷卡费”和解案](http://www.share.kurohicncr.top/Article/details/6712969521.shtml)
-- 2026-06-29 12:19 - [【市场聚焦】棉花：美国主产区干旱持续发酵带动全球棉市价格上行](http://www.share.minike.top/Article/details/75933992571.shtml)
-- 2026-06-29 12:18 - [“伊斯兰国”袭击尼日利亚东北部 造成至少29人丧生](http://www.share.kurohicncr.top/Article/details/93809082.shtml)
-- 2026-06-29 12:07 - [中钢协：一季度钢材价格总体走势平稳但处于近年同期最低水平](http://www.share.kurohicncr.top/Article/details/909553.shtml)
-- 2026-06-29 12:22 - [谷歌不顾员工反对，与美国国防部签署机密人工智能合作协议](http://www.blog.kurohicncr.top/Article/details/02742235.shtml)
-- 2026-06-29 12:14 - [穿越机视角领略婺源“江南第一奇谷”飞瀑景观](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [深圳大鹏观音山：东江纵队留史迹 文旅新声聚乡情](http://www.share.minike.top/Article/details/512586061.shtml)
-- 2026-06-29 12:12 - [川渝联合开展涪江流域水文应急测报演练 筑牢流域安澜防线](http://www.blog.minike.top/Article/details/93391942.shtml)
-- 2026-06-29 12:17 - [国家发改委：“十五五”期间中国服务业规模还有20万亿元增长空间](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [中微公司新品导入期打“价格战”影响盈利 作价16亿元并购CMP企业 标的营收仅为龙头的1/19](http://www.share.kurohicncr.top/Article/details/806378464356.shtml)
-- 2026-06-29 12:12 - [铁路“五一”假期运输明日启动 重庆火车站预计发送旅客240万人次](http://www.blog.minike.top/Article/details/89006643124.shtml)
-- 2026-06-29 12:13 - [指数级增长 2025年我国词元调用量约21100万亿](http://www.blog.minike.top/Article/details/61820587833.shtml)
-- 2026-06-29 12:05 - [ADP：截至4月11日四周 美国私营部门就业人数平均每周增加39250人](http://www.share.kurohicncr.top/Article/details/828881292828.shtml)
+- 2026-06-29 12:19 - [瑞典大瀑布电力退出苏格兰浮式风电项目](http://www.share.kurohicncr.top/Article/details/998025.shtml)
+- 2026-06-29 12:09 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](http://www.blog.kurohicncr.top/Article/details/718050901.shtml)
+- 2026-06-29 12:21 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](http://www.share.minike.top/Article/details/670473449.shtml)
+- 2026-06-29 12:20 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.blog.minike.top/Article/details/7455982494.shtml)
+- 2026-06-29 12:19 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](http://www.share.minike.top/Article/details/3666852.shtml)
+- 2026-06-29 12:18 - [生态产品价值如何实现？自然资源部介绍典型案例](http://www.blog.kurohicncr.top/Article/details/4516971.shtml)
+- 2026-06-29 12:11 - [【国际漫评】解禁](http://www.share.minike.top/Article/details/687725297842.shtml)
+- 2026-06-29 12:29 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.share.kurohicncr.top/Article/details/5223490363.shtml)
+- 2026-06-29 12:07 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [梁玉宁：中文与诗歌是中华文明的重要载体](http://www.blog.kurohicncr.top/Article/details/2931623.shtml)
+- 2026-06-29 12:24 - [美国海军部长约翰·费伦将离职](http://www.share.kurohicncr.top/Article/details/65741215696.shtml)
+- 2026-06-29 12:18 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](http://www.share.kurohicncr.top/Article/details/097556.shtml)
+- 2026-06-29 12:22 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.share.minike.top/Article/details/65544.shtml)
+- 2026-06-29 12:15 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](http://www.share.kurohicncr.top/Article/details/8806824700.shtml)
