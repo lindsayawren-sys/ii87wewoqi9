@@ -1,47 +1,54 @@
-# 渤海银行：凌颖杰董事的任职资格已获核准
+# 现货黄金涨1.3%，报4709.73美元/盎司
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-6月4日金融一线消息，渤海银行发布公告称，该行已收到国家金融监督管理总局批复文件，正式核准凌颖杰的董事任职资格。此前凌颖杰经由渤海银行职工代表大会选举当选职工董事，在监管批复落地后，其自2026年6月2日起正式履职，出任公司第六届董事会职工董事。 责任编辑：秦艺
+周二（4月7日）纽约尾盘，现货黄金涨1.30%，报4709.73美元/盎司，北京时间22：06跌至4607.84美元刷新日低，随后持续走高，临近美股收盘时刷新日高至4718.41美元COMEX黄金期货涨1.11%，报4737.80美元/盎司，日内交投区间为4631.90-4745.70美元。 现货白银涨0.28%，报73.0205美元/盎司，22：19曾跌至69.8233美元刷
 
 ## 正文
 
-6月4日金融一线消息，渤海银行发布公告称，该行已收到国家金融监督管理总局批复文件，正式核准凌颖杰的董事任职资格。
+周二（4月7日）纽约尾盘，现货黄金涨1.30%，报4709.73美元/盎司，北京时间22：06跌至4607.84美元刷新日低，随后持续走高，临近美股收盘时刷新日高至4718.41美元COMEX黄金期货涨1.11%，报4737.80美元/盎司，日内交投区间为4631.90-4745.70美元。
 
-此前凌颖杰经由渤海银行职工代表大会选举当选职工董事，在监管批复落地后，其自2026年6月2日起正式履职，出任公司第六届董事会职工董事。
+现货白银涨0.28%，报73.0205美元/盎司，22：19曾跌至69.8233美元刷新日低COMEX白银期货涨0.48%，报73.195美元/盎司。
 
-责任编辑：秦艺
+COMEX铜期货持平，报5.5995美元/磅。
+
+现货铂金跌0.98%，现货钯金跌0.79%。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:13 - [外交部介绍习近平总书记访问朝鲜有关安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:17 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:12 - [英国首相斯塔默批马斯克插手英内政](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:10 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:07 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:09 - [Meta最新AI模型一拖再拖，开发者耐心渐失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:08 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:06 - [新大众文艺：人民文艺的时代强音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:14 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:25 - [青海省“全民禁毒宣传月”系列活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:12 - [酒价内参4月8日价格发布 终端总价创近8天新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:10 - [药捷安康-B建议采纳H股股份奖励计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:11 - [浦发银行行长谢伟谈浦发贷款投放经验：赛道业务是主要增长极](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:31 - [特朗普称若无协议“立即”重开霍尔木兹海峡，美国将摧毁伊朗油井及哈格岛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:10 - [美国允许与卢克石油国际出售相关的部分交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:08 - [国安达：控股股东洪伟艺解除质押56.00万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:18 - [伊朗说同意谈判但对美国“完全不信任”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:16 - [特朗普施压加码，最后期限逼近，美伊谈判难在哪？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:08 - [高盛：调查显示信贷市场看空情绪创纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:23 - [百胜中国于4月6日斥资300万美元回购6.16万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:07 - [为稳定电力供应 台湾拟重启已停运的燃煤机组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:28 - [世界数据组织成立！顶层强调数据资源价值！华宝基金大数据ETF（516700）盘中上探1.3%，中科星图领涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:15 - [聚焦春季造林 广东发布2026年第1号总林长令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:12 - [张家港行：2025年归母净利润19.79亿元 同比增长5.35%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数](http://www.share.kurohicncr.top/Article/details/076866.shtml)
-- 2026-06-29 11:11 - [Roots宣布将于6月12日召开2026财年第一季度业绩电话会](http://www.share.kurohicncr.top/Article/details/6648290.shtml)
-- 2026-06-29 11:05 - [欧元兑日元逼近收敛上沿，等待方向选择](http://www.share.kurohicncr.top/Article/details/896944.shtml)
-- 2026-06-29 11:19 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [中国抹茶刮“绿色旋风” 内销出口两旺](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](http://www.share.kurohicncr.top/Article/details/33392211.shtml)
-- 2026-06-29 11:29 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](http://www.blog.minike.top/Article/details/6643659751.shtml)
-- 2026-06-29 11:16 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:02 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](http://www.blog.minike.top/Article/details/875768.shtml)
-- 2026-06-29 11:25 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](http://www.blog.minike.top/Article/details/60908329.shtml)
-- 2026-06-29 11:02 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:08 - [广东省口岸有关数据（2026年1-4月）](http://www.blog.kurohicncr.top/Article/details/8396902277.shtml)
-- 2026-06-29 11:21 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](http://www.blog.minike.top/Article/details/39215932.shtml)
-- 2026-06-29 11:11 - [中国人民银行定于2026年6月13日发行国家宝藏（融合交流）金银纪念币一套](http://www.blog.minike.top/Article/details/9324547.shtml)
-- 2026-06-29 11:23 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](http://www.share.kurohicncr.top/Article/details/192997111.shtml)
+- 2026-06-29 11:12 - [他山之石，2025年野火之后加州房屋保险市场的崩塌与重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:15 - [海河乳品发布致歉声明：终止与涉事经销商的直播合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:30 - [卡塔尔能源在美国投产液化天然气 拉什工业区遭袭影响持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:21 - [全国社会保障基金理事会副理事长王文灵被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:30 - [天孚通信：2025年净利同比增长50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:09 - [从替代到重构，中兴新支点操作系统发布水电信创方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:26 - [从修车学徒到冠军缔造者，张雪能否给国产摩托车产业带来新机遇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:29 - [霸王茶姬2025年GMV达315.8亿，全年净收入达129.1亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:25 - [联合国人权高专：蓄意攻击民用基础设施属于战争罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:36 - [交银施罗德的灵魂人物谢卫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:26 - [国台办：民进党当局“跪美卖台” 牺牲台湾农业未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:06 - [六大行拟派发股息超两千亿元，中证银行今日高开高走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:17 - [DDR5价格，全球暴跌！竟是因为它？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:29 - [马达加斯加因能源供应危机宣布进入紧急状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:28 - [利好突袭！刚刚，暴涨900点！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)

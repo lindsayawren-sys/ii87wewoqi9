@@ -1,49 +1,56 @@
-# 学生票大升级！这些出行便利已成固定政策
+# 鲍威尔：美联储将“观望”后再采取利率行动
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 15:09 来源：国是直通车 暑期临近，铁路学生优惠票便利政策已正式纳入新规。在北京西站，工作人员介绍，新版《国铁集团客规》将多项学生服务长效化：优化优惠区间管理，支持线上核验与调整，联程票5天内仅扣一次次数；扩大优惠席别范围；规范新生、毕业生购票规则；已核验学生乘车无需再查学生证……这么多实用便利，同学们赶紧收藏起来，出行就能用上啦！(王东宇
+美联储主席杰罗姆·鲍威尔周一表示，美国货币政策目前处于良好状态，美联储将先观望当前中东冲突对经济和通胀的影响，再就利率采取进一步行动。 鲍威尔重申，“现在判断”战争对经济影响的长期范围与持续时间为时过早，并指出地缘政治风险使得经济前景充满不确定性。这位美联储主席表示，能源冲击通常是暂时性的，一旦冲击过去，为应对油价飙升引发的通胀而立即加息最终可能损害经济。美联储在3月18日的会
 
 ## 正文
 
-发布时间：2026年06月05日 15:09 来源：国是直通车 暑期临近，铁路学生优惠票便利政策已正式纳入新规。
+美联储主席杰罗姆·鲍威尔周一表示，美国货币政策目前处于良好状态，美联储将先观望当前中东冲突对经济和通胀的影响，再就利率采取进一步行动。
 
-在北京西站，工作人员介绍，新版《国铁集团客规》将多项学生服务长效化：优化优惠区间管理，支持线上核验与调整，联程票5天内仅扣一次次数；扩大优惠席别范围；规范新生、毕业生购票规则；已核验学生乘车无需再查学生证……这么多实用便利，同学们赶紧收藏起来，出行就能用上啦！
+鲍威尔重申，“现在判断”战争对经济影响的长期范围与持续时间为时过早，并指出地缘政治风险使得经济前景充满不确定性。
 
-(王东宇 曹旭帆 何佳骏) 责任编辑：【罗攀】
+这位美联储主席表示，能源冲击通常是暂时性的，一旦冲击过去，为应对油价飙升引发的通胀而立即加息最终可能损害经济。
+
+美联储在3月18日的会议上将利率维持在3.50%-3.75%不变。
+
+中东战争爆发后，石油和燃料价格大幅上涨，全国普通汽油平均价格目前为每加仑3.990美元，高于一个月前的2.982美元，通胀风险由此上升。
+
+特朗普政府已采取行动安抚石油市场，美国财政部长斯科特·贝森特声称全球石油市场供应充足。
+
+“随着时间的推移，美国将重新控制海峡，航行自由将得到保障，无论是通过美国护航还是多国护航，”贝森特告诉媒体。
+
+然而，交易员似乎并不信服，货币市场目前预计加息概率为42%-52%，而2026年不会降息的概率则为92%，这与之前多次降息的预期形成鲜明逆转。
 
 ## 相关推荐
 
-- 2026-06-29 11:02 - [铁路端午假期运输首日火车票今日起售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:17 - [沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:15 - [老挝人革党中央总书记、国家主席通伦抵京 天安门前挂起中老两国国旗、党旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:23 - [威龙股份首季业绩承压，亏损幅度有所扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:05 - [股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:27 - [CBCX:金价回稳关注利率线索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:11 - [同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:14 - [Roots宣布将于6月12日召开2026财年第一季度业绩电话会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:25 - [欧元兑日元逼近收敛上沿，等待方向选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:13 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:05 - [中国抹茶刮“绿色旋风” 内销出口两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:17 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:14 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:22 - [信披违法违规，*ST星农及责任人被罚690万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:35 - [阳光电源：董事会审议通过《关于公司<2025年度总裁工作报告>的议案》等多项议案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:07 - [美欧因伊朗战争愈加离心 北约联盟裂痕加深](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:13 - [受中东冲突影响，越南Vingroup拟放弃建设液化天然气发电厂计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:33 - [F-150皮卡受关税重创，福特请求特朗普政府援手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:20 - [上海985，批量生产千亿IPO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:18 - [他山之石，2025年野火之后加州房屋保险市场的崩塌与重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:35 - [海河乳品发布致歉声明：终止与涉事经销商的直播合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:26 - [卡塔尔能源在美国投产液化天然气 拉什工业区遭袭影响持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:31 - [全国社会保障基金理事会副理事长王文灵被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:01 - [入境游迎爆发窗口期 行业龙头加码布局](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [Partners集团预警：或将对更多基金增设赎回上限](http://www.blog.kurohicncr.top/Article/details/42084380.shtml)
-- 2026-06-29 11:29 - [特朗普认为赞成限制其战争权力的众议员“不爱国”](http://www.share.minike.top/Article/details/591549944398.shtml)
-- 2026-06-29 11:13 - [“中俄经贸合作机遇推介会”在圣彼得堡国际经济论坛举行](http://www.share.kurohicncr.top/Article/details/711889338611.shtml)
-- 2026-06-29 11:28 - [比亚迪财险落地冀苏浙三地 获批执行全国统一交强险费率](http://www.blog.minike.top/Article/details/013305.shtml)
-- 2026-06-29 11:07 - [铁路端午假期运输首日火车票今天起售](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [韩国政府承诺创造2万亿韩元公共部门需求，以扶持无人机产业发展](http://www.blog.kurohicncr.top/Article/details/4443450466.shtml)
-- 2026-06-29 11:09 - [央行存贷款利率新规征求意见，罚息、计息、揽储规则都有更新](http://www.share.kurohicncr.top/Article/details/61012.shtml)
-- 2026-06-29 11:21 - [Databricks与Perplexity联合创始人游说AI科研人才：别去大型科技企业任职](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:09 - [xAI要求Grok深度伪造色情图像案原告以真实姓名起诉](http://www.share.kurohicncr.top/Article/details/27442036709.shtml)
-- 2026-06-29 11:22 - [礼来70亿美元大动作！港股通创新药逆市吸金，520880近两日获超1.28亿元增仓，杠杆资金同步进场](http://www.share.kurohicncr.top/Article/details/31915.shtml)
-- 2026-06-29 11:27 - [航宇科技6月5日大宗交易成交332.31万元](http://www.blog.kurohicncr.top/Article/details/645320.shtml)
-- 2026-06-29 11:02 - [科研团队发布有机高分子应用智能体 助力高新材料高效自主研发](http://www.share.kurohicncr.top/Article/details/1972111.shtml)
-- 2026-06-29 11:20 - [中央音乐学院举办“欧亚之声”中俄交响音乐会](http://www.blog.minike.top/Article/details/372660.shtml)
-- 2026-06-29 11:24 - [联合国报告：人工智能全球环境足迹加速扩张 能源与治理挑战愈发严峻](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [开盘：美股周一高开 特朗普称美伊谈判取得重大进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:27 - [化工板块深度回调，华宝基金化工ETF（516020）盘中跌超3%！机构：近期或可关注相关周期弹性投资机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:08 - [美国原油价格上涨，特朗普在最后期限前对伊朗发出严厉威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:23 - [视频|特朗普称即使霍尔木兹海峡仍关闭也愿结束战争](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:15 - [股债汇三杀！外资正在逃离日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:22 - [法官叫停特朗普白宫宴会厅项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:06 - [视频 | 招商证券2025年净利创新高，经营现金流净额大幅转负，汇兑收益剧降73%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:30 - [光通信概念股涨幅居前 汇聚科技涨超18%长飞光纤光缆涨超14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:15 - [3月超额逾10%，银行韧性出圈！国有六大行营收净利集体双增，中行、农行逆市涨超3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:13 - [证券经纪开战前试图投资国防基金，美防长卷内幕交易疑云](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:35 - [亚信科技携手“500强”歌尔股份，让“中国智造”闪耀全球！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:34 - [晚饭一个改变，身体指标轻松变好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:16 - [酒价内参4月8日价格发布，青花郎下调5元跌幅居前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:14 - [甲骨文任命Hilary Maxson为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:27 - [交银国际：维持龙源电力目标价8.23港元 评级“买入”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)

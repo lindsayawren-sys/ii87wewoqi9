@@ -1,57 +1,61 @@
-# 桥水CIO喊你买黄金：物资争夺战之下，各国正在抛美债、囤黄金、抢铜！
+# A股冲高回落，沪指半日下跌0.38%
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-文章来源：金十数据 在蒙特利尔举行的Sohn投资大会上，桥水基金联席首席投资官凯伦·卡尼奥尔-坦布（Karen Karniol-Tambour）与Gavekal首席执行官路易-樊尚·加夫（Louis-Vincent Gave）均指出，全球正从长期的全球化体系转向以地缘政治竞争为核心的新阶段，这一变化正在重塑资源配置方式，并强化大宗商品的战略地位。 两位发言者认为，这种转型意味着
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|刘明涛 每经编辑|叶峰 3月31日，A股冲高回落，创业板指跌逾2%，截至上午收盘，上证指数跌0.38%报3908.28点，深证成指跌1.45%，创业板指跌2.36%，沪深300跌0.58%，北证50跌0.1%，科创50跌1.68%，A股半日成交1.34万亿元。 资金面，央行公告称，3月31日以固定
 
 ## 正文
 
-文章来源：金十数据 在蒙特利尔举行的Sohn投资大会上，桥水基金联席首席投资官凯伦·卡尼奥尔-坦布（Karen Karniol-Tambour）与Gavekal首席执行官路易-樊尚·加夫（Louis-Vincent Gave）均指出，全球正从长期的全球化体系转向以地缘政治竞争为核心的新阶段，这一变化正在重塑资源配置方式，并强化大宗商品的战略地位。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-两位发言者认为，这种转型意味着投资环境将告别过去数十年以低通胀为主导的格局。
+每经记者|刘明涛 每经编辑|叶峰 3月31日，A股冲高回落，创业板指跌逾2%，截至上午收盘，上证指数跌0.38%报3908.28点，深证成指跌1.45%，创业板指跌2.36%，沪深300跌0.58%，北证50跌0.1%，科创50跌1.68%，A股半日成交1.34万亿元。
 
-卡尼奥尔-坦布将当前趋势概括为向“现代重商主义”转变，即各国更强调安全与韧性，而非单纯追求效率。
+资金面，央行公告称，3月31日以固定利率、数量招标方式开展了325亿元7天期逆回购操作，操作利率1.40%，投标量325亿元，中标量325亿元。
 
-她指出，在这一环境下，任何经济或供应链上的薄弱环节都可能被利用，“你在任何问题上存在的任何脆弱性都可能被武器化”。
+消息面，3月份，制造业采购经理指数、非制造业商务活动指数和综合PMI产出指数均重返扩张区间，分别为50.4%、50.1%和50.5%，比上月上升1.4个、0.6个和1.0个百分点，我国经济景气水平回升。
 
-在这种背景下，各国政府正加紧确保关键供应链、能源体系、工业能力以及战略资源的自主可控。
+工业和信息化部等九部门联合印发《推动物联网产业创新发展行动方案（2026-2028年）》，明确将通过推动物联网设备创新升级、提升物联网平台服务效能、培育物联网应用场景、夯实物联网网络底座、营造物联网产业发展生态等五大举措，推动物联网产业创新发展，进一步加速物联网技术全面融入生产、消费和社会治理各领域，促进数字经济和实体经济深度融合，助力发展新质生产力。
 
-“这真的是一场对物资的争夺，”卡尼奥尔-坦布说，“你需要获得所需的所有大宗商品、所需的稀土。
+板块方面，高铁概念延续强势，商业航天概念逆势走强，存储芯片概念集体下挫。
 
-你需要国防体系运转。
+作为中长途旅客运输的核心载体，高速铁路已占据全国铁路80%的旅客发送量与69%的旅客周转量，“十四五”期间，动车组列车累计发送旅客达128亿人次，较“十三五”时期增长39.2%。
 
-你需要很多东西。
+轨交设备行业正处于从规模扩张向质量效益转型的关键阶段，政策引导与市场需求形成双重支撑，长期投资价值凸显。
 
 ## 相关推荐
 
-- 2026-06-29 11:08 - [美国WTI原油下跌3%，报道称特朗普不愿重启与伊朗的战争](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:09 - [黄金交易提醒：中东停火惊现转机！金价反弹近1%，伊朗和平曙光能否点燃新一轮牛市？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:00 - [黎以同意实施停火 前提是真主党停止攻击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:03 - [航发动力：2026年6月22日召开2026年第二次临时股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:29 - [消费维权该去哪里？除了12315，这些正规投诉渠道也很管用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:00 - [电投能源：公司煤炭销售主要面向电厂、供热公司等终端用户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:01 - [海内外侨胞走进重庆潼南 看好汽车后市场发展潜力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:19 - [美迪凯发生2笔大宗交易 合计成交1003.13万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:29 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:25 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:15 - [英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:32 - [小摩：下调HASHKEY HLDGS评级至“中性” 目标价降至5港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:08 - [“做中国人，多么骄傲！”台湾青年自媒体人翟翾：大陆寻根后，心里更踏实了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:17 - [河北秦皇岛：人鸥共欢春日美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:14 - [多地联动“诵读经典·缅怀先贤”主题活动 与先贤跨时空对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:17 - [2025年经营性现金流净额8.16亿，美凯龙主营业务展现韧性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:11 - [600721，控制权拟变更，金华市国资委入主！大牛股净利润最高暴增8747.18%，存储涨价潮将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:27 - [东岳集团现涨逾9% 东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:30 - [押注苹果赚了1000亿美元但卖早了！巴菲特：当前美股不便宜，将重启慈善午餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:08 - [美伊冲突致全球股市震荡，国际油价飙升60%，标普预警：长期原油供给冲击或引发全球衰退](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:10 - [高管挪用公司超千亿资金？绿城中国被合作方实名举报，公司紧急报警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:15 - [借力智能存储业务东风，绿联科技营收飙升53.83%，却遭股东高管接连减持近十亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:34 - [伊朗最后期限临近 全球股市涨跌互现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:14 - [巴菲特最新采访：希望美联储通胀目标设为0，苹果股票卖早了……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:28 - [全红婵——泳池不小，但世界更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:35 - [天天学习｜“1”心系万家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:13 - [新疆喀什：360余万亩冬小麦喜迎丰收](http://www.share.kurohicncr.top/Article/details/18295827484.shtml)
-- 2026-06-29 11:21 - [央行最新！加大“收水”力度！5000亿元，明日操作](http://www.blog.minike.top/Article/details/160039.shtml)
-- 2026-06-29 11:11 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](http://www.share.kurohicncr.top/Article/details/97799971.shtml)
-- 2026-06-29 11:20 - [中国人保原党委委员、副总裁于泽被“双开”](http://www.share.minike.top/Article/details/3856685931.shtml)
-- 2026-06-29 11:08 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:13 - [国家电网：168项迎峰度夏重点工程正加快建设](http://www.blog.minike.top/Article/details/245562202329.shtml)
-- 2026-06-29 11:14 - [在中东事态发展喜忧参半之际，油价小幅走低](http://www.share.minike.top/Article/details/720915.shtml)
-- 2026-06-29 11:27 - [中国法院去年审结环境资源一审案件22.9万件](http://www.blog.kurohicncr.top/Article/details/485442223875.shtml)
-- 2026-06-29 11:01 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](http://www.blog.minike.top/Article/details/3436584372.shtml)
-- 2026-06-29 11:00 - [美国失业救济申请人数在假日周升至2月以来最高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:01 - [精耕细作，童书消费步入品质时代](http://www.share.minike.top/Article/details/85264584.shtml)
-- 2026-06-29 11:15 - [ST星农大宗交易成交203.00万元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [瑞梅铁路梅江特大桥中跨顺利合龙](http://www.blog.minike.top/Article/details/832031414.shtml)
-- 2026-06-29 11:20 - [以色列防长：与黎巴嫩的停火协议取决于真主党撤出黎南部](http://www.blog.kurohicncr.top/Article/details/249252454.shtml)
-- 2026-06-29 11:15 - [印尼国会通过金融法案：扩大央行职能并强化国会监督](http://www.share.kurohicncr.top/Article/details/72352929407.shtml)
+- 2026-06-29 11:20 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:16 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:09 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:29 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:15 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:10 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:20 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:10 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:30 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:35 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:08 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:33 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:31 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:19 - [A股3月收官，沪指再度失守3900点，月累计跌6.51%！张雪机车一战封神，概念股2连板！日韩股市3月均暴跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:13 - [金价下跌1000美元的主因是央行抛售，土耳其、俄罗斯……下一个可能是印度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)

@@ -1,57 +1,59 @@
-# 伊朗战事冲击能源市场 欧盟称航空燃油供应暂无虞
+# 珠江流域节水宣传活动丰富多彩
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-欧盟运输事务专员向路透表示，尽管伊朗战争引发能源供应冲击，但未来几个月欧洲没有出现航空燃油短缺的迹象。不过，高昂的燃油价格正促使航空公司削减无利可图的航线。 霍尔木兹海峡作为连接海湾地区与全球市场的关键航道，过去三个月来大致处于关闭状态，导致全球石油供应每日减少约1400万桶，相当于全球需求量的约14%。 迄今为止，欧盟承受住了这波冲击。中东地区约占欧盟航空燃油进口量的20%，
+中新网广州4月7日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)7日消息，为提升全民节水观念意识和文明素养，珠江委持续组织开展“节水珠江你我同行”宣传活动，以“1+8+2”形式联动珠江流域8省(自治区)水行政主管部门及港澳地区水务部门，并发动粤港澳大湾区节水产业联盟，在“世界水日”“中国水周”期间集中开展了各具特色节水宣传活动。 珠江委介绍，该委开展健步走和节水志愿
 
 ## 正文
 
-欧盟运输事务专员向路透表示，尽管伊朗战争引发能源供应冲击，但未来几个月欧洲没有出现航空燃油短缺的迹象。
+中新网广州4月7日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)7日消息，为提升全民节水观念意识和文明素养，珠江委持续组织开展“节水珠江你我同行”宣传活动，以“1+8+2”形式联动珠江流域8省(自治区)水行政主管部门及港澳地区水务部门，并发动粤港澳大湾区节水产业联盟，在“世界水日”“中国水周”期间集中开展了各具特色节水宣传活动。
 
-不过，高昂的燃油价格正促使航空公司削减无利可图的航线。
+珠江委介绍，该委开展健步走和节水志愿宣传活动，通过节水倡议签名、向市民发放节水宣传册等，弘扬节水护水文明风尚。
 
-霍尔木兹海峡作为连接海湾地区与全球市场的关键航道，过去三个月来大致处于关闭状态，导致全球石油供应每日减少约1400万桶，相当于全球需求量的约14%。
+云南多部门多行业同台宣传节水法律法规、解读节水典型案例、展示成效经验，共同提升公众节水护水意识，讲好“水故事”。
 
-迄今为止，欧盟承受住了这波冲击。
+贵州以健步走为载体，联动高校与社会各界，通过开展节水科普宣传等，将节水理念融入实践、护水责任落到实处。
 
-中东地区约占欧盟航空燃油进口量的20%，而来自美国与尼日利亚的供应大致填补了缺口。
+广西面向有关单位、广大市民、在校师生等，以开放式、互动式、沉浸式的科普形式举办展览，掀起了全民节水惜水的宣传热潮。
 
-“目前欧洲没有航空燃油短缺。
+广东紧扣“节水产业高质量发展”主线开展交流活动，凝聚政企学研协同合力，弘扬节水理念、探讨节水产业发展新路径，深入推动全社会践行节水行动。
 
-我们没有迹象表明未来一段时间会出现短缺，”欧盟运输事务专员Apostolos Tzitzikostas在接受采访时表示，并补充说地区机场面临的风险最大。
+同时，湖南通过开展参观黄岑水库、开展河道保洁志愿服务和水知识互动问答等活动，在互动中向群众普及护水知识，用实际行动守护碧水。
 
-主要担忧在于价格飙升。
+福建设立宣传展台，向市民发放节水宣传资料，普及节水知识、河湖长制及水土保持等相关政策。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [电投能源：公司煤炭销售主要面向电厂、供热公司等终端用户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:19 - [海内外侨胞走进重庆潼南 看好汽车后市场发展潜力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:00 - [美迪凯发生2笔大宗交易 合计成交1003.13万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:20 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:25 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:11 - [英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:19 - [共识教育百问百答丨高晓巍、赵妍、路运占、赵一筱：如何理解从“五一口号”到协商建国？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:24 - [世卫组织说不安全食品每年导致超8亿人患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:00 - [天天学习｜这条“红线”守护美丽中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:22 - [广州港亚欧航线运力升级 保障湾区企业旺季出运需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:00 - [美国在印度洋拦截涉伊朗关联船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:10 - [600721，控制权拟变更，金华市国资委入主！大牛股净利润最高暴增8747.18%，存储涨价潮将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:30 - [东岳集团现涨逾9% 东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:18 - [押注苹果赚了1000亿美元但卖早了！巴菲特：当前美股不便宜，将重启慈善午餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:28 - [美伊冲突致全球股市震荡，国际油价飙升60%，标普预警：长期原油供给冲击或引发全球衰退](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:07 - [高管挪用公司超千亿资金？绿城中国被合作方实名举报，公司紧急报警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:25 - [借力智能存储业务东风，绿联科技营收飙升53.83%，却遭股东高管接连减持近十亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:19 - [伊朗最后期限临近 全球股市涨跌互现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:25 - [巴菲特最新采访：希望美联储通胀目标设为0，苹果股票卖早了……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:21 - [全红婵——泳池不小，但世界更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:16 - [天天学习｜“1”心系万家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:09 - [我国成功发射千帆星座第7批组网卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:08 - [以球会友 国乒选手亮相山西大学附属中学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:35 - [北京市农村经济研究中心原副主任蒋洪昉接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [国家电网：168项迎峰度夏重点工程正加快建设](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:05 - [在中东事态发展喜忧参半之际，油价小幅走低](http://www.blog.minike.top/Article/details/46009.shtml)
-- 2026-06-29 11:20 - [中国法院去年审结环境资源一审案件22.9万件](http://www.blog.minike.top/Article/details/52898.shtml)
-- 2026-06-29 11:26 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [美国失业救济申请人数在假日周升至2月以来最高](http://www.share.kurohicncr.top/Article/details/81733.shtml)
-- 2026-06-29 11:13 - [精耕细作，童书消费步入品质时代](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:03 - [ST星农大宗交易成交203.00万元](http://www.share.minike.top/Article/details/53047.shtml)
-- 2026-06-29 11:18 - [瑞梅铁路梅江特大桥中跨顺利合龙](http://www.share.minike.top/Article/details/65562.shtml)
-- 2026-06-29 11:03 - [以色列防长：与黎巴嫩的停火协议取决于真主党撤出黎南部](http://www.blog.minike.top/Article/details/735830386.shtml)
-- 2026-06-29 11:12 - [印尼国会通过金融法案：扩大央行职能并强化国会监督](http://www.share.kurohicncr.top/Article/details/453785765.shtml)
-- 2026-06-29 11:06 - [特朗普拟提名其前律师Todd Blanche出任美国司法部长](http://www.blog.minike.top/Article/details/0838493045.shtml)
-- 2026-06-29 11:17 - [以色列继续空袭黎巴嫩 造成至少9人死数十人伤](http://www.share.kurohicncr.top/Article/details/339345879986.shtml)
-- 2026-06-29 11:18 - [健康险“卷”起来！重疾险不确诊也能赔？医疗险病了也能买？](http://www.share.minike.top/Article/details/136614002.shtml)
-- 2026-06-29 11:12 - [新疆伊宁：群众被马蹄踢中眉骨 特警7分钟极速救援](http://www.share.minike.top/Article/details/390967115.shtml)
-- 2026-06-29 11:23 - [创始人辱骂学生后道歉，粉笔网更大的挑战来自业务本身](http://www.blog.minike.top/Article/details/729404940.shtml)
+- 2026-06-29 11:25 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:19 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:32 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:12 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:27 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:23 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:21 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:29 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:16 - [A股3月收官，沪指再度失守3900点，月累计跌6.51%！张雪机车一战封神，概念股2连板！日韩股市3月均暴跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:17 - [金价下跌1000美元的主因是央行抛售，土耳其、俄罗斯……下一个可能是印度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:13 - [天顺风能：公司已批准的对外担保总额度为人民币220.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:17 - [浙商银行董事长陈海强年报致辞：坚持管理立行、服务优行、科技兴行、人才强行，做一个坚定的长期主义者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:07 - [一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:21 - [宁德时代聘请紫金矿业创始人、前董事长陈景河担任公司矿业部门顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:36 - [南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)

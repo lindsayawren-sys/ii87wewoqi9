@@ -1,57 +1,58 @@
-# 小摩：友邦保险维持“增持”评级 目标价112港元
+# 中金公司2025年营利双增 提高分红比例 业务一体化协同优势凸显
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，友邦保险（01299）股价因市场担忧香港部分银行暂停内地客户开户，导致股价昨日（4日）出现显著回调，但该行认为目前市场对香港内地访客（MCV）增长前景的担忧过度贴现，且现时并未有针对MCV销售活动的具体新监管政策。摩根大通维持友邦保险的“增持”评级，目标价112港元。 该行认为，虽然香港MCV业务仍具相关性，但估值分析显示香港客户仅占友邦未来增长价值的一小部
+3月30日晚，中金公司发布2025年业绩报告，实现归母净利润97.91亿元，同比增长71.93%，营业收入284.81亿元，同比增长33.50%。 中金公司2025年年报表示，公司经董事会决议通过的本报告期利润分配预案：每10股派发现金红利人民币2.30元（含税）。此外，公司已在2025年12月派发2025年中期现金红利每10股人民币0.90元（含税）。本报告期合计拟派发现金红
 
 ## 正文
 
-摩根大通发布研报称，友邦保险（01299）股价因市场担忧香港部分银行暂停内地客户开户，导致股价昨日（4日）出现显著回调，但该行认为目前市场对香港内地访客（MCV）增长前景的担忧过度贴现，且现时并未有针对MCV销售活动的具体新监管政策。
+3月30日晚，中金公司发布2025年业绩报告，实现归母净利润97.91亿元，同比增长71.93%，营业收入284.81亿元，同比增长33.50%。
 
-摩根大通维持友邦保险的“增持”评级，目标价112港元。
+中金公司2025年年报表示，公司经董事会决议通过的本报告期利润分配预案：每10股派发现金红利人民币2.30元（含税）。
 
-该行认为，虽然香港MCV业务仍具相关性，但估值分析显示香港客户仅占友邦未来增长价值的一小部分。
+此外，公司已在2025年12月派发2025年中期现金红利每10股人民币0.90元（含税）。
 
-该行预期，友邦即将公布的强劲上半年业绩、8月官方对MCV监管的评论、泰国每月保费的复苏，以及内地保险公司上半年新业务价值（NBV）预测上调的正面带动，均有助于重塑市场信心，因此建议投资者逢低吸纳。
+本报告期合计拟派发现金红利每10股人民币3.20元（含税）。
 
-摩根大通指出，目前市场似乎贴现了更严重的风险，例如限制内地客户在港开户。
+根据中金公司董事会通过的2025年度利润分配方案，公司全年现金分红总额达15.45亿元（含税），相比2024年度分红总额同比增长近78%，是中金公司上市以来最高分红金额纪录。
 
-然而，香港业务风险对其目标价影响有限。
+据悉，自2020年A股上市以来，中金公司连续6年开展现金分红，累计实施分红近54亿元。
 
-在其目标价精细估值中，内地未来增长预期占18港元，东盟及其他市场（包括印度）占19港元，而香港仅占14港元。
+作为中金公司的传统强势板块，投行IPO业务的亮眼表现成为业绩增长的重要支撑，两大特色凸显核心竞争力。
 
-即使将香港内嵌的未来增长预期抹去一半，对目标价的调整也仅为6%。
+一方面，融资规模体量优势显著，2025年中金以主承销商身份完成7单A股IPO项目，港股市场更是展现出绝对领跑力，全年参与53单港股IPO，市场覆盖率达45%，成功助力宁德时代、华电新能、赛力斯等多个标杆项目落地。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [中国电科面向空天地信息通信一体芯片从“实验室”走向“生产线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:14 - [上海石化：2026年6月26日召开2025年度股东周年会、2026年第一次A股股东会和2026年第一次H股股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:25 - [印尼盾汇率跌破18000心理关口 市场警惕央行干预](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:24 - [Point72据悉考虑从其他对冲基金付费获取交易情报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:05 - [中华企业：公司积极参与上海地产集团城市更新平台建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:24 - [河北首单至土耳其TIR多式联运专线发车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:20 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:27 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:11 - [央行最新！加大“收水”力度！5000亿元，明日操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:04 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:29 - [中国人保原党委委员、副总裁于泽被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:15 - [《人民日报》：“为什么这些APP都想借钱给我？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:06 - [以总理称支持美伊停火两周但停火不包括黎巴嫩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:17 - [浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:09 - [极兔速递-W早盘上涨13% 全年经调整净利润同比增长112.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:22 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:34 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:25 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:09 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:09 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:14 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:24 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:19 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:01 - [日本央行据悉考虑6月升息 日元汇率随之走强](http://www.blog.kurohicncr.top/Article/details/6966181191.shtml)
-- 2026-06-29 11:15 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](http://www.share.minike.top/Article/details/619361196316.shtml)
-- 2026-06-29 11:19 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](http://www.share.minike.top/Article/details/5796668.shtml)
-- 2026-06-29 11:03 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](http://www.share.kurohicncr.top/Article/details/2516043448.shtml)
-- 2026-06-29 11:04 - [山东文化“春雨”乘旅游列车润泽天山南北](http://www.share.kurohicncr.top/Article/details/4103587032.shtml)
-- 2026-06-29 11:29 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](http://www.blog.kurohicncr.top/Article/details/0092715.shtml)
-- 2026-06-29 11:07 - [伊朗称美失误致科威特机场受损 美方否认](http://www.blog.kurohicncr.top/Article/details/762576796.shtml)
-- 2026-06-29 11:19 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](http://www.share.kurohicncr.top/Article/details/67043590.shtml)
-- 2026-06-29 11:02 - [光大期货：6月5日金融日报](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:06 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](http://www.blog.minike.top/Article/details/931835.shtml)
-- 2026-06-29 11:05 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](http://www.share.kurohicncr.top/Article/details/705390788104.shtml)
-- 2026-06-29 11:13 - [3分钟，垂直涨停！封单超6万手](http://www.blog.minike.top/Article/details/91674932317.shtml)
-- 2026-06-29 11:05 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](http://www.share.kurohicncr.top/Article/details/19443899.shtml)
-- 2026-06-29 11:21 - [金银持续下跌，金价从历史高点已回落超过1000美元！一大行宣布：提高保证金比例](http://www.share.minike.top/Article/details/49342207387.shtml)
-- 2026-06-29 11:24 - [美债市场“野兽”咆哮回归 凸性对冲恐加剧波动](http://www.share.minike.top/Article/details/9211115.shtml)
+- 2026-06-29 11:34 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:19 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:32 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:20 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:12 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:25 - [布伦特原油在结算后交易中下跌 巴基斯坦敦促伊朗开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:14 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:08 - [匈牙利大选前美国副总统万斯访匈，力挺欧尔班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:20 - [湖南省政协文教卫体和文史委员会副主任夏智伦接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:19 - [尼日利亚汽油价格飙升65% 受原油进口成本上涨推动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:29 - [日经指数上涨4.7% 受芯片和金属类股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:34 - [GTC泽汇资本:黄金属性临时切换 去美元化驱动长牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:32 - [3月31日热门中概股多数下跌 蔚来涨3.95%，小马智行跌6.56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:28 - [贺青任上海市副市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:15 - [日韩股市集体低开 韩国跌超2.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)

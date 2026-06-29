@@ -1,52 +1,57 @@
-# Evoke同意Bally’s Intralot的3.26亿美元收购邀约
+# 财务总监、首席执行官辞职！神州数码业绩发布：AI业务收入增长近5成，现金流“失血”猛跌近200%
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-博彩集团Evoke宣布，已敲定收购条款，接受Bally’s Intralot总价2.431 亿英镑（折合 3.26 亿美元）的全盘收购要约。 这家手握威廉希尔、888 两大博彩品牌的企业于周五披露：依照收购协议，Evoke股东每持有 1 股公司股票，可换取 0.537 股Bally’s Intralot新发股票；股东也可选择现金兑付方案，这家美国博彩文娱企业给出的每股收购对价为
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！财务总监、首席执行官辞职！神州数码业绩发布：AI业务收入增长近5成，现金流“失血”猛跌近200%；董事长“天价离婚案”仍未解 3月30日，神州数码（000034.SZ）披露2025年年报，公司实现营收1437.51亿元，同比增长12.16%；归母净利润5.23亿元，同比下降30.52%。公司拟每10股派发现
 
 ## 正文
 
-博彩集团Evoke宣布，已敲定收购条款，接受Bally’s Intralot总价2.431 亿英镑（折合 3.26 亿美元）的全盘收购要约。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家手握威廉希尔、888 两大博彩品牌的企业于周五披露：依照收购协议，Evoke股东每持有 1 股公司股票，可换取 0.537 股Bally’s Intralot新发股票；股东也可选择现金兑付方案，这家美国博彩文娱企业给出的每股收购对价为 52 便士，同时股东可兑现的现金总额上限锁定在 1.171 亿英镑。
+财务总监、首席执行官辞职！
 
-Evoke表示，本次收购作价较截至 4 月 17 日（公司披露潜在收购传闻公告前最后一个交易日）的近三月成交量加权平均股价 29.4 便士溢价 77%。
+神州数码业绩发布：AI业务收入增长近5成，现金流“失血”猛跌近200%；董事长“天价离婚案”仍未解 3月30日，神州数码（000034.SZ）披露2025年年报，公司实现营收1437.51亿元，同比增长12.16%；归母净利润5.23亿元，同比下降30.52%。
 
-交易尚需通过股东大会表决及各国监管审批，公司预计交割落地时间为 2027 年一季度。
+公司拟每10股派发现金红利0.73元（含税），每10股转增4股。
 
-责任编辑：郭明煜
+同时，公司还披露了人事变动，公司财务总监陈平因个人原因申请辞职。
+
+王冰峰也辞去了首席执行官职务，仍担任联席董事长及董事。
+
+截至3月31日收盘，公司股价跌4.14%，报33.37元/股。
+
+经营性现金流由正转负 业务方面，神州数码自有品牌产品业务增长较快，营收74.4亿元，同比增长62.4%；税后净利润7753.6万元，同比增长9.7%。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [消息人士：印度拟取消外资投资国债资本利得税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:16 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:23 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:07 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:22 - [周锡玮：两岸要一起，把中国好的理念传播出去](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:17 - [东莞港落地“内外贸同船+水水中转多式联运”模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:13 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:22 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:16 - [美国制裁古巴国家主席 进一步加大施压力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:12 - [云南泸水有群“共享奶奶” 绘就社区民族团结“同心圆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:04 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:17 - [中尼合资航司复航加德满都至深圳往返航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:27 - [中天策略:3月31日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:24 - [国际油价，大跌15%！特朗普说停火两周，伊朗接受了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:35 - [兴业证券2025年报：经纪、自营收入合计占比近六成 投行、资管业务疲软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:32 - [GLP-1口服药扩大肥胖治疗市场 吸引不愿接受注射治疗的患者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:13 - [特朗普称美国将在两三周内结束对伊战争 仍有可能与德黑兰达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:34 - [她还能增长吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:29 - [报道：哈尔克岛遭袭击后传出爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:20 - [水利部批复新一轮大江大河采砂管理规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:11 - [百洋医药投资企业北海康成2025年实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:24 - [午盘：美股维持涨势 科技股涨幅领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:08 - [滇金丝猴“长出”咖啡厚嘴唇 云南咖啡新标识萌趣亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:05 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](http://www.share.kurohicncr.top/Article/details/6616183.shtml)
-- 2026-06-29 11:16 - [英国首相斯塔默批马斯克插手英内政](http://www.blog.kurohicncr.top/Article/details/82816719.shtml)
-- 2026-06-29 11:17 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](http://www.share.minike.top/Article/details/81911.shtml)
-- 2026-06-29 11:18 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](http://www.blog.kurohicncr.top/Article/details/658739761.shtml)
-- 2026-06-29 11:04 - [Meta最新AI模型一拖再拖，开发者耐心渐失](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](http://www.blog.minike.top/Article/details/064296117.shtml)
-- 2026-06-29 11:04 - [新大众文艺：人民文艺的时代强音](http://www.share.kurohicncr.top/Article/details/185096138.shtml)
-- 2026-06-29 11:11 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](http://www.blog.minike.top/Article/details/87523923.shtml)
-- 2026-06-29 11:16 - [青海省“全民禁毒宣传月”系列活动启动](http://www.blog.minike.top/Article/details/151261.shtml)
-- 2026-06-29 11:29 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](http://www.blog.kurohicncr.top/Article/details/81294.shtml)
-- 2026-06-29 11:28 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](http://www.blog.kurohicncr.top/Article/details/495299660891.shtml)
-- 2026-06-29 11:10 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](http://www.blog.minike.top/Article/details/0810025.shtml)
-- 2026-06-29 11:02 - [外媒：以色列和黎巴嫩同意停火 但有前提](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:02 - [初夏“睡眠紊乱”高发，如何找回状态](http://www.blog.minike.top/Article/details/9017985975.shtml)
-- 2026-06-29 11:19 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](http://www.blog.kurohicncr.top/Article/details/1678640765.shtml)
+- 2026-06-29 11:30 - [浦发银行行长谢伟谈浦发贷款投放经验：赛道业务是主要增长极](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:22 - [特朗普称若无协议“立即”重开霍尔木兹海峡，美国将摧毁伊朗油井及哈格岛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:08 - [美国允许与卢克石油国际出售相关的部分交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:28 - [国安达：控股股东洪伟艺解除质押56.00万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:17 - [伊朗说同意谈判但对美国“完全不信任”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:07 - [特朗普施压加码，最后期限逼近，美伊谈判难在哪？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:14 - [高盛：调查显示信贷市场看空情绪创纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:19 - [百胜中国于4月6日斥资300万美元回购6.16万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:17 - [为稳定电力供应 台湾拟重启已停运的燃煤机组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:34 - [世界数据组织成立！顶层强调数据资源价值！华宝基金大数据ETF（516700）盘中上探1.3%，中科星图领涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:25 - [聚焦春季造林 广东发布2026年第1号总林长令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:16 - [张家港行：2025年归母净利润19.79亿元 同比增长5.35%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:06 - [贵金属上涨 受美元走软和美债收益率下降提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:07 - [法国通胀升至2024年8月以来最高水平 加大欧洲央行升息压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:20 - [海尔们想做“钢铁侠”，追觅们想做“扫地僧”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)

@@ -1,61 +1,61 @@
-# 香港新设“小马大本营” 寓教于乐普及马术运动
+# 海河牛奶就直播间涉黄致歉：终止与涉事经销商直播合作，追究法律责任
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-中新网香港6月5日电 (记者 刘玥晴)香港赛马会马年系列活动之一的“小马大本营”5日在香港彭福公园举行开幕典礼，为亲子家庭和学校团体带来丰富的互动马术体验。 开幕典礼上，香港特区政府文化体育及旅游局常任秘书长沈凤君表示，香港在2008年协办北京奥运会马术比赛项目，彭福公园当时改建为练习场地，为参赛选手和马匹提供理想备战环境。近年来，彭福公园积极推进优化工程，如今“小马大本营”得
+4月8日，天津海河乳品有限公司就直播间涉黄发布致歉声明。声明指出，4月7日，海河牛奶旗舰店直播间相关视频内容给消费者带来不良影响，并引发舆论热议，深感自责并致以诚挚歉意。 声明提到，经核查，该直播间运营方为“天津市佰意电子商务有限责任公司”，系公司合作经销商，现已立即采取以下处置措施： 一，终止合作，依法追责 1．立即终止合作。立即终止与涉事经销商“天津市佰意电子商务有限责任公
 
 ## 正文
 
-中新网香港6月5日电 (记者 刘玥晴)香港赛马会马年系列活动之一的“小马大本营”5日在香港彭福公园举行开幕典礼，为亲子家庭和学校团体带来丰富的互动马术体验。
+4月8日，天津海河乳品有限公司就直播间涉黄发布致歉声明。
 
-开幕典礼上，香港特区政府文化体育及旅游局常任秘书长沈凤君表示，香港在2008年协办北京奥运会马术比赛项目，彭福公园当时改建为练习场地，为参赛选手和马匹提供理想备战环境。
+声明指出，4月7日，海河牛奶旗舰店直播间相关视频内容给消费者带来不良影响，并引发舆论热议，深感自责并致以诚挚歉意。
 
-近年来，彭福公园积极推进优化工程，如今“小马大本营”得以在此启用，通过多元体验，培养儿童对马术运动的兴趣，以及爱护动物的意识，进而推动马术运动发展。
+声明提到，经核查，该直播间运营方为“天津市佰意电子商务有限责任公司”，系公司合作经销商，现已立即采取以下处置措施： 一，终止合作，依法追责 1．立即终止合作。
 
-“小马大本营”占地逾7700平方米，参与者可参观马房，了解马匹的生活、饮食；在互动教室学习马匹习性和小马护理知识；与小马合影；3岁至14岁的孩童还能够在马术教练的带领下，体验小马策骑。
+立即终止与涉事经销商“天津市佰意电子商务有限责任公司”的直播合作，撤销其“海河牛奶旗舰店”的官方授权资质。
 
-“小马大本营”将于6月22日起正式面向公众开放，预计每年服务约1.7万人次。
+2．追究法律责任。
 
-香港赛马会副主席黄嘉纯在致辞中指出，协办北京奥运会马术比赛是香港马术运动发展的重要里程碑。
+启动法律程序，就其行为给海河品牌形象造成的损害，立即采取法律措施，依法追究其相关法律责任。
 
-“小马大本营”的诞生将在传播奥运精神的基础上，为公众提供近距离接触及认识马匹的机会，寓教于乐，推动各类马术运动普及。
+3．从严追责问责。
 
-(完)
+公司对涉事合作经销商负有不可推卸的监管责任，将立即对内部监管失责人员，依规依纪予以严肃处理。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [韩国股市一度重挫5% 芯片股随美国同业下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:23 - [欧洲股市反弹 医疗保健板块领涨 渣打和汇丰等英国银行股下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:25 - [401(k)困难取款较2020年增长两倍，凸显美国家庭财务压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:17 - [渤海银行：凌颖杰董事的任职资格已获核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:15 - [邮储银行：将于8月19日派发末期股息每10股0.953元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:29 - [湖南省人大常委会原党组成员、副主任叶红专被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:25 - [再升科技：公司获得航空航天质量管理体系AS 9100D认证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:20 - [英伟达首席执行官：三大存储芯片生产商均有资格供应HBM4芯片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:24 - [泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:23 - [广西西江生态环境质量指数提升显著 保障大湾区优质供水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:01 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:12 - [外交部介绍习近平总书记访问朝鲜有关安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:21 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:01 - [英国首相斯塔默批马斯克插手英内政](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:03 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:09 - [吕临华：浙商银行将继续过紧日子 挤掉成本中不必要的“水分”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:24 - [2026，股票开户选择哪个APP？新浪财经APP成为投资者最优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:30 - [京西国际于4月8日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:20 - [现货黄金涨1.3%，报4709.73美元/盎司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:25 - [东岳集团：东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:27 - [广深铁路：董事会审议通过《2025年度财务报告》等多项议案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:28 - [34年来最强增长！日本薪资数据超预期，4月加息不是梦？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:20 - [康耐特光学公布拟回购公司股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:21 - [铝系上演“冰火两重天”：地缘战火重塑电解铝溢价，氧化铝难敌过剩引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:31 - [广电总局：电视剧创作要避免“颜值至上”“流量依赖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:10 - [酒价内参4月8日价格发布 终端总价创近8天新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:29 - [药捷安康-B建议采纳H股股份奖励计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:28 - [浦发银行行长谢伟谈浦发贷款投放经验：赛道业务是主要增长极](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:16 - [特朗普称若无协议“立即”重开霍尔木兹海峡，美国将摧毁伊朗油井及哈格岛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:12 - [美国允许与卢克石油国际出售相关的部分交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [国务院食安办成立工作组督导查处 “望奎双汇猪肉抗生素超标问题”](http://www.blog.kurohicncr.top/Article/details/493389.shtml)
-- 2026-06-29 11:16 - [中银国际：兖矿能源收购母公司电力资产并非特别吸引](http://www.blog.minike.top/Article/details/01144278775.shtml)
-- 2026-06-29 11:09 - [美光科技、英特尔、戴尔科技年内飙涨超200%，美股科技“七骑士”全线跑赢英伟达](http://www.share.kurohicncr.top/Article/details/80180369612.shtml)
-- 2026-06-29 11:19 - [西陇科学：公司及控股子公司均不存在逾期担保情况](http://www.share.minike.top/Article/details/01593221676.shtml)
-- 2026-06-29 11:01 - [铁路端午假期运输首日火车票今日起售](http://www.blog.minike.top/Article/details/038353317605.shtml)
-- 2026-06-29 11:20 - [沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域](http://www.share.minike.top/Article/details/806009.shtml)
-- 2026-06-29 11:19 - [老挝人革党中央总书记、国家主席通伦抵京 天安门前挂起中老两国国旗、党旗](http://www.share.minike.top/Article/details/69386844986.shtml)
-- 2026-06-29 11:01 - [威龙股份首季业绩承压，亏损幅度有所扩大](http://www.blog.kurohicncr.top/Article/details/033235991594.shtml)
-- 2026-06-29 11:18 - [股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？](http://www.blog.kurohicncr.top/Article/details/20628.shtml)
-- 2026-06-29 11:13 - [CBCX:金价回稳关注利率线索](http://www.blog.kurohicncr.top/Article/details/39994501.shtml)
-- 2026-06-29 11:01 - [同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数](http://www.share.minike.top/Article/details/8446561.shtml)
-- 2026-06-29 11:00 - [Roots宣布将于6月12日召开2026财年第一季度业绩电话会](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:02 - [欧元兑日元逼近收敛上沿，等待方向选择](http://www.share.kurohicncr.top/Article/details/11352454140.shtml)
-- 2026-06-29 11:01 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](http://www.share.minike.top/Article/details/1809351.shtml)
-- 2026-06-29 11:09 - [中国抹茶刮“绿色旋风” 内销出口两旺](http://www.share.kurohicncr.top/Article/details/97402.shtml)
+- 2026-06-29 11:09 - [黑龙江省备春耕基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:06 - [韩国推出173亿美元刺激计划，油价飙升施压经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:15 - [中俄对涉霍尔木兹海峡决议草案投反对票 伊朗代表：俄中阻止了滥用安理会的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:13 - [上海市金融学会召开普惠金融专业委员会第一次会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:21 - [信披违法违规，*ST星农及责任人被罚690万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:34 - [阳光电源：董事会审议通过《关于公司<2025年度总裁工作报告>的议案》等多项议案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:22 - [美欧因伊朗战争愈加离心 北约联盟裂痕加深](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:30 - [受中东冲突影响，越南Vingroup拟放弃建设液化天然气发电厂计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:28 - [F-150皮卡受关税重创，福特请求特朗普政府援手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:31 - [上海985，批量生产千亿IPO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:21 - [他山之石，2025年野火之后加州房屋保险市场的崩塌与重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:17 - [海河乳品发布致歉声明：终止与涉事经销商的直播合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:27 - [卡塔尔能源在美国投产液化天然气 拉什工业区遭袭影响持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:08 - [全国社会保障基金理事会副理事长王文灵被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:10 - [天孚通信：2025年净利同比增长50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)

@@ -1,59 +1,59 @@
-# 赖清德批小红书，是在怕什么？丨真相
+# 营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-中新网6月4日电(燕新台)赖清德又给小红书扣了一顶大帽子。 近日，他在与岛内高中生对谈时称，TikTok、小红书对台湾青年世代的影响已达“安全危机”，久而久之，会把中国(大陆)当作好人；将要求教育、文化部门妥善处理。 这番散播仇恨、割裂两岸的论调，立即引发岛内各界批评。有舆论指出，“赖清德亲口发出威胁，他要对小红书下手了！” 岛内批典型“双标”赖清德此番言论引发大量台湾网友讨论
+来源：蓝鲸财经 蓝鲸新闻3月31日讯（记者严沁雯）经历多年下滑后，民生银行（600016.SH、1988.HK）营业收入在2025年转为正增长。 民生银行年报显示，2025年，该行实现营业收入1428.65亿元，同比增长4.82%。而在此前的2021年-2024年，营收均为负增长。 尽管营收回正，民生银行归属于股东净利润仍下滑：2025年为305.63亿元，同比减少17.33亿
 
 ## 正文
 
-中新网6月4日电(燕新台)赖清德又给小红书扣了一顶大帽子。
+来源：蓝鲸财经 蓝鲸新闻3月31日讯（记者严沁雯）经历多年下滑后，民生银行（600016.SH、1988.HK）营业收入在2025年转为正增长。
 
-近日，他在与岛内高中生对谈时称，TikTok、小红书对台湾青年世代的影响已达“安全危机”，久而久之，会把中国(大陆)当作好人；将要求教育、文化部门妥善处理。
+民生银行年报显示，2025年，该行实现营业收入1428.65亿元，同比增长4.82%。
 
-这番散播仇恨、割裂两岸的论调，立即引发岛内各界批评。
+而在此前的2021年-2024年，营收均为负增长。
 
-有舆论指出，“赖清德亲口发出威胁，他要对小红书下手了！
+尽管营收回正，民生银行归属于股东净利润仍下滑：2025年为305.63亿元，同比减少17.33亿元，降幅5.37%。
 
-” 岛内批典型“双标”赖清德此番言论引发大量台湾网友讨论，有人质疑“把别人定义成坏人，才是真正的危险”，更有人直言“贼喊捉贼”“大人骗不到，现在改向学生下手”。
+不过相较于上年下滑9.85%的情况，2025年降幅有所缩窄。
 
-相关批评迅速在岛内舆论场扩散。
+在3月31日举办的业绩交流会上，民生银行行长王晓永解释称，由于去年加大了不良资产处置，增提了拨备。
 
-台湾原乡人文化工作室执行长、媒体人张钧凯向中新网“燕新台”工作室表示，赖清德将小红书、TikTok渲染为“安全危机”，本质是冷战思维与信息茧房下的认知错位，也是其自卑心态的真实反映。
+因此在营收增长的情况下，利润反而下降。
 
-“赖清德说‘看小红书就会把大陆当好人’，这恰恰暴露了其内心的心虚与恐惧。
+非利息收入对于民生银行营收的增长贡献较大。
 
 ## 相关推荐
 
-- 2026-06-29 11:10 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:00 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:06 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:00 - [山东文化“春雨”乘旅游列车润泽天山南北](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:04 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:08 - [伊朗称美失误致科威特机场受损 美方否认](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:02 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:04 - [光大期货：6月5日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:20 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:20 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:18 - [3分钟，垂直涨停！封单超6万手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:10 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:13 - [金银持续下跌，金价从历史高点已回落超过1000美元！一大行宣布：提高保证金比例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:33 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:08 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:11 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:06 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:29 - [布伦特原油在结算后交易中下跌 巴基斯坦敦促伊朗开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:10 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:31 - [匈牙利大选前美国副总统万斯访匈，力挺欧尔班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:07 - [湖南省政协文教卫体和文史委员会副主任夏智伦接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:13 - [尼日利亚汽油价格飙升65% 受原油进口成本上涨推动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:26 - [日经指数上涨4.7% 受芯片和金属类股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:33 - [GTC泽汇资本:黄金属性临时切换 去美元化驱动长牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:21 - [3月31日热门中概股多数下跌 蔚来涨3.95%，小马智行跌6.56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:11 - [贺青任上海市副市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:07 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:14 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](http://www.blog.minike.top/Article/details/704651099020.shtml)
-- 2026-06-29 11:05 - [周锡玮：两岸要一起，把中国好的理念传播出去](http://www.blog.kurohicncr.top/Article/details/523272486.shtml)
-- 2026-06-29 11:14 - [东莞港落地“内外贸同船+水水中转多式联运”模式](http://www.blog.minike.top/Article/details/14044.shtml)
-- 2026-06-29 11:24 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](http://www.blog.minike.top/Article/details/022154.shtml)
-- 2026-06-29 11:03 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](http://www.share.kurohicncr.top/Article/details/09538.shtml)
-- 2026-06-29 11:04 - [美国制裁古巴国家主席 进一步加大施压力度](http://www.share.kurohicncr.top/Article/details/487812.shtml)
-- 2026-06-29 11:27 - [云南泸水有群“共享奶奶” 绘就社区民族团结“同心圆”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:14 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](http://www.share.minike.top/Article/details/3168820753.shtml)
-- 2026-06-29 11:22 - [中尼合资航司复航加德满都至深圳往返航线](http://www.blog.minike.top/Article/details/1224739485.shtml)
-- 2026-06-29 11:10 - [拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:09 - [【百万庄小课堂】高考遇上生理期疼痛 医生详解如何做才不伤身](http://www.share.minike.top/Article/details/99755.shtml)
-- 2026-06-29 11:07 - [读懂中国是福山们的必修课](http://www.share.minike.top/Article/details/56098.shtml)
-- 2026-06-29 11:07 - [天原股份：公司磷酸铁锂正极材料可用于储能及动力电池](http://www.share.minike.top/Article/details/18130.shtml)
-- 2026-06-29 11:03 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](http://www.blog.kurohicncr.top/Article/details/70618742791.shtml)
+- 2026-06-29 11:18 - [兴业证券2025年报：经纪、自营收入合计占比近六成 投行、资管业务疲软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:30 - [GLP-1口服药扩大肥胖治疗市场 吸引不愿接受注射治疗的患者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:08 - [特朗普称美国将在两三周内结束对伊战争 仍有可能与德黑兰达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:20 - [她还能增长吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:07 - [报道：哈尔克岛遭袭击后传出爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:29 - [水利部批复新一轮大江大河采砂管理规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:27 - [百洋医药投资企业北海康成2025年实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:17 - [午盘：美股维持涨势 科技股涨幅领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:29 - [滇金丝猴“长出”咖啡厚嘴唇 云南咖啡新标识萌趣亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:18 - [焦点访谈｜深化殡葬改革 书写移风易俗民生答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:12 - [中国医疗队为赤道几内亚白内障患者诊疗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:13 - [中信建投期货：4月8日农产品早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:29 - [战争引发通胀担忧之际 亚股抹去2026年涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:22 - [国际金价大涨重上4800美元 国内金饰克价涨到1470元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:13 - [受权发布丨中华人民共和国国务院令 第834号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)

@@ -1,50 +1,56 @@
-# 美国制裁古巴国家主席 进一步加大施压力度
+# 百洋医药投资企业北海康成2025年实现盈利
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-美国制裁古巴国家主席Miguel Díaz-Canel及其家人，进一步对该国加压。 根据周四发布的新指引，古巴武装力量及其国内监视网络 —— 保卫革命委员会 —— 也被列入美国财政部黑名单。 美国政府已实施事实上的燃料封锁，并持续加大对哈瓦那统治者的压力，以期结束持续67年的一党统治。责任编辑：江学思
+近日，百洋医药（301015.SZ）投资的港股创新药企北海康成（01228.HK）披露2025年业绩公告，公司全年实现扭亏为盈，营业收入4998.3万元，盈利1481.8万元。作为专注于罕见病和肿瘤领域的全球化生物制药公司，北海康成目前拥有3个已上市罕见病药物及1个处于临床后期阶段的候选药物。北海康成年报指出，公司2025年里程碑及成就包括其与百洋医药达成的重大战略合作。根据约
 
 ## 正文
 
-美国制裁古巴国家主席Miguel Díaz-Canel及其家人，进一步对该国加压。
+近日，百洋医药（301015.SZ）投资的港股创新药企北海康成（01228.HK）披露2025年业绩公告，公司全年实现扭亏为盈，营业收入4998.3万元，盈利1481.8万元。
 
-根据周四发布的新指引，古巴武装力量及其国内监视网络 —— 保卫革命委员会 —— 也被列入美国财政部黑名单。
+作为专注于罕见病和肿瘤领域的全球化生物制药公司，北海康成目前拥有3个已上市罕见病药物及1个处于临床后期阶段的候选药物。
 
-美国政府已实施事实上的燃料封锁，并持续加大对哈瓦那统治者的压力，以期结束持续67年的一党统治。
+北海康成年报指出，公司2025年里程碑及成就包括其与百洋医药达成的重大战略合作。
 
-责任编辑：江学思
+根据约定，北海康成获得百洋医药支付的5000万元人民币战略合作费。
+
+同时，百洋医药附属公司以约1亿港元认购北海康成股份，为公司注入发展资金。
+
+至2025年末，公司已顺利完成向百洋医药的促销与分销职能转移，确保了运营流程的连续性与效率。
+
+目前，双方团队正协同推进北海康成旗下三款产品海芮思®、迈芮倍®及戈芮宁®在中国内地的国家级市场准入工作。
+
+其中戈芮宁®（注射用维拉苷酶β）于2025年5月13日获批上市，是国内首个本土自主研发生产适用于12岁及以上青少年和成人I型和Ⅲ型戈谢病患者的长期酶替代疗法。
 
 ## 相关推荐
 
-- 2026-06-29 11:12 - [天原股份：公司磷酸铁锂正极材料可用于储能及动力电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:00 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:07 - [美国债市：国债全线上涨 油价下跌提供支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:24 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:11 - [甘肃金昌市统战宣传工作会议召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:07 - [香港新设“小马大本营” 寓教于乐普及马术运动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:27 - [全国首张“无目的地海上游”出入境通行证在沪签发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:24 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:17 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:28 - [AI热潮难敌预期过高：博通财报超预期股价反跌14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:02 - [远洋建管县域代销再创新高，宁德赛岐外滩项目5月销售量价领跑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:25 - [消息人士称Kalshi正在打造面向高端交易者的预测市场版“彭博终端”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:24 - [国际金价大涨重上4800美元 国内金饰克价涨到1470元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:11 - [受权发布丨中华人民共和国国务院令 第834号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:22 - [巴基斯坦：美伊及其盟友同意全面停火 并展开进一步谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:27 - [国泰海通聂小刚：华安和海富通基金整合方案正在推进，将产生很好的协同效应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:35 - [特朗普首次承认：美国人被黑吃黑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:26 - [海河牛奶就直播间涉黄致歉：终止与涉事经销商直播合作，追究法律责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:26 - [蚂蚁收购耀才证券50.55%股权完成交割，新董事会成员亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:13 - [巴菲特称苹果股票卖早了：仍愿意加仓 但不会在当前市场买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:24 - [逢低买盘介入叠加战争引发波动，黄金反弹站上4500美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:24 - [欧洲天然气价格跃升 特朗普最后通牒临近之际袭击事件仍持续不断](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:15 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](http://www.blog.kurohicncr.top/Article/details/3374919300.shtml)
-- 2026-06-29 11:04 - [凯赛生物：2026年6月25日召开2025年年度股东会](http://www.blog.kurohicncr.top/Article/details/79344.shtml)
-- 2026-06-29 11:06 - [美国称将调整其对北约部队的贡献](http://www.share.kurohicncr.top/Article/details/79318915.shtml)
-- 2026-06-29 11:07 - [吃喝板块单边下行，华宝基金食品饮料ETF（515710）收跌1.59%！机构：底部愈发清晰](http://www.blog.kurohicncr.top/Article/details/95483268.shtml)
-- 2026-06-29 11:27 - [央行7天期逆回购连续两日零操作 资金面仍显宽松](http://www.blog.kurohicncr.top/Article/details/84910625112.shtml)
-- 2026-06-29 11:08 - [龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款](http://www.blog.minike.top/Article/details/45040748262.shtml)
-- 2026-06-29 11:24 - [Toro上调2026财年展望：AMP计划驱动利润率，预计销售增长4%-6.5%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [冠豪高新：公司始终密切关注行业前沿技术](http://www.blog.minike.top/Article/details/89344.shtml)
-- 2026-06-29 11:29 - [香港最大商业AI应用展览启幕 近100家供应商展示最新AI解决方案](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:09 - [学生票大升级！这些出行便利已成固定政策](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:01 - [300726！突发低位“20cm”涨停，A股登上《新闻联播》！一个牛市新信号来了！](http://www.blog.minike.top/Article/details/767067751.shtml)
-- 2026-06-29 11:29 - [回望——中国美术家协会2025年度绘画作品展亮相内蒙古](http://www.blog.minike.top/Article/details/4864435.shtml)
-- 2026-06-29 11:26 - [国务院食安办成立工作组督导查处 “望奎双汇猪肉抗生素超标问题”](http://www.share.kurohicncr.top/Article/details/789948.shtml)
-- 2026-06-29 11:05 - [中银国际：兖矿能源收购母公司电力资产并非特别吸引](http://www.blog.minike.top/Article/details/74662.shtml)
-- 2026-06-29 11:08 - [美光科技、英特尔、戴尔科技年内飙涨超200%，美股科技“七骑士”全线跑赢英伟达](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [财经早报：特朗普宣布同意停火两周，美国原油期货暴跌近20%丨2026年4月8日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:30 - [2026年清明节假期国内出游1.35亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:13 - [TCL电子午前涨超3% 全年纯利达25.12亿港元同比增超56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:12 - [富国基金：2025年因公司治理等“五宗罪”被责令改正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:24 - [03月31日丙二醇10333.33元/吨 5天上涨11.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:21 - [耐克第三财季业绩前瞻：华尔街准备迎接耐克多年来最疲软的季度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:34 - [习近平给四所交通大学全体师生回信强调 传承弘扬西迁精神聚焦国家重大战略需求 为建设教育强国科技强国人才强国作出新贡献](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:20 - [WTI原油首次收于100美元上方 布油将创历史最大单月涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:17 - [四招稳住“存款搬家”压力，招行2025年业绩重回正增长轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:32 - [鲍威尔：美联储将“观望”后再采取利率行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:24 - [尝高美集团在香港开设一间新谷泰餐厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:11 - [Colonial First State：油价飙升或致美国GDP萎缩0.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:31 - [黑龙江省备春耕基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:08 - [韩国推出173亿美元刺激计划，油价飙升施压经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:06 - [中俄对涉霍尔木兹海峡决议草案投反对票 伊朗代表：俄中阻止了滥用安理会的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)

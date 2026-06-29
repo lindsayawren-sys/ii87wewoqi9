@@ -1,58 +1,56 @@
-# 美众院首次通过决议 要求结束对伊朗战事
+# 海南推出“2026精品消费月暨消博嘉年华”系列活动
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-美国国会众议院3日通过一项决议，旨在限制美国总统特朗普对伊朗采取军事行动的权力。这是2月底以来，美众议院首次通过相关决议。 美国国会众议院3日通过一项限制总统战争权力的决议，要求美总统结束对伊朗的军事行动，并在今后对伊朗军事行动前必须获得国会授权。当天众议院表决结果为215票赞成、208票反对。有4名共和党籍众议员与民主党人一起对决议投了赞成票。 肯塔基州共和党籍联邦众议员 托
+中新网海口4月8日电 (张月和)第六届中国国际消费品博览会(简称“消博会”)是海南自贸港全岛封关后迎来的首个重大国家级展会。海南省旅游和文化广电体育厅二级巡视员袁绪良7日介绍，为充分放大本届消博会的全球影响力与客流集聚效应，高效推动展会流量转化为实实在在的旅游消费增量，该省策划推出“2026精品消费月暨消博嘉年华”系列活动。第六届中国国际消费品博览会城市综合保障新闻发布会当日在
 
 ## 正文
 
-美国国会众议院3日通过一项决议，旨在限制美国总统特朗普对伊朗采取军事行动的权力。
+中新网海口4月8日电 (张月和)第六届中国国际消费品博览会(简称“消博会”)是海南自贸港全岛封关后迎来的首个重大国家级展会。
 
-这是2月底以来，美众议院首次通过相关决议。
+海南省旅游和文化广电体育厅二级巡视员袁绪良7日介绍，为充分放大本届消博会的全球影响力与客流集聚效应，高效推动展会流量转化为实实在在的旅游消费增量，该省策划推出“2026精品消费月暨消博嘉年华”系列活动。
 
-美国国会众议院3日通过一项限制总统战争权力的决议，要求美总统结束对伊朗的军事行动，并在今后对伊朗军事行动前必须获得国会授权。
+第六届中国国际消费品博览会城市综合保障新闻发布会当日在海口举行。
 
-当天众议院表决结果为215票赞成、208票反对。
+袁绪良会上介绍，“2026精品消费月暨消博嘉年华”活动以“消博引力场，乐购自贸港”为主题，聚焦精品购物、精致旅游、精彩赛事、精美展演四大核心板块，深入推进“一市县一特色”差异化布局，着力构建全域联动、业态融合、便民惠民的旅游消费促进新格局。
 
-有4名共和党籍众议员与民主党人一起对决议投了赞成票。
+海南打通“参展—观光—购物”全链条，联动各大免税经营主体发放离岛免税消费券，为参展商、持证观展嘉宾提供专属优惠政策，持续放大离岛免税政策优势。
 
-肯塔基州共和党籍联邦众议员 托马斯·马西：众议院代表了美国民众，我想此次投票表决释放出一个明确信息，民众已经厌倦这场战争。
+同步举办海南特色美食尝鲜汇、老字号推广宣传周，开展“购在中国”(海南站)、第六届中免腕表节等系列主题活动，汇聚全球优质商品、本土特色好物与地道风味美食，充分激发消费市场活力。
 
-宾夕法尼亚州共和党籍联邦众议员 菲茨帕特里克：不能违反法律，这绝对不行。
+立足得天独厚的生态、康养、文化、滨海等特色资源，海南推出“跟着消博游海南”四大主题精品线路，涵盖高尔夫休闲、高端医疗康养、滨海度假、森林康养、民族文化沉浸式体验等多元业态。
 
-依据美国宪法，只有国会能授权发动战争。
+联合国内主流旅游平台上线消博会专属旅游产品，定向发放文旅惠民消费券，精准对接游客个性化、品质化、多元化出行需求，推动展会与旅游深度联动、互促共进。
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [伊朗战事冲击能源市场 欧盟称航空燃油供应暂无虞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:16 - [黄金已成全球最大储备资产，4月多国央行恢复净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:13 - [美国WTI原油下跌3%，报道称特朗普不愿重启与伊朗的战争](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:12 - [黄金交易提醒：中东停火惊现转机！金价反弹近1%，伊朗和平曙光能否点燃新一轮牛市？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:25 - [黎以同意实施停火 前提是真主党停止攻击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:10 - [航发动力：2026年6月22日召开2026年第二次临时股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:09 - [消费维权该去哪里？除了12315，这些正规投诉渠道也很管用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:05 - [电投能源：公司煤炭销售主要面向电厂、供热公司等终端用户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:10 - [海内外侨胞走进重庆潼南 看好汽车后市场发展潜力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:14 - [美迪凯发生2笔大宗交易 合计成交1003.13万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:15 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:06 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:26 - [珠江流域节水宣传活动丰富多彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:35 - [中央气象台：“超级单体”强对流将影响长江中下游地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:34 - [小摩：下调HASHKEY HLDGS评级至“中性” 目标价降至5港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:21 - [“做中国人，多么骄傲！”台湾青年自媒体人翟翾：大陆寻根后，心里更踏实了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:15 - [河北秦皇岛：人鸥共欢春日美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:07 - [多地联动“诵读经典·缅怀先贤”主题活动 与先贤跨时空对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:14 - [2025年经营性现金流净额8.16亿，美凯龙主营业务展现韧性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:24 - [600721，控制权拟变更，金华市国资委入主！大牛股净利润最高暴增8747.18%，存储涨价潮将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:33 - [东岳集团现涨逾9% 东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:31 - [押注苹果赚了1000亿美元但卖早了！巴菲特：当前美股不便宜，将重启慈善午餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [河北首单至土耳其TIR多式联运专线发车](http://www.blog.kurohicncr.top/Article/details/6995927502.shtml)
-- 2026-06-29 11:21 - [中国民主促进会福州市第九次代表大会在福州召开](http://www.blog.minike.top/Article/details/625080.shtml)
-- 2026-06-29 11:16 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [央行最新！加大“收水”力度！5000亿元，明日操作](http://www.share.kurohicncr.top/Article/details/638976.shtml)
-- 2026-06-29 11:05 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](http://www.blog.minike.top/Article/details/863361202773.shtml)
-- 2026-06-29 11:27 - [中国人保原党委委员、副总裁于泽被“双开”](http://www.share.kurohicncr.top/Article/details/0311757.shtml)
-- 2026-06-29 11:24 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](http://www.blog.minike.top/Article/details/1701080.shtml)
-- 2026-06-29 11:08 - [国家电网：168项迎峰度夏重点工程正加快建设](http://www.blog.minike.top/Article/details/04489.shtml)
-- 2026-06-29 11:27 - [在中东事态发展喜忧参半之际，油价小幅走低](http://www.share.kurohicncr.top/Article/details/85460.shtml)
-- 2026-06-29 11:05 - [中国法院去年审结环境资源一审案件22.9万件](http://www.blog.kurohicncr.top/Article/details/68434.shtml)
-- 2026-06-29 11:12 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](http://www.share.kurohicncr.top/Article/details/90804.shtml)
-- 2026-06-29 11:22 - [美国失业救济申请人数在假日周升至2月以来最高](http://www.blog.minike.top/Article/details/547871086.shtml)
-- 2026-06-29 11:21 - [精耕细作，童书消费步入品质时代](http://www.blog.minike.top/Article/details/86186782.shtml)
-- 2026-06-29 11:04 - [ST星农大宗交易成交203.00万元](http://www.share.kurohicncr.top/Article/details/181242.shtml)
-- 2026-06-29 11:00 - [瑞梅铁路梅江特大桥中跨顺利合龙](http://www.share.kurohicncr.top/Article/details/137849.shtml)
+- 2026-06-29 11:09 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:14 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:28 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:09 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:09 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:16 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:35 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:24 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:27 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:09 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:26 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:13 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:17 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:09 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:08 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)

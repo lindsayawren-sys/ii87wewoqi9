@@ -1,59 +1,58 @@
-# 易方达ETF超过华夏了
+# 江汉江淮等地将有较强降水和强对流天气 北方及西南地区仍有大风
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：小基慢跑 之前写过： 易方达ETF规模马上超过华夏了 昨儿数据出来，易方达已经超过了华夏，成为新的ETF一哥了。 这是多年来华夏基金首次在ETF规模上被超越。 今年以来，受市场波动影响，头部基金公司ETF规模普遍出现缩水。易方达ETF规模减少了2622亿元，华夏减少了3407亿元。虽然两家都面临压力，
+中新网4月8日电 据中央气象台网站消息，昨日，广东、福建、江西等地出现暴雨，局地大暴雨，青海和西藏的部分地区出现小到中雪或雨夹雪；西北地区、青藏高原及内蒙古等地阵风较大。预计未来三天，江汉、江淮、江南北部及重庆等地有较强降雨，局地并伴有短时强降水、雷暴大风或冰雹等强对流天气；青藏高原有雨雪，局地有大到暴雪；关注雨雪天气对交通、旅游、农业生产等影响。北方及西南地区仍多大风，做好森
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网4月8日电 据中央气象台网站消息，昨日，广东、福建、江西等地出现暴雨，局地大暴雨，青海和西藏的部分地区出现小到中雪或雨夹雪；西北地区、青藏高原及内蒙古等地阵风较大。
 
-来源：小基慢跑 之前写过： 易方达ETF规模马上超过华夏了 昨儿数据出来，易方达已经超过了华夏，成为新的ETF一哥了。
+预计未来三天，江汉、江淮、江南北部及重庆等地有较强降雨，局地并伴有短时强降水、雷暴大风或冰雹等强对流天气；青藏高原有雨雪，局地有大到暴雪；关注雨雪天气对交通、旅游、农业生产等影响。
 
-这是多年来华夏基金首次在ETF规模上被超越。
+北方及西南地区仍多大风，做好森林草原和城乡防火工作。
 
-今年以来，受市场波动影响，头部基金公司ETF规模普遍出现缩水。
+江汉江淮等地将有较强降水和强对流天气 8日至10日，江汉、江淮、江南北部及重庆等地的部分地区有中到大雨，局地暴雨或大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
 
-易方达ETF规模减少了2622亿元，华夏减少了3407亿元。
+中央气象台4月8日06时发布暴雨蓝色预警、继续发布强对流天气蓝色预警。
 
-虽然两家都面临压力，但易方达的缩水幅度相对更小，这也成为其反超的关键。
+预计，4月8日08时至9日08时，湖北南部和东部、安徽中北部、河南南部、江苏中北部等地部分地区有大到暴雨，其中，湖北东部局地有大暴雨(100～150毫米)。
 
-责任编辑：孙同怀
+上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风或冰雹等强对流天气。
+
+江汉、江淮西部、江南北部、西南地区东部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，湖北东部和南部、湖南西部、重庆东南部、贵州东南部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上；湖北东部和南部、安徽中北部、江苏中部、河南南部、湖南北部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，湖北东部局地小时雨量大于50毫米。
 
 ## 相关推荐
 
-- 2026-06-29 11:10 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:16 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:08 - [央行最新！加大“收水”力度！5000亿元，明日操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:29 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:16 - [中国人保原党委委员、副总裁于泽被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:03 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:11 - [国家电网：168项迎峰度夏重点工程正加快建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:20 - [在中东事态发展喜忧参半之际，油价小幅走低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:24 - [中国法院去年审结环境资源一审案件22.9万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:13 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:07 - [美国失业救济申请人数在假日周升至2月以来最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:14 - [精耕细作，童书消费步入品质时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:11 - [ST星农大宗交易成交203.00万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:11 - [瑞梅铁路梅江特大桥中跨顺利合龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:10 - [以色列防长：与黎巴嫩的停火协议取决于真主党撤出黎南部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:25 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:20 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:09 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:08 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:25 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:21 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:22 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:28 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:18 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:06 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:19 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:09 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [伊朗称美失误致科威特机场受损 美方否认](http://www.share.minike.top/Article/details/79153691260.shtml)
-- 2026-06-29 11:25 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](http://www.share.kurohicncr.top/Article/details/1060182.shtml)
-- 2026-06-29 11:20 - [光大期货：6月5日金融日报](http://www.share.kurohicncr.top/Article/details/23064281.shtml)
-- 2026-06-29 11:29 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](http://www.blog.minike.top/Article/details/08540.shtml)
-- 2026-06-29 11:21 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](http://www.share.kurohicncr.top/Article/details/292622.shtml)
-- 2026-06-29 11:00 - [3分钟，垂直涨停！封单超6万手](http://www.share.minike.top/Article/details/816382.shtml)
-- 2026-06-29 11:04 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](http://www.share.kurohicncr.top/Article/details/830929614354.shtml)
-- 2026-06-29 11:26 - [金银持续下跌，金价从历史高点已回落超过1000美元！一大行宣布：提高保证金比例](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:03 - [美债市场“野兽”咆哮回归 凸性对冲恐加剧波动](http://www.blog.minike.top/Article/details/08944969351.shtml)
-- 2026-06-29 11:13 - [国家经济委员会主任哈塞特：低通胀环境下美联储有降息空间](http://www.blog.kurohicncr.top/Article/details/195285806.shtml)
-- 2026-06-29 11:12 - [港股午评：恒指跌0.81% 科指跌1.23% 科网股普跌 半导体板块回调 中兴通讯逆势涨超8%](http://www.blog.minike.top/Article/details/834930659304.shtml)
-- 2026-06-29 11:18 - [世赛新增项目，为啥是这7个？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:13 - [富滇银行2026年增资扩股方案获批 拟募集不超过14亿股股份](http://www.blog.kurohicncr.top/Article/details/4894870839.shtml)
-- 2026-06-29 11:10 - [上海市委统战部在黄浦区召开基层统战工作现场会](http://www.blog.minike.top/Article/details/92719794.shtml)
-- 2026-06-29 11:25 - [突然，20%涨停！“225倍大神”，最新引爆！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:35 - [匈牙利大选前美国副总统万斯访匈，力挺欧尔班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:27 - [湖南省政协文教卫体和文史委员会副主任夏智伦接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:07 - [尼日利亚汽油价格飙升65% 受原油进口成本上涨推动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:24 - [日经指数上涨4.7% 受芯片和金属类股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:11 - [GTC泽汇资本:黄金属性临时切换 去美元化驱动长牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:27 - [3月31日热门中概股多数下跌 蔚来涨3.95%，小马智行跌6.56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:16 - [贺青任上海市副市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:22 - [日韩股市集体低开 韩国跌超2.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:29 - [绿城管理控股早盘涨超8% 2025年度股东应占溢利4.19亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:13 - [蓝思科技于4月3日斥资1.19亿元回购426.49万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:32 - [芝加哥联储行长古尔斯比：对经济持谨慎甚至紧张态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:29 - [95岁巴菲特，宣布重启！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:13 - [从缝纫女工到紫檀女王 陈丽华留下比500亿更重要的东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:19 - [中国光大银行发布2025年年度报告： 服务实体显担当 提质增效稳基础 高质量发展取得积极成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)

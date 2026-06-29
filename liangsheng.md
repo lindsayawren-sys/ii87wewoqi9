@@ -1,58 +1,59 @@
-# 广西西江生态环境质量指数提升显著 保障大湾区优质供水
+# 广电总局：电视剧创作要避免“颜值至上”“流量依赖”
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-中新网南宁6月4日电(罗先彬 计韦杰)广西壮族自治区生态环境厅4日发布消息称，2025年广西西江生态环境质量指数达88.35，较2021年提升5.53，流域生态环境质量等级为“优”，呈现“明显变好”态势。作为粤港澳大湾区重要的水源地和生态屏障，西江水质持续改善，为粤港澳大湾区供水安全提供了有力保障。 广西壮族自治区生态环境厅二级巡视员邹锐在当日举行的新闻发布会上介绍，西江指数是
+原标题：电视剧司召开电视剧健康审美座谈会 4月2日，电视剧司召开电视剧健康审美座谈会。爱奇艺、芒果TV、腾讯视频、优酷等重点网络视听平台，以及正午阳光、柠萌影视、华策影视、长信传媒等制作机构相关负责人参加了会议。 会议认为，电视剧作为人民大众喜闻乐见的文艺形态，在传递主流价值、传承中华优秀传统文化、引领审美风尚等方面发挥着重要作用。近年来创作播出的一大批思想精深、艺术精湛、制作
 
 ## 正文
 
-中新网南宁6月4日电(罗先彬 计韦杰)广西壮族自治区生态环境厅4日发布消息称，2025年广西西江生态环境质量指数达88.35，较2021年提升5.53，流域生态环境质量等级为“优”，呈现“明显变好”态势。
+原标题：电视剧司召开电视剧健康审美座谈会 4月2日，电视剧司召开电视剧健康审美座谈会。
 
-作为粤港澳大湾区重要的水源地和生态屏障，西江水质持续改善，为粤港澳大湾区供水安全提供了有力保障。
+爱奇艺、芒果TV、腾讯视频、优酷等重点网络视听平台，以及正午阳光、柠萌影视、华策影视、长信传媒等制作机构相关负责人参加了会议。
 
-广西壮族自治区生态环境厅二级巡视员邹锐在当日举行的新闻发布会上介绍，西江指数是反映西江流域生态环境质量状况的综合指标体系，涵盖水资源保障、水环境改善、水生态健康等14项指标。
+会议认为，电视剧作为人民大众喜闻乐见的文艺形态，在传递主流价值、传承中华优秀传统文化、引领审美风尚等方面发挥着重要作用。
 
-评价范围涉及广西13个地市的98个县(市、区)，占广西国土面积的85.2%。
+近年来创作播出的一大批思想精深、艺术精湛、制作精良的优秀作品，充分展现了电视剧行业的责任与担当。
 
-数据显示，2021年至2025年，西江指数从82.82逐年攀升至88.35。
+同时也要清醒认识到，行业内还存在片面追求“颜值至上”的不良创作倾向，有的剧集出现演员妆容过度，部分服装化妆道具与人物性格、故事场景脱节等问题。
 
-其中，重要控制断面生态流量达标率保持在97.28%以上，桂—粤地表水交界断面稳定保持Ⅱ类水质。
+会议指出，树立健康审美观念，是关乎文艺方向、关乎文化自信、关乎行业未来的重要命题。
 
-城市生活污水集中收集率从38.40%升至61.89%，城市黑臭水体整治完成率由30.70%提升至89.66%。
+电视剧行业要深入学习贯彻习近平文化思想，坚持以人民为中心的创作导向，坚持守正创新，坚持真善美的价值内核，深入生活、扎根人民，让电视剧作品真正体现质朴之美、自然之美、内涵之美。
 
-广西壮族自治区生态环境厅水生态环境处副处长于浩龙表示，“十四五”期间，广西系统推进西江流域综合治理，累计排查入河排污口1.2万余个，完成9000余个整治任务。
+一是深刻认识树立健康审美观念的重要意义。
 
 ## 相关推荐
 
-- 2026-06-29 11:03 - [Meta最新AI模型一拖再拖，开发者耐心渐失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:27 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:03 - [新大众文艺：人民文艺的时代强音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:06 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:25 - [青海省“全民禁毒宣传月”系列活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:24 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:02 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:11 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:15 - [外媒：以色列和黎巴嫩同意停火 但有前提](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:27 - [初夏“睡眠紊乱”高发，如何找回状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:15 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:13 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:06 - [伊朗说同意谈判但对美国“完全不信任”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:10 - [特朗普施压加码，最后期限逼近，美伊谈判难在哪？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:21 - [高盛：调查显示信贷市场看空情绪创纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:13 - [百胜中国于4月6日斥资300万美元回购6.16万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:33 - [为稳定电力供应 台湾拟重启已停运的燃煤机组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:07 - [世界数据组织成立！顶层强调数据资源价值！华宝基金大数据ETF（516700）盘中上探1.3%，中科星图领涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:13 - [聚焦春季造林 广东发布2026年第1号总林长令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:15 - [张家港行：2025年归母净利润19.79亿元 同比增长5.35%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:27 - [贵金属上涨 受美元走软和美债收益率下降提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:21 - [法国通胀升至2024年8月以来最高水平 加大欧洲央行升息压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:24 - [海尔们想做“钢铁侠”，追觅们想做“扫地僧”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:27 - [财经早报：特朗普宣布同意停火两周，美国原油期货暴跌近20%丨2026年4月8日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:29 - [2026年清明节假期国内出游1.35亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:07 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](http://www.blog.kurohicncr.top/Article/details/1335331.shtml)
-- 2026-06-29 11:04 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](http://www.blog.minike.top/Article/details/785066540.shtml)
-- 2026-06-29 11:15 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](http://www.blog.minike.top/Article/details/81168976.shtml)
-- 2026-06-29 11:21 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:03 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](http://www.blog.minike.top/Article/details/9918845482.shtml)
-- 2026-06-29 11:25 - [广东省口岸有关数据（2026年1-4月）](http://www.share.kurohicncr.top/Article/details/766154572102.shtml)
-- 2026-06-29 11:15 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [中国人民银行定于2026年6月13日发行国家宝藏（融合交流）金银纪念币一套](http://www.share.kurohicncr.top/Article/details/63409.shtml)
-- 2026-06-29 11:09 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:14 - [债市“乌龙指”：30亿农发债协议取消与内控失守](http://www.blog.kurohicncr.top/Article/details/744402.shtml)
-- 2026-06-29 11:25 - [18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞](http://www.blog.kurohicncr.top/Article/details/96036711.shtml)
-- 2026-06-29 11:20 - [要做难而正确的事 理想汽车李想邀您关注统战新语](http://www.blog.kurohicncr.top/Article/details/45038682.shtml)
-- 2026-06-29 11:07 - [600年白沙壁画景区焕新开放 数字技术让白沙壁画“活起来”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:14 - [揭开网上彩票店“吃票”黑幕：投注5万元却未收到一张彩票](http://www.blog.kurohicncr.top/Article/details/913174983936.shtml)
-- 2026-06-29 11:17 - [中材节能：2026年6月22日召开2026年第二次临时股东会](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:16 - [从修车学徒到冠军缔造者，张雪能否给国产摩托车产业带来新机遇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:28 - [霸王茶姬2025年GMV达315.8亿，全年净收入达129.1亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:08 - [联合国人权高专：蓄意攻击民用基础设施属于战争罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:24 - [交银施罗德的灵魂人物谢卫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:17 - [国台办：民进党当局“跪美卖台” 牺牲台湾农业未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:29 - [六大行拟派发股息超两千亿元，中证银行今日高开高走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:12 - [DDR5价格，全球暴跌！竟是因为它？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:29 - [马达加斯加因能源供应危机宣布进入紧急状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:34 - [利好突袭！刚刚，暴涨900点！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:22 - [CFA三级考试通过率维持在50% 低于十年平均水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:35 - [央行：把做强国内大循环摆到更加突出的位置，统筹好总供给和总需求的关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:29 - [美国3年期国债中标收益率创去年6月以来最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:20 - [维护国际秩序稳定是各国应对挑战的急迫所需（国际论坛）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:23 - [海南封关看变化：三亚释产业投资机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:21 - [提出8个重点任务！教育部部署开展中小学阳光招生专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)

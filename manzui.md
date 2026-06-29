@@ -1,61 +1,61 @@
-# 健康险“卷”起来！重疾险不确诊也能赔？医疗险病了也能买？
+# 一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-重疾险，确诊才能赔？医疗险，生病就不能买？ 当公众将目光聚焦分红险、增额终身寿险等储蓄型产品时，传统保障型产品，尤其是重疾险，愈发难卖，这几乎成为近年来从业者的普遍感受。 百万医疗险抢占市场，叠加产品涨价，重疾险保障杠杆持续走低，2021年，重疾险保费收入同比下降6.7%，系2016年以来首次负增长；到2024年，医疗险保费占健康险保费的比例约44%，首次超越重疾险（占比约为4
+雀巢对失窃巧克力的回应证明：只要能玩成梗，就没有真正的坏消息 12 吨被盗的奇巧巧克力到底值多少钱？答案是：价值连城的宣传素材。 这起轰动全网的巧克力劫案传遍了各大社交平台：上周末，雀巢证实，一批共计 413，793 块奇巧巧克力在从意大利中部工厂运往波兰的途中被盗。巧克力和运送货车至今下落不明，不过案件中无人受伤。 但这家瑞士企业在巧克力上的损失，却以一场漂亮的公关胜利悉数赚
 
 ## 正文
 
-重疾险，确诊才能赔？
+雀巢对失窃巧克力的回应证明：只要能玩成梗，就没有真正的坏消息 12 吨被盗的奇巧巧克力到底值多少钱？
 
-医疗险，生病就不能买？
+答案是：价值连城的宣传素材。
 
-当公众将目光聚焦分红险、增额终身寿险等储蓄型产品时，传统保障型产品，尤其是重疾险，愈发难卖，这几乎成为近年来从业者的普遍感受。
+这起轰动全网的巧克力劫案传遍了各大社交平台：上周末，雀巢证实，一批共计 413，793 块奇巧巧克力在从意大利中部工厂运往波兰的途中被盗。
 
-百万医疗险抢占市场，叠加产品涨价，重疾险保障杠杆持续走低，2021年，重疾险保费收入同比下降6.7%，系2016年以来首次负增长；到2024年，医疗险保费占健康险保费的比例约44%，首次超越重疾险（占比约为43%），成为健康险市场的第一大险种。
+巧克力和运送货车至今下落不明，不过案件中无人受伤。
 
-如何拓展保障边界，提升消费者获得感，成为健康险迭代升级的关键。
+但这家瑞士企业在巧克力上的损失，却以一场漂亮的公关胜利悉数赚了回来 —— 其他多家反应迅速的品牌也纷纷跟风玩梗，一同蹭上了热度。
 
-贝壳财经记者注意到，今年以来，嵌入医疗责任、不确诊也可获得赔付的重疾险，带病可保可赔、降低免赔额，甚至能报销三甲医院国际部的中高端医疗险接连上市。
+雀巢在一份声明中表示：“我们一直鼓励大家‘来块奇巧，歇一歇’—— 但这帮小偷似乎把这句话理解得太字面了，直接‘卷走’了我们超过 12 吨的巧克力。
 
-这些打破原保障边界的保险产品，在条款设计、赔付规则上有何创新？
+” 一名发言人证实，这起劫案并非愚人节提前整活。
 
-消费者在选购时又该如何避坑？
+“这事是真的。
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:22 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:24 - [赖清德批小红书，是在怕什么？丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:20 - [连收罚单的华泰财险，还有这些问题要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:20 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:26 - [建设国家公园带来了什么？记者和亲历者聊了聊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:22 - [印尼驻华大使：相信万隆精神依然具有生命力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:13 - [中青旅：公司持续关注近期股价破净情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:13 - [日本央行据悉考虑6月升息 日元汇率随之走强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:27 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:01 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:27 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:28 - [山东文化“春雨”乘旅游列车润泽天山南北](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:12 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:00 - [伊朗称美失误致科威特机场受损 美方否认](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:16 - [鲍威尔：即使能源价格飙升，政策仍处于“良好位置”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:31 - [酒价内参4月3日价格发布 习酒君品上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:36 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:28 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:21 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:22 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:10 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:17 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:30 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:32 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:25 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:16 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:19 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:35 - [布伦特原油在结算后交易中下跌 巴基斯坦敦促伊朗开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:28 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:05 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:02 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](http://www.blog.kurohicncr.top/Article/details/57150557.shtml)
-- 2026-06-29 11:29 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [全国小麦收获有序推进 已近五成](http://www.share.minike.top/Article/details/89173686.shtml)
-- 2026-06-29 11:05 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](http://www.share.kurohicncr.top/Article/details/06963560.shtml)
-- 2026-06-29 11:17 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](http://www.blog.minike.top/Article/details/19174989.shtml)
-- 2026-06-29 11:06 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:06 - [消息人士：印度拟取消外资投资国债资本利得税](http://www.share.minike.top/Article/details/4282137.shtml)
-- 2026-06-29 11:17 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](http://www.blog.kurohicncr.top/Article/details/33062187544.shtml)
-- 2026-06-29 11:07 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](http://www.share.kurohicncr.top/Article/details/732060599.shtml)
-- 2026-06-29 11:28 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](http://www.blog.minike.top/Article/details/332140.shtml)
-- 2026-06-29 11:13 - [周锡玮：两岸要一起，把中国好的理念传播出去](http://www.blog.minike.top/Article/details/7276489374.shtml)
-- 2026-06-29 11:11 - [东莞港落地“内外贸同船+水水中转多式联运”模式](http://www.share.kurohicncr.top/Article/details/76210295987.shtml)
-- 2026-06-29 11:21 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](http://www.blog.minike.top/Article/details/31354.shtml)
+- 2026-06-29 11:13 - [财务总监、首席执行官辞职！神州数码业绩发布：AI业务收入增长近5成，现金流“失血”猛跌近200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:33 - [SpaceX尚未上市，投资者已在热议该公司会否与特斯拉合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:13 - [B站宣布：明天零点起，将下线猜你喜欢算法，不再根据你的喜好来推荐主页内容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:34 - [伊朗战争进入第五周，黄金或将迎来2008年以来最差月度表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:19 - [股价最大跌幅近90%！两大IPO募投项目2025年亏损，拓新药业发布定增预案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:29 - [给乡愁办个“身份证” 黑龙江省额尔门沁村以版权激活民族文化遗产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:08 - [巴菲特：尽管有爱泼斯坦丑闻，他仍不后悔向盖茨基金会捐款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:19 - [中天策略:3月31日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:23 - [国际油价，大跌15%！特朗普说停火两周，伊朗接受了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:14 - [兴业证券2025年报：经纪、自营收入合计占比近六成 投行、资管业务疲软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:34 - [GLP-1口服药扩大肥胖治疗市场 吸引不愿接受注射治疗的患者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:08 - [特朗普称美国将在两三周内结束对伊战争 仍有可能与德黑兰达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:35 - [她还能增长吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:18 - [报道：哈尔克岛遭袭击后传出爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:31 - [水利部批复新一轮大江大河采砂管理规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)

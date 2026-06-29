@@ -1,56 +1,57 @@
-# 原油：以色列和黎巴嫩停火后WTI下跌 尽管冲突仍在持续
+# 爱奇艺拟赴港二次上市 宣布AI视频工具测试 股价大涨
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-原油下跌，因以色列和黎巴嫩达成有条件停火后，市场寄望美国和伊朗距离和平协议更近一步，尽管持续冲突给停火蒙上阴影。 WTI期货下跌逾3%，终结三连涨，结算价在每桶93美元上方。周三宣布的以色列和黎巴嫩停火可能满足德黑兰的一个关键谈判条件，为美国和伊朗达成协议铺平道路。 华盛顿和德黑兰已勾勒出一个框架，将双方停火延长两个月并重新开放霍尔木兹海峡。但谈判陷入停滞，零星战斗已经恢复。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：南方都市报 3月30日，爱奇艺发布公告宣布拟在港交所上市，同时实行股份回购计划。 公告显示，公司已向港交所秘密提交上市申请表格，申请在港交所上市并获准买卖A类普通股。爱奇艺表示，回港上市旨在提升公司在香港资本市场的融资渠道，通过增加对亚洲机构及散户投资者的关注，扩大公司投资者基础，并提升公司的国际形象
 
 ## 正文
 
-原油下跌，因以色列和黎巴嫩达成有条件停火后，市场寄望美国和伊朗距离和平协议更近一步，尽管持续冲突给停火蒙上阴影。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-WTI期货下跌逾3%，终结三连涨，结算价在每桶93美元上方。
+来源：南方都市报 3月30日，爱奇艺发布公告宣布拟在港交所上市，同时实行股份回购计划。
 
-周三宣布的以色列和黎巴嫩停火可能满足德黑兰的一个关键谈判条件，为美国和伊朗达成协议铺平道路。
+公告显示，公司已向港交所秘密提交上市申请表格，申请在港交所上市并获准买卖A类普通股。
 
-华盛顿和德黑兰已勾勒出一个框架，将双方停火延长两个月并重新开放霍尔木兹海峡。
+爱奇艺表示，回港上市旨在提升公司在香港资本市场的融资渠道，通过增加对亚洲机构及散户投资者的关注，扩大公司投资者基础，并提升公司的国际形象。
 
-但谈判陷入停滞，零星战斗已经恢复。
+爱奇艺在公告中强调，拟议上市的详情尚未最终确定。
 
-伊朗表示，与美国的谈判最近没有取得进展，伊朗支持的真主党武装也拒绝接受由美国斡旋的黎巴嫩停火。
+拟议上市须经香港交易所批准、完成向中国证券监督管理委员会提交的备案文件以及公司最终决定等条件方可实现。
 
-与此同时，霍尔木兹海峡实际上仍处于关闭状态。
+拟议上市能否进行或何时进行均无法保证。
 
-不过，这些障碍并未阻止油价下滑。
+据悉，去年8月就有市场传言称爱奇艺在寻求回港上市，目标是融资3亿美元，这一做法很可能是为了募集资金来新增资本补强，进一步改善债务结构与财务灵活性。
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [易方达ETF超过华夏了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:09 - [中国电科面向空天地信息通信一体芯片从“实验室”走向“生产线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:02 - [上海石化：2026年6月26日召开2025年度股东周年会、2026年第一次A股股东会和2026年第一次H股股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:17 - [印尼盾汇率跌破18000心理关口 市场警惕央行干预](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:14 - [Point72据悉考虑从其他对冲基金付费获取交易情报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:13 - [中华企业：公司积极参与上海地产集团城市更新平台建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:00 - [河北首单至土耳其TIR多式联运专线发车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:02 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:24 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:18 - [央行最新！加大“收水”力度！5000亿元，明日操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:12 - [江汉江淮等地将有较强降水和强对流天气 北方及西南地区仍有大风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:24 - [《人民日报》：“为什么这些APP都想借钱给我？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:31 - [以总理称支持美伊停火两周但停火不包括黎巴嫩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:18 - [浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:20 - [极兔速递-W早盘上涨13% 全年经调整净利润同比增长112.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:09 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:23 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:07 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:12 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:34 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:27 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:05 - [中青旅：公司持续关注近期股价破净情况](http://www.blog.kurohicncr.top/Article/details/353906562584.shtml)
-- 2026-06-29 11:25 - [日本央行据悉考虑6月升息 日元汇率随之走强](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:09 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](http://www.blog.minike.top/Article/details/820776890.shtml)
-- 2026-06-29 11:19 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](http://www.share.minike.top/Article/details/68766.shtml)
-- 2026-06-29 11:04 - [山东文化“春雨”乘旅游列车润泽天山南北](http://www.share.minike.top/Article/details/4784863.shtml)
-- 2026-06-29 11:18 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](http://www.share.kurohicncr.top/Article/details/782071806.shtml)
-- 2026-06-29 11:20 - [伊朗称美失误致科威特机场受损 美方否认](http://www.share.minike.top/Article/details/781009576205.shtml)
-- 2026-06-29 11:07 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](http://www.share.minike.top/Article/details/7220430.shtml)
-- 2026-06-29 11:21 - [光大期货：6月5日金融日报](http://www.blog.kurohicncr.top/Article/details/4565998.shtml)
-- 2026-06-29 11:11 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](http://www.share.minike.top/Article/details/9176182.shtml)
-- 2026-06-29 11:05 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](http://www.share.minike.top/Article/details/67218.shtml)
-- 2026-06-29 11:20 - [3分钟，垂直涨停！封单超6万手](http://www.share.kurohicncr.top/Article/details/985505.shtml)
-- 2026-06-29 11:22 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](http://www.blog.kurohicncr.top/Article/details/201813098480.shtml)
-- 2026-06-29 11:19 - [金银持续下跌，金价从历史高点已回落超过1000美元！一大行宣布：提高保证金比例](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:12 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:14 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:08 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:13 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:30 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:07 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:10 - [布伦特原油在结算后交易中下跌 巴基斯坦敦促伊朗开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:24 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:09 - [匈牙利大选前美国副总统万斯访匈，力挺欧尔班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:13 - [湖南省政协文教卫体和文史委员会副主任夏智伦接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:13 - [尼日利亚汽油价格飙升65% 受原油进口成本上涨推动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:30 - [日经指数上涨4.7% 受芯片和金属类股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:13 - [GTC泽汇资本:黄金属性临时切换 去美元化驱动长牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:23 - [3月31日热门中概股多数下跌 蔚来涨3.95%，小马智行跌6.56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:25 - [贺青任上海市副市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)

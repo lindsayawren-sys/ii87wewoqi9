@@ -1,50 +1,47 @@
-# “走进泰国-泰国营商环境、优惠政策及投资机遇”投资推介会
+# 京西国际于4月8日上午起停牌 待刊发内幕消息
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-活动简介 为深化中泰经贸合作，助力中国企业把握泰国投资机遇，搭建高效务实的跨境投资对接平台，泰国投资促进委员会北京办事处、中国国际贸易促进委员会商事法律服务中心联合举办“走进泰国——泰国营商环境、优惠政策及投资机遇”投资推介会。 本次活动依托2026中国国际供应链博览会(CISCE) 举办，聚焦泰国投资政策、优势产业、金融服务、园区基建及法律合规等核心内容，邀请泰国官方机构、金
+京西国际（02339）发布公告，公司股份已经于2026年4月8日上午九时正起暂停在香港联合交易所有限公司买卖，以待公司根据香港收购及合并守则刊发公司内幕消息的公告。责任编辑：卢昱君
 
 ## 正文
 
-活动简介 为深化中泰经贸合作，助力中国企业把握泰国投资机遇，搭建高效务实的跨境投资对接平台，泰国投资促进委员会北京办事处、中国国际贸易促进委员会商事法律服务中心联合举办“走进泰国——泰国营商环境、优惠政策及投资机遇”投资推介会。
+京西国际（02339）发布公告，公司股份已经于2026年4月8日上午九时正起暂停在香港联合交易所有限公司买卖，以待公司根据香港收购及合并守则刊发公司内幕消息的公告。
 
-本次活动依托2026中国国际供应链博览会(CISCE) 举办，聚焦泰国投资政策、优势产业、金融服务、园区基建及法律合规等核心内容，邀请泰国官方机构、金融机构、产业园区及专业服务机构代表权威解读，为企业赴泰投资提供全流程指引与实务支持。
-
-活动日程12:45-13:15 嘉宾签到入场 第一部分 致辞环节 13:15-13:20 演讲嘉宾介绍 13:20-13:30 泰国投资促进委员会领导发表致辞 13:30-13:40 中国贸促会领导发表致辞 第二部分 主题分享 13:40-14:00 泰国投资促进委员会(BOI)北京办事处主任陈安先生 《泰国投资促进政策及机遇领域》 14:00-14:20 中国工商银行(泰国)股份有限公司高级营销经理冰雪女士 《跨境投资一站式金融解决方案 》 14:20-14:40 泰国304工业园招商投资总监赵大鲲先生 《适配中国投资的综合产业基建体系》 14:40-14:50 中国国际贸易促进委员会商事法律服务中心王岱凌女士 《投资者赴泰投资必备须知》 14:50-15:00 问答互动环节 来源：中国国际贸易促进委员会网站
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:00 - [印尼盾汇率跌破18000心理关口 市场警惕央行干预](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:16 - [Point72据悉考虑从其他对冲基金付费获取交易情报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:20 - [中华企业：公司积极参与上海地产集团城市更新平台建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:01 - [河北首单至土耳其TIR多式联运专线发车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:15 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:14 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:23 - [央行最新！加大“收水”力度！5000亿元，明日操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:16 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:06 - [中国人保原党委委员、副总裁于泽被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:19 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:01 - [国家电网：168项迎峰度夏重点工程正加快建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:25 - [在中东事态发展喜忧参半之际，油价小幅走低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:20 - [中国法院去年审结环境资源一审案件22.9万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:13 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:31 - [浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:25 - [极兔速递-W早盘上涨13% 全年经调整净利润同比增长112.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:07 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:25 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:32 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:28 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:13 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:29 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:28 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:32 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:26 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:06 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:34 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](http://www.blog.kurohicncr.top/Article/details/8643623.shtml)
-- 2026-06-29 11:06 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](http://www.share.minike.top/Article/details/754395254.shtml)
-- 2026-06-29 11:01 - [山东文化“春雨”乘旅游列车润泽天山南北](http://www.share.minike.top/Article/details/098833.shtml)
-- 2026-06-29 11:25 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](http://www.share.kurohicncr.top/Article/details/494406.shtml)
-- 2026-06-29 11:04 - [伊朗称美失误致科威特机场受损 美方否认](http://www.blog.kurohicncr.top/Article/details/474886.shtml)
-- 2026-06-29 11:26 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](http://www.blog.kurohicncr.top/Article/details/0784373.shtml)
-- 2026-06-29 11:17 - [光大期货：6月5日金融日报](http://www.share.minike.top/Article/details/0357859.shtml)
-- 2026-06-29 11:23 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](http://www.blog.kurohicncr.top/Article/details/6502375.shtml)
-- 2026-06-29 11:14 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](http://www.blog.kurohicncr.top/Article/details/38747.shtml)
-- 2026-06-29 11:09 - [3分钟，垂直涨停！封单超6万手](http://www.share.kurohicncr.top/Article/details/2917876128.shtml)
-- 2026-06-29 11:08 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](http://www.blog.minike.top/Article/details/6388652537.shtml)
-- 2026-06-29 11:29 - [金银持续下跌，金价从历史高点已回落超过1000美元！一大行宣布：提高保证金比例](http://www.share.minike.top/Article/details/22424011886.shtml)
-- 2026-06-29 11:12 - [美债市场“野兽”咆哮回归 凸性对冲恐加剧波动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:00 - [国家经济委员会主任哈塞特：低通胀环境下美联储有降息空间](http://www.blog.kurohicncr.top/Article/details/006081.shtml)
-- 2026-06-29 11:16 - [港股午评：恒指跌0.81% 科指跌1.23% 科网股普跌 半导体板块回调 中兴通讯逆势涨超8%](http://www.share.minike.top/Article/details/234277925780.shtml)
+- 2026-06-29 11:13 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:12 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:17 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:08 - [布伦特原油在结算后交易中下跌 巴基斯坦敦促伊朗开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:08 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:31 - [匈牙利大选前美国副总统万斯访匈，力挺欧尔班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:14 - [湖南省政协文教卫体和文史委员会副主任夏智伦接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:14 - [尼日利亚汽油价格飙升65% 受原油进口成本上涨推动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:18 - [日经指数上涨4.7% 受芯片和金属类股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:07 - [GTC泽汇资本:黄金属性临时切换 去美元化驱动长牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:16 - [3月31日热门中概股多数下跌 蔚来涨3.95%，小马智行跌6.56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:25 - [贺青任上海市副市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:16 - [日韩股市集体低开 韩国跌超2.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:30 - [绿城管理控股早盘涨超8% 2025年度股东应占溢利4.19亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:14 - [蓝思科技于4月3日斥资1.19亿元回购426.49万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)

@@ -1,60 +1,57 @@
-# （经济观察）中国正谋划实施新一轮空气质量改善行动
+# 尼日利亚汽油价格飙升65% 受原油进口成本上涨推动
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-中新社广州6月5日电 (记者 阮煜琳)中国实施国家级清洁空气行动以来，空气质量发生历史性变化。当前，中国正以新修订出台的环境空气质量标准为引领，谋划实施新一轮空气质量改善行动。“十五五”时期，中国将促进空气质量的全面改善。中国生态环境部日前公布，“十四五”期间，全国细颗粒物(PM2.5)浓度累计下降20%，优良天数比例创有监测以来最好水平，重污染天数减少25%。 由亚洲清洁空气
+尽管尼日利亚目前拥有非洲最大的炼油厂，但在中东战争的背景下，该国汽油价格已飙升至创纪录高位。 非洲最大的炼油厂——丹格特炼油厂于2024年投产，目前已开始向西非以外的地区出口燃料。该炼油厂于2024年1月启动柴油和石脑油生产，并于2024年9月开始生产汽油。 中东战争爆发之初，该炼油厂曾表示，将“坚定不移地致力于在国际石油市场近期冲击中发挥稳定作用”。 然而，随着国际原油价格飙
 
 ## 正文
 
-中新社广州6月5日电 (记者 阮煜琳)中国实施国家级清洁空气行动以来，空气质量发生历史性变化。
+尽管尼日利亚目前拥有非洲最大的炼油厂，但在中东战争的背景下，该国汽油价格已飙升至创纪录高位。
 
-当前，中国正以新修订出台的环境空气质量标准为引领，谋划实施新一轮空气质量改善行动。
+非洲最大的炼油厂——丹格特炼油厂于2024年投产，目前已开始向西非以外的地区出口燃料。
 
-“十五五”时期，中国将促进空气质量的全面改善。
+该炼油厂于2024年1月启动柴油和石脑油生产，并于2024年9月开始生产汽油。
 
-中国生态环境部日前公布，“十四五”期间，全国细颗粒物(PM2.5)浓度累计下降20%，优良天数比例创有监测以来最好水平，重污染天数减少25%。
+中东战争爆发之初，该炼油厂曾表示，将“坚定不移地致力于在国际石油市场近期冲击中发挥稳定作用”。
 
-由亚洲清洁空气中心编制的《大气中国2015-2025：中国大气污染防治进程》报告则显示，过去十余年，中国在经济快速发展、能源消费总量持续增长、工业化与城镇化水平稳步提高、机动车保有量快速上升的同时，全国总体和重点区域空气质量均显著改善，实现了经济发展与环境改善的“双赢”。
+然而，随着国际原油价格飙升，该炼油厂的原油成本也随之上涨，因为丹格特依赖进口原油来加工燃料。
 
-多年来，中国为改善空气质量不断迈出坚实的步伐。
+“尼日利亚上游生产商未能按照《石油工业法》的要求向炼油厂供应原油，这加剧了高原油成本问题，迫使我们通过国际贸易商采购很大一部分原油，而这些贸易商收取额外溢价，”丹格特管理层表示。
 
-2013年1月，中国在出现大面积持续严重雾霾天气后，开启了中国极不平凡的大气污染治理历程。
+据报道，由于该炼油厂依赖国际市场进口，尼日利亚人目前支付的汽油价格因此高出65%。
 
-此后十年间，先后实施了《打赢蓝天保卫战三年行动计划》《空气质量持续改善行动计划》。
+相关内容：这家俄亥俄州的工厂是特朗普在稀土战争中的秘密武器 丹格特首席执行官大卫·伯德上周告诉当地电视台Arise TV，该炼油厂目前仅收到5批本地原油货盘，而此前商定的数量为13至15批。
 
 ## 相关推荐
 
-- 2026-06-29 11:02 - [港股午评：恒指跌0.81% 科指跌1.23% 科网股普跌 半导体板块回调 中兴通讯逆势涨超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:24 - [世赛新增项目，为啥是这7个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:03 - [富滇银行2026年增资扩股方案获批 拟募集不超过14亿股股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:02 - [上海市委统战部在黄浦区召开基层统战工作现场会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:05 - [突然，20%涨停！“225倍大神”，最新引爆！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:18 - [国泰海通90亿增资国际子公司，头部券商竞速出海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:26 - [中铁工业：将持续跟进中铁南方公司土地收储事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:10 - [芒种时节煲一锅泥鳅炖豆腐——小鲜藏至味 苦夏始清补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:24 - [印度1—3月经济同比增速达7.8%，表现超市场预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:16 - [桦欣控股公布将于6月5日上午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:23 - [二手油车价格暴跌，买车卖车怎么避开这些坑？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:00 - [高瓴减持格力电器：或套现16亿 张磊不再甘于当沉默大股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:26 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:16 - [王宏岩中再产险副总经理的任职资格获监管核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:23 - [蓝思科技于4月3日斥资1.19亿元回购426.49万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:11 - [芝加哥联储行长古尔斯比：对经济持谨慎甚至紧张态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:27 - [95岁巴菲特，宣布重启！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:33 - [从缝纫女工到紫檀女王 陈丽华留下比500亿更重要的东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:24 - [中国光大银行发布2025年年度报告： 服务实体显担当 提质增效稳基础 高质量发展取得积极成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:26 - [利率反弹与战争担忧令美国春季楼市降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:30 - [西部证券营收下降创两个“另类”：背离行业趋势异于重组同行 核心净资本大幅减少](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:06 - [先导智能遭Pandanus Associates Inc.减持35.89万股 每股作价41.3506港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:13 - [俞浩慈善基金会“灯塔课堂”落地成都，构建产学研协同育人新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:29 - [民生银行黄红日谈房地产资产质量：短期仍存压力，长期趋于平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:33 - [酒价内参3月31日价格发布 古井贡古20小幅回落1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:17 - [美国债市：国债全线上涨 油价下跌提供支撑](http://www.blog.kurohicncr.top/Article/details/063836133296.shtml)
-- 2026-06-29 11:02 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](http://www.share.minike.top/Article/details/68837326504.shtml)
-- 2026-06-29 11:10 - [甘肃金昌市统战宣传工作会议召开](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [香港新设“小马大本营” 寓教于乐普及马术运动](http://www.share.kurohicncr.top/Article/details/31399174.shtml)
-- 2026-06-29 11:19 - [全国首张“无目的地海上游”出入境通行证在沪签发](http://www.share.kurohicncr.top/Article/details/386149.shtml)
-- 2026-06-29 11:14 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](http://www.blog.kurohicncr.top/Article/details/266812249.shtml)
-- 2026-06-29 11:07 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/59444742008.shtml)
-- 2026-06-29 11:11 - [AI热潮难敌预期过高：博通财报超预期股价反跌14%](http://www.share.minike.top/Article/details/114319.shtml)
-- 2026-06-29 11:26 - [远洋建管县域代销再创新高，宁德赛岐外滩项目5月销售量价领跑](http://www.blog.kurohicncr.top/Article/details/9317489056.shtml)
-- 2026-06-29 11:20 - [消息人士称Kalshi正在打造面向高端交易者的预测市场版“彭博终端”](http://www.share.kurohicncr.top/Article/details/24944.shtml)
-- 2026-06-29 11:28 - [韩国股市一度重挫5% 芯片股随美国同业下滑](http://www.blog.minike.top/Article/details/72552122170.shtml)
-- 2026-06-29 11:27 - [欧洲股市反弹 医疗保健板块领涨 渣打和汇丰等英国银行股下跌](http://www.share.minike.top/Article/details/56118.shtml)
-- 2026-06-29 11:27 - [401(k)困难取款较2020年增长两倍，凸显美国家庭财务压力](http://www.blog.minike.top/Article/details/57397548.shtml)
-- 2026-06-29 11:26 - [渤海银行：凌颖杰董事的任职资格已获核准](http://www.share.minike.top/Article/details/777169.shtml)
-- 2026-06-29 11:08 - [邮储银行：将于8月19日派发末期股息每10股0.953元](http://www.share.minike.top/Article/details/694782755.shtml)
+- 2026-06-29 11:33 - [巴基斯坦：美伊及其盟友同意全面停火 并展开进一步谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:10 - [国泰海通聂小刚：华安和海富通基金整合方案正在推进，将产生很好的协同效应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:06 - [特朗普首次承认：美国人被黑吃黑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:21 - [海河牛奶就直播间涉黄致歉：终止与涉事经销商直播合作，追究法律责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:17 - [蚂蚁收购耀才证券50.55%股权完成交割，新董事会成员亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:22 - [巴菲特称苹果股票卖早了：仍愿意加仓 但不会在当前市场买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:24 - [逢低买盘介入叠加战争引发波动，黄金反弹站上4500美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:10 - [欧洲天然气价格跃升 特朗普最后通牒临近之际袭击事件仍持续不断](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:33 - [北京出台32条措施支持创新医药发展 拓展人工智能应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:20 - [华尔街恐惧指数大幅上涨后回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:35 - [吕临华：浙商银行将继续过紧日子 挤掉成本中不必要的“水分”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:07 - [2026，股票开户选择哪个APP？新浪财经APP成为投资者最优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:15 - [京西国际于4月8日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:06 - [现货黄金涨1.3%，报4709.73美元/盎司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:21 - [东岳集团：东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)

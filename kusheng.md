@@ -1,61 +1,57 @@
-# 泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突
+# 铝系上演“冰火两重天”：地缘战火重塑电解铝溢价，氧化铝难敌过剩引力
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-中新社北京6月5日电 综合消息：乌克兰总统泽连斯基当地时间4日发表公开信，提议与俄罗斯总统普京举行直接会谈，以结束乌克兰冲突。俄多方回应与乌方谈判可能性。 乌克兰国家通讯社称，泽连斯基在写给普京的公开信中提议二人举行直接会谈，“讨论结束战争的方法”。 泽连斯基在公开信中对普京表示，美国专注于伊朗问题，等待乌克兰问题重新成为其关注中心是错误的。乌方提议通过“直接接触来结束这场战争
+长江有色金属网 2026年3月31日，铝产业链呈现出极具戏剧性的分化走势：电解铝主力合约受中东战火点燃，强势上扬；而氧化铝合约却全线飘绿，逆势下跌。这种“铝强氧弱”的背离现象，并非市场错乱，而是地缘政治危机与产业供需周期错配的精准映射。 当前的铝市场正在经历一场从“原料成本推动”向“地缘供应恐慌”的逻辑切换。 【电解铝：地缘政治引爆“供应硬缺口”】 电解铝价格的暴涨，核心逻辑在
 
 ## 正文
 
-中新社北京6月5日电 综合消息：乌克兰总统泽连斯基当地时间4日发表公开信，提议与俄罗斯总统普京举行直接会谈，以结束乌克兰冲突。
+长江有色金属网 2026年3月31日，铝产业链呈现出极具戏剧性的分化走势：电解铝主力合约受中东战火点燃，强势上扬；而氧化铝合约却全线飘绿，逆势下跌。
 
-俄多方回应与乌方谈判可能性。
+这种“铝强氧弱”的背离现象，并非市场错乱，而是地缘政治危机与产业供需周期错配的精准映射。
 
-乌克兰国家通讯社称，泽连斯基在写给普京的公开信中提议二人举行直接会谈，“讨论结束战争的方法”。
+当前的铝市场正在经历一场从“原料成本推动”向“地缘供应恐慌”的逻辑切换。
 
-泽连斯基在公开信中对普京表示，美国专注于伊朗问题，等待乌克兰问题重新成为其关注中心是错误的。
+【电解铝：地缘政治引爆“供应硬缺口”】 电解铝价格的暴涨，核心逻辑在于中东冲突已从“物流干扰”升级为“产能损毁”。
 
-乌方提议通过“直接接触来结束这场战争”。
+1、产能的物理性灭失：阿联酋环球铝业（EGA）和巴林铝业（Alba）的遇袭，不再是简单的航运延误，而是直接打击了全球约3.9%的电解铝产能。
 
-公开信称，莫斯科和基辅不适合作为谈判地点，会谈可以在瑞士、土耳其或阿拉伯国家举行。
+电解铝槽一旦因断电或物理破坏停摆，重启周期长达数月甚至数年。
 
-提议美国和欧洲国家作为潜在的安全担保人参与。
+这种“不可逆”的供应损失，迫使市场必须重新定价风险溢价。
 
-公开信还称，乌方愿意在谈判过程中实施全面停火并接受国际社会监督。
+2、霍尔木兹海峡的“窒息效应”：中东铝厂高度依赖海峡进口氧化铝原料。
 
 ## 相关推荐
 
-- 2026-06-29 11:14 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:19 - [Meta最新AI模型一拖再拖，开发者耐心渐失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:00 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:02 - [新大众文艺：人民文艺的时代强音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:02 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:11 - [青海省“全民禁毒宣传月”系列活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:18 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:29 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:05 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:23 - [外媒：以色列和黎巴嫩同意停火 但有前提](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:28 - [初夏“睡眠紊乱”高发，如何找回状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:12 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:21 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:29 - [凯赛生物：2026年6月25日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:12 - [美国称将调整其对北约部队的贡献](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:31 - [国安达：控股股东洪伟艺解除质押56.00万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:21 - [伊朗说同意谈判但对美国“完全不信任”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:31 - [特朗普施压加码，最后期限逼近，美伊谈判难在哪？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:14 - [高盛：调查显示信贷市场看空情绪创纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:27 - [百胜中国于4月6日斥资300万美元回购6.16万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:11 - [为稳定电力供应 台湾拟重启已停运的燃煤机组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:21 - [世界数据组织成立！顶层强调数据资源价值！华宝基金大数据ETF（516700）盘中上探1.3%，中科星图领涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:29 - [聚焦春季造林 广东发布2026年第1号总林长令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:18 - [张家港行：2025年归母净利润19.79亿元 同比增长5.35%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:35 - [贵金属上涨 受美元走软和美债收益率下降提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:33 - [法国通胀升至2024年8月以来最高水平 加大欧洲央行升息压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:17 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](http://www.blog.kurohicncr.top/Article/details/7033605.shtml)
-- 2026-06-29 11:15 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](http://www.blog.minike.top/Article/details/06242.shtml)
-- 2026-06-29 11:29 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](http://www.share.kurohicncr.top/Article/details/791480948723.shtml)
-- 2026-06-29 11:23 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](http://www.share.kurohicncr.top/Article/details/413023582.shtml)
-- 2026-06-29 11:24 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](http://www.blog.kurohicncr.top/Article/details/998858666.shtml)
-- 2026-06-29 11:27 - [广东省口岸有关数据（2026年1-4月）](http://www.share.minike.top/Article/details/33101893.shtml)
-- 2026-06-29 11:13 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:09 - [中国人民银行定于2026年6月13日发行国家宝藏（融合交流）金银纪念币一套](http://www.blog.kurohicncr.top/Article/details/35506150.shtml)
-- 2026-06-29 11:28 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](http://www.share.kurohicncr.top/Article/details/29908448922.shtml)
-- 2026-06-29 11:13 - [债市“乌龙指”：30亿农发债协议取消与内控失守](http://www.share.minike.top/Article/details/95525673.shtml)
-- 2026-06-29 11:23 - [18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:13 - [要做难而正确的事 理想汽车李想邀您关注统战新语](http://www.blog.minike.top/Article/details/65054.shtml)
-- 2026-06-29 11:04 - [600年白沙壁画景区焕新开放 数字技术让白沙壁画“活起来”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:04 - [揭开网上彩票店“吃票”黑幕：投注5万元却未收到一张彩票](http://www.blog.minike.top/Article/details/751502406.shtml)
+- 2026-06-29 11:21 - [从替代到重构，中兴新支点操作系统发布水电信创方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:34 - [从修车学徒到冠军缔造者，张雪能否给国产摩托车产业带来新机遇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:13 - [霸王茶姬2025年GMV达315.8亿，全年净收入达129.1亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:10 - [联合国人权高专：蓄意攻击民用基础设施属于战争罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:18 - [交银施罗德的灵魂人物谢卫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:26 - [国台办：民进党当局“跪美卖台” 牺牲台湾农业未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:09 - [六大行拟派发股息超两千亿元，中证银行今日高开高走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:07 - [DDR5价格，全球暴跌！竟是因为它？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:28 - [马达加斯加因能源供应危机宣布进入紧急状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:12 - [利好突袭！刚刚，暴涨900点！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:20 - [CFA三级考试通过率维持在50% 低于十年平均水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:22 - [央行：把做强国内大循环摆到更加突出的位置，统筹好总供给和总需求的关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:33 - [美国3年期国债中标收益率创去年6月以来最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:07 - [维护国际秩序稳定是各国应对挑战的急迫所需（国际论坛）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:20 - [海南封关看变化：三亚释产业投资机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)

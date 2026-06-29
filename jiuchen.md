@@ -1,61 +1,59 @@
-# 博通财报暴雷：AI指引未达顶标，股价暴跌15%
+# 从世界一流到“双循环”战略支点，天津港凭什么？
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-尽管交出了一份创纪录的财报，美国芯片巨头博通却在盘后交易中股价暴跌15%，上演了经典的“买预期，卖事实”行情。 美东时间6月3日盘后，博通公布了2026财年第二财季业绩。数据显示，公司营收达221.9亿美元，同比增长48%，创下历史新高；调整后每股收益为2.44美元，高于市场预期的2.40美元。其中，备受关注的AI半导体业务表现尤为抢眼，收入高达108亿美元，同比激增143%，
+渤海湾的清晨，世界首个“智慧零碳”码头的蓝色人工智能水平运输机器人(ART)正在自主穿梭，天津港新一天的繁忙早已开始。 作为“一带一路”海陆交汇点与新亚欧大陆桥经济走廊关键节点，2025年11月通过的《中共天津市委关于制定天津市国民经济和社会发展第十五个五年规划的建议》对天津港有着清晰的定位，“加快建设世界一流智慧绿色枢纽港口”。 更关键的表述是：打造我国北方地区联通国内国际双
 
 ## 正文
 
-尽管交出了一份创纪录的财报，美国芯片巨头博通却在盘后交易中股价暴跌15%，上演了经典的“买预期，卖事实”行情。
+渤海湾的清晨，世界首个“智慧零碳”码头的蓝色人工智能水平运输机器人(ART)正在自主穿梭，天津港新一天的繁忙早已开始。
 
-美东时间6月3日盘后，博通公布了2026财年第二财季业绩。
+作为“一带一路”海陆交汇点与新亚欧大陆桥经济走廊关键节点，2025年11月通过的《中共天津市委关于制定天津市国民经济和社会发展第十五个五年规划的建议》对天津港有着清晰的定位，“加快建设世界一流智慧绿色枢纽港口”。
 
-数据显示，公司营收达221.9亿美元，同比增长48%，创下历史新高；调整后每股收益为2.44美元，高于市场预期的2.40美元。
+更关键的表述是：打造我国北方地区联通国内国际双循环的重要战略支点。
 
-其中，备受关注的AI半导体业务表现尤为抢眼，收入高达108亿美元，同比激增143%，成为推动增长的核心引擎。
+一个“枢纽”，一个“支点”，勾勒出天津港的新角色。
 
-然而，亮眼的数据并未能阻止股价“跳水”。
+作为百年大港，正悄然完成一场关键转型。
 
-博通当季总营收略低于分析师预期的222.7亿美元，同时基础设施软件业务营收71.8亿美元，也未达到73.2亿美元的预期。
+天津港是我国重要的现代化综合性港口、世界人工深水大港，码头等级达30万吨级，航道水深-22米，拥有各类泊位220余个，主要由北疆、东疆、南疆、大沽口、高沙岭、大港六个港区组成。
 
-但真正导致市场抛售的，是管理层对未来业绩的谨慎展望。
+经过百余年的积淀，如今的天津港正发生着深刻的嬗变。
 
-尽管博通预计第三财季总营收将达294亿美元，超出预期，但其核心的AI芯片收入指引为160亿美元，低于部分分析师预期的172亿美元。
+根据《天津港总体规划(2024—2035年)》，天津港将实现从世界一流大港向世界一流强港的转变。
 
 ## 相关推荐
 
-- 2026-06-29 11:11 - [小摩：友邦保险维持“增持”评级 目标价112港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:05 - [港股互联网低位3连阴，中信建投：阶段性探底逐步完成，互联网与AI平台仍是港股第一主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:12 - [“走进泰国-泰国营商环境、优惠政策及投资机遇”投资推介会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:05 - [珠峰高海拔区域失联尼泊尔向导获救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:12 - [新风光：2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:02 - [小摩：香港4月零售温和放缓 重申领展房产基金九龙仓置业“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:21 - [易方达ETF超过华夏了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:15 - [中国电科面向空天地信息通信一体芯片从“实验室”走向“生产线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:25 - [上海石化：2026年6月26日召开2025年度股东周年会、2026年第一次A股股东会和2026年第一次H股股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:14 - [印尼盾汇率跌破18000心理关口 市场警惕央行干预](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:00 - [Point72据悉考虑从其他对冲基金付费获取交易情报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:28 - [中华企业：公司积极参与上海地产集团城市更新平台建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:01 - [河北首单至土耳其TIR多式联运专线发车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:06 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:09 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:20 - [中金公司2025年营利双增 提高分红比例 业务一体化协同优势凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:35 - [软科技，硬实力！⎡华宝中证全指软件开发ETF⎦正式获批，即将发行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:19 - [京西国际于4月8日上午起停牌 待刊发内幕消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:06 - [3月 对华尔街来说 这是一个动荡的月份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:24 - [基石科技控股发布年度业绩 毛利3106.9万港元同比增长13.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:12 - [协鑫科技亏损幅度显著收窄 实现毛利13.36亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:16 - [江汉江淮等地将有较强降水和强对流天气 北方及西南地区仍有大风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:27 - [《人民日报》：“为什么这些APP都想借钱给我？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:24 - [以总理称支持美伊停火两周但停火不包括黎巴嫩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:31 - [浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:17 - [极兔速递-W早盘上涨13% 全年经调整净利润同比增长112.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:32 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:17 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:18 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](http://www.share.kurohicncr.top/Article/details/47834783.shtml)
-- 2026-06-29 11:18 - [赖清德批小红书，是在怕什么？丨真相](http://www.blog.minike.top/Article/details/322201.shtml)
-- 2026-06-29 11:22 - [连收罚单的华泰财险，还有这些问题要注意](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](http://www.share.kurohicncr.top/Article/details/950633.shtml)
-- 2026-06-29 11:18 - [建设国家公园带来了什么？记者和亲历者聊了聊](http://www.blog.minike.top/Article/details/45195.shtml)
-- 2026-06-29 11:18 - [印尼驻华大使：相信万隆精神依然具有生命力](http://www.share.kurohicncr.top/Article/details/0753049640.shtml)
-- 2026-06-29 11:24 - [中青旅：公司持续关注近期股价破净情况](http://www.blog.minike.top/Article/details/65556820.shtml)
-- 2026-06-29 11:00 - [日本央行据悉考虑6月升息 日元汇率随之走强](http://www.blog.minike.top/Article/details/07945882.shtml)
-- 2026-06-29 11:23 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](http://www.blog.minike.top/Article/details/82550768.shtml)
-- 2026-06-29 11:21 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](http://www.blog.minike.top/Article/details/6658509.shtml)
-- 2026-06-29 11:29 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](http://www.share.minike.top/Article/details/353487164515.shtml)
-- 2026-06-29 11:25 - [山东文化“春雨”乘旅游列车润泽天山南北](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](http://www.share.minike.top/Article/details/91289.shtml)
-- 2026-06-29 11:09 - [伊朗称美失误致科威特机场受损 美方否认](http://www.blog.minike.top/Article/details/973102.shtml)
-- 2026-06-29 11:27 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [酒价内参4月3日价格发布 习酒君品上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:10 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:30 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:31 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:27 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:20 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:18 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:24 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:35 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:12 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:15 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:28 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:27 - [布伦特原油在结算后交易中下跌 巴基斯坦敦促伊朗开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:11 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:20 - [匈牙利大选前美国副总统万斯访匈，力挺欧尔班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)

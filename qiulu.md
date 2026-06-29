@@ -1,56 +1,58 @@
-# 英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI
+# 借力智能存储业务东风，绿联科技营收飙升53.83%，却遭股东高管接连减持近十亿元
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-知情人士透露，英伟达已完成对成立五年的初创企业 Kumo AI 的收购，这笔主营企业级预测类 AI 软件的收购交易金额超 4 亿美元。 英伟达一名高管周二在领英发文首次披露该收购，本次收购将扩充英伟达适配自家硬件的 AI 模型矩阵，面向企业开放定制化落地服务。 英伟达此前重点布局 Nemotron 等开源权重大模型，而 Kumo 全系模型为闭源自研。其产品专门针对客户资料、交易
+3月30日晚间，绿联科技（301606.SZ）发布2025年财报，营收、净利均创下新高。然而，就在业绩大增前不久，绿联科技却遭遇公司高管和股东的接连减持。绿联科技财报显示，2025年，公司实现营收94.91亿元，同比增长53.83%；归母净利润7.05亿元，同比增长52.42%。2026年3月23日，绿联科技发布公告称，公司大股东珠海锡恒投资合伙企业（有限合伙）（以下简称“珠海
 
 ## 正文
 
-知情人士透露，英伟达已完成对成立五年的初创企业 Kumo AI 的收购，这笔主营企业级预测类 AI 软件的收购交易金额超 4 亿美元。
+3月30日晚间，绿联科技（301606.SZ）发布2025年财报，营收、净利均创下新高。
 
-英伟达一名高管周二在领英发文首次披露该收购，本次收购将扩充英伟达适配自家硬件的 AI 模型矩阵，面向企业开放定制化落地服务。
+然而，就在业绩大增前不久，绿联科技却遭遇公司高管和股东的接连减持。
 
-英伟达此前重点布局 Nemotron 等开源权重大模型，而 Kumo 全系模型为闭源自研。
+绿联科技财报显示，2025年，公司实现营收94.91亿元，同比增长53.83%；归母净利润7.05亿元，同比增长52.42%。
 
-其产品专门针对客户资料、交易流水等企业结构化商业数据做优化，这类数据恰恰是通用大语言模型较难解析处理的品类。
+2026年3月23日，绿联科技发布公告称，公司大股东珠海锡恒投资合伙企业（有限合伙）（以下简称“珠海锡恒”）于2025年12月24日至2026年3月20日期间，通过集中竞价、大宗交易方式合计减持公司股票803.43万股。
 
-Kumo 首席执行官与英伟达官方均暂未对此收购置评。
+以公告减持均价计算，珠海锡恒套现5.09亿元。
 
-英伟达尚未披露 Kumo 模型后续具体落地路径：其一可嵌入英伟达 AI Foundry 平台，该工具主打协助企业结合自有业务数据（如基因数据）、行业专业知识，搭配英伟达自研软件、开源基座模型与 AI 合成数据，快速搭建专属定制大模型；其二，英伟达可吸纳 Kumo 研发团队，助力自研面向商用场景的全新基础大模型。
+珠海锡恒背后正是绿联科技最大的外部股东高瓴资本。
 
-企业数据大多由多张关联数据表构成，企业想要训练出可预判用户流失概率等业务问题的 AI 模型，往往需要海量私有业务数据。
+更早之前，2026年1月，绿联科技还曾公告称，公司大股东深圳市绿联管理咨询合伙企业（有限合伙）（以下简称“绿联管理”）及其一致行动人深圳市和顺四号管理咨询合伙企业（有限合伙）（以下简称“和顺四号”）在2025年11月6日至2026年1月27日期间，合计减持公司股票622.37万股。
 
-Kumo 的解决方案是：依托斯坦福出身创始团队自研的图机器学习算法，搭配仿真企业环境生成的合成数据补充训练样本，以此破解企业数据源短缺难题。
+以公告减持均价计算，绿联管理和和顺四号合计套现4.72亿元。
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [黄仁勋称机器人将成为韩国下一个重要产业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:18 - [博通财报暴雷：AI指引未达顶标，股价暴跌15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:01 - [真主党拒绝美方斡旋达成的停火协议，以色列继续推进攻势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:30 - [欧盟内部有观点认为应对华“去风险”，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:10 - [GTC泽汇资本:金价区间等待破局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:02 - [陈继明出任中国人民银行上海总部党委委员、副主任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:09 - [AI数据中心战略推动PowerBank全面品牌重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:04 - [原油：以色列和黎巴嫩停火后WTI下跌 尽管冲突仍在持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:20 - [小摩：友邦保险维持“增持”评级 目标价112港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:02 - [港股互联网低位3连阴，中信建投：阶段性探底逐步完成，互联网与AI平台仍是港股第一主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:16 - [北京市农村经济研究中心原副主任蒋洪昉接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:15 - [从世界一流到“双循环”战略支点，天津港凭什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:06 - [2025银行年报观察室｜信用卡跌破7亿张：大行发卡量“踩刹车”，贷款余额集体负增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:34 - [美经济学家警告：沃尔玛相关衰退指标飙升至金融危机以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:15 - [特朗普：“尚未准备好”迫使伊朗重新开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:31 - [希捷科技股价大跌7%，摩根大通为何仍看涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:32 - [浙商银行入选2025年度中国系统重要性银行名单 新一届管理团队首秀业绩说明会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:12 - [爱奇艺拟赴港二次上市 宣布AI视频工具测试 股价大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:24 - [中金公司2025年营利双增 提高分红比例 业务一体化协同优势凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:28 - [软科技，硬实力！⎡华宝中证全指软件开发ETF⎦正式获批，即将发行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:10 - [京西国际于4月8日上午起停牌 待刊发内幕消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:23 - [3月 对华尔街来说 这是一个动荡的月份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:09 - [健康险“卷”起来！重疾险不确诊也能赔？医疗险病了也能买？](http://www.blog.minike.top/Article/details/386053603739.shtml)
-- 2026-06-29 11:07 - [新疆伊宁：群众被马蹄踢中眉骨 特警7分钟极速救援](http://www.blog.minike.top/Article/details/893228291564.shtml)
-- 2026-06-29 11:08 - [创始人辱骂学生后道歉，粉笔网更大的挑战来自业务本身](http://www.share.minike.top/Article/details/654288.shtml)
-- 2026-06-29 11:20 - [天原股份：公司不存在资金链风险](http://www.blog.kurohicncr.top/Article/details/981525144155.shtml)
-- 2026-06-29 11:25 - [“中国傩戏·傩面具艺术展”在青海西宁开展](http://www.blog.minike.top/Article/details/630415109.shtml)
-- 2026-06-29 11:01 - [美国5月新增非农就业17.2万远超预期 劳动力市场现回暖迹象但地缘风险犹存](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [中新健康｜芒种养生，重在健脾化湿](http://www.blog.kurohicncr.top/Article/details/1263096.shtml)
-- 2026-06-29 11:20 - [从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫](http://www.share.minike.top/Article/details/8206336783.shtml)
-- 2026-06-29 11:21 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](http://www.share.minike.top/Article/details/7236111012.shtml)
-- 2026-06-29 11:12 - [赖清德批小红书，是在怕什么？丨真相](http://www.blog.minike.top/Article/details/676852721.shtml)
-- 2026-06-29 11:18 - [连收罚单的华泰财险，还有这些问题要注意](http://www.blog.kurohicncr.top/Article/details/520322.shtml)
-- 2026-06-29 11:18 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](http://www.share.kurohicncr.top/Article/details/8391606.shtml)
-- 2026-06-29 11:02 - [建设国家公园带来了什么？记者和亲历者聊了聊](http://www.blog.minike.top/Article/details/750236087195.shtml)
-- 2026-06-29 11:29 - [印尼驻华大使：相信万隆精神依然具有生命力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [中青旅：公司持续关注近期股价破净情况](http://www.share.kurohicncr.top/Article/details/3909819.shtml)
+- 2026-06-29 11:16 - [一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:28 - [宁德时代聘请紫金矿业创始人、前董事长陈景河担任公司矿业部门顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:18 - [南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:07 - [香港银行股早盘集体回暖 渣打集团涨逾7%汇丰控股涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:31 - [再现险资“举牌”！利安人寿拟溢价近10%受让中山公用5%股份，持股比例将升至8.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:28 - [港股芯片概念跳水，兆易创新大跌8%，“中年人的泡泡玛特”重挫49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:26 - [中国太保获Ping An Asset ManagementCo.,Ltd.增持719.56万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:17 - [鲍威尔：即使能源价格飙升，政策仍处于“良好位置”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:14 - [酒价内参4月3日价格发布 习酒君品上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:23 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:11 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:07 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:15 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:17 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:22 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)

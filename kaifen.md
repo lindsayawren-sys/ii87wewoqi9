@@ -1,58 +1,58 @@
-# 印尼盾汇率跌破18000心理关口 市场警惕央行干预
+# 浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-印尼盾兑美元汇率跌破18000这一心理关口，投资者密切关注央行是否会采取更强有力的应对措施。 印尼盾周四一度跌0.5%，今年以来累计跌幅已达约8%。法巴银行、三菱日联银行和PT Mega Capital Sekuritas预计，印尼央行将加强市场干预力度，并可能最早于本月再次加息。 法巴银行策略师Parisha Saimbi指出，印尼当局过去一直捍卫整数关口，18，000可能是
+3月31日金融一线消息，浦发银行今日召开2025年度业绩说明会。 浦发银行行长谢伟谈到了浦发银行息差改善情况，2025年浦发银行的净息差为1.42%，与2024年持平。 在资产端，谢伟表示，浦发银行加强了对重点赛道、重点区域、重点行业和重点产品的业务、知识和资源的保障。通过加大信贷投放力度，优化信贷投放节奏，压低票据等低效资产，提高中高收益资产占比，来提升资产的整体收入水平。在
 
 ## 正文
 
-印尼盾兑美元汇率跌破18000这一心理关口，投资者密切关注央行是否会采取更强有力的应对措施。
+3月31日金融一线消息，浦发银行今日召开2025年度业绩说明会。
 
-印尼盾周四一度跌0.5%，今年以来累计跌幅已达约8%。
+浦发银行行长谢伟谈到了浦发银行息差改善情况，2025年浦发银行的净息差为1.42%，与2024年持平。
 
-法巴银行、三菱日联银行和PT Mega Capital Sekuritas预计，印尼央行将加强市场干预力度，并可能最早于本月再次加息。
+在资产端，谢伟表示，浦发银行加强了对重点赛道、重点区域、重点行业和重点产品的业务、知识和资源的保障。
 
-法巴银行策略师Parisha Saimbi指出，印尼当局过去一直捍卫整数关口，18，000可能是市场参与者将密切关注的一个心理水平。
+通过加大信贷投放力度，优化信贷投放节奏，压低票据等低效资产，提高中高收益资产占比，来提升资产的整体收入水平。
 
-“印尼央行的干预行动似乎旨在遏制货币贬值的速度。
+在报告期内，母公司的本外币一般贷款在生息资产中的占比提高了2.5个百分点，处于股份制银行的领先水平，有效延缓了生息资产收益率下降的速度。
 
-” 印尼盾是今年亚洲表现最差的货币，部分原因在于市场担心高企的油价将推高能源补贴成本，导致印尼预算赤字扩大。
+在负债端，他指出，浦发银行坚持“存款立行、精细管理”的原则，推动整体负债呈现量增、价降、质升的良好局面。
 
-跌破18，000关口可能会加速外资从当地股债市场撤离，也使得该水平成为经济逆风日益严峻之时，决策者寻求恢复市场信心所面临的一道重要考验。
+报告期末，集团的本外币存款总额较上年末增长8.48%，负债的稳定性进一步增强，存款付息率同比下降了38个基点，存款质量有效提升。
 
-今年以来，投资者对印尼资产的信心恶化。
+同时，适时通过债券发行等方式来丰富负债品种，提高同业负债的管理实效。
 
 ## 相关推荐
 
-- 2026-06-29 11:08 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:27 - [中国人保原党委委员、副总裁于泽被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:19 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:08 - [国家电网：168项迎峰度夏重点工程正加快建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:09 - [在中东事态发展喜忧参半之际，油价小幅走低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:28 - [中国法院去年审结环境资源一审案件22.9万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:21 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:01 - [美国失业救济申请人数在假日周升至2月以来最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:28 - [精耕细作，童书消费步入品质时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:19 - [ST星农大宗交易成交203.00万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:05 - [瑞梅铁路梅江特大桥中跨顺利合龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:11 - [以色列防长：与黎巴嫩的停火协议取决于真主党撤出黎南部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:14 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:10 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:23 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:23 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:35 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:25 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:06 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:25 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:09 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:12 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:19 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:32 - [A股3月收官，沪指再度失守3900点，月累计跌6.51%！张雪机车一战封神，概念股2连板！日韩股市3月均暴跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:17 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](http://www.blog.kurohicncr.top/Article/details/351689210.shtml)
-- 2026-06-29 11:07 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:04 - [3分钟，垂直涨停！封单超6万手](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:07 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](http://www.share.kurohicncr.top/Article/details/82245191.shtml)
-- 2026-06-29 11:05 - [金银持续下跌，金价从历史高点已回落超过1000美元！一大行宣布：提高保证金比例](http://www.share.kurohicncr.top/Article/details/7659548603.shtml)
-- 2026-06-29 11:03 - [美债市场“野兽”咆哮回归 凸性对冲恐加剧波动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [国家经济委员会主任哈塞特：低通胀环境下美联储有降息空间](http://www.blog.minike.top/Article/details/5246954783.shtml)
-- 2026-06-29 11:14 - [港股午评：恒指跌0.81% 科指跌1.23% 科网股普跌 半导体板块回调 中兴通讯逆势涨超8%](http://www.share.minike.top/Article/details/905020680.shtml)
-- 2026-06-29 11:23 - [世赛新增项目，为啥是这7个？](http://www.share.kurohicncr.top/Article/details/9191522.shtml)
-- 2026-06-29 11:12 - [富滇银行2026年增资扩股方案获批 拟募集不超过14亿股股份](http://www.blog.kurohicncr.top/Article/details/85525.shtml)
-- 2026-06-29 11:01 - [上海市委统战部在黄浦区召开基层统战工作现场会](http://www.blog.kurohicncr.top/Article/details/34627.shtml)
-- 2026-06-29 11:26 - [突然，20%涨停！“225倍大神”，最新引爆！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [国泰海通90亿增资国际子公司，头部券商竞速出海](http://www.blog.kurohicncr.top/Article/details/577021.shtml)
-- 2026-06-29 11:06 - [中铁工业：将持续跟进中铁南方公司土地收储事宜](http://www.blog.minike.top/Article/details/12279.shtml)
-- 2026-06-29 11:17 - [芒种时节煲一锅泥鳅炖豆腐——小鲜藏至味 苦夏始清补](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [尼日利亚汽油价格飙升65% 受原油进口成本上涨推动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:10 - [日经指数上涨4.7% 受芯片和金属类股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:19 - [GTC泽汇资本:黄金属性临时切换 去美元化驱动长牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:27 - [3月31日热门中概股多数下跌 蔚来涨3.95%，小马智行跌6.56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:18 - [贺青任上海市副市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:23 - [日韩股市集体低开 韩国跌超2.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:25 - [绿城管理控股早盘涨超8% 2025年度股东应占溢利4.19亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:27 - [蓝思科技于4月3日斥资1.19亿元回购426.49万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:19 - [芝加哥联储行长古尔斯比：对经济持谨慎甚至紧张态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:14 - [95岁巴菲特，宣布重启！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:16 - [从缝纫女工到紫檀女王 陈丽华留下比500亿更重要的东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:35 - [中国光大银行发布2025年年度报告： 服务实体显担当 提质增效稳基础 高质量发展取得积极成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:17 - [利率反弹与战争担忧令美国春季楼市降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:20 - [西部证券营收下降创两个“另类”：背离行业趋势异于重组同行 核心净资本大幅减少](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:09 - [先导智能遭Pandanus Associates Inc.减持35.89万股 每股作价41.3506港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)

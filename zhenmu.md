@@ -1,61 +1,61 @@
-# 社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展
+# 晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-日前，锅圈(HK，02517)在创新业务开放日上，系统展示了旗下锅圈大店、锅圈中餐小炒、锅圈露营及锅圈农场四大业务板块。这是企业提出“社区央厨”发展战略后，首次公开围绕家庭消费场景构建的服务生态体系。 截至2026年3月末，锅圈已在全国31个省、自治区、直辖市开设11758家门店，会员规模接近8000万。依托这一覆盖广泛的线下网络与会员体系，锅圈正通过“闪购”业务加快社区即时履
+晨星发布研报称，维持无护城河的华润置地（01109）公允价值预测43港元，尽管将该行2026-2028年的营业利润预期下调1-3%，但对长期盈利的假设基本上保持不变。凭借其具有吸引力的风险/回报状况，华润置地仍然是该行首选的内房之一。 华润置地2025年收入增长1%，经营利润下降3%。尽管房地产开发业务毛利率下降130个基点对盈利能力造成影响，但房地产投资业务强劲的盈利增长基本
 
 ## 正文
 
-日前，锅圈(HK，02517)在创新业务开放日上，系统展示了旗下锅圈大店、锅圈中餐小炒、锅圈露营及锅圈农场四大业务板块。
+晨星发布研报称，维持无护城河的华润置地（01109）公允价值预测43港元，尽管将该行2026-2028年的营业利润预期下调1-3%，但对长期盈利的假设基本上保持不变。
 
-这是企业提出“社区央厨”发展战略后，首次公开围绕家庭消费场景构建的服务生态体系。
+凭借其具有吸引力的风险/回报状况，华润置地仍然是该行首选的内房之一。
 
-截至2026年3月末，锅圈已在全国31个省、自治区、直辖市开设11758家门店，会员规模接近8000万。
+华润置地2025年收入增长1%，经营利润下降3%。
 
-依托这一覆盖广泛的线下网络与会员体系，锅圈正通过“闪购”业务加快社区即时履约能力建设，推动门店在商品供应、即时配送、会员运营与场景服务等方面的全面升级。
+尽管房地产开发业务毛利率下降130个基点对盈利能力造成影响，但房地产投资业务强劲的盈利增长基本上抵消这一影响。
 
-值得关注的是，在即时零售这一零售领域增长最为迅猛的新业态推动下，消费者对“线上下单、即时送达”的需求日益增强，实体门店正从传统销售终端，逐步转变为连接用户、商品与社区服务的综合节点。
+尽管华润置地业绩略低于预期，公司的房地产开发业务依然展现出韧性，15.5%的毛利率好于大多数同行，该行预计其在富裕地区推出的新项目将进一步提升房地产销售利润率。
 
-在“社区央厨”战略框架下，锅圈围绕家庭日常饮食与生活场景，持续丰富服务内容。
+房地产投资业务实现11%的稳健收入增长和77%的毛利率。
 
-其中，锅圈农场聚焦家庭高频消费需求，覆盖水果、生鲜、粮油、肉蛋禽及休闲零食等品类，通过源头直采与地标农产品体系建设，结合“线上选品+门店履约”模式，提升消费便利性与会员活跃度。
+此外，购物中心零售额增长22%，这得益于楼面面积增加和租户组合的最佳化。
 
-以榴莲、榴莲千层、海鸭蛋等为代表的商品上线后，部分门店营业额提升约15%，单日新增客流接近30人；端午期间，海鸭蛋等产品带动了用户在提货过程中的关联消费。
+该公司计划在2030年每年在大型城市推出5-7个新的商业项目。
 
 ## 相关推荐
 
-- 2026-06-29 11:07 - [光大期货：6月5日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:05 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:22 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:29 - [3分钟，垂直涨停！封单超6万手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:28 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:18 - [金银持续下跌，金价从历史高点已回落超过1000美元！一大行宣布：提高保证金比例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:29 - [美债市场“野兽”咆哮回归 凸性对冲恐加剧波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:17 - [国家经济委员会主任哈塞特：低通胀环境下美联储有降息空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:09 - [港股午评：恒指跌0.81% 科指跌1.23% 科网股普跌 半导体板块回调 中兴通讯逆势涨超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:27 - [世赛新增项目，为啥是这7个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:03 - [富滇银行2026年增资扩股方案获批 拟募集不超过14亿股股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:07 - [上海市委统战部在黄浦区召开基层统战工作现场会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:10 - [突然，20%涨停！“225倍大神”，最新引爆！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:02 - [国泰海通90亿增资国际子公司，头部券商竞速出海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:24 - [中铁工业：将持续跟进中铁南方公司土地收储事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:19 - [湖南省政协文教卫体和文史委员会副主任夏智伦接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:15 - [尼日利亚汽油价格飙升65% 受原油进口成本上涨推动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:31 - [日经指数上涨4.7% 受芯片和金属类股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:11 - [GTC泽汇资本:黄金属性临时切换 去美元化驱动长牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:07 - [3月31日热门中概股多数下跌 蔚来涨3.95%，小马智行跌6.56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:29 - [贺青任上海市副市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:31 - [日韩股市集体低开 韩国跌超2.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:15 - [绿城管理控股早盘涨超8% 2025年度股东应占溢利4.19亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:33 - [蓝思科技于4月3日斥资1.19亿元回购426.49万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:24 - [芝加哥联储行长古尔斯比：对经济持谨慎甚至紧张态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:08 - [95岁巴菲特，宣布重启！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:25 - [从缝纫女工到紫檀女王 陈丽华留下比500亿更重要的东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:18 - [中国光大银行发布2025年年度报告： 服务实体显担当 提质增效稳基础 高质量发展取得积极成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:09 - [利率反弹与战争担忧令美国春季楼市降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:07 - [西部证券营收下降创两个“另类”：背离行业趋势异于重组同行 核心净资本大幅减少](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:17 - [云南泸水有群“共享奶奶” 绘就社区民族团结“同心圆”](http://www.share.kurohicncr.top/Article/details/98618.shtml)
-- 2026-06-29 11:07 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](http://www.blog.kurohicncr.top/Article/details/489383334180.shtml)
-- 2026-06-29 11:10 - [中尼合资航司复航加德满都至深圳往返航线](http://www.blog.kurohicncr.top/Article/details/082530257.shtml)
-- 2026-06-29 11:15 - [拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [【百万庄小课堂】高考遇上生理期疼痛 医生详解如何做才不伤身](http://www.share.minike.top/Article/details/82448.shtml)
-- 2026-06-29 11:08 - [读懂中国是福山们的必修课](http://www.blog.minike.top/Article/details/5826647877.shtml)
-- 2026-06-29 11:05 - [天原股份：公司磷酸铁锂正极材料可用于储能及动力电池](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](http://www.share.minike.top/Article/details/030556.shtml)
-- 2026-06-29 11:09 - [美国债市：国债全线上涨 油价下跌提供支撑](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](http://www.blog.minike.top/Article/details/189845056030.shtml)
-- 2026-06-29 11:05 - [甘肃金昌市统战宣传工作会议召开](http://www.blog.kurohicncr.top/Article/details/479582656793.shtml)
-- 2026-06-29 11:04 - [香港新设“小马大本营” 寓教于乐普及马术运动](http://www.share.minike.top/Article/details/46236219.shtml)
-- 2026-06-29 11:29 - [全国首张“无目的地海上游”出入境通行证在沪签发](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:01 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](http://www.share.minike.top/Article/details/6068967099.shtml)
+- 2026-06-29 11:29 - [午盘：美股维持涨势 科技股涨幅领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:14 - [滇金丝猴“长出”咖啡厚嘴唇 云南咖啡新标识萌趣亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:35 - [焦点访谈｜深化殡葬改革 书写移风易俗民生答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:18 - [中国医疗队为赤道几内亚白内障患者诊疗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:31 - [中信建投期货：4月8日农产品早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:32 - [战争引发通胀担忧之际 亚股抹去2026年涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:25 - [国际金价大涨重上4800美元 国内金饰克价涨到1470元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:27 - [受权发布丨中华人民共和国国务院令 第834号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:13 - [巴基斯坦：美伊及其盟友同意全面停火 并展开进一步谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:29 - [国泰海通聂小刚：华安和海富通基金整合方案正在推进，将产生很好的协同效应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:34 - [特朗普首次承认：美国人被黑吃黑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:07 - [海河牛奶就直播间涉黄致歉：终止与涉事经销商直播合作，追究法律责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:24 - [蚂蚁收购耀才证券50.55%股权完成交割，新董事会成员亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:07 - [巴菲特称苹果股票卖早了：仍愿意加仓 但不会在当前市场买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:34 - [逢低买盘介入叠加战争引发波动，黄金反弹站上4500美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)

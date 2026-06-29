@@ -1,61 +1,57 @@
-# 广州港亚欧航线运力升级 保障湾区企业旺季出运需求
+# 天天学习｜“1”心系万家
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-【欧洲专线】广州港亚欧航线运力升级 保障湾区企业旺季出运需求 中新社广州6月5日电 (记者 蔡敏婕)地中海航运(MSC)旗下亚欧精品干线——JADE航线首船完成集装箱装卸作业，5日凌晨在广州港南沙港区发运。JADE航线以载箱量更大的船型保障粤港澳大湾区企业欧线旺季出运需求。 欧美下半年圣诞备货启动，珠三角家电、机电、轻工、跨境电商订单集中出货，舱位供不应求，船公司针对性填补舱位
+视频：天天学习｜“1”心系万家来源：央视网 “健康中国建设，边远地区的这块短板要补上。” “有条件的地方可以探索人工智能。” “培育健康生活方式。” ………… 2026年“十五五”开局，习近平总书记在参加全国政协联组会，并与委员们深入交流时，从多个维度为我国健康中国建设指明方向。 在总书记心中，“身体健康”“病有所医”是老百姓幸福生活最具体、最直接的体现。他曾言辞恳切地指出：“
 
 ## 正文
 
-【欧洲专线】广州港亚欧航线运力升级 保障湾区企业旺季出运需求 中新社广州6月5日电 (记者 蔡敏婕)地中海航运(MSC)旗下亚欧精品干线——JADE航线首船完成集装箱装卸作业，5日凌晨在广州港南沙港区发运。
+视频：天天学习｜“1”心系万家来源：央视网 “健康中国建设，边远地区的这块短板要补上。
 
-JADE航线以载箱量更大的船型保障粤港澳大湾区企业欧线旺季出运需求。
+” “有条件的地方可以探索人工智能。
 
-欧美下半年圣诞备货启动，珠三角家电、机电、轻工、跨境电商订单集中出货，舱位供不应求，船公司针对性填补舱位缺口。
+” “培育健康生活方式。
 
-作为地中海航运重点打造的亚欧精品干线，JADE航线由16艘24000标准箱级超大型集装箱船运营，挂靠港口涉及新加坡、法国、西班牙等欧亚国家。
+” ………… 2026年“十五五”开局，习近平总书记在参加全国政协联组会，并与委员们深入交流时，从多个维度为我国健康中国建设指明方向。
 
-该航线在运力配置及运输时效上实现双重提升，不仅可稳定覆盖西班牙、法国、意大利等欧洲核心市场，还能高效衔接北非及地中海东岸物流网络。
+在总书记心中，“身体健康”“病有所医”是老百姓幸福生活最具体、最直接的体现。
 
-JADE航线挂靠南沙港区，将有效缓解粤港澳大湾区企业欧线旺季舱位紧张的局面，提升供应链整体运转效能。
+他曾言辞恳切地指出：“健康是1，其他的都是后边的0，1没有了什么都没有了。
 
-南沙港区一直是地中海航运深耕华南市场的核心战略支点。
+” 新时代以来，总书记访居民家、进卫生室、看科研院所……他始终牵挂着百姓幸福生活的最重要指标——健康。
 
-近年来，双方合作不断迈向纵深，航线网络日益加密、舱位规模稳步攀升。
+4月7日是世界卫生日，让我们一起感受习近平总书记对百姓健康的深情牵挂。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [GTC泽汇资本:金价区间等待破局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:18 - [陈继明出任中国人民银行上海总部党委委员、副主任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:03 - [AI数据中心战略推动PowerBank全面品牌重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:29 - [原油：以色列和黎巴嫩停火后WTI下跌 尽管冲突仍在持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:28 - [小摩：友邦保险维持“增持”评级 目标价112港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:18 - [港股互联网低位3连阴，中信建投：阶段性探底逐步完成，互联网与AI平台仍是港股第一主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:25 - [“走进泰国-泰国营商环境、优惠政策及投资机遇”投资推介会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:09 - [珠峰高海拔区域失联尼泊尔向导获救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:21 - [新风光：2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:01 - [小摩：香港4月零售温和放缓 重申领展房产基金九龙仓置业“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:00 - [易方达ETF超过华夏了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:22 - [中国电科面向空天地信息通信一体芯片从“实验室”走向“生产线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:27 - [上海石化：2026年6月26日召开2025年度股东周年会、2026年第一次A股股东会和2026年第一次H股股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:05 - [印尼盾汇率跌破18000心理关口 市场警惕央行干预](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:08 - [Point72据悉考虑从其他对冲基金付费获取交易情报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:08 - [特朗普：“尚未准备好”迫使伊朗重新开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:22 - [希捷科技股价大跌7%，摩根大通为何仍看涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:28 - [浙商银行入选2025年度中国系统重要性银行名单 新一届管理团队首秀业绩说明会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:29 - [爱奇艺拟赴港二次上市 宣布AI视频工具测试 股价大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:24 - [中金公司2025年营利双增 提高分红比例 业务一体化协同优势凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:19 - [软科技，硬实力！⎡华宝中证全指软件开发ETF⎦正式获批，即将发行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:30 - [京西国际于4月8日上午起停牌 待刊发内幕消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:19 - [3月 对华尔街来说 这是一个动荡的月份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:19 - [基石科技控股发布年度业绩 毛利3106.9万港元同比增长13.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:15 - [协鑫科技亏损幅度显著收窄 实现毛利13.36亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:17 - [江汉江淮等地将有较强降水和强对流天气 北方及西南地区仍有大风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [“中国傩戏·傩面具艺术展”在青海西宁开展](http://www.share.minike.top/Article/details/884817749702.shtml)
-- 2026-06-29 11:05 - [美国5月新增非农就业17.2万远超预期 劳动力市场现回暖迹象但地缘风险犹存](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:08 - [中新健康｜芒种养生，重在健脾化湿](http://www.blog.minike.top/Article/details/15749.shtml)
-- 2026-06-29 11:27 - [从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫](http://www.blog.kurohicncr.top/Article/details/207970304.shtml)
-- 2026-06-29 11:08 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](http://www.share.kurohicncr.top/Article/details/99450256.shtml)
-- 2026-06-29 11:25 - [赖清德批小红书，是在怕什么？丨真相](http://www.blog.minike.top/Article/details/65565804.shtml)
-- 2026-06-29 11:28 - [连收罚单的华泰财险，还有这些问题要注意](http://www.blog.kurohicncr.top/Article/details/98094.shtml)
-- 2026-06-29 11:15 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](http://www.share.kurohicncr.top/Article/details/7332085.shtml)
-- 2026-06-29 11:27 - [建设国家公园带来了什么？记者和亲历者聊了聊](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [印尼驻华大使：相信万隆精神依然具有生命力](http://www.share.kurohicncr.top/Article/details/2405426927.shtml)
-- 2026-06-29 11:05 - [中青旅：公司持续关注近期股价破净情况](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [日本央行据悉考虑6月升息 日元汇率随之走强](http://www.blog.kurohicncr.top/Article/details/8248521.shtml)
-- 2026-06-29 11:16 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](http://www.blog.kurohicncr.top/Article/details/6077494.shtml)
-- 2026-06-29 11:19 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](http://www.blog.minike.top/Article/details/943900459.shtml)
-- 2026-06-29 11:15 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](http://www.share.minike.top/Article/details/01603410413.shtml)
+- 2026-06-29 11:22 - [再现险资“举牌”！利安人寿拟溢价近10%受让中山公用5%股份，持股比例将升至8.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:10 - [港股芯片概念跳水，兆易创新大跌8%，“中年人的泡泡玛特”重挫49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:08 - [中国太保获Ping An Asset ManagementCo.,Ltd.增持719.56万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:12 - [鲍威尔：即使能源价格飙升，政策仍处于“良好位置”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:15 - [酒价内参4月3日价格发布 习酒君品上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:22 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:32 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:31 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:30 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:27 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:13 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:20 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:24 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:35 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:13 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)

@@ -1,52 +1,60 @@
-# 美迪凯发生2笔大宗交易 合计成交1003.13万元
+# 押注苹果赚了1000亿美元但卖早了！巴菲特：当前美股不便宜，将重启慈善午餐
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-美迪凯6月5日大宗交易平台共发生2笔成交，合计成交量37.50万股，成交金额1003.13万元。成交价格均为26.75元，相对今日收盘价折价13.99%。进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为2849.22万元。证券时报·数据宝统计显示，美迪凯今日收盘价为31.10元，下跌2.35%，日换手率为12.20%，成交额为15.90亿元，全天主力资金净流出1.
+卸任CEO的“股神”巴菲特依然密切参与伯克希尔·哈撒韦的投资决策。 3月31日，95岁沃伦·巴菲特在接受采访时讨论了他卸任首席执行官（CEO）后的生活、对公司新任首席执行官Greg Abel的看法、最新的市场趋势、慈善午餐拍卖会的详情等等话题。 巴菲特在执掌伯克希尔·哈撒韦六十年后，于2026年初卸任首席执行官一职，目前仍担任公司董事长。 仍然密切参与投资决策 巴菲特强调，尽管
 
 ## 正文
 
-美迪凯6月5日大宗交易平台共发生2笔成交，合计成交量37.50万股，成交金额1003.13万元。
+卸任CEO的“股神”巴菲特依然密切参与伯克希尔·哈撒韦的投资决策。
 
-成交价格均为26.75元，相对今日收盘价折价13.99%。
+3月31日，95岁沃伦·巴菲特在接受采访时讨论了他卸任首席执行官（CEO）后的生活、对公司新任首席执行官Greg Abel的看法、最新的市场趋势、慈善午餐拍卖会的详情等等话题。
 
-进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为2849.22万元。
+巴菲特在执掌伯克希尔·哈撒韦六十年后，于2026年初卸任首席执行官一职，目前仍担任公司董事长。
 
-证券时报·数据宝统计显示，美迪凯今日收盘价为31.10元，下跌2.35%，日换手率为12.20%，成交额为15.90亿元，全天主力资金净流出1.30亿元，近5日该股累计上涨51.04%，近5日资金合计净流出2.10亿元。
+仍然密切参与投资决策 巴菲特强调，尽管他将在2026年初把CEO的职位交给，但他仍然会亲力亲为。
 
-两融数据显示，该股最新融资余额为4.34亿元，近5日增加7483.78万元，增幅为20.85%。
+巴菲特在采访中说，他仍然每天到办公室上班，关注市场动态，并与同事一起进行交易。
 
-（数据宝）6月5日美迪凯大宗交易一览（文章来源：证券时报网）
+巴菲特描述了他的日常安排，包括在开盘前致电伯克希尔·哈撒韦金融资产主管Mark Millard，讨论市场动态。
+
+巴菲特说，Millard的办公室就在大约20英尺外，他会根据这些谈话执行交易。
+
+“我不会做任何Greg认为错误的投资。
 
 ## 相关推荐
 
-- 2026-06-29 11:07 - [广州港亚欧航线运力升级 保障湾区企业旺季出运需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:25 - [美国在印度洋拦截涉伊朗关联船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:20 - [特朗普：普尔特不会被正式任命为国家情报总监](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:01 - [黄仁勋称机器人将成为韩国下一个重要产业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:25 - [博通财报暴雷：AI指引未达顶标，股价暴跌15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:17 - [真主党拒绝美方斡旋达成的停火协议，以色列继续推进攻势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:02 - [欧盟内部有观点认为应对华“去风险”，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:15 - [GTC泽汇资本:金价区间等待破局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:05 - [陈继明出任中国人民银行上海总部党委委员、副主任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:07 - [AI数据中心战略推动PowerBank全面品牌重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:08 - [天天学习｜“1”心系万家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:34 - [我国成功发射千帆星座第7批组网卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:07 - [以球会友 国乒选手亮相山西大学附属中学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:12 - [北京市农村经济研究中心原副主任蒋洪昉接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:32 - [从世界一流到“双循环”战略支点，天津港凭什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:15 - [2025银行年报观察室｜信用卡跌破7亿张：大行发卡量“踩刹车”，贷款余额集体负增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:07 - [美经济学家警告：沃尔玛相关衰退指标飙升至金融危机以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:15 - [特朗普：“尚未准备好”迫使伊朗重新开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:09 - [希捷科技股价大跌7%，摩根大通为何仍看涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:15 - [浙商银行入选2025年度中国系统重要性银行名单 新一届管理团队首秀业绩说明会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:23 - [爱奇艺拟赴港二次上市 宣布AI视频工具测试 股价大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:35 - [中金公司2025年营利双增 提高分红比例 业务一体化协同优势凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:21 - [软科技，硬实力！⎡华宝中证全指软件开发ETF⎦正式获批，即将发行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:31 - [京西国际于4月8日上午起停牌 待刊发内幕消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [印尼国会通过金融法案：扩大央行职能并强化国会监督](http://www.blog.kurohicncr.top/Article/details/88360.shtml)
-- 2026-06-29 11:15 - [特朗普拟提名其前律师Todd Blanche出任美国司法部长](http://www.share.kurohicncr.top/Article/details/63448203358.shtml)
-- 2026-06-29 11:13 - [以色列继续空袭黎巴嫩 造成至少9人死数十人伤](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [健康险“卷”起来！重疾险不确诊也能赔？医疗险病了也能买？](http://www.share.kurohicncr.top/Article/details/2421816980.shtml)
-- 2026-06-29 11:04 - [新疆伊宁：群众被马蹄踢中眉骨 特警7分钟极速救援](http://www.share.minike.top/Article/details/404948747208.shtml)
-- 2026-06-29 11:29 - [创始人辱骂学生后道歉，粉笔网更大的挑战来自业务本身](http://www.share.minike.top/Article/details/01881343266.shtml)
-- 2026-06-29 11:28 - [天原股份：公司不存在资金链风险](http://www.share.kurohicncr.top/Article/details/56808.shtml)
-- 2026-06-29 11:03 - [“中国傩戏·傩面具艺术展”在青海西宁开展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [美国5月新增非农就业17.2万远超预期 劳动力市场现回暖迹象但地缘风险犹存](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:05 - [中新健康｜芒种养生，重在健脾化湿](http://www.blog.minike.top/Article/details/012124196.shtml)
-- 2026-06-29 11:22 - [从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫](http://www.blog.kurohicncr.top/Article/details/145797.shtml)
-- 2026-06-29 11:21 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](http://www.blog.kurohicncr.top/Article/details/96643382.shtml)
-- 2026-06-29 11:15 - [赖清德批小红书，是在怕什么？丨真相](http://www.blog.kurohicncr.top/Article/details/3078543759.shtml)
-- 2026-06-29 11:07 - [连收罚单的华泰财险，还有这些问题要注意](http://www.blog.minike.top/Article/details/981295633.shtml)
-- 2026-06-29 11:01 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](http://www.blog.kurohicncr.top/Article/details/4760082.shtml)
+- 2026-06-29 11:09 - [金价下跌1000美元的主因是央行抛售，土耳其、俄罗斯……下一个可能是印度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:09 - [天顺风能：公司已批准的对外担保总额度为人民币220.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:20 - [浙商银行董事长陈海强年报致辞：坚持管理立行、服务优行、科技兴行、人才强行，做一个坚定的长期主义者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:24 - [一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:21 - [宁德时代聘请紫金矿业创始人、前董事长陈景河担任公司矿业部门顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:19 - [南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:30 - [香港银行股早盘集体回暖 渣打集团涨逾7%汇丰控股涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:14 - [再现险资“举牌”！利安人寿拟溢价近10%受让中山公用5%股份，持股比例将升至8.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:19 - [港股芯片概念跳水，兆易创新大跌8%，“中年人的泡泡玛特”重挫49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:30 - [中国太保获Ping An Asset ManagementCo.,Ltd.增持719.56万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:28 - [鲍威尔：即使能源价格飙升，政策仍处于“良好位置”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:20 - [酒价内参4月3日价格发布 习酒君品上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:34 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:12 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:35 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)

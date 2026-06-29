@@ -1,57 +1,49 @@
-# 英伟达首席执行官：三大存储芯片生产商均有资格供应HBM4芯片
+# 康耐特光学公布拟回购公司股份
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-英伟达首席执行官黄仁勋表示，三大存储芯片制造商已通过认证，可为英伟达AI加速器供应最先进的高带宽存储芯片。 这一决定意味着，SK海力士、三星电子和美光科技即将开始大规模生产和供应HBM4芯片。这三家公司主导着全球存储芯片市场，并一直在激烈争夺这一业务的份额。 黄仁勋在抵达首尔展开为期数天的访问时对记者表示，这三家供应商都已通过认证，并且都已投产，竞相支持英伟达最新的AI芯片Ve
+康耐特光学（02276）发布公告，于2026年4月7日举行的第二届董事会第十二次会议上，董事会审议并批准《关于2026年H股回购股份方案的议案》。为进一步维护股东权益并增强投资者信心，根据一般性授权，及建议授予董事会回购H股股份的一般性授权（但须待公司股东于即将召开并暂定于2026年6月份举行的2025年年度股东会上批准后方可生效），董事会已批准一项回购总金额不超过4亿港元的H
 
 ## 正文
 
-英伟达首席执行官黄仁勋表示，三大存储芯片制造商已通过认证，可为英伟达AI加速器供应最先进的高带宽存储芯片。
+康耐特光学（02276）发布公告，于2026年4月7日举行的第二届董事会第十二次会议上，董事会审议并批准《关于2026年H股回购股份方案的议案》。
 
-这一决定意味着，SK海力士、三星电子和美光科技即将开始大规模生产和供应HBM4芯片。
+为进一步维护股东权益并增强投资者信心，根据一般性授权，及建议授予董事会回购H股股份的一般性授权（但须待公司股东于即将召开并暂定于2026年6月份举行的2025年年度股东会上批准后方可生效），董事会已批准一项回购总金额不超过4亿港元的H股回购方案。
 
-这三家公司主导着全球存储芯片市场，并一直在激烈争夺这一业务的份额。
-
-黄仁勋在抵达首尔展开为期数天的访问时对记者表示，这三家供应商都已通过认证，并且都已投产，竞相支持英伟达最新的AI芯片Vera Rubin。
-
-黄仁勋计划周五宴请部分韩国大型供应商，并于周末观看一场棒球比赛。
-
-责任编辑：王永生
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:10 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:17 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:18 - [Meta最新AI模型一拖再拖，开发者耐心渐失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:18 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:07 - [新大众文艺：人民文艺的时代强音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:10 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:23 - [青海省“全民禁毒宣传月”系列活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:10 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:11 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:21 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:15 - [外媒：以色列和黎巴嫩同意停火 但有前提](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:02 - [初夏“睡眠紊乱”高发，如何找回状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:23 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:14 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:06 - [凯赛生物：2026年6月25日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:07 - [美国允许与卢克石油国际出售相关的部分交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:12 - [国安达：控股股东洪伟艺解除质押56.00万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:28 - [伊朗说同意谈判但对美国“完全不信任”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:09 - [特朗普施压加码，最后期限逼近，美伊谈判难在哪？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:14 - [高盛：调查显示信贷市场看空情绪创纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:31 - [百胜中国于4月6日斥资300万美元回购6.16万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:10 - [为稳定电力供应 台湾拟重启已停运的燃煤机组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:20 - [世界数据组织成立！顶层强调数据资源价值！华宝基金大数据ETF（516700）盘中上探1.3%，中科星图领涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:17 - [聚焦春季造林 广东发布2026年第1号总林长令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:15 - [张家港行：2025年归母净利润19.79亿元 同比增长5.35%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:23 - [贵金属上涨 受美元走软和美债收益率下降提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:19 - [法国通胀升至2024年8月以来最高水平 加大欧洲央行升息压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:21 - [海尔们想做“钢铁侠”，追觅们想做“扫地僧”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:04 - [中国抹茶刮“绿色旋风” 内销出口两旺](http://www.blog.kurohicncr.top/Article/details/94107.shtml)
-- 2026-06-29 11:29 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](http://www.blog.kurohicncr.top/Article/details/55913234658.shtml)
-- 2026-06-29 11:00 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](http://www.share.kurohicncr.top/Article/details/120104977917.shtml)
-- 2026-06-29 11:04 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](http://www.blog.minike.top/Article/details/581832.shtml)
-- 2026-06-29 11:01 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](http://www.share.kurohicncr.top/Article/details/88529.shtml)
-- 2026-06-29 11:17 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [广东省口岸有关数据（2026年1-4月）](http://www.blog.kurohicncr.top/Article/details/4573411425.shtml)
-- 2026-06-29 11:19 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](http://www.blog.minike.top/Article/details/61994784491.shtml)
-- 2026-06-29 11:25 - [中国人民银行定于2026年6月13日发行国家宝藏（融合交流）金银纪念币一套](http://www.blog.kurohicncr.top/Article/details/40628.shtml)
-- 2026-06-29 11:02 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](http://www.share.kurohicncr.top/Article/details/297407.shtml)
-- 2026-06-29 11:19 - [债市“乌龙指”：30亿农发债协议取消与内控失守](http://www.blog.minike.top/Article/details/670612.shtml)
-- 2026-06-29 11:13 - [18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞](http://www.share.kurohicncr.top/Article/details/206360845.shtml)
-- 2026-06-29 11:29 - [要做难而正确的事 理想汽车李想邀您关注统战新语](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:00 - [600年白沙壁画景区焕新开放 数字技术让白沙壁画“活起来”](http://www.share.kurohicncr.top/Article/details/467626381.shtml)
+- 2026-06-29 11:25 - [天孚通信：2025年净利同比增长50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:12 - [从替代到重构，中兴新支点操作系统发布水电信创方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:32 - [从修车学徒到冠军缔造者，张雪能否给国产摩托车产业带来新机遇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:27 - [霸王茶姬2025年GMV达315.8亿，全年净收入达129.1亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:34 - [联合国人权高专：蓄意攻击民用基础设施属于战争罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:14 - [交银施罗德的灵魂人物谢卫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:14 - [国台办：民进党当局“跪美卖台” 牺牲台湾农业未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:21 - [六大行拟派发股息超两千亿元，中证银行今日高开高走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:30 - [DDR5价格，全球暴跌！竟是因为它？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:19 - [马达加斯加因能源供应危机宣布进入紧急状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:19 - [利好突袭！刚刚，暴涨900点！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:18 - [CFA三级考试通过率维持在50% 低于十年平均水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:32 - [央行：把做强国内大循环摆到更加突出的位置，统筹好总供给和总需求的关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:15 - [美国3年期国债中标收益率创去年6月以来最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:26 - [维护国际秩序稳定是各国应对挑战的急迫所需（国际论坛）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)

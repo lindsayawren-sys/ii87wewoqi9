@@ -1,58 +1,58 @@
-# 国务院常务会议解读｜国务院常务会议部署就业工作
+# 房地产高薪退潮：“千万年薪”销声匿迹，郁亮去年薪水24万
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-新华社北京6月5日电（记者张晓洁）6月5日召开的国务院常务会议听取关于做好就业工作的汇报，审议通过《实施就业优先战略“十五五”规划》《退役军人就业创业促进条例（草案）》，并作出一系列重要部署。 “十五五”时期，我国经济长期向好的支撑条件和基本趋势没有变，为稳就业提供坚实基础。同时，就业总量压力依然存在，结构性就业矛盾更加突出，外部环境变化会带来一些新情况新问题。 会议指出，要以
+一个行业的荣光与退场。 随着房地产行业深度调整，房企高管薪酬体系正经历一场前所未有的重构。 近期上市房企2025年年报集中发布，多家已经披露高管薪酬的房企数据显示：曾经动辄千万年薪的“打工皇帝”几近销声匿迹，而能够稳定发放百万级薪酬的房企已属少数。 与此同时，那些仍处于信用风险之中、利润大幅塌陷的房企，其高管薪酬持续下探，部分知名房企高管的年薪已降至普通职场水平。 从“千万俱乐
 
 ## 正文
 
-新华社北京6月5日电（记者张晓洁）6月5日召开的国务院常务会议听取关于做好就业工作的汇报，审议通过《实施就业优先战略“十五五”规划》《退役军人就业创业促进条例（草案）》，并作出一系列重要部署。
+一个行业的荣光与退场。
 
-“十五五”时期，我国经济长期向好的支撑条件和基本趋势没有变，为稳就业提供坚实基础。
+随着房地产行业深度调整，房企高管薪酬体系正经历一场前所未有的重构。
 
-同时，就业总量压力依然存在，结构性就业矛盾更加突出，外部环境变化会带来一些新情况新问题。
+近期上市房企2025年年报集中发布，多家已经披露高管薪酬的房企数据显示：曾经动辄千万年薪的“打工皇帝”几近销声匿迹，而能够稳定发放百万级薪酬的房企已属少数。
 
-会议指出，要以实施就业优先战略为引领，全面贯彻劳动者自主就业、市场调节就业、政府促进就业和鼓励创业的方针，加强产业和就业协同，持续用力推动就业扩容提质，努力实现高质量充分就业。
+与此同时，那些仍处于信用风险之中、利润大幅塌陷的房企，其高管薪酬持续下探，部分知名房企高管的年薪已降至普通职场水平。
 
-“解决就业问题，根本要靠发展。
+从“千万俱乐部”到“百万元生存线”，房企高管薪酬的收缩，不仅是业绩变化的结果，更是行业风险重新定价的体现。
 
-”中国人事科学研究院就业创业与政策评价研究室副主任黎宇说，根据会议部署，各地要树立“大就业观”，在促进行业发展中稳住就业岗位，在推动产业升级中扩大就业容量，在强化权益保障中提升就业质量。
+郁亮去年在万科领薪24万元 曾经是高管“高薪标杆”的万科，其高管薪酬的下滑已接近“断崖式”。
 
-精准保障高校毕业生、新就业形态群体、退役军人等重点群体就业是稳就业的重中之重。
+根据近期万科A（000002.SZ）披露的年报，2025年，万科实现营业收入2334亿元，同比下降32%，亏损886亿元，亏损额较上年同期大幅扩大。
 
-会议作出“拓展高校毕业生等青年就业成才渠道，加大重点群体就业支持力度，推动灵活就业、新就业形态健康发展”“采取政府推动、市场引导、社会支持相结合的方式，鼓励和扶持退役军人就业创业”等部署。
+受多种因素影响，万科的风险尚未彻底化解，经营发展依然面临严峻挑战。
 
 ## 相关推荐
 
-- 2026-06-29 11:03 - [航发动力：2026年6月22日召开2026年第二次临时股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:00 - [消费维权该去哪里？除了12315，这些正规投诉渠道也很管用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:02 - [电投能源：公司煤炭销售主要面向电厂、供热公司等终端用户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:29 - [海内外侨胞走进重庆潼南 看好汽车后市场发展潜力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:03 - [美迪凯发生2笔大宗交易 合计成交1003.13万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:15 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:08 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:02 - [英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:18 - [共识教育百问百答丨高晓巍、赵妍、路运占、赵一筱：如何理解从“五一口号”到协商建国？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:02 - [世卫组织说不安全食品每年导致超8亿人患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:18 - [天天学习｜这条“红线”守护美丽中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:29 - [广州港亚欧航线运力升级 保障湾区企业旺季出运需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:27 - [多地联动“诵读经典·缅怀先贤”主题活动 与先贤跨时空对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:09 - [2025年经营性现金流净额8.16亿，美凯龙主营业务展现韧性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:06 - [600721，控制权拟变更，金华市国资委入主！大牛股净利润最高暴增8747.18%，存储涨价潮将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:24 - [东岳集团现涨逾9% 东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:18 - [押注苹果赚了1000亿美元但卖早了！巴菲特：当前美股不便宜，将重启慈善午餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:06 - [美伊冲突致全球股市震荡，国际油价飙升60%，标普预警：长期原油供给冲击或引发全球衰退](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:32 - [高管挪用公司超千亿资金？绿城中国被合作方实名举报，公司紧急报警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:21 - [借力智能存储业务东风，绿联科技营收飙升53.83%，却遭股东高管接连减持近十亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:28 - [伊朗最后期限临近 全球股市涨跌互现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:14 - [巴菲特最新采访：希望美联储通胀目标设为0，苹果股票卖早了……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:22 - [全红婵——泳池不小，但世界更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:35 - [天天学习｜“1”心系万家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:07 - [中国人保原党委委员、副总裁于泽被“双开”](http://www.share.kurohicncr.top/Article/details/332592974724.shtml)
-- 2026-06-29 11:06 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](http://www.blog.kurohicncr.top/Article/details/806043.shtml)
-- 2026-06-29 11:11 - [国家电网：168项迎峰度夏重点工程正加快建设](http://www.share.kurohicncr.top/Article/details/41172135583.shtml)
-- 2026-06-29 11:05 - [在中东事态发展喜忧参半之际，油价小幅走低](http://www.blog.minike.top/Article/details/8087721.shtml)
-- 2026-06-29 11:27 - [中国法院去年审结环境资源一审案件22.9万件](http://www.blog.minike.top/Article/details/821101194.shtml)
-- 2026-06-29 11:09 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](http://www.blog.minike.top/Article/details/86220331.shtml)
-- 2026-06-29 11:01 - [美国失业救济申请人数在假日周升至2月以来最高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:09 - [精耕细作，童书消费步入品质时代](http://www.blog.kurohicncr.top/Article/details/72456.shtml)
-- 2026-06-29 11:13 - [ST星农大宗交易成交203.00万元](http://www.share.minike.top/Article/details/7968251753.shtml)
-- 2026-06-29 11:23 - [瑞梅铁路梅江特大桥中跨顺利合龙](http://www.blog.kurohicncr.top/Article/details/40886169767.shtml)
-- 2026-06-29 11:29 - [以色列防长：与黎巴嫩的停火协议取决于真主党撤出黎南部](http://www.share.minike.top/Article/details/54679859703.shtml)
-- 2026-06-29 11:28 - [印尼国会通过金融法案：扩大央行职能并强化国会监督](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [特朗普拟提名其前律师Todd Blanche出任美国司法部长](http://www.blog.minike.top/Article/details/374715799.shtml)
-- 2026-06-29 11:20 - [以色列继续空袭黎巴嫩 造成至少9人死数十人伤](http://www.blog.kurohicncr.top/Article/details/67585448581.shtml)
-- 2026-06-29 11:16 - [健康险“卷”起来！重疾险不确诊也能赔？医疗险病了也能买？](http://www.blog.kurohicncr.top/Article/details/58516788504.shtml)
+- 2026-06-29 11:29 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:15 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:24 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:08 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:25 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:26 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:17 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:13 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:25 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:19 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:17 - [A股3月收官，沪指再度失守3900点，月累计跌6.51%！张雪机车一战封神，概念股2连板！日韩股市3月均暴跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:25 - [金价下跌1000美元的主因是央行抛售，土耳其、俄罗斯……下一个可能是印度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:07 - [天顺风能：公司已批准的对外担保总额度为人民币220.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:29 - [浙商银行董事长陈海强年报致辞：坚持管理立行、服务优行、科技兴行、人才强行，做一个坚定的长期主义者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:31 - [一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)

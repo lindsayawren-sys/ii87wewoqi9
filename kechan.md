@@ -1,56 +1,61 @@
-# 钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态
+# 给乡愁办个“身份证” 黑龙江省额尔门沁村以版权激活民族文化遗产
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-中新网北京6月5日电 (记者 应妮)记者从5日在京举行的新闻发布会获悉，钢琴家田佳鑫“鑫乐之旅”将于7月启程巡演八个城市，并同步推出音乐纪实微综艺《跟着音乐去旅行》。 巡演由中国对外文化集团有限公司主办。7月至10月，“鑫乐之旅”将赴北京、深圳、佛山、泉州、珠海、成都、德州、济南八个城市。演出的曲目设计独具匠心，既有莫扎特、贝多芬、肖邦、李斯特等德奥经典作品，也有《牧童短笛》《
+中新网齐齐哈尔4月7日电 题：给乡愁办个“身份证” 黑龙江省额尔门沁村以版权激活民族文化遗产 作者 刘锡菊 任艺 曾雪 暮春时节，嫩江水暖。4月，达斡尔族聚居地梅里斯达斡尔族区卧牛吐镇额尔门沁村迎来一件新鲜事：传统“乌钦”说唱艺术、达斡尔族传统服装、原创墙画等一批土生土长的“文化瑰宝”，即将拥有受法律保护的“身份证”。 走进额尔门沁村，达斡尔族同胞何庆正坐在自家院落的木凳上，轻
 
 ## 正文
 
-中新网北京6月5日电 (记者 应妮)记者从5日在京举行的新闻发布会获悉，钢琴家田佳鑫“鑫乐之旅”将于7月启程巡演八个城市，并同步推出音乐纪实微综艺《跟着音乐去旅行》。
+中新网齐齐哈尔4月7日电 题：给乡愁办个“身份证” 黑龙江省额尔门沁村以版权激活民族文化遗产 作者 刘锡菊 任艺 曾雪 暮春时节，嫩江水暖。
 
-巡演由中国对外文化集团有限公司主办。
+4月，达斡尔族聚居地梅里斯达斡尔族区卧牛吐镇额尔门沁村迎来一件新鲜事：传统“乌钦”说唱艺术、达斡尔族传统服装、原创墙画等一批土生土长的“文化瑰宝”，即将拥有受法律保护的“身份证”。
 
-7月至10月，“鑫乐之旅”将赴北京、深圳、佛山、泉州、珠海、成都、德州、济南八个城市。
+走进额尔门沁村，达斡尔族同胞何庆正坐在自家院落的木凳上，轻声哼唱着一首古老的乌钦《马上的哥哥去远方》。
 
-演出的曲目设计独具匠心，既有莫扎特、贝多芬、肖邦、李斯特等德奥经典作品，也有《牧童短笛》《山丹丹开花红艳艳》等观众熟悉的中国作品。
+“师傅教给我，我再教给达斡尔族的孩子们。
 
-音乐会结合八座城市的历史底蕴和人文特质，因地制宜调整演奏处理与情绪表达，还在返场环节设置城市专属定制曲目，呈现每座城市独特的文化风采。
+” 乌钦，是达斡尔族特有的曲艺说书形式，被誉为民族的“活态史诗”。
 
-钢琴家田佳鑫介绍了音乐会的看点，古典“鑫”声尽显古典音乐典雅技法之美；华夏“鑫”声承载中式诗意情怀，勾勒中国钢琴作品发展脉络；浪漫“鑫”声以抒情炫技曲目营造疗愈氛围。
+一人一弦，说唱结合，讲述民族迁徙、赞美家乡山河、歌颂劳动与爱情。
 
-巡演部分场次将融入水墨动画、意境沙画、古典诗词等东方美学元素，构建沉浸式音画现场。
+一代代口传心授，延续数百年。
 
-每站巡演还会开展音乐大师班，她将与琴童、音乐爱好者交流，拆解演奏技巧、分享艺术成长心路。
+但随着传承者日渐稀少，这份口头艺术正面临断代的风险。
 
 ## 相关推荐
 
-- 2026-06-29 11:13 - [东莞港落地“内外贸同船+水水中转多式联运”模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:29 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:14 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:20 - [美国制裁古巴国家主席 进一步加大施压力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:05 - [云南泸水有群“共享奶奶” 绘就社区民族团结“同心圆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:04 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:02 - [中尼合资航司复航加德满都至深圳往返航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:21 - [拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:18 - [【百万庄小课堂】高考遇上生理期疼痛 医生详解如何做才不伤身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:16 - [读懂中国是福山们的必修课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:20 - [她还能增长吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:27 - [报道：哈尔克岛遭袭击后传出爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:31 - [水利部批复新一轮大江大河采砂管理规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:26 - [百洋医药投资企业北海康成2025年实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:24 - [午盘：美股维持涨势 科技股涨幅领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:25 - [滇金丝猴“长出”咖啡厚嘴唇 云南咖啡新标识萌趣亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:15 - [焦点访谈｜深化殡葬改革 书写移风易俗民生答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:32 - [中国医疗队为赤道几内亚白内障患者诊疗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:11 - [中信建投期货：4月8日农产品早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:24 - [战争引发通胀担忧之际 亚股抹去2026年涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:07 - [国际金价大涨重上4800美元 国内金饰克价涨到1470元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:23 - [受权发布丨中华人民共和国国务院令 第834号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:32 - [巴基斯坦：美伊及其盟友同意全面停火 并展开进一步谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:35 - [国泰海通聂小刚：华安和海富通基金整合方案正在推进，将产生很好的协同效应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:08 - [特朗普首次承认：美国人被黑吃黑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](http://www.blog.minike.top/Article/details/091578952.shtml)
-- 2026-06-29 11:20 - [新大众文艺：人民文艺的时代强音](http://www.share.kurohicncr.top/Article/details/20798.shtml)
-- 2026-06-29 11:15 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](http://www.blog.minike.top/Article/details/49066891.shtml)
-- 2026-06-29 11:14 - [青海省“全民禁毒宣传月”系列活动启动](http://www.blog.minike.top/Article/details/645633407470.shtml)
-- 2026-06-29 11:27 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](http://www.share.minike.top/Article/details/20790758.shtml)
-- 2026-06-29 11:15 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](http://www.share.minike.top/Article/details/2512980.shtml)
-- 2026-06-29 11:19 - [外媒：以色列和黎巴嫩同意停火 但有前提](http://www.share.kurohicncr.top/Article/details/3577095.shtml)
-- 2026-06-29 11:21 - [初夏“睡眠紊乱”高发，如何找回状态](http://www.blog.minike.top/Article/details/677289.shtml)
-- 2026-06-29 11:02 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:16 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](http://www.share.minike.top/Article/details/101674859.shtml)
-- 2026-06-29 11:25 - [凯赛生物：2026年6月25日召开2025年年度股东会](http://www.share.kurohicncr.top/Article/details/01243909699.shtml)
-- 2026-06-29 11:25 - [美国称将调整其对北约部队的贡献](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [吃喝板块单边下行，华宝基金食品饮料ETF（515710）收跌1.59%！机构：底部愈发清晰](http://www.share.kurohicncr.top/Article/details/145455.shtml)
-- 2026-06-29 11:13 - [央行7天期逆回购连续两日零操作 资金面仍显宽松](http://www.share.kurohicncr.top/Article/details/88712987855.shtml)
+- 2026-06-29 11:13 - [特朗普施压加码，最后期限逼近，美伊谈判难在哪？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:21 - [高盛：调查显示信贷市场看空情绪创纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:35 - [百胜中国于4月6日斥资300万美元回购6.16万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:21 - [为稳定电力供应 台湾拟重启已停运的燃煤机组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:32 - [世界数据组织成立！顶层强调数据资源价值！华宝基金大数据ETF（516700）盘中上探1.3%，中科星图领涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:32 - [聚焦春季造林 广东发布2026年第1号总林长令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:21 - [张家港行：2025年归母净利润19.79亿元 同比增长5.35%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:25 - [贵金属上涨 受美元走软和美债收益率下降提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:08 - [法国通胀升至2024年8月以来最高水平 加大欧洲央行升息压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:11 - [海尔们想做“钢铁侠”，追觅们想做“扫地僧”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:34 - [财经早报：特朗普宣布同意停火两周，美国原油期货暴跌近20%丨2026年4月8日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:25 - [2026年清明节假期国内出游1.35亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:22 - [TCL电子午前涨超3% 全年纯利达25.12亿港元同比增超56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:18 - [富国基金：2025年因公司治理等“五宗罪”被责令改正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:19 - [03月31日丙二醇10333.33元/吨 5天上涨11.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)

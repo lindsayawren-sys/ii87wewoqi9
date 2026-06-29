@@ -1,60 +1,56 @@
-# 科创赋能文脉 沈阳仿真航模出彩出圈
+# 自然堂冲刺港股：年营收53亿 利润3.5亿 估值71亿
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-中新网沈阳6月4日电(姜月恒 赵桂华 禹瑞斋)近日，一架1:3比例歼-35仿真航模刷屏全网，在海内外各大社交平台持续发酵。只因之前这一仿真航模在东北超联赛开幕式上亮相，相关现场画面通过网络传播，收获众多海外网友点赞热议，强势破圈。 一架仿真航模，为何能够引发那么多人关注？它的魅力在什么地方？带着疑问，记者走进仿真航模设计制作企业----沈阳云马翔和飞行科技公司，探寻这款爆款科创
+来源：雷递 雷递网 雷建平 4月7日 演员虞书欣代言的自然堂全球控股有限公司（简称：“自然堂”）日前更新招股书，准备在港交所上市。 2025年，自然堂引入一轮融资，总金额达7.42亿元。 美町与自然堂于2024年10月23日订立股份认购协议并于2025年9月8日对其进行补充，据此，美町按每股股份约58元认购7，026，459股股份，对价总额为4.09亿元，已于2025年9月26
 
 ## 正文
 
-中新网沈阳6月4日电(姜月恒 赵桂华 禹瑞斋)近日，一架1:3比例歼-35仿真航模刷屏全网，在海内外各大社交平台持续发酵。
+来源：雷递 雷递网 雷建平 4月7日 演员虞书欣代言的自然堂全球控股有限公司（简称：“自然堂”）日前更新招股书，准备在港交所上市。
 
-只因之前这一仿真航模在东北超联赛开幕式上亮相，相关现场画面通过网络传播，收获众多海外网友点赞热议，强势破圈。
+2025年，自然堂引入一轮融资，总金额达7.42亿元。
 
-一架仿真航模，为何能够引发那么多人关注？
+美町与自然堂于2024年10月23日订立股份认购协议并于2025年9月8日对其进行补充，据此，美町按每股股份约58元认购7，026，459股股份，对价总额为4.09亿元，已于2025年9月26日不可撤销地结清。
 
-它的魅力在什么地方？
+于2025年9月16日，加华资本旗下Himalaya International与公司订立投资协议，据此，Himalaya International按每股股份约63元认购4，761，905股股份，对价为3亿元，已于2025年9月25日不可撤销地结清。
 
-带着疑问，记者走进仿真航模设计制作企业----沈阳云马翔和飞行科技公司，探寻这款爆款科创作品背后的研发密码。
+于2025年9月16日，为进一步投资自然堂，美町与Ying BVI II订立购股协议。
 
-走进企业研发基地，1:3比例歼-35航模映入眼帘，整机细节逼真、工艺精湛，机身流线、核心零部件高度还原真机样貌，具有超高观赏性。
+据此，美町按每股股份63元的价格向Ying BVI II购入531，023股股份，对价总额为3345万元，已于2025年9月26日不可撤销地结清。
 
-据了解，歼-35航模从图纸定稿、结构设计到调试试飞、成功展演，全程仅耗时45天。
+自然堂这一轮的投后估值为71.4亿元。
 
-“这款歼-35航模最大亮点在于机身各类折线、凹陷线条全靠手工雕琢成型，线条精度把控是作品关键。
+年营收53亿 利润3.5亿 据介绍，自然堂CHANDO，2001年创建于上海，产品涵盖护肤品、彩妆品、面膜、男士、个人护理品。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [黄金交易提醒：中东停火惊现转机！金价反弹近1%，伊朗和平曙光能否点燃新一轮牛市？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:14 - [黎以同意实施停火 前提是真主党停止攻击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:03 - [航发动力：2026年6月22日召开2026年第二次临时股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:22 - [消费维权该去哪里？除了12315，这些正规投诉渠道也很管用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:23 - [电投能源：公司煤炭销售主要面向电厂、供热公司等终端用户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:27 - [海内外侨胞走进重庆潼南 看好汽车后市场发展潜力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:10 - [美迪凯发生2笔大宗交易 合计成交1003.13万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:11 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:28 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:02 - [英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:08 - [共识教育百问百答丨高晓巍、赵妍、路运占、赵一筱：如何理解从“五一口号”到协商建国？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:15 - [世卫组织说不安全食品每年导致超8亿人患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:29 - [天天学习｜这条“红线”守护美丽中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:08 - [广州港亚欧航线运力升级 保障湾区企业旺季出运需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:08 - [“做中国人，多么骄傲！”台湾青年自媒体人翟翾：大陆寻根后，心里更踏实了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:34 - [河北秦皇岛：人鸥共欢春日美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:13 - [多地联动“诵读经典·缅怀先贤”主题活动 与先贤跨时空对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:16 - [2025年经营性现金流净额8.16亿，美凯龙主营业务展现韧性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:31 - [600721，控制权拟变更，金华市国资委入主！大牛股净利润最高暴增8747.18%，存储涨价潮将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:11 - [东岳集团现涨逾9% 东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:11 - [押注苹果赚了1000亿美元但卖早了！巴菲特：当前美股不便宜，将重启慈善午餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:16 - [美伊冲突致全球股市震荡，国际油价飙升60%，标普预警：长期原油供给冲击或引发全球衰退](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:16 - [高管挪用公司超千亿资金？绿城中国被合作方实名举报，公司紧急报警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:28 - [借力智能存储业务东风，绿联科技营收飙升53.83%，却遭股东高管接连减持近十亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [央行最新！加大“收水”力度！5000亿元，明日操作](http://www.blog.kurohicncr.top/Article/details/554253254.shtml)
-- 2026-06-29 11:26 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](http://www.share.minike.top/Article/details/55682115461.shtml)
-- 2026-06-29 11:11 - [中国人保原党委委员、副总裁于泽被“双开”](http://www.share.kurohicncr.top/Article/details/179563293.shtml)
-- 2026-06-29 11:10 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](http://www.share.minike.top/Article/details/651901.shtml)
-- 2026-06-29 11:13 - [国家电网：168项迎峰度夏重点工程正加快建设](http://www.share.minike.top/Article/details/8731989.shtml)
-- 2026-06-29 11:28 - [在中东事态发展喜忧参半之际，油价小幅走低](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [中国法院去年审结环境资源一审案件22.9万件](http://www.share.kurohicncr.top/Article/details/79088.shtml)
-- 2026-06-29 11:24 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](http://www.share.minike.top/Article/details/977459129.shtml)
-- 2026-06-29 11:14 - [美国失业救济申请人数在假日周升至2月以来最高](http://www.share.minike.top/Article/details/646991685487.shtml)
-- 2026-06-29 11:06 - [精耕细作，童书消费步入品质时代](http://www.blog.kurohicncr.top/Article/details/81785262926.shtml)
-- 2026-06-29 11:03 - [ST星农大宗交易成交203.00万元](http://www.share.minike.top/Article/details/402484.shtml)
-- 2026-06-29 11:05 - [瑞梅铁路梅江特大桥中跨顺利合龙](http://www.share.minike.top/Article/details/002464.shtml)
-- 2026-06-29 11:19 - [以色列防长：与黎巴嫩的停火协议取决于真主党撤出黎南部](http://www.blog.kurohicncr.top/Article/details/60703.shtml)
-- 2026-06-29 11:04 - [印尼国会通过金融法案：扩大央行职能并强化国会监督](http://www.share.kurohicncr.top/Article/details/2012155511.shtml)
-- 2026-06-29 11:16 - [特朗普拟提名其前律师Todd Blanche出任美国司法部长](http://www.blog.minike.top/Article/details/36872739.shtml)
+- 2026-06-29 11:28 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:28 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:19 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:10 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:21 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:18 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:29 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:21 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:31 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:25 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:28 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:17 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:34 - [A股3月收官，沪指再度失守3900点，月累计跌6.51%！张雪机车一战封神，概念股2连板！日韩股市3月均暴跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:19 - [金价下跌1000美元的主因是央行抛售，土耳其、俄罗斯……下一个可能是印度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:17 - [天顺风能：公司已批准的对外担保总额度为人民币220.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)

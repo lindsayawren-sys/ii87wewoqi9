@@ -1,42 +1,56 @@
-# 全国小麦收获有序推进 已近五成
+# 伊朗战争进入第五周，黄金或将迎来2008年以来最差月度表现
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 09:17 来源：央视新闻 责任编辑：【王祎】
+核心要点 周二早盘金价小幅走高，但仍将录得近 17 年来最大月度跌幅。 美国现货黄金价格上涨约 1%，报每盎司 4553.69 美元；近月黄金期货上涨 0.6%，结算价约为 4553 美元。 金价上涨，缘于美伊战争走向仍存不确定性，这场冲突已进入第五周。 美国总统特朗普告知幕僚，即便霍尔木兹海峡仍基本处于关闭状态，他也愿意结束对伊朗的军事敌对行动。 特朗普在 “真实社交” 平台
 
 ## 正文
 
-发布时间：2026年06月05日 09:17 来源：央视新闻 责任编辑：【王祎】
+核心要点 周二早盘金价小幅走高，但仍将录得近 17 年来最大月度跌幅。
+
+美国现货黄金价格上涨约 1%，报每盎司 4553.69 美元；近月黄金期货上涨 0.6%，结算价约为 4553 美元。
+
+金价上涨，缘于美伊战争走向仍存不确定性，这场冲突已进入第五周。
+
+美国总统特朗普告知幕僚，即便霍尔木兹海峡仍基本处于关闭状态，他也愿意结束对伊朗的军事敌对行动。
+
+特朗普在 “真实社交” 平台发文称，美国正与伊朗官员进行 “严肃谈判”，但补充道，若无法很快达成协议，美军将打击伊朗发电厂、油井及关键的哈尔克岛。
+
+与此同时，美国国务卿马尔科・鲁比奥在周一发布的半岛电视台采访中表示，美国在伊朗的目标将 “数周内，而非数月内” 实现。
+
+报道称，周末有 2500 名美国海军陆战队员抵达中东，匿名官员透露，部署的部队来自精锐的第 82 空降师。
+
+中东冲突拖累了金价，油气价格飙升引发各国通胀将大幅攀升、进而触发一轮加息的预期。
 
 ## 相关推荐
 
-- 2026-06-29 11:16 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:13 - [周锡玮：两岸要一起，把中国好的理念传播出去](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:14 - [东莞港落地“内外贸同船+水水中转多式联运”模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:00 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:12 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:07 - [美国制裁古巴国家主席 进一步加大施压力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:09 - [云南泸水有群“共享奶奶” 绘就社区民族团结“同心圆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:06 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:11 - [中尼合资航司复航加德满都至深圳往返航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:03 - [拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:33 - [GLP-1口服药扩大肥胖治疗市场 吸引不愿接受注射治疗的患者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:19 - [特朗普称美国将在两三周内结束对伊战争 仍有可能与德黑兰达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:08 - [她还能增长吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:33 - [报道：哈尔克岛遭袭击后传出爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:25 - [水利部批复新一轮大江大河采砂管理规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:20 - [百洋医药投资企业北海康成2025年实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:13 - [午盘：美股维持涨势 科技股涨幅领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:31 - [滇金丝猴“长出”咖啡厚嘴唇 云南咖啡新标识萌趣亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:09 - [焦点访谈｜深化殡葬改革 书写移风易俗民生答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:29 - [中国医疗队为赤道几内亚白内障患者诊疗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](http://www.share.kurohicncr.top/Article/details/87950396418.shtml)
-- 2026-06-29 11:29 - [Meta最新AI模型一拖再拖，开发者耐心渐失](http://www.blog.minike.top/Article/details/1119203.shtml)
-- 2026-06-29 11:09 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](http://www.blog.minike.top/Article/details/785357955725.shtml)
-- 2026-06-29 11:16 - [新大众文艺：人民文艺的时代强音](http://www.blog.minike.top/Article/details/0171397797.shtml)
-- 2026-06-29 11:05 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](http://www.blog.minike.top/Article/details/0414888599.shtml)
-- 2026-06-29 11:23 - [青海省“全民禁毒宣传月”系列活动启动](http://www.blog.kurohicncr.top/Article/details/243629.shtml)
-- 2026-06-29 11:23 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](http://www.blog.kurohicncr.top/Article/details/653661712.shtml)
-- 2026-06-29 11:02 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](http://www.share.kurohicncr.top/Article/details/79535632.shtml)
-- 2026-06-29 11:21 - [外媒：以色列和黎巴嫩同意停火 但有前提](http://www.blog.minike.top/Article/details/12749591.shtml)
-- 2026-06-29 11:20 - [初夏“睡眠紊乱”高发，如何找回状态](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:14 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](http://www.blog.minike.top/Article/details/196801683855.shtml)
-- 2026-06-29 11:24 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](http://www.blog.minike.top/Article/details/93888332873.shtml)
-- 2026-06-29 11:23 - [凯赛生物：2026年6月25日召开2025年年度股东会](http://www.blog.kurohicncr.top/Article/details/652094.shtml)
-- 2026-06-29 11:17 - [美国称将调整其对北约部队的贡献](http://www.share.minike.top/Article/details/40220.shtml)
+- 2026-06-29 11:12 - [国安达：控股股东洪伟艺解除质押56.00万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:34 - [伊朗说同意谈判但对美国“完全不信任”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:12 - [特朗普施压加码，最后期限逼近，美伊谈判难在哪？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:06 - [高盛：调查显示信贷市场看空情绪创纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:21 - [百胜中国于4月6日斥资300万美元回购6.16万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:33 - [为稳定电力供应 台湾拟重启已停运的燃煤机组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:34 - [世界数据组织成立！顶层强调数据资源价值！华宝基金大数据ETF（516700）盘中上探1.3%，中科星图领涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:29 - [聚焦春季造林 广东发布2026年第1号总林长令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:30 - [张家港行：2025年归母净利润19.79亿元 同比增长5.35%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:22 - [贵金属上涨 受美元走软和美债收益率下降提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:30 - [法国通胀升至2024年8月以来最高水平 加大欧洲央行升息压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:24 - [海尔们想做“钢铁侠”，追觅们想做“扫地僧”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:18 - [财经早报：特朗普宣布同意停火两周，美国原油期货暴跌近20%丨2026年4月8日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:23 - [2026年清明节假期国内出游1.35亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:18 - [TCL电子午前涨超3% 全年纯利达25.12亿港元同比增超56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)

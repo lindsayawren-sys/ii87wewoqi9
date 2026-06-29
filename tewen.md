@@ -1,60 +1,56 @@
-# 为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%
+# 财经早报：特朗普宣布同意停火两周，美国原油期货暴跌近20%丨2026年4月8日
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-进入6月，A股市场科创/AI相关板块震荡显著加剧，大起大落的局面牵动了很多投资者的情绪。另一方面，煤炭、电力板块，今年已悄然走出了日趋上行的积极行情。Wind统计数据显示，电力ETF华宝（159146）所跟踪的中证全指电力公用事业指数自2026年初至今（截至6月3日）已实现25%的涨幅。 截至6月3日的最近一段时间，电力ETF华宝（159146）在二级市场的交易中已呈现“九连阳
+【重磅】不惧波动！把握A股T+0交易机会，当天买卖，赚了就跑（附精选股票池） 【头条要闻】 最后期限到来前一刻，特朗普宣布同意停火两周 央视新闻消息，当地时间4月7日，美国总统特朗普在社交平台发文称，在与巴基斯坦总理夏巴兹·谢里夫及陆军参谋长阿西姆·穆尼尔通话后，应巴方请求，美方决定暂缓原计划针对伊朗的军事打击行动。 特朗普表示，前提是伊朗同意全面、立即且安全地开放霍尔木兹海峡
 
 ## 正文
 
-进入6月，A股市场科创/AI相关板块震荡显著加剧，大起大落的局面牵动了很多投资者的情绪。
+【重磅】不惧波动！
 
-另一方面，煤炭、电力板块，今年已悄然走出了日趋上行的积极行情。
+把握A股T+0交易机会，当天买卖，赚了就跑（附精选股票池） 【头条要闻】 最后期限到来前一刻，特朗普宣布同意停火两周 央视新闻消息，当地时间4月7日，美国总统特朗普在社交平台发文称，在与巴基斯坦总理夏巴兹·谢里夫及陆军参谋长阿西姆·穆尼尔通话后，应巴方请求，美方决定暂缓原计划针对伊朗的军事打击行动。
 
-Wind统计数据显示，电力ETF华宝（159146）所跟踪的中证全指电力公用事业指数自2026年初至今（截至6月3日）已实现25%的涨幅。
+特朗普表示，前提是伊朗同意全面、立即且安全地开放霍尔木兹海峡，美方将暂停对伊朗的轰炸和攻击，为期两周，并称该安排将构成“双向停火”。
 
-截至6月3日的最近一段时间，电力ETF华宝（159146）在二级市场的交易中已呈现“九连阳”，其受瞩目程度虽然与光模板、芯片等AI股票存在一定差距，但仍然说明了电力股票较受欢迎的局面。
+他表示，目前已完成并超额实现既定军事目标，同时在推动与伊朗达成长期和平协议及中东地区和平方面取得重要进展。
 
-进入6月，中际旭创跃升成为沪深300指数的第一大权重股，其股票价格也正在逼近“高价股标杆”贵州茅台。
+伊朗：我方几乎已实现全部战争目标 同意停火两周 伊朗人民必须知晓，得益于本国儿女的不懈努力及其在战场上的历史性表现，一个多月以来，敌人一直在乞求伊朗停止猛烈攻势。
 
-在“科技新贵”的耀眼光芒下，A股市场行情已呈现两极分化局面，一些基本面没有特别亮点的行业持续遭遇资金流出，相应行业股票价格节节下挫。
+但伊朗自始至终决意将战争持续至实现既定目标——包括让敌人追悔莫及、陷入绝望，并消除对伊朗的长期威胁，因此拒绝了所有此类请求，战争也持续至今，已进入第四十天。
 
-即便如此，煤炭、电力等板块却表现得并不逊色，同样具有锐气，这充分说明了这些行业基本面其实可圈可点，能够获得投资者的认可。
+此外，伊朗迄今已多次拒绝美国总统提出的最后期限，并始终强调，不会重视敌人提出的任何形式的最后通牒。
 
-注：以上指数成份股仅作展示，个股描述不作为任何形式的投资建议，也不代表管理人旗下任何基金的持仓信息和交易动向 随着AI在各行业的深入渗透与快速发展，其巨大的能源耗费让市场充分认识到“算电协同”的重要性。
+此刻，我们向伟大的伊朗人民宣告喜讯：我方几乎已实现全部战争目标，英勇的伊朗儿女已将敌人逼入历史性的绝境，使其遭遇永久性失败。
 
 ## 相关推荐
 
-- 2026-06-29 11:06 - [冠豪高新：公司始终密切关注行业前沿技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:05 - [香港最大商业AI应用展览启幕 近100家供应商展示最新AI解决方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:24 - [学生票大升级！这些出行便利已成固定政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:19 - [300726！突发低位“20cm”涨停，A股登上《新闻联播》！一个牛市新信号来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:25 - [回望——中国美术家协会2025年度绘画作品展亮相内蒙古](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:02 - [国务院食安办成立工作组督导查处 “望奎双汇猪肉抗生素超标问题”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:28 - [中银国际：兖矿能源收购母公司电力资产并非特别吸引](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:06 - [美光科技、英特尔、戴尔科技年内飙涨超200%，美股科技“七骑士”全线跑赢英伟达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:04 - [西陇科学：公司及控股子公司均不存在逾期担保情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:23 - [铁路端午假期运输首日火车票今日起售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:29 - [沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:20 - [老挝人革党中央总书记、国家主席通伦抵京 天安门前挂起中老两国国旗、党旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:16 - [威龙股份首季业绩承压，亏损幅度有所扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:18 - [股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:09 - [WTI原油首次收于100美元上方 布油将创历史最大单月涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:11 - [四招稳住“存款搬家”压力，招行2025年业绩重回正增长轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:10 - [鲍威尔：美联储将“观望”后再采取利率行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:22 - [尝高美集团在香港开设一间新谷泰餐厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:17 - [Colonial First State：油价飙升或致美国GDP萎缩0.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:33 - [黑龙江省备春耕基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:29 - [韩国推出173亿美元刺激计划，油价飙升施压经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:08 - [中俄对涉霍尔木兹海峡决议草案投反对票 伊朗代表：俄中阻止了滥用安理会的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:25 - [上海市金融学会召开普惠金融专业委员会第一次会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:35 - [信披违法违规，*ST星农及责任人被罚690万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:05 - [外交部回应对新西兰有关议员采取禁止入境等措施](http://www.share.kurohicncr.top/Article/details/8463146.shtml)
-- 2026-06-29 11:17 - [南宁海关所属防城海关涉案财物公开拍卖公告](http://www.share.minike.top/Article/details/87872917.shtml)
-- 2026-06-29 11:03 - [多只热门牛股，密集提示风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [美国股市：“旧经济”股票跑赢AI概念股 道琼斯工业平均指数创新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:14 - [长江有色：多头锁定获利叠加中东风险未消除 5日锌价或下跌](http://www.share.minike.top/Article/details/57728363360.shtml)
-- 2026-06-29 11:22 - [银行股东会不再“走过场”，分红与薪酬争议升温](http://www.blog.minike.top/Article/details/694189026.shtml)
-- 2026-06-29 11:00 - [研发投入从15.57亿到0：环保上市企业研发呈两极分化](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [宋磊获批担任国家开发银行首席信息官](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:02 - [西部首支电网应急救援技术支撑队在川揭牌成立](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:11 - [入境游迎爆发窗口期 行业龙头加码布局](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [Partners集团预警：或将对更多基金增设赎回上限](http://www.blog.kurohicncr.top/Article/details/2287008022.shtml)
-- 2026-06-29 11:07 - [特朗普认为赞成限制其战争权力的众议员“不爱国”](http://www.share.minike.top/Article/details/7816707581.shtml)
-- 2026-06-29 11:18 - [“中俄经贸合作机遇推介会”在圣彼得堡国际经济论坛举行](http://www.share.minike.top/Article/details/04779499221.shtml)
-- 2026-06-29 11:02 - [比亚迪财险落地冀苏浙三地 获批执行全国统一交强险费率](http://www.blog.minike.top/Article/details/08948.shtml)
-- 2026-06-29 11:05 - [铁路端午假期运输首日火车票今天起售](http://www.share.minike.top/Article/details/256631.shtml)
+- 2026-06-29 11:15 - [3月31日收盘：标普指数下跌0.39% 油价攀升WTI原油站上100美元关口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:07 - [浙商银行董事长陈海强谈银行数字化转型误区：科技部门热火朝天，业务部门不伦不类](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:30 - [Keep首次扭亏股价却触底：营收跌回四年前、用户流失近815万 AI新故事能撑起未来吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:31 - [春天里的中国丨踏青赏花正当时 这些浪漫花海等你打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:34 - [“猪八戒”马德华将送别陈丽华：大姐非常好非常有爱心，各方面都非常优秀，她为紫檀事业作出很大贡献，她的离去让我们很悲痛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:07 - [特朗普言辞升级之际，美以协同对伊朗发动打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:08 - [没牙的伊朗？导弹与无人机袭击彰显其仍具破坏力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:32 - [沃尔玛信号警示经济放缓 折扣零售与奢侈品消费差距扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:22 - [午盘：美股维持下跌局面 市场紧盯中东局势发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:30 - [开盘：美股周一高开 特朗普称美伊谈判取得重大进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:35 - [化工板块深度回调，华宝基金化工ETF（516020）盘中跌超3%！机构：近期或可关注相关周期弹性投资机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:18 - [美国原油价格上涨，特朗普在最后期限前对伊朗发出严厉威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:32 - [视频|特朗普称即使霍尔木兹海峡仍关闭也愿结束战争](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:30 - [股债汇三杀！外资正在逃离日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:12 - [法官叫停特朗普白宫宴会厅项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)

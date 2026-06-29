@@ -1,57 +1,59 @@
-# “中国傩戏·傩面具艺术展”在青海西宁开展
+# 再现险资“举牌”！利安人寿拟溢价近10%受让中山公用5%股份，持股比例将升至8.12%
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-高考必备物品清单来了 能带不能带的要看清中高考前考生扎堆“吸氧补脑”？医生紧急提醒新闻联播披露A股重要数据益生菌不是万能药 并非人人需要“代发论文，包过审核”，这也能信？端午火车票明日开售 这份购票指南请收好中新网评：迷信孩子能被“矫治”，家长的心病更该治治中国多地省长密集下井 检查煤矿安全生产香港书写国际金融中心新传奇美加墨世界杯参赛球队阵容确定 梅西、C罗将六战世界杯被用户
+每经记者|蔡鼎 每经编辑|黄博文 4月2日晚间，中山公用（SZ000685，股价10.87元，市值160.3亿元）公告称，公司控股股东中山投资控股集团有限公司（以下简称“中山投控”）与利安人寿保险股份有限公司（以下简称“利安人寿”）于4月1日签署《股份转让协议》，中山投控拟以12.19元/股的价格转让其持有的公司股份约7375.56万股（占目前公司总股本的5%），转让总价款约8
 
 ## 正文
 
-高考必备物品清单来了 能带不能带的要看清中高考前考生扎堆“吸氧补脑”？
+每经记者|蔡鼎 每经编辑|黄博文 4月2日晚间，中山公用（SZ000685，股价10.87元，市值160.3亿元）公告称，公司控股股东中山投资控股集团有限公司（以下简称“中山投控”）与利安人寿保险股份有限公司（以下简称“利安人寿”）于4月1日签署《股份转让协议》，中山投控拟以12.19元/股的价格转让其持有的公司股份约7375.56万股（占目前公司总股本的5%），转让总价款约8.99亿元。
 
-医生紧急提醒新闻联播披露A股重要数据益生菌不是万能药 并非人人需要“代发论文，包过审核”，这也能信？
+据公告，本次权益变动后，中山投控持股比例将降至43.73%，仍为控股股东；利安人寿持股比例将增至8.12%，成为持股5%以上股东。
 
-端午火车票明日开售 这份购票指南请收好中新网评：迷信孩子能被“矫治”，家长的心病更该治治中国多地省长密集下井 检查煤矿安全生产香港书写国际金融中心新传奇美加墨世界杯参赛球队阵容确定 梅西、C罗将六战世界杯被用户吐槽“越来越难用”“频频出错”，AI开始偷懒了？
+本次协议转让事项不触及要约收购，不构成关联交易，不会导致公司控股股东、实际控制人发生变更，不会对公司治理结构及持续经营产生影响，同时也不存在损害公司及中小投资者利益的情形，但尚需国资监管机构批准及深交所审核后方可实施。
 
-1290万人将赶赴高考，教育部：提高对智能眼镜等检出率千万不要大意！
+公告显示，中山投控拟通过公开征集转让方式协议转让其持有的公司股份约7375.56万股，占目前公司总股本的5%。
 
-早上起床“眼屎”增多，当心是这些眼病！
+经中山投控综合评审，确定利安人寿为最终受让方。
 
-104场比赛39天精彩不停 美加墨世界杯观赛指南来了杜祥琬院士声明 未参与核技术应用于垃圾焚烧日本加速推进修宪进程须引起警惕王楚钦任中国乒乓男队队长 马龙12年任期结束美国股市密集亮起预警红灯内蒙古一残疾大哥救下受伤骆驼悉心照料雨天路滑老人接连摔倒 热心路人纷纷上前帮扶体验“中式生活”！
+据公告，中山投控以12.19元/股的价格将其所持有公司的约7375.56万股无限售流通股协议转让给利安人寿。
 
-美国青少年从味蕾开始钓鱼佬夜钓顺手救下2名落水少年高铁穿麦浪，皖北麦收正当时直击无人机实战化作战训练现场“最美天山公路”独库公路恢复通车新疆喀什：走进“西域之西”的人文风情津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了北京天坛的奠基土来自山西后土祠？
+截至4月2日，上述股份尚未办理过户手续。
 
-水下仿生机器鱼展演栩栩如生福州：夏日荷花映古刹 山东日照：梯田叠翠 风光如画 高铁穿行华山脚下金色麦浪 陕西集中发布三项考古研究成果 “中国洮砚之乡”采石人：身贴悬崖绝壁深入 广东揭阳：一纸情书 藏在这座低调古城的烟 福建泉州最后一位代书先生 浙江温州AI赋能时尚产业“换羽新生” 分享 评论 顶部
+12.19元/股的转让价格，较中山公用《股份转让协议》签署日（4月1日）的收盘价11.12元/股溢价了约9.62%。
 
 ## 相关推荐
 
-- 2026-06-29 11:01 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:23 - [建设国家公园带来了什么？记者和亲历者聊了聊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:00 - [印尼驻华大使：相信万隆精神依然具有生命力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:20 - [中青旅：公司持续关注近期股价破净情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:19 - [日本央行据悉考虑6月升息 日元汇率随之走强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:15 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:24 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:21 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:23 - [山东文化“春雨”乘旅游列车润泽天山南北](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:17 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:03 - [伊朗称美失误致科威特机场受损 美方否认](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:10 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:10 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:26 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:06 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:20 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:19 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:30 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:14 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:12 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:29 - [布伦特原油在结算后交易中下跌 巴基斯坦敦促伊朗开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:31 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:17 - [匈牙利大选前美国副总统万斯访匈，力挺欧尔班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:14 - [湖南省政协文教卫体和文史委员会副主任夏智伦接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:16 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [消息人士：印度拟取消外资投资国债资本利得税](http://www.blog.minike.top/Article/details/9060573.shtml)
-- 2026-06-29 11:23 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](http://www.blog.minike.top/Article/details/87353439569.shtml)
-- 2026-06-29 11:26 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:02 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](http://www.blog.kurohicncr.top/Article/details/4606785.shtml)
-- 2026-06-29 11:19 - [周锡玮：两岸要一起，把中国好的理念传播出去](http://www.share.minike.top/Article/details/122806.shtml)
-- 2026-06-29 11:18 - [东莞港落地“内外贸同船+水水中转多式联运”模式](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](http://www.share.kurohicncr.top/Article/details/84203.shtml)
-- 2026-06-29 11:24 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [美国制裁古巴国家主席 进一步加大施压力度](http://www.blog.kurohicncr.top/Article/details/1628869499.shtml)
-- 2026-06-29 11:02 - [云南泸水有群“共享奶奶” 绘就社区民族团结“同心圆”](http://www.share.minike.top/Article/details/28482.shtml)
-- 2026-06-29 11:20 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](http://www.blog.kurohicncr.top/Article/details/9177992.shtml)
-- 2026-06-29 11:28 - [中尼合资航司复航加德满都至深圳往返航线](http://www.blog.minike.top/Article/details/09519.shtml)
+- 2026-06-29 11:18 - [股价最大跌幅近90%！两大IPO募投项目2025年亏损，拓新药业发布定增预案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:22 - [给乡愁办个“身份证” 黑龙江省额尔门沁村以版权激活民族文化遗产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:16 - [巴菲特：尽管有爱泼斯坦丑闻，他仍不后悔向盖茨基金会捐款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:26 - [中天策略:3月31日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:34 - [国际油价，大跌15%！特朗普说停火两周，伊朗接受了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:25 - [兴业证券2025年报：经纪、自营收入合计占比近六成 投行、资管业务疲软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:31 - [GLP-1口服药扩大肥胖治疗市场 吸引不愿接受注射治疗的患者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:33 - [特朗普称美国将在两三周内结束对伊战争 仍有可能与德黑兰达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:26 - [她还能增长吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:36 - [报道：哈尔克岛遭袭击后传出爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:26 - [水利部批复新一轮大江大河采砂管理规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:20 - [百洋医药投资企业北海康成2025年实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:23 - [午盘：美股维持涨势 科技股涨幅领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:32 - [滇金丝猴“长出”咖啡厚嘴唇 云南咖啡新标识萌趣亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:13 - [焦点访谈｜深化殡葬改革 书写移风易俗民生答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)

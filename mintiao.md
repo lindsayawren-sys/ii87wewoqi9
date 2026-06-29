@@ -1,59 +1,56 @@
-# 威龙股份首季业绩承压，亏损幅度有所扩大
+# 受中东冲突影响，越南Vingroup拟放弃建设液化天然气发电厂计划
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-国内葡萄酒行业的分化调整仍在持续，而老牌上市酒企威龙股份正面临更加严峻的经营考验。公司近期披露的2026年第一季度报告显示，当季营业收入出现较为明显的下滑，归母净利润亦由盈转亏，且亏损幅度较上年同期显著扩大。尽管行业整体呈现弱复苏格局，但威龙股份似乎仍在底部区域艰难徘徊。 盈利能力再度下滑，经营压力持续累积 根据公开信息，威龙股份今年一季度实现的营业收入较上年同期下降了超过四分
+一份文件显示，由于伊朗冲突加剧了液化天然气价格过高的风险，越南最大上市公司Vingroup已告知越南政府，该公司希望放弃在越南建设最大的液化天然气发电厂的计划，转而开展可再生能源项目。 这份日期为3月25日的文件是在美国能源设备巨头GE Vernova宣布中标为越南4.8吉瓦液化天然气发电厂供应燃气轮机和发电机约两周后发出的。 这份文件是液化天然气项目可能因战争而被取消或推迟的
 
 ## 正文
 
-国内葡萄酒行业的分化调整仍在持续，而老牌上市酒企威龙股份正面临更加严峻的经营考验。
+一份文件显示，由于伊朗冲突加剧了液化天然气价格过高的风险，越南最大上市公司Vingroup已告知越南政府，该公司希望放弃在越南建设最大的液化天然气发电厂的计划，转而开展可再生能源项目。
 
-公司近期披露的2026年第一季度报告显示，当季营业收入出现较为明显的下滑，归母净利润亦由盈转亏，且亏损幅度较上年同期显著扩大。
+这份日期为3月25日的文件是在美国能源设备巨头GE Vernova宣布中标为越南4.8吉瓦液化天然气发电厂供应燃气轮机和发电机约两周后发出的。
 
-尽管行业整体呈现弱复苏格局，但威龙股份似乎仍在底部区域艰难徘徊。
+这份文件是液化天然气项目可能因战争而被取消或推迟的首批切实迹象之一。
 
-盈利能力再度下滑，经营压力持续累积 根据公开信息，威龙股份今年一季度实现的营业收入较上年同期下降了超过四分之一。
+新西兰总理克里斯托弗·卢克森本周也表示，只有在商业论证充分的情况下，计划中的液化天然气接收站才会启动。
 
-与此同时，归属于上市公司股东的净利润未能维持盈利状态，转为亏损，且亏损额较去年同期出现了较大幅度的增加。
+Vingroup旗下子公司VinEnergo于去年9月在越南北部港口城市海防破土动工兴建该发电站。
 
-这已是该公司连续多个季度录得亏损，表明其主营业务的造血能力尚未得到有效修复。
+一期工程装机容量为1.6吉瓦，原计划于2030年竣工。
 
-拉长周期来看，威龙股份近年来的经营表现起伏不定。
+Vingroup在文件中指出，这些事态发展凸显了“液化天然气发电项目面临高燃料价格的重大风险”。
 
-过去几个会计年度中，公司多数年份处于亏损状态，偶尔出现的微弱盈利也难以持续。
+该公司还补充说，该电厂全面投产后，每年将需要约500万吨液化天然气，年进口额约为35亿至38亿美元，这将“给经济的外汇需求带来巨大压力”。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [中国抹茶刮“绿色旋风” 内销出口两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:13 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:19 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:03 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:29 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:17 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:14 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:12 - [广东省口岸有关数据（2026年1-4月）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:16 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:26 - [中国人民银行定于2026年6月13日发行国家宝藏（融合交流）金银纪念币一套](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:23 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:12 - [债市“乌龙指”：30亿农发债协议取消与内控失守](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:13 - [18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:09 - [天孚通信：2025年净利同比增长50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:12 - [从替代到重构，中兴新支点操作系统发布水电信创方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:26 - [从修车学徒到冠军缔造者，张雪能否给国产摩托车产业带来新机遇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:13 - [霸王茶姬2025年GMV达315.8亿，全年净收入达129.1亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:07 - [联合国人权高专：蓄意攻击民用基础设施属于战争罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:29 - [交银施罗德的灵魂人物谢卫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:33 - [国台办：民进党当局“跪美卖台” 牺牲台湾农业未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:27 - [六大行拟派发股息超两千亿元，中证银行今日高开高走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:29 - [DDR5价格，全球暴跌！竟是因为它？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:35 - [马达加斯加因能源供应危机宣布进入紧急状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:11 - [礼来70亿美元大动作！港股通创新药逆市吸金，520880近两日获超1.28亿元增仓，杠杆资金同步进场](http://www.blog.minike.top/Article/details/5298934755.shtml)
-- 2026-06-29 11:18 - [航宇科技6月5日大宗交易成交332.31万元](http://www.share.kurohicncr.top/Article/details/346671385.shtml)
-- 2026-06-29 11:18 - [科研团队发布有机高分子应用智能体 助力高新材料高效自主研发](http://www.blog.minike.top/Article/details/5050653.shtml)
-- 2026-06-29 11:14 - [中央音乐学院举办“欧亚之声”中俄交响音乐会](http://www.share.kurohicncr.top/Article/details/8264916027.shtml)
-- 2026-06-29 11:14 - [联合国报告：人工智能全球环境足迹加速扩张 能源与治理挑战愈发严峻](http://www.share.kurohicncr.top/Article/details/55068568175.shtml)
-- 2026-06-29 11:09 - [年化3.36%的美元理财香不香？汇率升破6.8后，利差优势生变](http://www.share.minike.top/Article/details/2465660.shtml)
-- 2026-06-29 11:18 - [佐力药业：公司无逾期对外担保](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [河南安阳滑县知联会开展“科技专家助企行”专项行动](http://www.blog.minike.top/Article/details/3760105603.shtml)
-- 2026-06-29 11:25 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](http://www.blog.minike.top/Article/details/435574980024.shtml)
-- 2026-06-29 11:27 - [高盛：到2030年四巨头AI支出将超日本GDP！A股光模块有望成最大赢家？](http://www.blog.kurohicncr.top/Article/details/214433.shtml)
-- 2026-06-29 11:05 - [2026中国环塔国际拉力赛：车队后勤是致胜关键](http://www.blog.minike.top/Article/details/582273418968.shtml)
-- 2026-06-29 11:05 - [赴泰失联的4名中国公民即将回国 另有一男子意外获救](http://www.share.kurohicncr.top/Article/details/17406.shtml)
-- 2026-06-29 11:06 - [易票联支付被罚近4835万元：违反支付结算、金融科技、反洗钱管理有关规定](http://www.share.minike.top/Article/details/699135.shtml)
-- 2026-06-29 11:02 - [买新能源汽车之前，这几个坑一定要提前了解](http://www.share.kurohicncr.top/Article/details/502655566.shtml)
-- 2026-06-29 11:06 - [长江有色：美ADP创16个月新高美指上涨 4日镍价或下跌](http://www.blog.kurohicncr.top/Article/details/74999822660.shtml)
+- 2026-06-29 11:16 - [亚信科技携手“500强”歌尔股份，让“中国智造”闪耀全球！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:34 - [晚饭一个改变，身体指标轻松变好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:32 - [酒价内参4月8日价格发布，青花郎下调5元跌幅居前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:28 - [甲骨文任命Hilary Maxson为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:18 - [交银国际：维持龙源电力目标价8.23港元 评级“买入”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:23 - [伊朗最高国家安全委员会确认停火协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:06 - [招银国际：维持中生制药“买入”评级 降目标价至8.7港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:19 - [英国风电出力激增 缓解全球能源中断冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:24 - [印度英诺克斯空气产品公司拟10亿美元IPO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:15 - [特朗普称将在“两到三周”内结束伊朗战事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:16 - [红塔证券2025年报：自营收入占比超七成 “靠行情吃饭”特征明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:24 - [离岸人民币大涨，创三年来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:27 - [苏峪口瓷窑址：一窑青白瓷 见证西夏文明交融史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:18 - [刚刚，中东大消息！全线暴涨，超12万人爆仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:35 - [伊朗战争爆发后 各国央行大举抛售美国国债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)

@@ -1,61 +1,58 @@
-# 总书记的人民情怀｜“中国可以成功，其他发展中国家同样可以成功”
+# Mhmarkets迈汇:三大因素施压金价走弱
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-原标题：“中国可以成功，其他发展中国家同样可以成功”(总书记的人民情怀) 视频：总书记的人民情怀｜“中国可以成功，其他发展中国家同样可以成功”来源：人民日报 实现现代化是近代以来中国人民的不懈追求，也是世界各国人民的共同追求。 “中国可以成功，其他发展中国家同样可以成功。”“我们有坚定推进中国式现代化的决心，也有以高水平对外开放同世界共享发展机遇的胸怀，将以自身发展为全球经济增
+3月30日，地缘冲突升级本该提振黄金避险魅力，但本轮金价却逆势走弱，冲突爆发以来累计跌幅达到13%，市场逻辑发生明显转变。Mhmarkets迈汇长期跟踪贵金属市场动向，认为此次金价背离避险预期，并非单一因素导致，而是宏观压力、交易结构、央行需求三大力量共同作用的结果，短期利空集中释放，压制金价表现。 从核心驱动因素来看，美元走强叠加利率预期上调，是打压金价的首要原因。黄金本身不
 
 ## 正文
 
-原标题：“中国可以成功，其他发展中国家同样可以成功”(总书记的人民情怀) 视频：总书记的人民情怀｜“中国可以成功，其他发展中国家同样可以成功”来源：人民日报 实现现代化是近代以来中国人民的不懈追求，也是世界各国人民的共同追求。
+3月30日，地缘冲突升级本该提振黄金避险魅力，但本轮金价却逆势走弱，冲突爆发以来累计跌幅达到13%，市场逻辑发生明显转变。
 
-“中国可以成功，其他发展中国家同样可以成功。
+Mhmarkets迈汇长期跟踪贵金属市场动向，认为此次金价背离避险预期，并非单一因素导致，而是宏观压力、交易结构、央行需求三大力量共同作用的结果，短期利空集中释放，压制金价表现。
 
-”“我们有坚定推进中国式现代化的决心，也有以高水平对外开放同世界共享发展机遇的胸怀，将以自身发展为全球经济增长注入信心和动力。
+从核心驱动因素来看，美元走强叠加利率预期上调，是打压金价的首要原因。
 
-”习近平总书记提出的重要主张、作出的重要论述，植根于中国式现代化的成功实践，彰显了中国与各国在现代化征程上携手同行，共同推进世界现代化、推动构建人类命运共同体的胸怀担当。
+黄金本身不产生利息，美债收益率走高，会大幅提高持有黄金的机会成本，资金纷纷转向美元、美债等生息资产，黄金吸引力持续下降。
 
-中国式现代化是全体人民共同富裕的现代化。
+Mhmarkets迈汇分析，前期黄金和白银涨幅过大，市场处于超买状态，积累了大量获利盘，一旦情绪转向，获利盘集中出逃，进一步放大了金价回调幅度，历史上多次危机初期，黄金也出现过类似的短期急跌行情。
 
-在习近平总书记带领下，中国始终把实现人民对美好生活的向往作为现代化建设的出发点和落脚点，稳步推进共同富裕。
+除了宏观和技术面压力，央行购金节奏放缓，也让金价失去了一大支撑。
 
-“十五五”规划纲要坚持以人民为中心的发展思想，牢牢把握共同富裕的目标要求，围绕加大保障和改善民生力度、扎实推进全体人民共同富裕作出战略部署，为未来5年中国经济社会发展擘画蓝图，也为世界提供了一份“机遇清单”。
+多国调整黄金储备策略，波兰计划售金筹款，土耳其抛售黄金维稳汇率，海湾国家购金力度减弱，官方买盘降温，进一步加剧了金价弱势。
 
-提前实现联合国2030年可持续发展议程减贫目标，人均国内生产总值连续3年超过1.3万美元，建成全球规模最大的教育体系、社会保障体系、医疗卫生体系……中国式现代化坚持以人民为中心，不让一个人掉队，也为全球提供了生动示范。
+不过市场并未陷入长期悲观，短期利空因素更多是阶段性影响，并未动摇黄金的长期核心价值。
 
 ## 相关推荐
 
-- 2026-06-29 11:12 - [国务院常务会议解读｜国务院常务会议部署就业工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:21 - [浙商银行：不再设置监事会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:19 - [伊朗战事冲击能源市场 欧盟称航空燃油供应暂无虞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:21 - [黄金已成全球最大储备资产，4月多国央行恢复净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:25 - [美国WTI原油下跌3%，报道称特朗普不愿重启与伊朗的战争](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:16 - [黄金交易提醒：中东停火惊现转机！金价反弹近1%，伊朗和平曙光能否点燃新一轮牛市？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:17 - [黎以同意实施停火 前提是真主党停止攻击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:17 - [航发动力：2026年6月22日召开2026年第二次临时股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:08 - [消费维权该去哪里？除了12315，这些正规投诉渠道也很管用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:09 - [电投能源：公司煤炭销售主要面向电厂、供热公司等终端用户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:20 - [海内外侨胞走进重庆潼南 看好汽车后市场发展潜力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:14 - [美迪凯发生2笔大宗交易 合计成交1003.13万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:29 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:24 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:15 - [英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:13 - [房地产高薪退潮：“千万年薪”销声匿迹，郁亮去年薪水24万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:06 - [青农商行：吸收合并青岛即墨惠民村镇银行获股东会通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:15 - [珠江流域节水宣传活动丰富多彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:13 - [中央气象台：“超级单体”强对流将影响长江中下游地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:25 - [小摩：下调HASHKEY HLDGS评级至“中性” 目标价降至5港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:08 - [“做中国人，多么骄傲！”台湾青年自媒体人翟翾：大陆寻根后，心里更踏实了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:26 - [河北秦皇岛：人鸥共欢春日美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:27 - [多地联动“诵读经典·缅怀先贤”主题活动 与先贤跨时空对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:26 - [2025年经营性现金流净额8.16亿，美凯龙主营业务展现韧性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:14 - [600721，控制权拟变更，金华市国资委入主！大牛股净利润最高暴增8747.18%，存储涨价潮将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:06 - [东岳集团现涨逾9% 东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:33 - [押注苹果赚了1000亿美元但卖早了！巴菲特：当前美股不便宜，将重启慈善午餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [Point72据悉考虑从其他对冲基金付费获取交易情报](http://www.share.minike.top/Article/details/32791657.shtml)
-- 2026-06-29 11:26 - [中华企业：公司积极参与上海地产集团城市更新平台建设](http://www.blog.minike.top/Article/details/1013867.shtml)
-- 2026-06-29 11:18 - [河北首单至土耳其TIR多式联运专线发车](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:08 - [新疆喀什：360余万亩冬小麦喜迎丰收](http://www.blog.minike.top/Article/details/49977.shtml)
-- 2026-06-29 11:05 - [央行最新！加大“收水”力度！5000亿元，明日操作](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:01 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [中国人保原党委委员、副总裁于泽被“双开”](http://www.share.kurohicncr.top/Article/details/7193732634.shtml)
-- 2026-06-29 11:06 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](http://www.blog.kurohicncr.top/Article/details/12914719.shtml)
-- 2026-06-29 11:15 - [国家电网：168项迎峰度夏重点工程正加快建设](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:01 - [在中东事态发展喜忧参半之际，油价小幅走低](http://www.blog.kurohicncr.top/Article/details/99618.shtml)
-- 2026-06-29 11:11 - [中国法院去年审结环境资源一审案件22.9万件](http://www.blog.kurohicncr.top/Article/details/229424809376.shtml)
-- 2026-06-29 11:06 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](http://www.share.minike.top/Article/details/93062250495.shtml)
-- 2026-06-29 11:05 - [美国失业救济申请人数在假日周升至2月以来最高](http://www.share.minike.top/Article/details/52002661.shtml)
-- 2026-06-29 11:24 - [精耕细作，童书消费步入品质时代](http://www.share.kurohicncr.top/Article/details/88452.shtml)
+- 2026-06-29 11:17 - [极兔速递-W早盘上涨13% 全年经调整净利润同比增长112.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:31 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:14 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:11 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:23 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:15 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:16 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:16 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:31 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:20 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:07 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:20 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:09 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:13 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:19 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)

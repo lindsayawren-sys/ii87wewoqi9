@@ -1,60 +1,59 @@
-# 真主党拒绝美方斡旋达成的停火协议，以色列继续推进攻势
+# 2025银行年报观察室｜信用卡跌破7亿张：大行发卡量“踩刹车”，贷款余额集体负增长
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-黎巴嫩真主党领导人拒绝以色列与黎巴嫩政府在美国斡旋下达成的最新停火协议，与此同时，以色列仍在黎巴嫩南部与东部持续针对这支武装组织展开军事攻势。 以色列军队数十年来首次大规模深入黎巴嫩腹地之后，美以黎三方于周三发布联合声明，公布这份由美国居间促成的停火协定，协议并未约定以色列撤军时限。 真主党领导人纳伊姆・卡西姆周四发布书面声明称，真主党要求以色列从黎巴嫩全境全面撤军；只要黎方村
+来源：北京商报 曾作为零售业务核心抓手的信用卡业务，正迎来全面调整期。4月7日，北京商报记者梳理已披露2025年年报的A股上市银行数据发现，国有大行按下扩张“刹车键”，交通银行、邮储银行累计发卡量降幅超5%，工商银行、建设银行亦同步收缩。股份行呈现分化，招商银行流通卡量微增、中信银行等小幅增长，但信用卡贷款余额“降多升少”成主基调；部分银行信用卡资产质量整体承压，风险敞口有所扩
 
 ## 正文
 
-黎巴嫩真主党领导人拒绝以色列与黎巴嫩政府在美国斡旋下达成的最新停火协议，与此同时，以色列仍在黎巴嫩南部与东部持续针对这支武装组织展开军事攻势。
+来源：北京商报 曾作为零售业务核心抓手的信用卡业务，正迎来全面调整期。
 
-以色列军队数十年来首次大规模深入黎巴嫩腹地之后，美以黎三方于周三发布联合声明，公布这份由美国居间促成的停火协定，协议并未约定以色列撤军时限。
+4月7日，北京商报记者梳理已披露2025年年报的A股上市银行数据发现，国有大行按下扩张“刹车键”，交通银行、邮储银行累计发卡量降幅超5%，工商银行、建设银行亦同步收缩。
 
-真主党领导人纳伊姆・卡西姆周四发布书面声明称，真主党要求以色列从黎巴嫩全境全面撤军；只要黎方村镇持续遭遇轰炸损毁、平民不断遇难，真主党就不会终止针对以色列的打击行动。
+股份行呈现分化，招商银行流通卡量微增、中信银行等小幅增长，但信用卡贷款余额“降多升少”成主基调；部分银行信用卡资产质量整体承压，风险敞口有所扩大。
 
-“我们只谋求通过全面停火终止所有侵略、促成以军撤离。
+从中国人民银行公布的数据来看，截至2025年末，全国信用卡和借贷合一卡在用发卡量为6.96亿张，为2022年达到峰值后首次跌破7亿张，“退潮”背后是信用卡行业告别粗放增长、迈向精益发展的必然转型，随着信用卡从“规模竞争”转向“价值竞争”，行业将向场景、生态、服务的综合化方向转型。
 
-只要领土仍被占领，我们不会向任何一方承诺放弃抵抗。
+扩张按下“刹车键” 作为行业风向标，国有大行按下信用卡规模扩张的“刹车键”。
 
-” 卡西姆表示。
+尽管各行统计口径与披露标准不尽相同，但收缩趋势呈现一致。
 
-在炮火逼迫下要求真主党武装撤出黎巴嫩南部，等同于 “投降与溃败，帮敌人实现战略目的”。
+2025年交通银行以7.96%的同比降幅领跌，在册卡量从2024年末的6300.94万张降至5799.35万张，一年间减少超500万张；邮储银行同比下降5.41%，结存卡量3998.25万张降至3781.97万张。
 
-就在真主党官宣拒签协议之际，以色列持续空袭黎巴嫩南部，黎巴嫩地方当局通报空袭已造成至少 4 人丧生，一名联合国维和人员在交火中不幸殉难。
+工商银行、建设银行分别同比下降3.33%、2.33%，发卡量降至1.45亿张、1.26亿张；仅中国银行实现1.46%的小幅增长，累计发卡量增至1.5亿张。
 
 ## 相关推荐
 
-- 2026-06-29 11:00 - [港股互联网低位3连阴，中信建投：阶段性探底逐步完成，互联网与AI平台仍是港股第一主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:04 - [“走进泰国-泰国营商环境、优惠政策及投资机遇”投资推介会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:02 - [珠峰高海拔区域失联尼泊尔向导获救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:19 - [新风光：2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:10 - [小摩：香港4月零售温和放缓 重申领展房产基金九龙仓置业“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:22 - [易方达ETF超过华夏了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:20 - [中国电科面向空天地信息通信一体芯片从“实验室”走向“生产线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:13 - [上海石化：2026年6月26日召开2025年度股东周年会、2026年第一次A股股东会和2026年第一次H股股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:03 - [印尼盾汇率跌破18000心理关口 市场警惕央行干预](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:09 - [Point72据悉考虑从其他对冲基金付费获取交易情报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:01 - [中华企业：公司积极参与上海地产集团城市更新平台建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:26 - [河北首单至土耳其TIR多式联运专线发车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:22 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:24 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:10 - [软科技，硬实力！⎡华宝中证全指软件开发ETF⎦正式获批，即将发行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:28 - [京西国际于4月8日上午起停牌 待刊发内幕消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:07 - [3月 对华尔街来说 这是一个动荡的月份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:07 - [基石科技控股发布年度业绩 毛利3106.9万港元同比增长13.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:09 - [协鑫科技亏损幅度显著收窄 实现毛利13.36亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:28 - [江汉江淮等地将有较强降水和强对流天气 北方及西南地区仍有大风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:34 - [《人民日报》：“为什么这些APP都想借钱给我？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:25 - [以总理称支持美伊停火两周但停火不包括黎巴嫩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:29 - [浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:10 - [极兔速递-W早盘上涨13% 全年经调整净利润同比增长112.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:29 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:27 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:09 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [赖清德批小红书，是在怕什么？丨真相](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [连收罚单的华泰财险，还有这些问题要注意](http://www.blog.minike.top/Article/details/5205190.shtml)
-- 2026-06-29 11:00 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:06 - [建设国家公园带来了什么？记者和亲历者聊了聊](http://www.blog.minike.top/Article/details/30777139.shtml)
-- 2026-06-29 11:15 - [印尼驻华大使：相信万隆精神依然具有生命力](http://www.share.minike.top/Article/details/807763701438.shtml)
-- 2026-06-29 11:23 - [中青旅：公司持续关注近期股价破净情况](http://www.blog.minike.top/Article/details/122267.shtml)
-- 2026-06-29 11:02 - [日本央行据悉考虑6月升息 日元汇率随之走强](http://www.blog.minike.top/Article/details/381098470.shtml)
-- 2026-06-29 11:27 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](http://www.blog.kurohicncr.top/Article/details/24090956.shtml)
-- 2026-06-29 11:02 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:15 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [山东文化“春雨”乘旅游列车润泽天山南北](http://www.blog.minike.top/Article/details/691992399662.shtml)
-- 2026-06-29 11:03 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:01 - [伊朗称美失误致科威特机场受损 美方否认](http://www.share.kurohicncr.top/Article/details/28573311553.shtml)
-- 2026-06-29 11:06 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](http://www.blog.minike.top/Article/details/8893304.shtml)
-- 2026-06-29 11:28 - [光大期货：6月5日金融日报](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:23 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:22 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:20 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:26 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:25 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:09 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:12 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:26 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:28 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:21 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:18 - [布伦特原油在结算后交易中下跌 巴基斯坦敦促伊朗开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:10 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:28 - [匈牙利大选前美国副总统万斯访匈，力挺欧尔班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:10 - [湖南省政协文教卫体和文史委员会副主任夏智伦接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)

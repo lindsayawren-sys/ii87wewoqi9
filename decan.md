@@ -1,56 +1,59 @@
-# 印尼国会通过金融法案：扩大央行职能并强化国会监督
+# 金价下跌1000美元的主因是央行抛售，土耳其、俄罗斯……下一个可能是印度
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-印尼国会周四举行全体会议，正式通过了一项针对金融体系的重大立法修正案。该法案明确扩大了印尼央行（印尼银行）的法定职能，要求其在维持物价和汇率稳定的基础上，进一步加大对本国经济增长和就业创造的支持力度。同时，法案赋予了国会对印尼央行及独立金融监管机构进行绩效评估的权力。 印尼国会副议长苏夫米·达斯科·艾哈迈德主持了当日的全体会议。据他介绍，该法案在全体会议上获得了国会所有党派的一
+文章来源：金十数据 英国《金融时报》报道称，自伊朗战争爆发以来，土耳其已出售或借出价值200亿美元的黄金，这一连串的黄金抛售加剧了金价创下2008年以来最大单月跌幅。 根据咨询机构Metals Focus基于官方数据的分析，土耳其央行在2月27日至3月27日期间净卖出52吨黄金，使其央行净储备降至440吨，为两年多来的最低水平。据《金融时报》计算，在此期间，该行还安排了约79吨
 
 ## 正文
 
-印尼国会周四举行全体会议，正式通过了一项针对金融体系的重大立法修正案。
+文章来源：金十数据 英国《金融时报》报道称，自伊朗战争爆发以来，土耳其已出售或借出价值200亿美元的黄金，这一连串的黄金抛售加剧了金价创下2008年以来最大单月跌幅。
 
-该法案明确扩大了印尼央行（印尼银行）的法定职能，要求其在维持物价和汇率稳定的基础上，进一步加大对本国经济增长和就业创造的支持力度。
+根据咨询机构Metals Focus基于官方数据的分析，土耳其央行在2月27日至3月27日期间净卖出52吨黄金，使其央行净储备降至440吨，为两年多来的最低水平。
 
-同时，法案赋予了国会对印尼央行及独立金融监管机构进行绩效评估的权力。
+据《金融时报》计算，在此期间，该行还安排了约79吨的黄金掉期交易——将金条租出以赚取收益，并通过增加市场供应给金价带来下行压力——这些出售和掉期交易按当前价格计算总价值近200亿美元。
 
-印尼国会副议长苏夫米·达斯科·艾哈迈德主持了当日的全体会议。
+全球能源冲击以及中东战争的扩大化，已促使包括俄罗斯和波兰在内的越来越多国家考虑出售黄金以支撑本币或改善财政状况。
 
-据他介绍，该法案在全体会议上获得了国会所有党派的一致支持，以鼓掌通过的方式顺利获得通过。
+土耳其央行也是为支撑本币而抛售美国国债的全球央行之一。
 
-鉴于总统普拉博沃·苏比安托领导的执政联盟控制着国会八成以上的议席，外界普遍认为该法案的通过符合预期。
+分析师表示，各国央行此前是多头黄金大牛市的主要推动者，推动金价在今年1月创下每盎司5500美元以上的历史新高。
 
-普拉博沃此前曾多次强调，将在任期内全力实现8%的高经济增长目标。
+但近期它们行为的转变已拉低了金价。
 
-针对此次立法修订，印尼财政部长普尔巴亚·尤迪·萨德瓦在周三向国会财政委员会作证时指出，政府与国会达成共识，将扩大现有法律的适用范围。
+上个月金价下跌11.5%，创下18年来最糟糕的月度表现。
 
 ## 相关推荐
 
-- 2026-06-29 11:13 - [“中国傩戏·傩面具艺术展”在青海西宁开展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:00 - [美国5月新增非农就业17.2万远超预期 劳动力市场现回暖迹象但地缘风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:00 - [中新健康｜芒种养生，重在健脾化湿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:26 - [从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:27 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:20 - [赖清德批小红书，是在怕什么？丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:04 - [连收罚单的华泰财险，还有这些问题要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:24 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:26 - [建设国家公园带来了什么？记者和亲历者聊了聊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:00 - [印尼驻华大使：相信万隆精神依然具有生命力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:33 - [再现险资“举牌”！利安人寿拟溢价近10%受让中山公用5%股份，持股比例将升至8.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:30 - [港股芯片概念跳水，兆易创新大跌8%，“中年人的泡泡玛特”重挫49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:09 - [中国太保获Ping An Asset ManagementCo.,Ltd.增持719.56万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:18 - [鲍威尔：即使能源价格飙升，政策仍处于“良好位置”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:26 - [酒价内参4月3日价格发布 习酒君品上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:15 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:24 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:12 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:33 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:13 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:09 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:07 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:34 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:10 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [王宏岩中再产险副总经理的任职资格获监管核准](http://www.blog.minike.top/Article/details/1805276296.shtml)
-- 2026-06-29 11:02 - [中国男篮热身赛一分惜败塞尔维亚KK FMP俱乐部队](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:15 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](http://www.blog.kurohicncr.top/Article/details/006846.shtml)
-- 2026-06-29 11:06 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](http://www.share.kurohicncr.top/Article/details/137627929421.shtml)
-- 2026-06-29 11:17 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](http://www.share.kurohicncr.top/Article/details/93723862.shtml)
-- 2026-06-29 11:04 - [全国小麦收获有序推进 已近五成](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:16 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](http://www.share.kurohicncr.top/Article/details/587304302.shtml)
-- 2026-06-29 11:03 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](http://www.share.kurohicncr.top/Article/details/88782651402.shtml)
-- 2026-06-29 11:19 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:08 - [消息人士：印度拟取消外资投资国债资本利得税](http://www.share.kurohicncr.top/Article/details/71590338.shtml)
-- 2026-06-29 11:06 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](http://www.blog.minike.top/Article/details/657609583802.shtml)
-- 2026-06-29 11:04 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](http://www.blog.kurohicncr.top/Article/details/12923430.shtml)
-- 2026-06-29 11:19 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](http://www.blog.kurohicncr.top/Article/details/63183722824.shtml)
-- 2026-06-29 11:19 - [周锡玮：两岸要一起，把中国好的理念传播出去](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [酒价内参4月3日价格发布 飞天茅台小幅上涨1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:22 - [燃料价格飙升推高通胀之际 新西兰央行维持关键利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:26 - [酒价内参3月31日价格发布 青花汾20下调4元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:29 - [财务总监、首席执行官辞职！神州数码业绩发布：AI业务收入增长近5成，现金流“失血”猛跌近200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:27 - [SpaceX尚未上市，投资者已在热议该公司会否与特斯拉合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:14 - [B站宣布：明天零点起，将下线猜你喜欢算法，不再根据你的喜好来推荐主页内容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:18 - [伊朗战争进入第五周，黄金或将迎来2008年以来最差月度表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:34 - [股价最大跌幅近90%！两大IPO募投项目2025年亏损，拓新药业发布定增预案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:23 - [给乡愁办个“身份证” 黑龙江省额尔门沁村以版权激活民族文化遗产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:26 - [巴菲特：尽管有爱泼斯坦丑闻，他仍不后悔向盖茨基金会捐款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:32 - [中天策略:3月31日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:26 - [国际油价，大跌15%！特朗普说停火两周，伊朗接受了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:28 - [兴业证券2025年报：经纪、自营收入合计占比近六成 投行、资管业务疲软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:21 - [GLP-1口服药扩大肥胖治疗市场 吸引不愿接受注射治疗的患者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:24 - [特朗普称美国将在两三周内结束对伊战争 仍有可能与德黑兰达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)

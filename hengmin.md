@@ -1,56 +1,59 @@
-# 同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数
+# 他山之石，2025年野火之后加州房屋保险市场的崩塌与重构
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-一场筹划近两年的股权收购，最终以“定向减资、债权债务相抵”的方式画上句号。近日，同仁堂发布公告称，控股子公司同仁堂商业正式终止对红惠医药51%股权的收购，原定1.05亿元的交易对价通过抵销方式完成清算，未产生实际资金流出。 01净资产缩水、利润波动，收购终止的两大导火索 此次收购终止的直接原因，指向红惠医药的财务状况恶化。根据公告，股权交割专项审计显示，截至2024年10月31
+来源：13个精算师 2025年洛杉矶帕利塞德与伊顿野火，以近500亿美元总损失、超400亿美元保险赔付（赔付金额能进入全球巨灾前五），成为加州史上代价最高的野火灾害。 这场大火不仅烧毁了上万栋建筑、迫使18万人撤离，更将本已脆弱的加州房屋保险市场推向系统性崩溃边缘。 私人资本撤退、保费暴涨、兜底机制承压、房产交易受阻，一场由气候风险、监管约束与再保险成本共同引爆的危机，在202
 
 ## 正文
 
-一场筹划近两年的股权收购，最终以“定向减资、债权债务相抵”的方式画上句号。
+来源：13个精算师 2025年洛杉矶帕利塞德与伊顿野火，以近500亿美元总损失、超400亿美元保险赔付（赔付金额能进入全球巨灾前五），成为加州史上代价最高的野火灾害。
 
-近日，同仁堂发布公告称，控股子公司同仁堂商业正式终止对红惠医药51%股权的收购，原定1.05亿元的交易对价通过抵销方式完成清算，未产生实际资金流出。
+这场大火不仅烧毁了上万栋建筑、迫使18万人撤离，更将本已脆弱的加州房屋保险市场推向系统性崩溃边缘。
 
-01净资产缩水、利润波动，收购终止的两大导火索 此次收购终止的直接原因，指向红惠医药的财务状况恶化。
+私人资本撤退、保费暴涨、兜底机制承压、房产交易受阻，一场由气候风险、监管约束与再保险成本共同引爆的危机，在2025年野火后全面爆发。
 
-根据公告，股权交割专项审计显示，截至2024年10月31日，红惠医药合并净资产为1.52亿元，已低于2024年1月31日评估基准日经审计的净资产金额，触发了《股权转让协议》中的交割审计条款。
+1 市场崩塌： 巨头撤退，供给断崖式收缩 加州房屋保险的溃败，早在2025年野火前就已埋下伏笔。
 
-与此同时，红惠医药的业绩分析中也暴露出利润波动问题，令交易双方不得不重新审视这笔买卖。
+2023年起，State Farm、Allstate、Farmers等头部险企相继暂停新单；Costco超市合作险企（超市卖保险，我们能学么）、东京海上等中小主体陆续退出。
 
-值得注意的是，这并非双方第一次“踩刹车”。
+2025年野火后，赔付压力彻底击穿行业信心，收缩进一步加剧： 全州前12家主力公司中7家限制承保、取消或不续保近300万份保单，仅洛杉矶灾区就有数十万家庭失去保障。
 
-早在2025年4月4日，同仁堂就曾发布公告，宣布中止执行原协议并延期交割，彼时已支付的5231.86万元转为意向金，管理交接事宜待重新谈判。
+State Farm作为加州最大房屋险企，野火季处理近8700起索赔、赔付超10亿美元，随即申请22%紧急费率上调，并继续收紧高风险区域续保；Allstate、Travelers等则直接划定“禁保区”，将洛杉矶山区、圣莫尼卡山脊、太平洋帕利塞德等高档社区排除在承保范围外。
 
-四个月后，双方签署《执行约定》为退出铺路，最终通过定向减资方式实现分手。
+曾经普惠的房屋保险，在野火高风险区近乎“消失”，私人市场供给陷入停滞。
 
 ## 相关推荐
 
-- 2026-06-29 11:13 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:12 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:03 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:29 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:02 - [广东省口岸有关数据（2026年1-4月）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:00 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:26 - [中国人民银行定于2026年6月13日发行国家宝藏（融合交流）金银纪念币一套](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:07 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:24 - [债市“乌龙指”：30亿农发债协议取消与内控失守](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:29 - [18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:26 - [霸王茶姬2025年GMV达315.8亿，全年净收入达129.1亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:20 - [联合国人权高专：蓄意攻击民用基础设施属于战争罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:13 - [交银施罗德的灵魂人物谢卫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:20 - [国台办：民进党当局“跪美卖台” 牺牲台湾农业未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:09 - [六大行拟派发股息超两千亿元，中证银行今日高开高走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:23 - [DDR5价格，全球暴跌！竟是因为它？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:17 - [马达加斯加因能源供应危机宣布进入紧急状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:23 - [利好突袭！刚刚，暴涨900点！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:21 - [CFA三级考试通过率维持在50% 低于十年平均水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:25 - [央行：把做强国内大循环摆到更加突出的位置，统筹好总供给和总需求的关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:08 - [美国3年期国债中标收益率创去年6月以来最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:35 - [维护国际秩序稳定是各国应对挑战的急迫所需（国际论坛）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:28 - [海南封关看变化：三亚释产业投资机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [中央音乐学院举办“欧亚之声”中俄交响音乐会](http://www.blog.minike.top/Article/details/667164.shtml)
-- 2026-06-29 11:01 - [联合国报告：人工智能全球环境足迹加速扩张 能源与治理挑战愈发严峻](http://www.blog.minike.top/Article/details/66984760526.shtml)
-- 2026-06-29 11:18 - [年化3.36%的美元理财香不香？汇率升破6.8后，利差优势生变](http://www.share.minike.top/Article/details/018883414709.shtml)
-- 2026-06-29 11:29 - [佐力药业：公司无逾期对外担保](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [河南安阳滑县知联会开展“科技专家助企行”专项行动](http://www.share.kurohicncr.top/Article/details/16344753812.shtml)
-- 2026-06-29 11:07 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](http://www.blog.kurohicncr.top/Article/details/920434509.shtml)
-- 2026-06-29 11:13 - [高盛：到2030年四巨头AI支出将超日本GDP！A股光模块有望成最大赢家？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [2026中国环塔国际拉力赛：车队后勤是致胜关键](http://www.blog.kurohicncr.top/Article/details/075345542.shtml)
-- 2026-06-29 11:13 - [赴泰失联的4名中国公民即将回国 另有一男子意外获救](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:01 - [易票联支付被罚近4835万元：违反支付结算、金融科技、反洗钱管理有关规定](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:00 - [买新能源汽车之前，这几个坑一定要提前了解](http://www.share.minike.top/Article/details/463072802.shtml)
-- 2026-06-29 11:07 - [长江有色：美ADP创16个月新高美指上涨 4日镍价或下跌](http://www.share.kurohicncr.top/Article/details/086649.shtml)
-- 2026-06-29 11:13 - [康宁杰瑞制药-B：执行董事及管理层增持股份](http://www.blog.minike.top/Article/details/496012.shtml)
-- 2026-06-29 11:22 - [一周之内双重上岸：Minimax冲刺A+H的战略算盘](http://www.share.kurohicncr.top/Article/details/916744.shtml)
-- 2026-06-29 11:15 - [美上周初请失业金人数创2月初以来的最高水平](http://www.blog.minike.top/Article/details/8408263627.shtml)
+- 2026-06-29 11:22 - [甲骨文任命Hilary Maxson为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:11 - [交银国际：维持龙源电力目标价8.23港元 评级“买入”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:32 - [伊朗最高国家安全委员会确认停火协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:11 - [招银国际：维持中生制药“买入”评级 降目标价至8.7港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:21 - [英国风电出力激增 缓解全球能源中断冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:17 - [印度英诺克斯空气产品公司拟10亿美元IPO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:32 - [特朗普称将在“两到三周”内结束伊朗战事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:30 - [红塔证券2025年报：自营收入占比超七成 “靠行情吃饭”特征明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:35 - [离岸人民币大涨，创三年来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:19 - [苏峪口瓷窑址：一窑青白瓷 见证西夏文明交融史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:09 - [刚刚，中东大消息！全线暴涨，超12万人爆仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:11 - [伊朗战争爆发后 各国央行大举抛售美国国债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:15 - [Alphabet为Gemini增加心理健康功能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:13 - [浦发银行董事长张为忠：以长三角区域为箭头，拉开满弓，精准地射向目标市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:31 - [想投诉企业又怕麻烦？这几个渠道方便又管用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)

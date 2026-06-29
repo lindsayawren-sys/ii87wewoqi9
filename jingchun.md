@@ -1,58 +1,57 @@
-# 印度1—3月经济同比增速达7.8%，表现超市场预期
+# 俞浩慈善基金会“灯塔课堂”落地成都，构建产学研协同育人新路径
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-核心要点 受中东地缘冲突扰动供应链影响，印度一季度经济仍实现亮眼表现：1—3 月国内生产总值同比上涨 7.8%，增速超出市场预期。 路透社此前经济学家调查显示，市场普遍预测该季度增速为 7.2%，同时低于上一季度增速 7.8%。 本季度前半段，印度外贸迎来重大利好：印度与欧盟敲定里程碑式大型自贸协定；美国同步将印度商品进口关税由 50% 下调至 18%。后续美国最高法院裁定特朗
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！3月31日，由俞浩慈善基金会发起的‘灯塔计划’第三期“灯塔课堂”在四川省成都市天府第七中学开讲。时值中国航天事业蓬勃发展之年，基金会以“去到最远的地方”为主题，邀请清华大学航天航空学院助理教授、博导程彬，与追觅INNIX视听技术讲师阚紫婷，为学生打造贯通“学术前沿”与“产业一线”的航天主题课堂。 作为聚焦高
 
 ## 正文
 
-核心要点 受中东地缘冲突扰动供应链影响，印度一季度经济仍实现亮眼表现：1—3 月国内生产总值同比上涨 7.8%，增速超出市场预期。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-路透社此前经济学家调查显示，市场普遍预测该季度增速为 7.2%，同时低于上一季度增速 7.8%。
+3月31日，由俞浩慈善基金会发起的‘灯塔计划’第三期“灯塔课堂”在四川省成都市天府第七中学开讲。
 
-本季度前半段，印度外贸迎来重大利好：印度与欧盟敲定里程碑式大型自贸协定；美国同步将印度商品进口关税由 50% 下调至 18%。
+时值中国航天事业蓬勃发展之年，基金会以“去到最远的地方”为主题，邀请清华大学航天航空学院助理教授、博导程彬，与追觅INNIX视听技术讲师阚紫婷，为学生打造贯通“学术前沿”与“产业一线”的航天主题课堂。
 
-后续美国最高法院裁定特朗普时期征收关税违法，相关税率进一步降至 10%，显著利好印度出口。
+作为聚焦高中阶段创新人才培育的公益项目，“灯塔课堂”侧重拓展学生视野与思维建设，以互动式公益课堂的形式，邀请来自科学教育、人文社科等领域的专家学者走进校园。
 
-但 2 月末伊朗战事爆发，此后持续冲击印度经济，市场担忧冲突拖累经济、抬升通胀水平。
+该项目旨在通过一堂课，为学生照亮一个更开阔的未来，进而持续探索社会力量参与基础教育阶段创新人才培育的有效路径。
 
-印度央行周五宣布：将 2027 年 3 月结束财年的通胀预期上调 50 个基点至 5.1%，同时下调全年经济增速预期，从此前 6.9% 修正至 6.6%。
+01 产学研协同育人，共筑航天梦想 在课堂分享中，清华大学航天航空学院助理教授程彬以《当小行星来袭，我们如何挺身而出》为主题，向学生们系统介绍了小行星撞击风险与行星防御前沿进展。
 
-地缘冲突造成全球能源供应紊乱，大幅抬高印度原油进口成本，本就遭遇外资创纪录外流冲击的印度卢比再度承压。
+程彬从“2032年小行星撞击风险”事件切入，回顾了从恐龙灭绝到车里雅宾斯克陨石空爆等典型案例，帮助学生建立对小行星威胁的具象认知。
 
-此前印度政府暂缓上调国内成品油售价数月，5 月开始落地国际油价上涨带来的调价，全球燃油涨价成本向下游终端传导，这个全球主要经济体将直面通胀上行压力。
+此外，他还重点介绍了国家行星防御计划，激发学生对航天科学的探索热情与使命感。
 
 ## 相关推荐
 
-- 2026-06-29 11:09 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:08 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:29 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:00 - [全国小麦收获有序推进 已近五成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:06 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:28 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:24 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:07 - [消息人士：印度拟取消外资投资国债资本利得税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:04 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:23 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:15 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:03 - [周锡玮：两岸要一起，把中国好的理念传播出去](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:36 - [财务总监、首席执行官辞职！神州数码业绩发布：AI业务收入增长近5成，现金流“失血”猛跌近200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:10 - [SpaceX尚未上市，投资者已在热议该公司会否与特斯拉合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:13 - [B站宣布：明天零点起，将下线猜你喜欢算法，不再根据你的喜好来推荐主页内容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:26 - [伊朗战争进入第五周，黄金或将迎来2008年以来最差月度表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:23 - [股价最大跌幅近90%！两大IPO募投项目2025年亏损，拓新药业发布定增预案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:27 - [给乡愁办个“身份证” 黑龙江省额尔门沁村以版权激活民族文化遗产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:09 - [巴菲特：尽管有爱泼斯坦丑闻，他仍不后悔向盖茨基金会捐款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:11 - [中天策略:3月31日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:21 - [国际油价，大跌15%！特朗普说停火两周，伊朗接受了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:17 - [兴业证券2025年报：经纪、自营收入合计占比近六成 投行、资管业务疲软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:23 - [GLP-1口服药扩大肥胖治疗市场 吸引不愿接受注射治疗的患者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [湖南省人大常委会原党组成员、副主任叶红专被开除党籍](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [再升科技：公司获得航空航天质量管理体系AS 9100D认证](http://www.share.minike.top/Article/details/5982537483.shtml)
-- 2026-06-29 11:24 - [英伟达首席执行官：三大存储芯片生产商均有资格供应HBM4芯片](http://www.blog.minike.top/Article/details/1083988.shtml)
-- 2026-06-29 11:18 - [泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:01 - [广西西江生态环境质量指数提升显著 保障大湾区优质供水](http://www.share.minike.top/Article/details/08978.shtml)
-- 2026-06-29 11:03 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](http://www.blog.minike.top/Article/details/59689682128.shtml)
-- 2026-06-29 11:27 - [外交部介绍习近平总书记访问朝鲜有关安排](http://www.blog.kurohicncr.top/Article/details/42376684.shtml)
-- 2026-06-29 11:14 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:05 - [英国首相斯塔默批马斯克插手英内政](http://www.share.kurohicncr.top/Article/details/2624876.shtml)
-- 2026-06-29 11:14 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](http://www.share.kurohicncr.top/Article/details/9589193.shtml)
-- 2026-06-29 11:02 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](http://www.share.minike.top/Article/details/23514703352.shtml)
-- 2026-06-29 11:19 - [Meta最新AI模型一拖再拖，开发者耐心渐失](http://www.blog.kurohicncr.top/Article/details/79567910270.shtml)
-- 2026-06-29 11:25 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [新大众文艺：人民文艺的时代强音](http://www.blog.kurohicncr.top/Article/details/59424.shtml)
-- 2026-06-29 11:05 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](http://www.share.minike.top/Article/details/929945530.shtml)
+- 2026-06-29 11:25 - [广深铁路：董事会审议通过《2025年度财务报告》等多项议案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:19 - [34年来最强增长！日本薪资数据超预期，4月加息不是梦？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:09 - [康耐特光学公布拟回购公司股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:08 - [铝系上演“冰火两重天”：地缘战火重塑电解铝溢价，氧化铝难敌过剩引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:29 - [广电总局：电视剧创作要避免“颜值至上”“流量依赖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:31 - [酒价内参4月8日价格发布 终端总价创近8天新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:20 - [药捷安康-B建议采纳H股股份奖励计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:35 - [浦发银行行长谢伟谈浦发贷款投放经验：赛道业务是主要增长极](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:27 - [特朗普称若无协议“立即”重开霍尔木兹海峡，美国将摧毁伊朗油井及哈格岛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:14 - [美国允许与卢克石油国际出售相关的部分交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:24 - [国安达：控股股东洪伟艺解除质押56.00万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:25 - [伊朗说同意谈判但对美国“完全不信任”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:33 - [特朗普施压加码，最后期限逼近，美伊谈判难在哪？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:32 - [高盛：调查显示信贷市场看空情绪创纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:07 - [百胜中国于4月6日斥资300万美元回购6.16万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)

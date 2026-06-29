@@ -1,60 +1,58 @@
-# 全国首张“无目的地海上游”出入境通行证在沪签发
+# 蚂蚁收购耀才证券50.55%股权完成交割，新董事会成员亮相
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-中新网上海6月5日电(李姝徵 狄权)全国首张“无目的地海上游”出入境通行证5日在沪签发。这也标志着备受瞩目的“爱达·魔都号”周末海上游航线进入发船倒计时，届时民众可“无需签证免请假、周末登轮即度假”。 5日上午，在上海市公安局出入境管理总队民生路出入境接待大厅，叶先生接过刚刚申领到的首张“无目的地海上游”出入境通行证。“明天中午登船，然后我们将在邮轮上度过两个夜晚，下周一回到上
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！界面新闻记者 | 邹文榕 3月30日晚间，蚂蚁收购耀才证券如期完成股权交割。 耀才证券金融（1428.HK）公告，蚂蚁财富以28.14亿港元成功收购公司50.55%的股权。此前，所有必要的监管审批及交割先决条件均已满足。 公告同时披露了蚂蚁主导下的新一界董事会成员——郑艳兰获委任为执行董事；黄浩、刘政及林致
 
 ## 正文
 
-中新网上海6月5日电(李姝徵 狄权)全国首张“无目的地海上游”出入境通行证5日在沪签发。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这也标志着备受瞩目的“爱达·魔都号”周末海上游航线进入发船倒计时，届时民众可“无需签证免请假、周末登轮即度假”。
+界面新闻记者 | 邹文榕 3月30日晚间，蚂蚁收购耀才证券如期完成股权交割。
 
-5日上午，在上海市公安局出入境管理总队民生路出入境接待大厅，叶先生接过刚刚申领到的首张“无目的地海上游”出入境通行证。
+耀才证券金融（1428.HK）公告，蚂蚁财富以28.14亿港元成功收购公司50.55%的股权。
 
-“明天中午登船，然后我们将在邮轮上度过两个夜晚，下周一回到上海，也不影响后续工作。
+此前，所有必要的监管审批及交割先决条件均已满足。
 
-”叶先生在接受中新网记者采访时表示，对于忙碌的职场人士而言，这种新颖的周末度假方式既灵活又方便，让他非常期待。
+公告同时披露了蚂蚁主导下的新一界董事会成员——郑艳兰获委任为执行董事；黄浩、刘政及林致求三人获委任为非执行董事；林怡仲、蒋国荣、洪长福及张黔获四人委任为独立非执行董事。
 
-“无目的地海上游”出入境通行证，看似简单的一张“纸”，实则凝聚了国家移民管理部门的制度创新。
+公开资料显示，耀才证券在1995年由叶茂林一手创办，公司于2010年在香港联交所主板上市，并拥有香港证监会旗下1、2、4、5、6、9号全业务牌照，核心业务包括证券经纪、孖展融资、商品及期货经纪以及现货金融交易，是全香港唯一首创提供实时买卖张数及价格的交易商。
 
-鉴于无目的地海上游“不靠岸、公海往返”的特殊属性，经国家移民管理局批准同意，上海公安出入境管理部门在全国率先推出助力邮轮游出入境办证便民新政：游客除使用普通护照外，可凭身份证申办专用的出入境通行证。
+2025年4月，蚂蚁集团全资子公司上海云进信息技术有限公司宣布，以每股3.28港元的价格，收购耀才证券金融创始人叶茂林持有的50.55%股份，总对价约28.14亿港元。
 
-“作为一次出入境有效的单纸出入境证件，出入境通行证会特别加注‘无目的地海上游’。
+2026年3月16日，耀才证券公告表示，蚂蚁集团发起的要约收购已通过有关部门审批，预计将于3月30日完成交割。
 
 ## 相关推荐
 
-- 2026-06-29 11:07 - [欧洲股市反弹 医疗保健板块领涨 渣打和汇丰等英国银行股下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:19 - [401(k)困难取款较2020年增长两倍，凸显美国家庭财务压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:06 - [渤海银行：凌颖杰董事的任职资格已获核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:17 - [邮储银行：将于8月19日派发末期股息每10股0.953元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:12 - [湖南省人大常委会原党组成员、副主任叶红专被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:04 - [再升科技：公司获得航空航天质量管理体系AS 9100D认证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:09 - [英伟达首席执行官：三大存储芯片生产商均有资格供应HBM4芯片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:15 - [泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:01 - [广西西江生态环境质量指数提升显著 保障大湾区优质供水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:23 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:13 - [外交部介绍习近平总书记访问朝鲜有关安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:20 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:19 - [英国首相斯塔默批马斯克插手英内政](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:07 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:22 - [2026，股票开户选择哪个APP？新浪财经APP成为投资者最优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:19 - [京西国际于4月8日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:17 - [现货黄金涨1.3%，报4709.73美元/盎司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:12 - [东岳集团：东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:19 - [广深铁路：董事会审议通过《2025年度财务报告》等多项议案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:31 - [34年来最强增长！日本薪资数据超预期，4月加息不是梦？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:25 - [康耐特光学公布拟回购公司股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:33 - [铝系上演“冰火两重天”：地缘战火重塑电解铝溢价，氧化铝难敌过剩引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:23 - [广电总局：电视剧创作要避免“颜值至上”“流量依赖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:29 - [酒价内参4月8日价格发布 终端总价创近8天新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:20 - [药捷安康-B建议采纳H股股份奖励计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:35 - [浦发银行行长谢伟谈浦发贷款投放经验：赛道业务是主要增长极](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:16 - [中银国际：兖矿能源收购母公司电力资产并非特别吸引](http://www.blog.minike.top/Article/details/2855411342.shtml)
-- 2026-06-29 11:02 - [美光科技、英特尔、戴尔科技年内飙涨超200%，美股科技“七骑士”全线跑赢英伟达](http://www.blog.minike.top/Article/details/418928225858.shtml)
-- 2026-06-29 11:23 - [西陇科学：公司及控股子公司均不存在逾期担保情况](http://www.blog.minike.top/Article/details/1777407.shtml)
-- 2026-06-29 11:09 - [铁路端午假期运输首日火车票今日起售](http://www.share.minike.top/Article/details/9446546243.shtml)
-- 2026-06-29 11:26 - [沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [老挝人革党中央总书记、国家主席通伦抵京 天安门前挂起中老两国国旗、党旗](http://www.blog.minike.top/Article/details/739856449.shtml)
-- 2026-06-29 11:02 - [威龙股份首季业绩承压，亏损幅度有所扩大](http://www.blog.kurohicncr.top/Article/details/3639065391.shtml)
-- 2026-06-29 11:25 - [股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？](http://www.share.minike.top/Article/details/6629596.shtml)
-- 2026-06-29 11:23 - [CBCX:金价回稳关注利率线索](http://www.blog.kurohicncr.top/Article/details/52823151090.shtml)
-- 2026-06-29 11:11 - [同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数](http://www.share.kurohicncr.top/Article/details/31240043.shtml)
-- 2026-06-29 11:25 - [Roots宣布将于6月12日召开2026财年第一季度业绩电话会](http://www.share.kurohicncr.top/Article/details/08656165.shtml)
-- 2026-06-29 11:22 - [欧元兑日元逼近收敛上沿，等待方向选择](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](http://www.share.minike.top/Article/details/786817384110.shtml)
-- 2026-06-29 11:22 - [中国抹茶刮“绿色旋风” 内销出口两旺](http://www.share.kurohicncr.top/Article/details/1161386.shtml)
-- 2026-06-29 11:23 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](http://www.blog.minike.top/Article/details/942691970.shtml)
+- 2026-06-29 11:22 - [韩国推出173亿美元刺激计划，油价飙升施压经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:09 - [中俄对涉霍尔木兹海峡决议草案投反对票 伊朗代表：俄中阻止了滥用安理会的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:09 - [上海市金融学会召开普惠金融专业委员会第一次会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:28 - [信披违法违规，*ST星农及责任人被罚690万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:10 - [阳光电源：董事会审议通过《关于公司<2025年度总裁工作报告>的议案》等多项议案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:13 - [美欧因伊朗战争愈加离心 北约联盟裂痕加深](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:33 - [受中东冲突影响，越南Vingroup拟放弃建设液化天然气发电厂计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:29 - [F-150皮卡受关税重创，福特请求特朗普政府援手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:27 - [上海985，批量生产千亿IPO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:14 - [他山之石，2025年野火之后加州房屋保险市场的崩塌与重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:32 - [海河乳品发布致歉声明：终止与涉事经销商的直播合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:34 - [卡塔尔能源在美国投产液化天然气 拉什工业区遭袭影响持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:22 - [全国社会保障基金理事会副理事长王文灵被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:27 - [天孚通信：2025年净利同比增长50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:21 - [从替代到重构，中兴新支点操作系统发布水电信创方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)

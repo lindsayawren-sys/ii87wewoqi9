@@ -1,60 +1,60 @@
-# 海关远程视频核查改革落地山西
+# 智驾上路 保险如何“跟跑”？
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-中新网太原6月5日电 (杨静 谭国军)记者5日从太原海关获悉，太原海关所属晋阳海关运用远程视频核查模式，完成对山西三晋碳素股份有限公司的核查工作，标志着该项海关智慧监管便利化举措在山西首次落地应用，惠及本地广大外贸企业。开展企业核查是海关规范进出口秩序、保障外贸合规发展的一项重要工作。为持续深化“放管服”改革、优化口岸营商环境，晋阳海关落实海关总署远程视频核查改革要求，依托数字
+来源：广州日报 市场期待已久的智驾车专属商业险，终于进入落地倒计时。 近日，在2026中关村论坛年会“重大成果专场新闻发布会”上，国家金融监督管理总局北京监管局正式宣布，启动智能网联新能源汽车商业保险的开发应用。这标志着我国首个适配L2至L4全级别的智驾车专属商业险正式推出，智能驾驶的风险保障从车企“自说自话”的灰色地带，迈向监管主导的规范化新阶段。 身处率先落地城市——北京的
 
 ## 正文
 
-中新网太原6月5日电 (杨静 谭国军)记者5日从太原海关获悉，太原海关所属晋阳海关运用远程视频核查模式，完成对山西三晋碳素股份有限公司的核查工作，标志着该项海关智慧监管便利化举措在山西首次落地应用，惠及本地广大外贸企业。
+来源：广州日报 市场期待已久的智驾车专属商业险，终于进入落地倒计时。
 
-开展企业核查是海关规范进出口秩序、保障外贸合规发展的一项重要工作。
+近日，在2026中关村论坛年会“重大成果专场新闻发布会”上，国家金融监督管理总局北京监管局正式宣布，启动智能网联新能源汽车商业保险的开发应用。
 
-为持续深化“放管服”改革、优化口岸营商环境，晋阳海关落实海关总署远程视频核查改革要求，依托数字化监管手段，打破传统实地核查的时空限制。
+这标志着我国首个适配L2至L4全级别的智驾车专属商业险正式推出，智能驾驶的风险保障从车企“自说自话”的灰色地带，迈向监管主导的规范化新阶段。
 
-核查过程中，海关关员借助远程视频技术连线，实时查看企业生产经营和货物情况，线上核对账簿记录等资料，实时开展问询核验，全流程规范高效。
+身处率先落地城市——北京的不少智能车车主，对此既期待，又掺杂着几分疑虑。
 
-“远程视频核查实施时间灵活，简化了迎检流程，节约了企业的时间和人力物力成本，让我们能集中精力抓生产、拓外贸。
+“不是不相信技术，而是不确定真出了事，即将推出的‘智驾险’能否帮车主‘兜得住’。
 
-”上述企业关务负责人程煜说。
+”去年10月购入一辆智能新能源车的车主张建的这句话，道出许多车主的心态。
 
-海关工作人员介绍，相比传统现场核查，远程视频核查优势突出。
+此次智驾车专属商业险又能否迎来制度性的破局？
 
-新模式下单次平均核查时长由以前的一天压缩到2小时内，行政执法成本降低80%以上。
+现有保险难以理清理赔清晰界定 随着“十五五”规划纲要提出扎实推进智能驾驶等关键技术创新，L2级辅助驾驶已成新车主流，L3级有条件自动驾驶在北京首批试点上路，L4级高度自动驾驶也正从测试场驶向真实道路。
 
 ## 相关推荐
 
-- 2026-06-29 11:06 - [浙商银行：不再设置监事会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:12 - [伊朗战事冲击能源市场 欧盟称航空燃油供应暂无虞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:21 - [黄金已成全球最大储备资产，4月多国央行恢复净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:17 - [美国WTI原油下跌3%，报道称特朗普不愿重启与伊朗的战争](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:26 - [黄金交易提醒：中东停火惊现转机！金价反弹近1%，伊朗和平曙光能否点燃新一轮牛市？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:25 - [黎以同意实施停火 前提是真主党停止攻击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:01 - [航发动力：2026年6月22日召开2026年第二次临时股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:09 - [消费维权该去哪里？除了12315，这些正规投诉渠道也很管用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:06 - [电投能源：公司煤炭销售主要面向电厂、供热公司等终端用户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:02 - [海内外侨胞走进重庆潼南 看好汽车后市场发展潜力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:06 - [美迪凯发生2笔大宗交易 合计成交1003.13万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:29 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:29 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:06 - [英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:11 - [青农商行：吸收合并青岛即墨惠民村镇银行获股东会通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:28 - [珠江流域节水宣传活动丰富多彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:25 - [中央气象台：“超级单体”强对流将影响长江中下游地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:25 - [小摩：下调HASHKEY HLDGS评级至“中性” 目标价降至5港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:23 - [“做中国人，多么骄傲！”台湾青年自媒体人翟翾：大陆寻根后，心里更踏实了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:26 - [河北秦皇岛：人鸥共欢春日美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:35 - [多地联动“诵读经典·缅怀先贤”主题活动 与先贤跨时空对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:23 - [2025年经营性现金流净额8.16亿，美凯龙主营业务展现韧性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:25 - [600721，控制权拟变更，金华市国资委入主！大牛股净利润最高暴增8747.18%，存储涨价潮将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:07 - [东岳集团现涨逾9% 东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:35 - [押注苹果赚了1000亿美元但卖早了！巴菲特：当前美股不便宜，将重启慈善午餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:21 - [美伊冲突致全球股市震荡，国际油价飙升60%，标普预警：长期原油供给冲击或引发全球衰退](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:06 - [高管挪用公司超千亿资金？绿城中国被合作方实名举报，公司紧急报警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:28 - [借力智能存储业务东风，绿联科技营收飙升53.83%，却遭股东高管接连减持近十亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:16 - [中华企业：公司积极参与上海地产集团城市更新平台建设](http://www.blog.minike.top/Article/details/644478261228.shtml)
-- 2026-06-29 11:20 - [河北首单至土耳其TIR多式联运专线发车](http://www.blog.minike.top/Article/details/20855.shtml)
-- 2026-06-29 11:25 - [中国民主促进会福州市第九次代表大会在福州召开](http://www.blog.kurohicncr.top/Article/details/58134.shtml)
-- 2026-06-29 11:17 - [新疆喀什：360余万亩冬小麦喜迎丰收](http://www.blog.minike.top/Article/details/17685.shtml)
-- 2026-06-29 11:17 - [央行最新！加大“收水”力度！5000亿元，明日操作](http://www.share.minike.top/Article/details/386159477.shtml)
-- 2026-06-29 11:27 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](http://www.blog.minike.top/Article/details/017729824790.shtml)
-- 2026-06-29 11:25 - [中国人保原党委委员、副总裁于泽被“双开”](http://www.share.kurohicncr.top/Article/details/128742821.shtml)
-- 2026-06-29 11:26 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](http://www.blog.minike.top/Article/details/647331340324.shtml)
-- 2026-06-29 11:24 - [国家电网：168项迎峰度夏重点工程正加快建设](http://www.share.kurohicncr.top/Article/details/2986651094.shtml)
-- 2026-06-29 11:03 - [在中东事态发展喜忧参半之际，油价小幅走低](http://www.blog.minike.top/Article/details/92336.shtml)
-- 2026-06-29 11:17 - [中国法院去年审结环境资源一审案件22.9万件](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](http://www.share.kurohicncr.top/Article/details/1236443.shtml)
-- 2026-06-29 11:23 - [美国失业救济申请人数在假日周升至2月以来最高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:13 - [精耕细作，童书消费步入品质时代](http://www.share.minike.top/Article/details/63006021.shtml)
-- 2026-06-29 11:15 - [ST星农大宗交易成交203.00万元](http://www.blog.kurohicncr.top/Article/details/33060506.shtml)
+- 2026-06-29 11:32 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:28 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:12 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:28 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:09 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:09 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:20 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:10 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:25 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:31 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:18 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:17 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:31 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:28 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:12 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)

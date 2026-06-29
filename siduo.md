@@ -1,60 +1,59 @@
-# 大摩：中兴通讯升至“增持”评级 目标价上调至39港元
+# 特朗普施压加码，最后期限逼近，美伊谈判难在哪？
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-大摩发布研报称，将中兴通讯（00763）H股评级升“与大市同步”升至“增持”，H股目标价由31.5港元升至39港元，主要基于潜在正面AI催化剂以及盈利增长的拐点。中兴（000063.SZ）A股评级由“减持”升至“与大市同步”，A股目标价由29.44元人民币升至34.3元人民币。 报告指，在边缘设备端，公司围绕“豆包”AI助理的合作，将智能体、多模态及系统级AI能力整合到智能手机
+中新网4月7日电(冯小妍)随着美国总统特朗普设定的最后期限逼近，美伊对峙与谈判同步走向关键节点。 “伊朗可能一夜之间被消灭。”特朗普近日的强硬表态，再次将紧张局势推向高点。他口中的“一夜之间”，正是要求伊朗重新开放霍尔木兹海峡的截止节点——美国东部时间4月7日20时。 在威胁与谈判并行的复杂态势下，核心问题愈发凸显：美伊之间在谈判桌上的关键分歧究竟是什么？双方是否仍有可能在最后
 
 ## 正文
 
-大摩发布研报称，将中兴通讯（00763）H股评级升“与大市同步”升至“增持”，H股目标价由31.5港元升至39港元，主要基于潜在正面AI催化剂以及盈利增长的拐点。
+中新网4月7日电(冯小妍)随着美国总统特朗普设定的最后期限逼近，美伊对峙与谈判同步走向关键节点。
 
-中兴（000063.SZ）A股评级由“减持”升至“与大市同步”，A股目标价由29.44元人民币升至34.3元人民币。
+“伊朗可能一夜之间被消灭。
 
-报告指，在边缘设备端，公司围绕“豆包”AI助理的合作，将智能体、多模态及系统级AI能力整合到智能手机中，早期需求指标如首批产品售罄显示市场兴趣强烈。
+”特朗普近日的强硬表态，再次将紧张局势推向高点。
 
-该行预计中兴将深化此项合作，有望为AI手机的更广泛商业化铺路，这可能成为情绪及估值的重要催化剂。
+他口中的“一夜之间”，正是要求伊朗重新开放霍尔木兹海峡的截止节点——美国东部时间4月7日20时。
 
-该行认为，中兴的短期盈利风险已大致被市场消化，预计2026年下半年重返正增长。
+在威胁与谈判并行的复杂态势下，核心问题愈发凸显：美伊之间在谈判桌上的关键分歧究竟是什么？
 
-由于毛利率承压、营运费用增加、汇兑损失及减值拨备上升，短期盈利在2026年第一季疲弱后仍将受压。
+双方是否仍有可能在最后时刻达成某种妥协？
 
-然而，市场似乎已大致消化这一影响，预期已反映至2026年第二季的弱势。
+谈判目前进展如何？
 
-该行认为关键拐点将出现在2026年下半年，届时低基数效应将支持盈利重返正增长。
+伊朗伊斯兰共和国通讯社6日报道称，伊朗已就美国提出的结束战争提议向巴基斯坦作出回应。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [外媒：以色列和黎巴嫩同意停火 但有前提](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:05 - [初夏“睡眠紊乱”高发，如何找回状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:01 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:08 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:04 - [凯赛生物：2026年6月25日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:23 - [美国称将调整其对北约部队的贡献](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:29 - [吃喝板块单边下行，华宝基金食品饮料ETF（515710）收跌1.59%！机构：底部愈发清晰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:07 - [央行7天期逆回购连续两日零操作 资金面仍显宽松](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:06 - [龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:06 - [Toro上调2026财年展望：AMP计划驱动利润率，预计销售增长4%-6.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:14 - [冠豪高新：公司始终密切关注行业前沿技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:18 - [香港最大商业AI应用展览启幕 近100家供应商展示最新AI解决方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:27 - [学生票大升级！这些出行便利已成固定政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:15 - [300726！突发低位“20cm”涨停，A股登上《新闻联播》！一个牛市新信号来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:18 - [贵金属上涨 受美元走软和美债收益率下降提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:06 - [法国通胀升至2024年8月以来最高水平 加大欧洲央行升息压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:33 - [海尔们想做“钢铁侠”，追觅们想做“扫地僧”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:29 - [财经早报：特朗普宣布同意停火两周，美国原油期货暴跌近20%丨2026年4月8日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:15 - [2026年清明节假期国内出游1.35亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:30 - [TCL电子午前涨超3% 全年纯利达25.12亿港元同比增超56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:34 - [富国基金：2025年因公司治理等“五宗罪”被责令改正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:23 - [03月31日丙二醇10333.33元/吨 5天上涨11.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:33 - [耐克第三财季业绩前瞻：华尔街准备迎接耐克多年来最疲软的季度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:26 - [习近平给四所交通大学全体师生回信强调 传承弘扬西迁精神聚焦国家重大战略需求 为建设教育强国科技强国人才强国作出新贡献](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:24 - [WTI原油首次收于100美元上方 布油将创历史最大单月涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:35 - [四招稳住“存款搬家”压力，招行2025年业绩重回正增长轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:32 - [鲍威尔：美联储将“观望”后再采取利率行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:11 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](http://www.blog.kurohicncr.top/Article/details/67039.shtml)
-- 2026-06-29 11:14 - [债市“乌龙指”：30亿农发债协议取消与内控失守](http://www.share.kurohicncr.top/Article/details/709429782841.shtml)
-- 2026-06-29 11:09 - [18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞](http://www.blog.minike.top/Article/details/880715.shtml)
-- 2026-06-29 11:06 - [要做难而正确的事 理想汽车李想邀您关注统战新语](http://www.blog.kurohicncr.top/Article/details/0404981.shtml)
-- 2026-06-29 11:06 - [600年白沙壁画景区焕新开放 数字技术让白沙壁画“活起来”](http://www.blog.kurohicncr.top/Article/details/79830923686.shtml)
-- 2026-06-29 11:30 - [揭开网上彩票店“吃票”黑幕：投注5万元却未收到一张彩票](http://www.share.minike.top/Article/details/48444.shtml)
-- 2026-06-29 11:03 - [中材节能：2026年6月22日召开2026年第二次临时股东会](http://www.share.minike.top/Article/details/41572.shtml)
-- 2026-06-29 11:25 - [“推进中国式现代化，要把水资源问题考虑进去”（总书记的人民情怀）](http://www.blog.minike.top/Article/details/812136378520.shtml)
-- 2026-06-29 11:15 - [中国自主设计建造的新一代深水专业铺管船完成龙骨安放](http://www.blog.minike.top/Article/details/96464975048.shtml)
-- 2026-06-29 11:17 - [2026世界女排联赛（南京站）：中国队战胜泰国队](http://www.blog.kurohicncr.top/Article/details/48256.shtml)
-- 2026-06-29 11:16 - [外交部回应对新西兰有关议员采取禁止入境等措施](http://www.blog.minike.top/Article/details/646527207.shtml)
-- 2026-06-29 11:23 - [南宁海关所属防城海关涉案财物公开拍卖公告](http://www.blog.minike.top/Article/details/290850.shtml)
-- 2026-06-29 11:18 - [多只热门牛股，密集提示风险](http://www.blog.minike.top/Article/details/0087515319.shtml)
-- 2026-06-29 11:13 - [美国股市：“旧经济”股票跑赢AI概念股 道琼斯工业平均指数创新高](http://www.blog.kurohicncr.top/Article/details/533122596.shtml)
-- 2026-06-29 11:12 - [长江有色：多头锁定获利叠加中东风险未消除 5日锌价或下跌](http://www.share.kurohicncr.top/Article/details/1836332020.shtml)
+- 2026-06-29 11:07 - [利好突袭！刚刚，暴涨900点！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:07 - [CFA三级考试通过率维持在50% 低于十年平均水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:31 - [央行：把做强国内大循环摆到更加突出的位置，统筹好总供给和总需求的关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:24 - [美国3年期国债中标收益率创去年6月以来最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:19 - [维护国际秩序稳定是各国应对挑战的急迫所需（国际论坛）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:07 - [海南封关看变化：三亚释产业投资机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:20 - [提出8个重点任务！教育部部署开展中小学阳光招生专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:23 - [三星内存再提价30%！寒武纪登顶A股吸金榜，华宝基金电子ETF（515260）最高上探1.95%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:31 - [国台办回应台湾初中生张贴统一标语：民进党当局无法阻挡统一大势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:29 - [比亚迪出口目标超预期15%，计划2026年实现150万辆出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:14 - [3月31日收盘：标普指数下跌0.39% 油价攀升WTI原油站上100美元关口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:20 - [浙商银行董事长陈海强谈银行数字化转型误区：科技部门热火朝天，业务部门不伦不类](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:06 - [Keep首次扭亏股价却触底：营收跌回四年前、用户流失近815万 AI新故事能撑起未来吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:08 - [春天里的中国丨踏青赏花正当时 这些浪漫花海等你打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:20 - [“猪八戒”马德华将送别陈丽华：大姐非常好非常有爱心，各方面都非常优秀，她为紫檀事业作出很大贡献，她的离去让我们很悲痛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)

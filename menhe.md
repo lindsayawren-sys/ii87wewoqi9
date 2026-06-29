@@ -1,57 +1,51 @@
-# 300726！突发低位“20cm”涨停，A股登上《新闻联播》！一个牛市新信号来了！
+# 尝高美集团在香港开设一间新谷泰餐厅
 
-> 更新时间：2026-06-29 11:30:02 UTC+8
+> 更新时间：2026-06-29 11:36:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券市场周刊市场号 文 | 水岸 当下的A股，是牛市新章节的慢火煮茶，不疯不癫，像一个人走到半山腰，回头看，谷底已远；抬头看，峰顶未能见。然而，它也一直是一小撮人狂欢一群人孤单的结构性分化行情，AI算力硬件一直是那一面在最高处摆动的旗。 创业板创历史新高，A股再次罕见登上《新闻联播》，外资与硬科技成为
+尝高美集团（08371）发布公告，集团已透过其全资附属公司签订了一份新的租赁协议，在中国香港开设一间新的谷泰餐厅。预计新餐厅将于2026年第二季度开始营业。责任编辑：卢昱君
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+尝高美集团（08371）发布公告，集团已透过其全资附属公司签订了一份新的租赁协议，在中国香港开设一间新的谷泰餐厅。
 
-来源：证券市场周刊市场号 文 | 水岸 当下的A股，是牛市新章节的慢火煮茶，不疯不癫，像一个人走到半山腰，回头看，谷底已远；抬头看，峰顶未能见。
+预计新餐厅将于2026年第二季度开始营业。
 
-然而，它也一直是一小撮人狂欢一群人孤单的结构性分化行情，AI算力硬件一直是那一面在最高处摆动的旗。
-
-创业板创历史新高，A股再次罕见登上《新闻联播》，外资与硬科技成为核心要素，今天（6月4日）的玻璃基板、超级电容、存储芯片、光刻机、光通信、铜箔、PCB等集体大涨，市场在用行动做出对硬科技继续看好的表态。
-
-刚刚过去的5月，A股新开户超270万，同比增长近80%……多种要素，皆在传递A股市场热度不会减退只会增强的信号。
-
-以光通信、算力、半导体等为首的这条硬科技主线，还会成为接下来的核心轮动主线，但一边是亨通光电、长飞光纤、宏达电子、佰维存储、盛美上海等龙头轮动大涨，一边是很多标的还在被按在地上摩擦的被市场用脚投票。
-
-A股登上《新闻联播》 硬科技股再添一把火 最近有几个比较重要的信号，一个是创业板刷新历史新高（4218.33点），A股昨天登上《新闻联播》，今天，硬科技随即出现集体、大面积上涨。
-
-快速浏览一下，今天的硬科技赛道，霸屏涨幅榜。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:11 - [沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:18 - [老挝人革党中央总书记、国家主席通伦抵京 天安门前挂起中老两国国旗、党旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:26 - [威龙股份首季业绩承压，亏损幅度有所扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:16 - [股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:13 - [CBCX:金价回稳关注利率线索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:01 - [同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:24 - [Roots宣布将于6月12日召开2026财年第一季度业绩电话会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:18 - [欧元兑日元逼近收敛上沿，等待方向选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:00 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:25 - [中国抹茶刮“绿色旋风” 内销出口两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:04 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:17 - [阳光电源：董事会审议通过《关于公司<2025年度总裁工作报告>的议案》等多项议案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:24 - [美欧因伊朗战争愈加离心 北约联盟裂痕加深](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:10 - [受中东冲突影响，越南Vingroup拟放弃建设液化天然气发电厂计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:25 - [F-150皮卡受关税重创，福特请求特朗普政府援手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:25 - [上海985，批量生产千亿IPO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:20 - [他山之石，2025年野火之后加州房屋保险市场的崩塌与重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:20 - [海河乳品发布致歉声明：终止与涉事经销商的直播合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:12 - [卡塔尔能源在美国投产液化天然气 拉什工业区遭袭影响持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:08 - [全国社会保障基金理事会副理事长王文灵被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:10 - [天孚通信：2025年净利同比增长50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:10 - [从替代到重构，中兴新支点操作系统发布水电信创方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:11 - [从修车学徒到冠军缔造者，张雪能否给国产摩托车产业带来新机遇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:30 - [霸王茶姬2025年GMV达315.8亿，全年净收入达129.1亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:12 - [联合国人权高专：蓄意攻击民用基础设施属于战争罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:06 - [交银施罗德的灵魂人物谢卫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:12 - [Partners集团预警：或将对更多基金增设赎回上限](http://www.blog.minike.top/Article/details/5806202.shtml)
-- 2026-06-29 11:20 - [特朗普认为赞成限制其战争权力的众议员“不爱国”](http://www.blog.kurohicncr.top/Article/details/7931516.shtml)
-- 2026-06-29 11:21 - [“中俄经贸合作机遇推介会”在圣彼得堡国际经济论坛举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [比亚迪财险落地冀苏浙三地 获批执行全国统一交强险费率](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [铁路端午假期运输首日火车票今天起售](http://www.blog.minike.top/Article/details/527783514756.shtml)
-- 2026-06-29 11:25 - [韩国政府承诺创造2万亿韩元公共部门需求，以扶持无人机产业发展](http://www.share.minike.top/Article/details/217507898.shtml)
-- 2026-06-29 11:08 - [央行存贷款利率新规征求意见，罚息、计息、揽储规则都有更新](http://www.blog.minike.top/Article/details/67338959093.shtml)
-- 2026-06-29 11:05 - [Databricks与Perplexity联合创始人游说AI科研人才：别去大型科技企业任职](http://www.blog.minike.top/Article/details/72579724.shtml)
-- 2026-06-29 11:00 - [xAI要求Grok深度伪造色情图像案原告以真实姓名起诉](http://www.share.minike.top/Article/details/07100.shtml)
-- 2026-06-29 11:13 - [礼来70亿美元大动作！港股通创新药逆市吸金，520880近两日获超1.28亿元增仓，杠杆资金同步进场](http://www.blog.kurohicncr.top/Article/details/49883435635.shtml)
-- 2026-06-29 11:16 - [航宇科技6月5日大宗交易成交332.31万元](http://www.share.kurohicncr.top/Article/details/630096542472.shtml)
-- 2026-06-29 11:00 - [科研团队发布有机高分子应用智能体 助力高新材料高效自主研发](http://www.blog.minike.top/Article/details/8642861.shtml)
-- 2026-06-29 11:01 - [中央音乐学院举办“欧亚之声”中俄交响音乐会](http://www.share.minike.top/Article/details/88930.shtml)
-- 2026-06-29 11:03 - [联合国报告：人工智能全球环境足迹加速扩张 能源与治理挑战愈发严峻](http://www.blog.minike.top/Article/details/7605846.shtml)
-- 2026-06-29 11:20 - [年化3.36%的美元理财香不香？汇率升破6.8后，利差优势生变](http://www.share.kurohicncr.top/Article/details/34018976759.shtml)
+- 2026-06-29 11:11 - [化工板块深度回调，华宝基金化工ETF（516020）盘中跌超3%！机构：近期或可关注相关周期弹性投资机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:12 - [美国原油价格上涨，特朗普在最后期限前对伊朗发出严厉威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:23 - [视频|特朗普称即使霍尔木兹海峡仍关闭也愿结束战争](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:18 - [股债汇三杀！外资正在逃离日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:12 - [法官叫停特朗普白宫宴会厅项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:14 - [视频 | 招商证券2025年净利创新高，经营现金流净额大幅转负，汇兑收益剧降73%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:18 - [光通信概念股涨幅居前 汇聚科技涨超18%长飞光纤光缆涨超14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:12 - [3月超额逾10%，银行韧性出圈！国有六大行营收净利集体双增，中行、农行逆市涨超3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:22 - [证券经纪开战前试图投资国防基金，美防长卷内幕交易疑云](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:13 - [亚信科技携手“500强”歌尔股份，让“中国智造”闪耀全球！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:21 - [晚饭一个改变，身体指标轻松变好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:10 - [酒价内参4月8日价格发布，青花郎下调5元跌幅居前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:31 - [甲骨文任命Hilary Maxson为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:32 - [交银国际：维持龙源电力目标价8.23港元 评级“买入”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:32 - [伊朗最高国家安全委员会确认停火协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
