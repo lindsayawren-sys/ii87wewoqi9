@@ -1,56 +1,57 @@
-# 四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开
+# 朱杨柱谈香港同胞首次飞天：这是中国梦、航天梦的“同心圆”
 
-> 更新时间：2026-06-29 11:42:03 UTC+8
+> 更新时间：2026-06-29 11:44:03 UTC+8
 
 ## 摘要
 
-新华社成都5月17日电(记者袁波)记者17日从四川省华蓥市应急管理局获悉，经初步调查，导致华蓥市瀑布秋千项目事故发生的直接原因是员工临场处置不当，承重滑轮结构没有滑到安全位置，释放开关提前松开，游客坠落后撞到突出的岩壁。5月3日下午，1名游客在华蓥市玛琉岩探险公园体验瀑布秋千(“大摆荡”)项目时，不幸从高空坠落，送医途中不治身亡。据介绍，华蓥市玛琉岩探险公园“大摆荡”项目正常释
+中新网酒泉5月23日电 (记者 马帅莎 郭超凯)5月23日，神舟二十三号乘组在酒泉卫星发射中心问天阁与中外媒体记者集体见面。神舟二十三号乘组指令长朱杨柱表示，此次任务，第三批、第四批航天员将同步亮相太空，特别是香港同胞首次飞天，共享航天荣光，这是家国情怀的生动凝聚，也是中国梦、航天梦的“同心圆”。朱杨柱说，中国载人航天一路走来，从一人一天到多人多天，到即将突破一年期在轨驻留，这
 
 ## 正文
 
-新华社成都5月17日电(记者袁波)记者17日从四川省华蓥市应急管理局获悉，经初步调查，导致华蓥市瀑布秋千项目事故发生的直接原因是员工临场处置不当，承重滑轮结构没有滑到安全位置，释放开关提前松开，游客坠落后撞到突出的岩壁。
+中新网酒泉5月23日电 (记者 马帅莎 郭超凯)5月23日，神舟二十三号乘组在酒泉卫星发射中心问天阁与中外媒体记者集体见面。
 
-5月3日下午，1名游客在华蓥市玛琉岩探险公园体验瀑布秋千(“大摆荡”)项目时，不幸从高空坠落，送医途中不治身亡。
+神舟二十三号乘组指令长朱杨柱表示，此次任务，第三批、第四批航天员将同步亮相太空，特别是香港同胞首次飞天，共享航天荣光，这是家国情怀的生动凝聚，也是中国梦、航天梦的“同心圆”。
 
-据介绍，华蓥市玛琉岩探险公园“大摆荡”项目正常释放点离操作平台有约10米的距离，其正下方是远离岩壁的。
+朱杨柱说，中国载人航天一路走来，从一人一天到多人多天，到即将突破一年期在轨驻留，这一个又一个全新的“首次”，串起了中国航天事业一次次发展的步伐。
 
-而事发当天，由于游客刚刚推出平台，就出现了安全绳与脱钩器脱钩的情况，其坠落的正下方有突出的岩壁。
+正是因为载人航天事业的快速发展，才有一批批航天员太空接力，实现梦想。
 
-“由于员工临场处置不当，承重滑轮结构没有滑到安全位置，释放开关提前松开了，导致游客坠落，撞到瀑布岩壁上。
+朱杨柱表示，这次任务中，第三批、第四批航天员将同步亮相太空，特别是香港同胞首次飞天，共享航天荣光，这是家国情怀的生动凝聚，也是中国梦、航天梦的“同心圆”，让我们跨域融合，把个人理想汇聚成为国出征的共同目标。
 
-”华蓥市应急管理局局长王安全说。
+朱杨柱说，面对这么多“首次”，我们深感使命光荣，责任十分重大。
 
-针对网络流传的事故现场视频中“没绑紧”的喊声，王安全表示：“那不是游客自己的呼喊声，是周围人的呼喊声。
+这不是简单的数字叠加，而是对生理心理、应急处置、协同配合，以及在轨工作生活能力等全方位考验。
 
-” 记者从广安市华蓥市“5·3”事故调查组获悉，初步认定，这起事故是一起企业生产安全责任事故。
+朱杨柱表示，作为指令长，他想得最多的是该如何做好各项准备，如何带领团队零失误零差错圆满完成飞行任务。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [中美人文摄影展亮相沈阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:14 - [今年前4个月河口口岸跨境客货运输两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:13 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:24 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:19 - [中东战事推高油价 韩国推行第二轮现金补助缓解民生压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:22 - [现场直击：广西柳州发生5.2级地震 部分房屋倒塌有人员被困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:33 - [王海洲：优秀传统文化是短剧精品化路径中值得深挖的瑰宝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:21 - [酒价内参5月19日价格发布：五粮液普五八代小幅下跌1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:18 - [人这一辈子，一定要去青州看一次“东方微笑”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:17 - [江苏：大力创新民营经济保险服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:14 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:35 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:39 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:16 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:34 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:37 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:41 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:20 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:28 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:39 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:12 - [APEC第二次高官会在上海开幕 为APEC“中国年”承上启下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:34 - [伊朗哈尔克岛连续10天未见油轮 美军海上封锁压力凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:15 - [广州海关查获毒品氯胺酮4997.87克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:27 - [小摩：腾讯控股重申“增持”评级 留意三项风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:29 - [2026电影总票房已超144亿元！5月精彩影片速览→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:13 - [英伟达7连涨创新高！创业板人工智能ETF获资金抢筹！港股通创新药ETF逼近前低，近10日狂揽5.35亿元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:33 - [博时基金刘玄：REITs作为独立大类资产的定位有望夯实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:13 - [全国多地共赏“超现场” 科技为舞剧《五星出东方》赋予新活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:14 - [礼来将出席伯恩斯坦第42届年度战略决策会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:26 - [甘肃药业投资集团有限公司原党委书记魏阳被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:29 - [外媒：一架美军“死神”无人机被胡塞武装击落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:30 - [我国矿业发展步入以安全为核心以创新为动力新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:39 - [国际博物馆日北京地区百余家博物馆正常开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:12 - [从生态修复到“沙海生金” 古尔班通古特沙漠绿量持续扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:13 - [日本：福山市山火持续蔓延 警方呼吁居民避难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:25 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:42 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:26 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:24 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:41 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:27 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:14 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:42 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:19 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:22 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:18 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:35 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:27 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)

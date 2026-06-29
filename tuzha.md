@@ -1,57 +1,56 @@
-# 设专用通道多语种服务 哈尔滨机场口岸护航中俄博览会
+# 京港高铁（雄商段）全线拉通试验正式启动
 
-> 更新时间：2026-06-29 11:42:03 UTC+8
+> 更新时间：2026-06-29 11:44:03 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月17日电(姜辉 陈尚楠)17日，第十届中俄博览会在哈尔滨市启幕，大批境外客商、参展嘉宾陆续经哈尔滨太平国际机场口岸入境参会。哈尔滨出入境边防检查站全面升级口岸通关保障举措，专门开设参会人员专用通关通道，择优选派精通多语种民警驻守一线，为境外参展团组提供专属多语种便民服务。 聚焦展会物资高效通关需求，哈尔滨边检站实行7×24小时全天候通关服务，推行“一机一案、随到
+中新网郑州5月25日电 (刘鹏 闫爽)5月25日凌晨5时13分，55432次高速综合检测列车从河南商丘站平稳驶出，标志着京港高铁(雄商段)全线拉通试验工作正式启动，联调联试取得重要阶段性成果，为线路后续试运行、开通运营筑牢安全与设备基础。 全线拉通试验是联调联试过程中的重要一环。试验期间，铁路部门将对全线轨道、供电、接触网、通信等各系统开展全面综合验证，确保各项指标全面达标、系
 
 ## 正文
 
-中新网哈尔滨5月17日电(姜辉 陈尚楠)17日，第十届中俄博览会在哈尔滨市启幕，大批境外客商、参展嘉宾陆续经哈尔滨太平国际机场口岸入境参会。
+中新网郑州5月25日电 (刘鹏 闫爽)5月25日凌晨5时13分，55432次高速综合检测列车从河南商丘站平稳驶出，标志着京港高铁(雄商段)全线拉通试验工作正式启动，联调联试取得重要阶段性成果，为线路后续试运行、开通运营筑牢安全与设备基础。
 
-哈尔滨出入境边防检查站全面升级口岸通关保障举措，专门开设参会人员专用通关通道，择优选派精通多语种民警驻守一线，为境外参展团组提供专属多语种便民服务。
+全线拉通试验是联调联试过程中的重要一环。
 
-聚焦展会物资高效通关需求，哈尔滨边检站实行7×24小时全天候通关服务，推行“一机一案、随到随检”查验模式，最大限度压缩参展设备、跨境商贸物资口岸查验时长，全力保障展会物资快速入境就位。
+试验期间，铁路部门将对全线轨道、供电、接触网、通信等各系统开展全面综合验证，确保各项指标全面达标、系统匹配稳定，满足高速列车安全运行标准。
 
-“博览会期间，严格落实240小时过境免签、对俄出入境免签等涉外便利通关政策，大力推广外国人入境卡线上填报、快捷自助通关等便捷举措，进一步简化入境办理流程。
+为保障试验全程安全顺畅，中国铁路郑州局集团有限公司组织各专业协同联动、精准管控。
 
-”据哈尔滨出入境边防检查站执勤三队副队长张天奇介绍，该检查站还进驻博览会现场设立政务服务咨询展台，面对面为各国展商解读移民管理相关政策，精准解答各类出入境业务疑问。
+商丘站充分发挥枢纽管控作用，紧盯试验运输组织关键环节，优化列车接发流程，强化站间协同与分界口交接配合，严格落实作业标准，保障试验列车运行安全有序、衔接顺畅高效。
 
-俄罗斯参展商亚历山大表示，便捷的口岸通关服务让人倍感舒心，利好的免签政策更是极大便利了俄中两国企业家往来交流、互通有无，有效助推了双边贸易蓬勃发展。
+郑州机务段提前选拔18名动车组司机骨干组建专项试验组，结合线路特点细化试验大纲，编制操纵提示卡及作业指导书，严格按照试验方案配合完成逐级提速、数据采集等各项任务。
 
-(完)
+京港高铁(雄商段)是国家“八纵八横”高速铁路网京港(台)通道的重要组成部分，线路纵贯河北、山东、河南三省，北起雄安站、南抵商丘站，与已通车运营的商合杭高铁无缝衔接，正线全长552公里，设计时速350公里，其中河南段线路长25公里。
+
+据了解，京港高铁(雄商段)开通运营后，将在商丘站与东西向徐兰高铁形成十字交叉枢纽格局，进一步夯实商丘区域高铁枢纽地位。
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [特朗普就台湾问题表态，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:40 - [慈文传媒：公司积极推进董事会换届工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:24 - [APEC第二次高官会在上海开幕 为APEC“中国年”承上启下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:13 - [伊朗哈尔克岛连续10天未见油轮 美军海上封锁压力凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:27 - [广州海关查获毒品氯胺酮4997.87克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:20 - [小摩：腾讯控股重申“增持”评级 留意三项风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:20 - [2026电影总票房已超144亿元！5月精彩影片速览→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:31 - [英伟达7连涨创新高！创业板人工智能ETF获资金抢筹！港股通创新药ETF逼近前低，近10日狂揽5.35亿元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:12 - [博时基金刘玄：REITs作为独立大类资产的定位有望夯实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:31 - [全国多地共赏“超现场” 科技为舞剧《五星出东方》赋予新活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:37 - [礼来将出席伯恩斯坦第42届年度战略决策会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:12 - [甘肃药业投资集团有限公司原党委书记魏阳被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:24 - [外媒：一架美军“死神”无人机被胡塞武装击落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:37 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:22 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:38 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:38 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:31 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:21 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:27 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:35 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [德国商业银行正式拒绝裕信银行收购邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:30 - [伊朗媒体报道：欧洲已与伊朗就霍尔木兹海峡通行展开接触](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:38 - [古今“驴友”大PK，谁才是狠人？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:24 - [港股新晋“超购王”翼菲科技首挂大涨 创始人张赛对市场反应意外 称“天时地利人和”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:27 - [大陆图书走俏台湾 两岸出版业合作升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:37 - [上海规模最大保租房社区扩容 3180套精装房源入市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:40 - [不光存储！光通信成AI交易热门主题 标普500今年十大牛股占三席](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:33 - [外资企业投资中国提质升级 转向“融入发展”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:35 - [中国儒意购回部分于2027年到期的零息可换股债券](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:30 - [300677，火了！迎超130家机构调研！公司最新澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:17 - [印度阿达尼企业与美方就涉伊制裁达成2.75亿美元和解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:29 - [受伊朗局势引发能源危机冲击，日本首相呼吁追加财政预算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:36 - [商业航天翻倍股巨力索具，208万手卖单，开盘封死跌停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:40 - [长安期货屈亚娟：矿端供应有所放松，短期镍价或震荡调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:30 - [日本北海道一训练飞机偏离跑道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:32 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:37 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:24 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:14 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:34 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:43 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:30 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:33 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:33 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:29 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:35 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)

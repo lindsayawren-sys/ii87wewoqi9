@@ -1,56 +1,57 @@
-# 王海洲：优秀传统文化是短剧精品化路径中值得深挖的瑰宝
+# 国务院工作组赴广西柳州地震灾区 指导进一步做好抗震救灾和灾后恢复重建等工作
 
-> 更新时间：2026-06-29 11:42:03 UTC+8
+> 更新时间：2026-06-29 11:44:03 UTC+8
 
 ## 摘要
 
-随着网络视听产业的飞速发展，真人短剧凭借其“短平快的特点”迅速崛起，已成为大众喜闻乐见的文化传播载体。近日，抖音集团短剧版权中心在首届短剧产业大会上发布的数据显示，全网播放量突破10亿的真人短剧已达1100部，突破20亿播放量超过250部。在产业规模与数量达到一定层级的当下，如何从“流量至上”转向“品质突破”，实现从“活下去”到“活得好、活得精神”的跨越，成为行业面临的关键考题
+为深入贯彻落实习近平总书记关于防灾减灾救灾重要指示精神，根据李强总理和张国清副总理部署要求，5月23日，国家防灾减灾救灾委员会办公室副主任、应急管理部副部长陈敏率国务院工作组赶赴广西柳州地震灾区，看望慰问受灾群众，协助指导地方进一步做好抗震救灾和灾后恢复重建等工作。工作组深入受灾最重的柳南区太阳村镇等地，先后到集中安置点、医院、房屋及基础设施损毁点、地灾隐患点等，实地查看灾情，
 
 ## 正文
 
-随着网络视听产业的飞速发展，真人短剧凭借其“短平快的特点”迅速崛起，已成为大众喜闻乐见的文化传播载体。
+为深入贯彻落实习近平总书记关于防灾减灾救灾重要指示精神，根据李强总理和张国清副总理部署要求，5月23日，国家防灾减灾救灾委员会办公室副主任、应急管理部副部长陈敏率国务院工作组赶赴广西柳州地震灾区，看望慰问受灾群众，协助指导地方进一步做好抗震救灾和灾后恢复重建等工作。
 
-近日，抖音集团短剧版权中心在首届短剧产业大会上发布的数据显示，全网播放量突破10亿的真人短剧已达1100部，突破20亿播放量超过250部。
+工作组深入受灾最重的柳南区太阳村镇等地，先后到集中安置点、医院、房屋及基础设施损毁点、地灾隐患点等，实地查看灾情，详细了解人员安置、医疗救治、物资保障、损毁设施抢修等情况。
 
-在产业规模与数量达到一定层级的当下，如何从“流量至上”转向“品质突破”，实现从“活下去”到“活得好、活得精神”的跨越，成为行业面临的关键考题。
+随后，组织召开现场工作会，传达中央领导同志批示要求，听取柳州市抗震救灾工作进展，研究部署下一步工作举措。
 
-在湖南长沙举办的首届短剧产业大会上，北京电影学院中国电影学派研究院院长、教育部“长江学者”特聘教授王海洲指出，融入优秀传统文化、彰显民族特色，是真人短剧破解同质化困局、实现精品化创作的重要路径之一。
+会议指出，地震发生后，国务院相关部门和自治区党委、政府密切协作，迅速行动，全力开展应急处置工作，全力保障人民群众生命财产安全，在各方共同努力下，抗震救灾各项工作有力有序推进，取得阶段性成效。
 
-内容为王：以传统文化筑牢叙事根基 短剧产业前些年发展进入同质化阶段时，王海洲院长就笑称，他曾经被迫看了很多套路化的短剧，“老穿越，好像这个题材必须要这样干才能完成叙事。
+会议强调，当前，灾区抗震救灾工作已转入过渡期安置和灾后恢复重建阶段，要以高度的政治责任感和使命感，持续抓实抓细抗震救灾各项工作举措。
 
-”这种怪圈让他看到了蓬勃的短剧产业在进入瓶颈期后的创作困境。
+要统筹抓好抗震救灾和防汛救灾，加大隐患排查力度，加强重点隐患点位巡查，严防次生灾害发生。
 
-他认为，部分创作者过度追求流量，忽视了文化内涵的挖掘，导致作品虽然一时热闹，却难以实现长效传播。
+要抓紧推进灾后应急恢复，加快基础设施抢修，及时开展倒损房屋安全鉴定，组织群众安全有序返家。
 
-他强调，中国各行各业的发展规律证明，当产业达到一定规模后，必须向高质量、高品质转型。
+要用心用情做好群众安置救助，加强集中安置点管理服务，妥善保障基本生活。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [一汽奥迪梁梁：携手华为打造全链路智能融合体，实现“油车更智能、电车更豪华”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:38 - [债券交易员认为市场转向收益率攀升的新时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:15 - [统计局回应PPI累计同比转正：对改善企业盈利预期有积极作用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:27 - [宁波口岸单位发布联合通告 出台便利船员下地举措](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:29 - [“投资龙江”重点产业推介会在哈尔滨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:24 - [我国残疾人社会保障和关爱服务水平不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:13 - [蒂森克虏伯启动汽车业务重组，宣布关闭美国工厂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:14 - [北京市青少年航空航天模型比赛开赛 报名人数创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:29 - [新前沿矿业携手Austral Resources推进昆士兰铜矿项目，矿石回收率高达99%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:24 - [用博物馆讲好中华民族共同体故事——三地博物馆馆长共议如何以“立体教科书”构筑中华民族共有精神家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:39 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:20 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:34 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:26 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:42 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:29 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:41 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:19 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:35 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:22 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [从生态修复到“沙海生金” 古尔班通古特沙漠绿量持续扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:33 - [日本：福山市山火持续蔓延 警方呼吁居民避难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:13 - [俄罗斯总统普京访华前夕发表视频讲话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:12 - [“洪迪厄斯”号邮轮预计18日抵达荷兰鹿特丹港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:29 - [银行理财产品“飞单”，怎么防、谁来赔？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:28 - [酒价内参5月19日价格发布：青花汾20下跌5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:15 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:35 - [3次代购名表获利过万？当心沦为诈骗犯罪帮凶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:28 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：气候变化之下 病毒传播风险倍增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:16 - [伊朗战争已致全球企业损失250亿美元，损失仍在攀升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:14 - [柳南区地震区域搜救出2名被困人员 已无生命体征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:18 - [酒价内参5月18日价格发布：洋河梦之蓝M6+下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:31 - [集体跳水！刚刚近12万人爆仓 Bitcoin Depot发出破产警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:32 - [泓富产业信托遭ESR Asset Management (Prosperity) Limited减持9.1万股 每股均价约1.47港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:38 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:38 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:33 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:41 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:21 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:33 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:19 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:26 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:28 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:42 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:40 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:42 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:31 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:18 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)

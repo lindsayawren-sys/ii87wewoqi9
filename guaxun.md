@@ -1,60 +1,56 @@
-# 新前沿矿业携手Austral Resources推进昆士兰铜矿项目，矿石回收率高达99%
+# 优必选午后涨超9% 西部证券维持“买入”评级
 
-> 更新时间：2026-06-29 11:42:03 UTC+8
+> 更新时间：2026-06-29 11:44:03 UTC+8
 
 ## 摘要
 
-勘探进展显著，冶金回收率优异 新前沿矿业公司近日宣布，已与其战略合作伙伴Austral Resources完成对澳大利亚NWQ铜矿项目的联合实地考察。初步冶金测试结果显示，铜回收率在83%至99%之间，部分样品甚至超过95%。这一数据表明，该项目矿石适合采用常规酸浸处理工艺，为其通过Austral位于Mt Kelly的先进加工设施进行代加工处理铺平了道路。 合作模式与资源基础
+优必选（09880）午后涨超9%，截至发稿，股价上涨9.07%，现报122.70港元，成交额16.57亿港元。 5月20日，优必选创始人周剑于微博发文宣布，公司推出消费级人形机器人品牌优世界UWORLD。据了解，“消费级人形机器人”的场景主要面向个人与家庭，当前阶段以情感陪伴、教育娱乐等为核心落地用途，并开始向通用任务服务探索。目前市场已呈现出明显的分层态势，从万元以内的尝鲜级
 
 ## 正文
 
-勘探进展显著，冶金回收率优异 新前沿矿业公司近日宣布，已与其战略合作伙伴Austral Resources完成对澳大利亚NWQ铜矿项目的联合实地考察。
+优必选（09880）午后涨超9%，截至发稿，股价上涨9.07%，现报122.70港元，成交额16.57亿港元。
 
-初步冶金测试结果显示，铜回收率在83%至99%之间，部分样品甚至超过95%。
+5月20日，优必选创始人周剑于微博发文宣布，公司推出消费级人形机器人品牌优世界UWORLD。
 
-这一数据表明，该项目矿石适合采用常规酸浸处理工艺，为其通过Austral位于Mt Kelly的先进加工设施进行代加工处理铺平了道路。
+据了解，“消费级人形机器人”的场景主要面向个人与家庭，当前阶段以情感陪伴、教育娱乐等为核心落地用途，并开始向通用任务服务探索。
 
-合作模式与资源基础 NWQ铜矿项目包括Big One矿床，其JORC 2012推断矿产资源估算为210万吨，铜品位1.1%，含铜金属量21，886吨，以及历史悠久的Mt Storm矿权区。
+目前市场已呈现出明显的分层态势，从万元以内的尝鲜级产品，到瞄准未来家庭服务的通用型产品，走向大众的脚步正在持续加快。
 
-双方已签署谅解备忘录，确立了战略联盟基础：未来新前沿矿业矿权区供应的矿石可在Mt Kelly进行加工，这为Austral提供了高品位铜矿石原料来源，同时为新前沿矿业提供了一条无需独立建设加工基础设施即可实现勘探成果商业化的明确路径。
+西部证券研究指，近日优必选与日立（中国）有限公司正式签署战略合作协议书。
 
-管理层表态与项目前景 新前沿矿业董事长Gerrard Hall表示，当前铜市场异常强劲，公司相信与Austral的合作伙伴关系在推进NWQ铜矿项目方面具有重大价值。
+根据此次协议书，双方将在日立集团具有市场竞争力的电梯、楼宇系统、医疗健康、工业设备及半导体制造设备等领域展开深度合作，充分发挥优必选在人形机器人方面的技术优势，以及日立在智能制造与系统集成领域的丰富经验，共同开发适用于不同生产场景的智能化解决方案。
 
-他指出，Big One矿床尤其受益于成熟的区域基础设施，并位于澳大利亚最著名、最成熟的铜矿区内。
+该机构表示，25年公司人形机器人营收大增，已经跃升为公司第一大收入来源。
 
-此次联合实地考察旨在评估Big One矿床和Big One North异常的更广泛勘探潜力，Austral团队还对Mt Storm历史矿权区进行了勘查评估。
+产能方面，截至2025年底，优必选全尺寸具身智能人形机器人已实现年化产能超6000台，为规模化交付奠定了产能基础。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [斯巴达勇士赛北京站落幕 近4000选手挑战“三色周末”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:34 - [国防部：中蒙将举行“草原伙伴-2026”陆军联训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:38 - [设专用通道多语种服务 哈尔滨机场口岸护航中俄博览会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:22 - [国际金价创4月以来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:38 - [埃斯顿获控股股东派雷斯特解除质押1100万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:35 - [央视6000万美元拿下世界杯转播权，国际足联吃亏了么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:36 - [参议员拟立法禁止面向未成年人投放赌博广告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:28 - [Coursera宣布5亿美元股票回购计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:31 - [梨花漫染鹤岗城 赏花盛会激活文旅消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:14 - [特朗普就台湾问题表态，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:17 - [慈文传媒：公司积极推进董事会换届工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:35 - [APEC第二次高官会在上海开幕 为APEC“中国年”承上启下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:13 - [伊朗哈尔克岛连续10天未见油轮 美军海上封锁压力凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:27 - [广州海关查获毒品氯胺酮4997.87克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:41 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:35 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:31 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:41 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:25 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:26 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:30 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:21 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:27 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:15 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:35 - [圣贝拉集团：受托人根据股份奖励计划购买合共24.2万股股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:34 - [昆明谋划“十五五”：稳产业、扩开放、强数字经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:13 - [三部门向广西调拨1万件中央救灾物资支持地震救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:20 - [5月美国建筑商信心回升，但购房负担能力挑战持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:34 - [汤臣集团获董事局主席徐枫增持8.4万股 每股作价约2.35港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:19 - [前四月河源出口电脑及其零部件同比增长120.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:31 - [北方多地迎明显降雨过程 今天华北雨势强河北局地或现大暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:18 - [孩子王股价承压后，核心层拟增持最高2.05亿，汪建国刚拿下*ST金灵又增持孩子王 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:41 - [德国商业银行正式拒绝裕信银行收购邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:39 - [伊朗媒体报道：欧洲已与伊朗就霍尔木兹海峡通行展开接触](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:38 - [古今“驴友”大PK，谁才是狠人？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:30 - [港股新晋“超购王”翼菲科技首挂大涨 创始人张赛对市场反应意外 称“天时地利人和”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:38 - [大陆图书走俏台湾 两岸出版业合作升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:41 - [上海规模最大保租房社区扩容 3180套精装房源入市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:35 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:28 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:21 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:17 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:16 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:23 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:19 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:37 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:35 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:42 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:36 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)

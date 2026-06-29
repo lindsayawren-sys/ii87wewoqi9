@@ -1,54 +1,59 @@
-# 甘肃药业投资集团有限公司原党委书记魏阳被开除党籍
+# 湖北省武穴市委统战部召开机关干部大会部署近期重点工作
 
-> 更新时间：2026-06-29 11:42:03 UTC+8
+> 更新时间：2026-06-29 11:44:03 UTC+8
 
 ## 摘要
 
-中新网5月18日电 据甘肃省纪委监委消息：日前，经甘肃省委批准，甘肃省纪委监委对甘肃药业投资集团有限公司原党委书记、董事长魏阳严重违纪违法问题进行了立案审查调查。 经查，魏阳身为国有企业党员领导干部，丧失理想信念，背弃初心使命，违反政治纪律，与他人串供对抗组织审查；无视中央八项规定精神，多次接受私营企业主提供的宴请；违反组织原则，在组织函询时不如实说明问题，瞒报个人有关事项，为
+聚焦中心大局 汇聚统战力量——市委统战部召开机关干部大会部署近期重点工作 近日，市委统战部召开部机关干部大会，受市委常委、统战部部长徐楷委托，统战部分管日常工作的副部长张雄主持会议并讲话。会议深入学习贯彻市委近期重要会议精神，全面部署当前和下一阶段统战重点工作，强调要始终坚持"市委中心工作聚焦到哪里，统一战线的资源和力量就汇聚到哪里"，以更高站位、更实举措、更硬作风，为武穴建设
 
 ## 正文
 
-中新网5月18日电 据甘肃省纪委监委消息：日前，经甘肃省委批准，甘肃省纪委监委对甘肃药业投资集团有限公司原党委书记、董事长魏阳严重违纪违法问题进行了立案审查调查。
+聚焦中心大局 汇聚统战力量——市委统战部召开机关干部大会部署近期重点工作 近日，市委统战部召开部机关干部大会，受市委常委、统战部部长徐楷委托，统战部分管日常工作的副部长张雄主持会议并讲话。
 
-经查，魏阳身为国有企业党员领导干部，丧失理想信念，背弃初心使命，违反政治纪律，与他人串供对抗组织审查；无视中央八项规定精神，多次接受私营企业主提供的宴请；违反组织原则，在组织函询时不如实说明问题，瞒报个人有关事项，为他人谋取人事利益并收受财物；廉洁底线失守，违规收受礼金和购物卡，由他人支付应由本人支付的费用；违反生活纪律，带坏家风。
+会议深入学习贯彻市委近期重要会议精神，全面部署当前和下一阶段统战重点工作，强调要始终坚持"市委中心工作聚焦到哪里，统一战线的资源和力量就汇聚到哪里"，以更高站位、更实举措、更硬作风，为武穴建设‘一区四基地’贡献统战智慧和力量。
 
-靠医吃医，靠企吃企，非法收受巨额财物，其行为严重损害党员领导干部形象。
+会议传达了徐楷部长对近期统战工作的指示要求。
 
-魏阳严重违反党的政治纪律、组织纪律、廉洁纪律、生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大、十九大乃至二十大后不收敛、不收手，性质恶劣，情节严重，应予严肃处理。
+徐楷部长指出，当前武穴正处于高质量发展的关键期、项目建设的攻坚期，统一战线作为党的重要法宝，必须主动融入大局、服务大局，找准工作切入点和着力点，把统战优势转化为发展优势，把统战资源转化为发展动能。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经甘肃省纪委常委会会议研究并报甘肃省委批准，决定给予魏阳开除党籍处分；按规定取消其相应退休待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+全体统战干部要提高政治站位，强化责任担当，以"时时放心不下"的责任感和"事事落实到位"的执行力，推动各项重点工作落地见效。
+
+会议要求，要始终锚定市委中心工作，精准对接全市发展大局，充分发挥统一战线人才荟萃、智力密集、联系广泛的独特优势，深入推进"楚商回乡"工程，广泛凝聚在外楚商和企业家力量，持续深化"统战+"模式，不断优化营商环境和服务保障，吸引更多资金、技术、人才向武穴汇聚；要全力服务重大产业项目建设，主动靠前担当作为，积极协调解决项目推进过程中的堵点难点问题，助力产业链完善和产业集群发展；要积极参与城市更新行动，发挥统一战线协调关系、化解矛盾的重要作用，协助做好政策解读、群众引导等工作，引导广大统战成员为城市建设和民生改善建言献策、贡献力量。
+
+要始终绷紧安全稳定这根弦，坚决守住统战领域安全底线，常态化排查化解各类风险隐患，切实筑牢和谐稳定的坚固防线，为全市高质量发展营造良好环境。
+
+会议强调，全体机关干部要迅速把思想和行动统一到市委决策部署上来，以"拼抢实"的状态和作风，真抓实干、埋头苦干，确保各项工作任务圆满完成。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [“洪迪厄斯”号邮轮预计18日抵达荷兰鹿特丹港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:30 - [银行理财产品“飞单”，怎么防、谁来赔？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:37 - [酒价内参5月19日价格发布：青花汾20下跌5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:20 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:29 - [3次代购名表获利过万？当心沦为诈骗犯罪帮凶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:25 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：气候变化之下 病毒传播风险倍增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:20 - [伊朗战争已致全球企业损失250亿美元，损失仍在攀升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:39 - [柳南区地震区域搜救出2名被困人员 已无生命体征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:28 - [酒价内参5月18日价格发布：洋河梦之蓝M6+下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:33 - [集体跳水！刚刚近12万人爆仓 Bitcoin Depot发出破产警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:40 - [泓富产业信托遭ESR Asset Management (Prosperity) Limited减持9.1万股 每股均价约1.47港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:22 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:16 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:19 - [圣贝拉集团：受托人根据股份奖励计划购买合共24.2万股股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:17 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:34 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:30 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:34 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:41 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:43 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:18 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:33 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:27 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:19 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:20 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:43 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:14 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [长鑫存储概念引爆，科技龙头走强！兆易创新盘中涨停创新高，科技ETF华宝（515000）涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:22 - [中国中东部大范围强降水持续 多地启动防汛应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:31 - [探访博物馆里傅山医学的当代印记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:20 - [韩国股市熔断 暂停程序化交易五分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:28 - [《给阿嬷的情书》出圈：短视频与影视共生的典型样本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:26 - [酒价内参5月19日价格发布：国窖1573下跌6元跌幅居前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:14 - [广州地区举办第三十六个全国助残日系列活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:38 - [伊朗风险推升油价与收益率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:31 - [外国专家点赞中国新能源创新 开放合作成关键词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:17 - [在“赶大集”中触摸乡村消费脉搏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:33 - [《骆驼日记》带读者看见真实立体多元的非洲大陆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:35 - [韩国法院批准三星针对威胁罢工工会的禁令申请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:34 - [海外华媒探访江西白鹿洞书院 品读千年华夏文脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:16 - [（乡村行·看振兴）以黑猪产业撬动乡村振兴 山西灵丘男子返乡创业“拱”开致富门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:34 - [商会秘书处专业化职业化建设工作交流活动在重庆举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:38 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:38 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:14 - [数码产品单品最高暴涨1860元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:43 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:43 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:36 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:15 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:41 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:21 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:18 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:24 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:22 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:17 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:29 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)

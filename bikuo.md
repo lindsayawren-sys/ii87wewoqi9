@@ -1,57 +1,56 @@
-# 国际博物馆日北京地区百余家博物馆正常开放
+# 小鹅通二递港股IPO：半年前刚收市监局罚单又被央视点名 投资人摇身一变CFO领天价薪酬
 
-> 更新时间：2026-06-29 11:42:03 UTC+8
+> 更新时间：2026-06-29 11:44:03 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电(记者 徐婧)5月18日(周一)是国际博物馆日，今年的主题为“博物馆：联结世界的桥梁”。当天，包括中国国家博物馆、中国人民革命军事博物馆、中国考古博物馆、首都博物馆、国家自然博物馆、北京大运河博物馆等在内的北京地区百余家博物馆正常开放，让市民畅享优质文博资源。 多个精品展览集中亮相。首都博物馆“世界文明交流互鉴”系列展览迎来重磅之作，“玉米·黄金·美洲豹—
+2026年5月19日，私域SaaS解决方案供应商小鹅通再次向港交所递交主板上市申请，中金公司担任独家保荐人。这是继其于2025年8月22日递表、招股书于2026年2月23日失效后的第二次冲刺。 就在首次上市申请未进入实质性聆讯即搁浅的两个多月后，小鹅通以更新后的财务数据和调整后的内控表述重新叩响港股大门——这家由腾讯领投6轮、明星资本云集的“腾讯系”创业公司，正试图用一份三年累
 
 ## 正文
 
-中新网北京5月18日电(记者 徐婧)5月18日(周一)是国际博物馆日，今年的主题为“博物馆：联结世界的桥梁”。
+2026年5月19日，私域SaaS解决方案供应商小鹅通再次向港交所递交主板上市申请，中金公司担任独家保荐人。
 
-当天，包括中国国家博物馆、中国人民革命军事博物馆、中国考古博物馆、首都博物馆、国家自然博物馆、北京大运河博物馆等在内的北京地区百余家博物馆正常开放，让市民畅享优质文博资源。
+这是继其于2025年8月22日递表、招股书于2026年2月23日失效后的第二次冲刺。
 
-多个精品展览集中亮相。
+就在首次上市申请未进入实质性聆讯即搁浅的两个多月后，小鹅通以更新后的财务数据和调整后的内控表述重新叩响港股大门——这家由腾讯领投6轮、明星资本云集的“腾讯系”创业公司，正试图用一份三年累计亏损1.16亿元的答卷，说服资本市场为它打开那扇迟到的IPO大门。
 
-首都博物馆“世界文明交流互鉴”系列展览迎来重磅之作，“玉米·黄金·美洲豹——玛雅与安第斯古代文明大展”18日对公众开放，约800件展品跨越3000年历史长河，为观众展现玛雅与安第斯文明的精神与文化内核。
+从投资人到CFO 周世坤的天价薪酬 小鹅通CFO周世坤的薪酬结构，在本次招股书中格外引人注目。
 
-同日，北京艺术博物馆“宸光映物：乾隆时期文物精品展”开展，甄选馆藏精品文物百余套，多角度呈现展品独特的艺术风格与审美意趣。
+2025年，其薪酬总额约为2145.2万元，较上年度的2021.6万元再涨约6%。
 
-此外，北京汽车博物馆、永定河文化博物馆、北京月宸扬琴博物馆等均有新展开幕或对外开放，邀请市民到馆观展。
+拆解来看，这其中大部分是以股份为基础的薪酬开支（约1753.1万元），但即便剔除这一非现金部分，其现金工资（薪金、津贴及福利实物）亦达到320.8万元。
 
-5月18日，北京多家博物馆策划了公益讲解、主题讲座、非遗体验、主题演出等学术和趣味活动。
+以现金工资对照，这一数字高于公司其他所有高管的工资总和：CEO鲍春健约122.6万元，CTO王铁波约96.8万元，首席人才官胡雅蓓约117.7万元。
 
-孔庙和国子监博物馆、中国考古博物馆、北京奥运博物馆、周口店北京人遗址博物馆等馆举办的学术讲座和科普课堂，为文博爱好者搭建学习交流的平台；北京宣南文化博物馆发布研学探索线路，同步推出沉浸式研学体验剧；民族文化宫博物馆、大钟寺古钟博物馆、北京民俗博物馆等场馆提供公益讲解服务。
+加上股份为基础的薪酬开支后，周世坤的薪酬约为董事长兼CEO鲍春健的2.6倍，约王铁波的3.3倍。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:18 - [3次代购名表获利过万？当心沦为诈骗犯罪帮凶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:28 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：气候变化之下 病毒传播风险倍增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:23 - [伊朗战争已致全球企业损失250亿美元，损失仍在攀升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:23 - [柳南区地震区域搜救出2名被困人员 已无生命体征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:36 - [酒价内参5月18日价格发布：洋河梦之蓝M6+下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:21 - [集体跳水！刚刚近12万人爆仓 Bitcoin Depot发出破产警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:32 - [泓富产业信托遭ESR Asset Management (Prosperity) Limited减持9.1万股 每股均价约1.47港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:16 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:35 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:27 - [圣贝拉集团：受托人根据股份奖励计划购买合共24.2万股股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:21 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:18 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:30 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:22 - [四川宜宾地震现场视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:41 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:21 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:28 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:30 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [韩国股市熔断 暂停程序化交易五分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:25 - [《给阿嬷的情书》出圈：短视频与影视共生的典型样本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:13 - [酒价内参5月19日价格发布：国窖1573下跌6元跌幅居前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:39 - [广州地区举办第三十六个全国助残日系列活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:38 - [伊朗风险推升油价与收益率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:39 - [外国专家点赞中国新能源创新 开放合作成关键词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:20 - [在“赶大集”中触摸乡村消费脉搏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:18 - [《骆驼日记》带读者看见真实立体多元的非洲大陆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:34 - [韩国法院批准三星针对威胁罢工工会的禁令申请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:34 - [海外华媒探访江西白鹿洞书院 品读千年华夏文脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:19 - [（乡村行·看振兴）以黑猪产业撬动乡村振兴 山西灵丘男子返乡创业“拱”开致富门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:22 - [商会秘书处专业化职业化建设工作交流活动在重庆举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:16 - [长城基金刘疆：科技成长具备较强逻辑支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:37 - [德银天下于5月15日斥资570.94万港元回购150万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:17 - [中国治沙劳模喊话美国友人回来看他捐赠的树](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:14 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:37 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:33 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:20 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:43 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:29 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:43 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:15 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:25 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:37 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:38 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:41 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:18 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:37 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
