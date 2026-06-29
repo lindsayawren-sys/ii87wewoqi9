@@ -1,54 +1,56 @@
-# 剑桥科技现涨超7% 中际旭创预计今年1.6T光模块需求将出现较大增长
+# 内蒙古“三北”工程一线见闻：为了这片来之不易的绿
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-剑桥科技（06166）早盘由跌转涨逾14%，截至发稿，股价上涨7.30%，现报122港元，成交额10.68亿港元。 光模块龙头企业中际旭创近期发布一季度业绩，1.6T产品快速放量，带动公司毛利率环比继续提升1.6pct至46.1%，后续伴随1.6T产品产能持续扩张，毛利率有望进一步提升。中际旭创方面预计，2026年1.6T光模块的需求规模较去年将出现较大增长，同时2027年有望
+中新网乌兰察布4月10日电 题：内蒙古“三北”工程一线见闻：为了这片来之不易的绿 中新网记者 张林虎 春风吹过内蒙古大地，黄河“几”字弯两岸，草方格如金色地毯般向沙漠深处铺展；乌兰察布的山林间，护林员的身影穿梭在林道上，喇叭里反复叮嘱着防火的话语。 从沙进人退到绿进沙退，从满目荒芜到郁郁葱葱，这些变化背后，是无数普通人日复一日的坚守。他们中，有人每天徒步十多公里守护林子，有人蹲
 
 ## 正文
 
-剑桥科技（06166）早盘由跌转涨逾14%，截至发稿，股价上涨7.30%，现报122港元，成交额10.68亿港元。
+中新网乌兰察布4月10日电 题：内蒙古“三北”工程一线见闻：为了这片来之不易的绿 中新网记者 张林虎 春风吹过内蒙古大地，黄河“几”字弯两岸，草方格如金色地毯般向沙漠深处铺展；乌兰察布的山林间，护林员的身影穿梭在林道上，喇叭里反复叮嘱着防火的话语。
 
-光模块龙头企业中际旭创近期发布一季度业绩，1.6T产品快速放量，带动公司毛利率环比继续提升1.6pct至46.1%，后续伴随1.6T产品产能持续扩张，毛利率有望进一步提升。
+从沙进人退到绿进沙退，从满目荒芜到郁郁葱葱，这些变化背后，是无数普通人日复一日的坚守。
 
-中际旭创方面预计，2026年1.6T光模块的需求规模较去年将出现较大增长，同时2027年有望成为CSP厂商更主流的需求。
+他们中，有人每天徒步十多公里守护林子，有人蹲在沙窝里扎下一个个草方格，还有更多人靠着治沙工程在家门口挣到了实实在在的收入。
 
-剑桥科技在互动平台表示，公司在高速光模块领域以硅光技术为核心，已向海外核心客户实现800G批量发货、1.6T小批量发货。
+生态治理，最终落点是让群众过上好日子——这句话，正一点点变成现实。
 
-华鑫证券此前指出，当前800G和1.6T光模块的需求旺盛，公司正在持续扩产，嘉善及马来西亚工厂产能逐步释放，并推动墨西哥生产基地的产能建设。
+一林一木，皆护家园 “老乡，进山可不能带火种，一点火星都可能酿成大祸。
 
-2026年，公司预计800G光模块仍将是出货主力，1.6T光模块将于一季度实现大量发货，并呈上升趋势。
+”清晨，乌兰察布市兴和县店子镇的护林员张艾所手持防火宣传喇叭，沿着蜿蜒的林道缓慢前行。
 
-责任编辑：卢昱君
+张艾所是兴和县1395名护林员中的一员。
+
+“每天的巡护里程超过10公里，不光要排查火灾隐患、劝阻违规用火、查看苗木长势，防火季还要守住进山道口，严格检查来往人员。
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 00:22 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 00:12 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 23:59 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 00:13 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 23:54 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 23:58 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 00:16 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 00:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 00:13 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 00:19 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 00:10 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 00:16 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 00:19 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 00:12 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 00:11 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 00:12 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 00:15 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 00:08 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 00:10 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/020220373.shtml)
-- 2026-06-30 00:14 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/32625.shtml)
-- 2026-06-29 23:57 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/0847296.shtml)
-- 2026-06-30 00:13 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/53479.shtml)
-- 2026-06-30 00:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/77664200318.shtml)
-- 2026-06-29 23:55 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/53462.shtml)
-- 2026-06-30 00:07 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/55858028189.shtml)
-- 2026-06-30 00:12 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/918648.shtml)
-- 2026-06-29 23:54 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/25024044831.shtml)
-- 2026-06-29 23:56 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/90184394164.shtml)
-- 2026-06-30 00:23 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/705424.shtml)
-- 2026-06-29 23:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/83473.shtml)
-- 2026-06-30 00:09 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/746311417541.shtml)
-- 2026-06-30 00:13 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/44051007.shtml)
-- 2026-06-29 23:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/35039915057.shtml)
+- 2026-06-30 00:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/0681986591.shtml)
+- 2026-06-30 00:15 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/4098218.shtml)
+- 2026-06-30 00:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/00331923891.shtml)
+- 2026-06-30 00:09 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/4037143979.shtml)
+- 2026-06-30 00:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/170174878.shtml)
+- 2026-06-30 00:15 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/506255.shtml)
+- 2026-06-30 00:10 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/87174331.shtml)
+- 2026-06-30 00:00 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/077879278301.shtml)
+- 2026-06-30 00:02 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/970246.shtml)
+- 2026-06-30 00:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/62852.shtml)
+- 2026-06-30 00:29 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/27146431688.shtml)
+- 2026-06-30 00:29 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/18890419582.shtml)
+- 2026-06-30 00:15 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/39506556560.shtml)
+- 2026-06-30 00:18 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/75769871.shtml)
+- 2026-06-30 00:26 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/2251287062.shtml)

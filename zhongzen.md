@@ -1,53 +1,46 @@
-# 日本北部发生地震 并发布海啸预警
+# 专家：脑机接口从“科幻”走向“实用”
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-据NHK报道称，周一日本东北地区沿海发生地震后，发布了海啸警报。 据日本气象厅估计，地震震级为7.4级。 当地时间下午4点55分左右，东京建筑物摇晃。 NHK报道称，地震震中位于日本东北沿海附近。 NHK称，岩手县、青森县、宫城县、北海道发布海啸警报。责任编辑：江学思
+发布时间：2026年04月10日 21:44 来源：中国新闻网 近日，“脑机时代，乒动未来”第十五届清华脑起搏器论坛在北京举行。论坛现场，神经调控国家工程研究中心副主任、北京天坛医院功能神经外科主任医师张建国深度解码脑机接口与闭环神经调控的前沿突破，他表示，脑机接口正从“科幻”走向“实用”。(李佳悦 唐梅芳） 责任编辑：【于晓】
 
 ## 正文
 
-据NHK报道称，周一日本东北地区沿海发生地震后，发布了海啸警报。
+发布时间：2026年04月10日 21:44 来源：中国新闻网 近日，“脑机时代，乒动未来”第十五届清华脑起搏器论坛在北京举行。
 
-据日本气象厅估计，地震震级为7.4级。
+论坛现场，神经调控国家工程研究中心副主任、北京天坛医院功能神经外科主任医师张建国深度解码脑机接口与闭环神经调控的前沿突破，他表示，脑机接口正从“科幻”走向“实用”。
 
-当地时间下午4点55分左右，东京建筑物摇晃。
-
-NHK报道称，地震震中位于日本东北沿海附近。
-
-NHK称，岩手县、青森县、宫城县、北海道发布海啸警报。
-
-责任编辑：江学思
+(李佳悦 唐梅芳） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 00:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 00:08 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 00:03 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 23:55 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 00:09 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 00:11 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 00:00 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 00:05 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 00:02 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 00:04 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 00:16 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 00:25 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 00:26 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 00:15 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 00:11 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 00:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 00:16 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 00:10 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 00:12 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 00:25 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 00:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/1363664535.shtml)
-- 2026-06-30 00:07 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/27983.shtml)
-- 2026-06-30 00:04 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/32310.shtml)
-- 2026-06-30 00:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/027848418882.shtml)
-- 2026-06-30 00:01 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/029846692.shtml)
-- 2026-06-29 23:58 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/6213201777.shtml)
-- 2026-06-30 00:01 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/296843845.shtml)
-- 2026-06-30 00:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/42008743997.shtml)
-- 2026-06-30 00:00 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/169342.shtml)
-- 2026-06-30 00:14 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/474076949448.shtml)
-- 2026-06-30 00:17 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/70838454461.shtml)
-- 2026-06-30 00:01 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/83002967476.shtml)
-- 2026-06-30 00:22 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/90158.shtml)
-- 2026-06-30 00:04 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/173764.shtml)
-- 2026-06-30 00:05 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/1165294.shtml)
+- 2026-06-30 00:10 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/98523532953.shtml)
+- 2026-06-30 00:02 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/84287287.shtml)
+- 2026-06-30 00:04 - [千香](https://www.share.kurohicncr.top/Article/details/491261321431.shtml)
+- 2026-06-30 00:13 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/5316471593.shtml)
+- 2026-06-30 00:03 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/6295046.shtml)
+- 2026-06-30 00:09 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/1703828.shtml)
+- 2026-06-30 00:24 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/626595.shtml)
+- 2026-06-30 00:19 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/674982110963.shtml)
+- 2026-06-30 00:14 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/536819.shtml)
+- 2026-06-30 00:21 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/81708.shtml)
+- 2026-06-30 00:01 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/73979.shtml)
+- 2026-06-30 00:24 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/27812038144.shtml)
+- 2026-06-30 00:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/555849.shtml)
+- 2026-06-30 00:20 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/2423984.shtml)
+- 2026-06-30 00:02 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/390599.shtml)

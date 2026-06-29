@@ -1,61 +1,60 @@
-# 三亚亚沙会：开幕式主题歌亮相——世界很大，天涯不远
+# 中西交融解锁文旅新体验 侨乡青田“引客入青”激发县域活力
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新网三亚4月20日电 (记者 王子谦)“世界很大，天涯不远；你我并肩，天海之间。”4月19日，第六届亚洲沙滩运动会(下称“三亚亚沙会”)开幕式主题歌《See ya in Sanya天海之约》正式亮相。 歌曲由亚沙会开闭幕式总撰稿乔卫作词、音乐总设计吕亮作曲。20名年轻的亚沙会演出志愿者共同演唱，他们来自广大而蓬勃的中国青年的群体，不是明星，但自有光芒、不是歌手，却声声真情。一
+中新网丽水4月9日电(周健)“青田历史悠久、文脉绵长，素有华侨之乡、石雕之乡、名人之乡、稻鱼之乡的美誉，38万华侨华人遍布全球146个国家和地区。欧陆风情的时尚与江南水乡的温婉在此交融，形成了独一无二的城市气质。” 4月9日，侨乡浙江丽水青田县召开“引客入青”新闻发布会，青田县副县长刘健在发布会上介绍青田城市特色。 文旅既能激发起地域经济活力，也能为投资兴业注入强劲动力，青田深
 
 ## 正文
 
-中新网三亚4月20日电 (记者 王子谦)“世界很大，天涯不远；你我并肩，天海之间。
+中新网丽水4月9日电(周健)“青田历史悠久、文脉绵长，素有华侨之乡、石雕之乡、名人之乡、稻鱼之乡的美誉，38万华侨华人遍布全球146个国家和地区。
 
-”4月19日，第六届亚洲沙滩运动会(下称“三亚亚沙会”)开幕式主题歌《See ya in Sanya天海之约》正式亮相。
+欧陆风情的时尚与江南水乡的温婉在此交融，形成了独一无二的城市气质。
 
-歌曲由亚沙会开闭幕式总撰稿乔卫作词、音乐总设计吕亮作曲。
+” 4月9日，侨乡浙江丽水青田县召开“引客入青”新闻发布会，青田县副县长刘健在发布会上介绍青田城市特色。
 
-20名年轻的亚沙会演出志愿者共同演唱，他们来自广大而蓬勃的中国青年的群体，不是明星，但自有光芒、不是歌手，却声声真情。
+文旅既能激发起地域经济活力，也能为投资兴业注入强劲动力，青田深谙此道。
 
-一张张平凡但灿烂的面孔，一群虽然普通但心系天海的年轻人，站上了令人瞩目的亚洲舞台，面向世界，把“天海之约”唱出了深情而质朴的青春表达。
+近年来，该县持续发力文旅基础设施升级与产品创新，重点对石门洞、千丝岩两大4A级景区进行基础设施改造提升，全面焕新景区游览质感；深度融入浙江省“泛舟浙里”旅游品牌建设，打造的“夜游太鹤湖”标杆项目已全面投运，成为激活青田夜间文旅消费的新亮点。
 
-“天涯不远，你我并肩” 词作者乔卫曾担任成都大运会、成都世运会、十五运会等国际级、国家级的大型文体活动开幕式总撰稿。
+在文旅产品供给上，当地深挖青田石雕、刘基文化、农业非遗等特色资源，打造石雕篆刻体验、刘基国学研修、农遗探秘等沉浸式文旅产品，并开发30余款融合青田元素的文创伴手礼，全方位丰富游客的体验层次与消费选择。
 
-他说，“天涯海角在传统文化中曾是遥远的所在，但唯热爱与青春让彼此无远弗届。
+38万华侨华人带回的“世界生活”，则让青田拥有别具一格的欧陆风情——总面积超29万平方米的侨乡进口商品城，汇集70多个国家和地区的10万余种商品，实现“一站式买遍全球”；专业的世界红酒中心，汇聚全球3万多款葡萄酒；721家咖啡馆、144家西餐厅和烘焙店，让游客品尝到多国特色西餐和精品咖啡…… “青田常态化举办西餐长桌宴等特色活动，打造氛围感十足的沉浸式文旅消费场景。
 
-天涯海角，在此成为少年奔赴的起点。
+”青田县西餐产业发展中心主任祁小娟在发布会上表示，当地还依托13个专业实训基地，推出了咖啡制作、红酒品鉴、西餐礼仪等特色研学课程与亲子体验项目，让游客在沉浸式的学习体验中解锁侨乡美食技能，感受侨乡文化底蕴。
 
 ## 相关推荐
 
-- 2026-06-29 23:59 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 00:14 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 00:22 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 23:54 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 23:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 23:55 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 00:10 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 23:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 00:14 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 00:00 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 00:00 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 00:04 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 23:59 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 00:13 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 23:57 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 00:13 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 00:02 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 00:12 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 00:18 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 00:24 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 00:29 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 00:09 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 00:02 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 00:16 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 00:20 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 00:22 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 00:04 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 00:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 00:18 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:08 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/7515196222.shtml)
-- 2026-06-30 00:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/45071547461.shtml)
-- 2026-06-30 00:17 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/696133883.shtml)
-- 2026-06-30 00:09 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/16367345587.shtml)
-- 2026-06-30 00:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/366343299.shtml)
-- 2026-06-30 00:03 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/55224101162.shtml)
-- 2026-06-29 23:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/1509690.shtml)
-- 2026-06-29 23:58 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/07494.shtml)
-- 2026-06-30 00:21 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/6484060374.shtml)
-- 2026-06-30 00:24 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/2120742.shtml)
-- 2026-06-30 00:22 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/351398426436.shtml)
-- 2026-06-29 23:59 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/55101.shtml)
-- 2026-06-30 00:07 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/50077815088.shtml)
-- 2026-06-30 00:04 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/11216.shtml)
-- 2026-06-29 23:58 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/33774.shtml)
+- 2026-06-30 00:16 - [青春环游记第三季](http://www.share.minike.top/Article/details/8588777244.shtml)
+- 2026-06-30 00:15 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/5962695975.shtml)
+- 2026-06-30 00:17 - [恋与深空 日服](https://www.share.minike.top/Article/details/254034838466.shtml)
+- 2026-06-30 00:29 - [刘念回应](http://www.blog.minike.top/Article/details/10595358857.shtml)
+- 2026-06-30 00:28 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/3025766.shtml)
+- 2026-06-30 00:01 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/076227343664.shtml)
+- 2026-06-30 00:09 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/9832417.shtml)
+- 2026-06-30 00:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/58071.shtml)
+- 2026-06-30 00:08 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/9165078386.shtml)
+- 2026-06-30 00:04 - [逃狱兄弟](http://www.blog.minike.top/Article/details/96453648306.shtml)
+- 2026-06-30 00:06 - [小娘惹](https://www.blog.minike.top/Article/details/1200703636.shtml)
+- 2026-06-30 00:03 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/588437.shtml)
+- 2026-06-30 00:04 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/144226181.shtml)
+- 2026-06-30 00:04 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/56567.shtml)
+- 2026-06-30 00:01 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/6171312778.shtml)

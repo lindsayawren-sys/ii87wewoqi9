@@ -1,61 +1,53 @@
-# 伊朗称将对美军扣押伊朗商船作出回应
+# 钧达股份绩后涨超4% 第一季度业绩同比扭亏为盈
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月20日电 德黑兰消息：伊朗军方20日称，将对美军19日扣押伊朗商船的行径作出回应并报复。 据美联社报道，美国19日扣押了一艘悬挂伊朗国旗的商船。美方称，该船因越过美国在阿曼湾实施的封锁线而被扣押。 伊朗强烈谴责此举违反停火协议。据伊朗伊斯兰共和国通讯社报道，伊朗军方20日凌晨表示，伊朗武装部队将很快对美军这一武装海盗行径作出回应并报复。 伊朗外交部发言人伊斯梅尔·
+钧达股份（02865）绩后涨近5%，截至发稿，股价上涨4.26%，现报30.36港元，成交额3.07亿港元。 4月9日，钧达股份发布2026年第一季度报告，该集团取得营业收入16.94亿元，同比减少9.63%；归属于上市公司股东的净利润1416.36万元，去年同期则取得亏损1.06亿元；基本每股收益0.05元。 公告称，2026年第一季度，伴随光伏行业供需关系优化、海外重点市场
 
 ## 正文
 
-中新社北京4月20日电 德黑兰消息：伊朗军方20日称，将对美军19日扣押伊朗商船的行径作出回应并报复。
+钧达股份（02865）绩后涨近5%，截至发稿，股价上涨4.26%，现报30.36港元，成交额3.07亿港元。
 
-据美联社报道，美国19日扣押了一艘悬挂伊朗国旗的商船。
+4月9日，钧达股份发布2026年第一季度报告，该集团取得营业收入16.94亿元，同比减少9.63%；归属于上市公司股东的净利润1416.36万元，去年同期则取得亏损1.06亿元；基本每股收益0.05元。
 
-美方称，该船因越过美国在阿曼湾实施的封锁线而被扣押。
+公告称，2026年第一季度，伴随光伏行业供需关系优化、海外重点市场需求释放，公司紧抓行业机遇，深耕光伏电池主业，推进降本增效与市场拓展，经营状况稳步改善、盈利水平大幅回升。
 
-伊朗强烈谴责此举违反停火协议。
+同时，公司资本运作、战略投资与业务发展有序推进，在巩固主业优势的同时，积极培育第二增长曲线。
 
-据伊朗伊斯兰共和国通讯社报道，伊朗军方20日凌晨表示，伊朗武装部队将很快对美军这一武装海盗行径作出回应并报复。
-
-伊朗外交部发言人伊斯梅尔·巴加埃19日在社交媒体上指出，美国对伊朗港口或海岸线的所谓“封锁”不仅违反了临时停火协议，而且是非法和犯罪行为。
-
-伊朗伊斯兰革命卫队此前一天表示，由于美国违反停火协议，继续非法封锁伊朗港口，伊朗将关闭霍尔木兹海峡。
-
-彭博社称，19日全天未观察到有任何船只穿越霍尔木兹海峡。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 00:04 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 23:57 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 00:03 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 23:58 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 00:02 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 00:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 00:21 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 00:05 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 23:58 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 00:17 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 00:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 00:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 00:14 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 00:16 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 00:02 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 00:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 00:17 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 00:25 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 00:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 00:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 00:30 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 00:07 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 00:15 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 00:15 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 00:22 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 00:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 00:22 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:57 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/8880071.shtml)
-- 2026-06-30 00:16 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/1627811905.shtml)
-- 2026-06-30 00:08 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/33164.shtml)
-- 2026-06-30 00:03 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/94864.shtml)
-- 2026-06-30 00:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/682552017098.shtml)
-- 2026-06-30 00:18 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/686775.shtml)
-- 2026-06-30 00:04 - [周生如故](http://www.share.kurohicncr.top/Article/details/55265.shtml)
-- 2026-06-30 00:07 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/51356296153.shtml)
-- 2026-06-30 00:10 - [《贺子珍》](https://www.share.minike.top/Article/details/8643080.shtml)
-- 2026-06-30 00:09 - [天道](http://www.share.minike.top/Article/details/63672.shtml)
-- 2026-06-30 00:00 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/13458486719.shtml)
-- 2026-06-29 23:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/9778505999.shtml)
-- 2026-06-30 00:01 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/78813727.shtml)
-- 2026-06-30 00:20 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/14088292.shtml)
-- 2026-06-30 00:02 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/4312700035.shtml)
+- 2026-06-30 00:29 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/572236082.shtml)
+- 2026-06-30 00:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/612723.shtml)
+- 2026-06-30 00:20 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/1776951846.shtml)
+- 2026-06-30 00:06 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/1712240064.shtml)
+- 2026-06-30 00:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/768833783428.shtml)
+- 2026-06-30 00:15 - [沙丘](http://www.share.minike.top/Article/details/6338388.shtml)
+- 2026-06-30 00:23 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/736069729301.shtml)
+- 2026-06-30 00:22 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/16268927743.shtml)
+- 2026-06-30 00:02 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/1916318267.shtml)
+- 2026-06-30 00:23 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/86721680.shtml)
+- 2026-06-30 00:29 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/88037304.shtml)
+- 2026-06-30 00:13 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/147399125861.shtml)
+- 2026-06-30 00:16 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/355685927.shtml)
+- 2026-06-30 00:10 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/62292591681.shtml)
+- 2026-06-30 00:09 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/99016.shtml)

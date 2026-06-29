@@ -1,61 +1,61 @@
-# （乡村行·看振兴）广东上陵镇：春笋破土采收忙 笋干飘香产业兴
+# 中外科学家解码化石：约3亿年前爬行动物会“肋式呼吸”
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新网河源4月21日电 (张璐 黄汶)近日，走进广东河源市和平县上陵镇，只见山林间的春笋破土而出、长势喜人。村民们正忙碌地采挖春笋，绿竹强村笋干加工坊(简称“工坊”)已全面投入笋干加工生产。 在上陵镇翠山村，村民吴水娴正在竹林采挖春笋。她表示：“今年春季雨水充沛，春笋长势良好，这段时间每天能挖两百多斤春笋，交给工坊后收入约百元。” 据了解，上陵镇毛竹资源有12万亩，全镇立竹库存
+中新网长春4月10日电 (记者 郭佳)中外科学家通过对二叠纪早期的爬行动物化石的研究，发现此类动物已具备类似人类的“肋式呼吸”能力。这一成果首次从化石证据层面揭示了人类等羊膜动物呼吸方式的起源。 记者10日从吉林大学恐龙演化研究中心获悉，上述研究由该中心联合中国、美国、加拿大、澳大利亚等多国科研机构共同完成。吉林大学恐龙演化研究中心名誉主任罗伯特·赖兹(加拿大多伦多大学古生物学
 
 ## 正文
 
-中新网河源4月21日电 (张璐 黄汶)近日，走进广东河源市和平县上陵镇，只见山林间的春笋破土而出、长势喜人。
+中新网长春4月10日电 (记者 郭佳)中外科学家通过对二叠纪早期的爬行动物化石的研究，发现此类动物已具备类似人类的“肋式呼吸”能力。
 
-村民们正忙碌地采挖春笋，绿竹强村笋干加工坊(简称“工坊”)已全面投入笋干加工生产。
+这一成果首次从化石证据层面揭示了人类等羊膜动物呼吸方式的起源。
 
-在上陵镇翠山村，村民吴水娴正在竹林采挖春笋。
+记者10日从吉林大学恐龙演化研究中心获悉，上述研究由该中心联合中国、美国、加拿大、澳大利亚等多国科研机构共同完成。
 
-她表示：“今年春季雨水充沛，春笋长势良好，这段时间每天能挖两百多斤春笋，交给工坊后收入约百元。
+吉林大学恐龙演化研究中心名誉主任罗伯特·赖兹(加拿大多伦多大学古生物学特聘教授)为论文第一作者兼通讯作者，相关成果已发表于国际学术期刊《Nature》。
 
-” 据了解，上陵镇毛竹资源有12万亩，全镇立竹库存量超过2400万株，每年可产出毛竹400万根以上，所产毛竹笋肉质厚实、鲜嫩脆爽、清甜爽口，粗纤维丰富，富有嚼劲。
+研究聚焦一种名为大鼻龙(Captorhinus)的远古爬行动物，其生存于石炭纪晚期至二叠纪早期(3.07亿—2.72亿年前)。
 
-工坊去年派员工到福建永安学习毛竹抚育技术，引进乳酸发酵型白笋干制作工艺。
+科研人员对在美国俄克拉荷马州发现的大鼻龙化石展开系统研究。
 
-目前工坊年加工鲜笋可达50万斤，年产值约150万元，直接带动约100人就业。
+这类“木乃伊化”化石形成于2.89亿年前的特殊埋藏环境，保存了角质皮肤、软骨骨骼等精细三维结构，在古生物研究中极为罕见。
 
-此外，竹笋附加值明显提高，有效带动了竹农增收。
+借助中子CT扫描、X射线荧光光谱及同步辐射红外光谱等多学科交叉手段，研究团队重建了大鼻龙的胸廓结构。
 
 ## 相关推荐
 
-- 2026-06-30 00:07 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 00:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 00:00 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 00:10 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 00:17 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 00:05 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 00:17 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 00:14 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 00:10 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 00:13 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 00:18 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 00:14 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 00:22 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 23:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 23:58 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 00:07 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 00:06 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 00:26 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 00:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 00:09 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 00:14 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 00:15 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 00:15 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 00:11 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 00:08 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 00:29 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 00:19 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 00:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 00:19 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 00:08 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/429622129083.shtml)
-- 2026-06-30 00:02 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/34313.shtml)
-- 2026-06-30 00:13 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/46439744.shtml)
-- 2026-06-30 00:17 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/351156.shtml)
-- 2026-06-29 23:56 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/7230546531.shtml)
-- 2026-06-30 00:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/861544520226.shtml)
-- 2026-06-30 00:08 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/574952.shtml)
-- 2026-06-30 00:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/9771920.shtml)
-- 2026-06-29 23:54 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/32636820823.shtml)
-- 2026-06-30 00:14 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/3887386976.shtml)
-- 2026-06-29 23:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/599887722084.shtml)
-- 2026-06-30 00:10 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/5861811.shtml)
-- 2026-06-30 00:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/254697432765.shtml)
-- 2026-06-30 00:13 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/09181.shtml)
-- 2026-06-30 00:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/0161500409.shtml)
+- 2026-06-30 00:14 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/4857917235.shtml)
+- 2026-06-30 00:07 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/001605593.shtml)
+- 2026-06-30 00:11 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/893121769834.shtml)
+- 2026-06-30 00:10 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/09884608858.shtml)
+- 2026-06-30 00:04 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/674005766.shtml)
+- 2026-06-30 00:01 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/851517.shtml)
+- 2026-06-30 00:28 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/7055853.shtml)
+- 2026-06-30 00:19 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/969037380.shtml)
+- 2026-06-30 00:13 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/572975295388.shtml)
+- 2026-06-30 00:29 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/4333342053.shtml)
+- 2026-06-30 00:06 - [田曦薇没招了](http://www.share.minike.top/Article/details/30966169937.shtml)
+- 2026-06-30 00:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/551027394.shtml)
+- 2026-06-30 00:19 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/8480816.shtml)
+- 2026-06-30 00:15 - [这一刀 会很帅](https://www.share.minike.top/Article/details/474141.shtml)
+- 2026-06-30 00:25 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/16129.shtml)

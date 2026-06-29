@@ -1,56 +1,54 @@
-# 伊朗外交部称尚未决定是否参加新一轮美伊谈判
+# 斑马智能蔡明：车将成为“最早的机器人”
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月20日电 德黑兰消息：伊朗外交部发言人巴加埃20日表示，鉴于美国前后矛盾的举动，伊朗尚未就参加新一轮美伊谈判做出任何决定。 综合伊朗伊斯兰共和国通讯社、塔斯尼姆通讯社报道，巴加埃说，美国一边声称采取外交手段并准备谈判，一边对伊朗进行海上封锁、袭击伊朗商船，这些行为公然违反临时停火协议。美方没有表明其推进外交进程的诚意。 他强调，美国言行不一，这种自相矛盾只会加深伊
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。斑马智能首席产品官蔡明出席并演讲。 他指出，目前，公司已服务15个汽车品牌、超1000万辆量产车，端侧大模型合作定点几乎覆盖行业全部项目，成为智能座舱AI领域的“头号玩家”。 蔡明提出，AI的
 
 ## 正文
 
-中新社北京4月20日电 德黑兰消息：伊朗外交部发言人巴加埃20日表示，鉴于美国前后矛盾的举动，伊朗尚未就参加新一轮美伊谈判做出任何决定。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-综合伊朗伊斯兰共和国通讯社、塔斯尼姆通讯社报道，巴加埃说，美国一边声称采取外交手段并准备谈判，一边对伊朗进行海上封锁、袭击伊朗商船，这些行为公然违反临时停火协议。
+斑马智能首席产品官蔡明出席并演讲。
 
-美方没有表明其推进外交进程的诚意。
+他指出，目前，公司已服务15个汽车品牌、超1000万辆量产车，端侧大模型合作定点几乎覆盖行业全部项目，成为智能座舱AI领域的“头号玩家”。
 
-他强调，美国言行不一，这种自相矛盾只会加深伊朗对整个谈判进程的不信任，伊朗将在认真考虑自身国家利益的基础上，就未来道路做出必要决定。
+蔡明提出，AI的终极形态是“所有智能终端机器人化”，而汽车将成为“最早的机器人”。
 
-据美联社报道，美国总统特朗普曾表示，美国谈判代表将于20日抵达巴基斯坦首都伊斯兰堡，参加新一轮谈判。
+他表示，斑马智行的目标不仅是“让车更智能”，更是“让车成为最懂用户的机器人”。
 
-报道称，尽管外界对谈判能否举行存有疑问，巴基斯坦方面仍在为第二轮会谈做准备。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-自19日以来，巴基斯坦已加强与美伊的外交接触，以确保会谈最早于21日举行。
-
-(完)
+责任编辑：王翔
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 00:15 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 23:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 00:03 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 23:56 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 00:00 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 00:22 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 00:00 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 00:21 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 00:14 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 00:17 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 00:01 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 00:28 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 00:24 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 00:23 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 00:20 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 00:25 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 00:00 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 00:23 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 00:17 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/768719.shtml)
-- 2026-06-30 00:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/851639.shtml)
-- 2026-06-30 00:18 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/9988732.shtml)
-- 2026-06-29 23:54 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/04761695120.shtml)
-- 2026-06-29 23:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/583940493.shtml)
-- 2026-06-30 00:13 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/082005280792.shtml)
-- 2026-06-30 00:06 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/073117542.shtml)
-- 2026-06-30 00:05 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/9823806162.shtml)
-- 2026-06-30 00:19 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/5632811864.shtml)
-- 2026-06-30 00:08 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/2054234.shtml)
-- 2026-06-29 23:54 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/090583.shtml)
-- 2026-06-30 00:09 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/46448586.shtml)
-- 2026-06-29 23:54 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/938771268030.shtml)
-- 2026-06-30 00:20 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/25214704.shtml)
-- 2026-06-30 00:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/5524483.shtml)
+- 2026-06-30 00:25 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/24724803.shtml)
+- 2026-06-30 00:11 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/81015.shtml)
+- 2026-06-30 00:01 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/200082570810.shtml)
+- 2026-06-30 00:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/31495794497.shtml)
+- 2026-06-30 00:24 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/31176.shtml)
+- 2026-06-30 00:21 - [世界杯](https://www.share.kurohicncr.top/Article/details/26516.shtml)
+- 2026-06-30 00:21 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/055445729477.shtml)
+- 2026-06-30 00:24 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/98183.shtml)
+- 2026-06-30 00:17 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/924812521184.shtml)
+- 2026-06-30 00:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/7980273459.shtml)
+- 2026-06-30 00:23 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/6527923812.shtml)
+- 2026-06-30 00:04 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/732124154551.shtml)
+- 2026-06-30 00:03 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/5526484.shtml)
+- 2026-06-30 00:20 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/744979806.shtml)
+- 2026-06-30 00:28 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/41230019610.shtml)

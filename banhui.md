@@ -1,61 +1,52 @@
-# 报告显示银龄群体成工作日休闲时间“看书学习”第一主力
+# 内塔尼亚胡：“消灭真主党”是以黎谈判前提
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新社南昌4月21日电 (记者 李韵涵)第五届全民阅读大会·银龄阅读论坛21日在南昌召开，论坛上发布的《银龄阅读趋势报告(2026)》(以下简称“报告”)显示，60岁以上银龄群体是工作日休闲时间“看书学习”第一主力。该报告对9.7万余名受访者开展线下入户问卷调查，同步对近2.4万名受访者进行线上问卷调查，样本覆盖中国各省份城乡地区。 报告对“工作日的休闲时间您通常做什么”进行了
+新华社耶路撒冷4月11日电(记者王卓伦 冯国芮)以色列总理内塔尼亚胡11日晚发表声明称，“消灭(黎巴嫩)真主党”是以色列与黎巴嫩进行停火谈判的先决条件。 内塔尼亚胡说，针对黎巴嫩政府有关启动直接和平谈判的建议，以色列提出两项条件：一是解除真主党武装，二是达成“可持续数代、真正的和平协议”。 内塔尼亚胡还说，以色列将继续对加沙地带的巴勒斯坦伊斯兰抵抗运动(哈马斯)采取行动。 黎巴
 
 ## 正文
 
-中新社南昌4月21日电 (记者 李韵涵)第五届全民阅读大会·银龄阅读论坛21日在南昌召开，论坛上发布的《银龄阅读趋势报告(2026)》(以下简称“报告”)显示，60岁以上银龄群体是工作日休闲时间“看书学习”第一主力。
+新华社耶路撒冷4月11日电(记者王卓伦 冯国芮)以色列总理内塔尼亚胡11日晚发表声明称，“消灭(黎巴嫩)真主党”是以色列与黎巴嫩进行停火谈判的先决条件。
 
-该报告对9.7万余名受访者开展线下入户问卷调查，同步对近2.4万名受访者进行线上问卷调查，样本覆盖中国各省份城乡地区。
+内塔尼亚胡说，针对黎巴嫩政府有关启动直接和平谈判的建议，以色列提出两项条件：一是解除真主党武装，二是达成“可持续数代、真正的和平协议”。
 
-报告对“工作日的休闲时间您通常做什么”进行了调查，在14个选项中，有32.23%的受访者选择了“看书学习”，超三成的中国人在休闲时间与书香为伴。
+内塔尼亚胡还说，以色列将继续对加沙地带的巴勒斯坦伊斯兰抵抗运动(哈马斯)采取行动。
 
-其中，60岁以上银龄群体是全年龄段中“看书学习”占比最高的群体，且银龄群体连续三年保持了全年龄段领先优势。
+黎巴嫩真主党籍议员阿里·法耶兹9日呼吁黎政府将以色列遵守停火协议作为任何后续行动的前提，并强调真主党议员党团反对与以色列直接谈判。
 
-报告指出，银龄群体对学习的热情，正转化为强劲的消费力。
+2024年11月黎以停火协议生效后，以色列不仅拒绝从黎南部全面撤军，还以受伊朗支持的黎巴嫩真主党试图重建军事力量、违反停火协议为由，频频发动空袭，并向黎巴嫩政府施压。
 
-数据显示，2026年有23.12%的银发族计划为“学习培训等教育支出”增加消费，占比超过传统刚需“医疗服务”1.79个百分点。
-
-报告调查发现，从城乡维度看，无论是城市还是农村，经常“看书学习”的银龄群体占比都不输于其他年龄段。
-
-具体来看，城市银龄群体中经常看书学习的人数占比为34.31%，农村为32.79%，1.52个百分点的差距，打破了“农村老人不读书”的刻板印象。
+美国和以色列今年2月28日对伊朗发起大规模军事行动后，黎以战火重燃。
 
 ## 相关推荐
 
-- 2026-06-30 00:10 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 00:01 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 00:18 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 00:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 23:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 00:06 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 00:10 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 23:54 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 00:08 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 00:11 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 00:12 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 00:12 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 23:58 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 00:24 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 00:15 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 00:01 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 00:03 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 00:05 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 00:02 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 00:27 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 00:20 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 00:19 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 00:27 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 00:01 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 00:06 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/760161.shtml)
-- 2026-06-29 23:54 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/9771116.shtml)
-- 2026-06-29 23:54 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/58175.shtml)
-- 2026-06-30 00:21 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/06967.shtml)
-- 2026-06-30 00:06 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/9515385.shtml)
-- 2026-06-30 00:16 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/71968.shtml)
-- 2026-06-30 00:18 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/566500310.shtml)
-- 2026-06-30 00:20 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/756587.shtml)
-- 2026-06-30 00:04 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/1993499.shtml)
-- 2026-06-30 00:23 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/92445682.shtml)
-- 2026-06-30 00:17 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/263322.shtml)
-- 2026-06-30 00:22 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/44193050632.shtml)
-- 2026-06-30 00:04 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/11630021678.shtml)
-- 2026-06-30 00:12 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/53291615768.shtml)
-- 2026-06-30 00:11 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/86903396.shtml)
+- 2026-06-30 00:05 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/4085904.shtml)
+- 2026-06-30 00:28 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/204621.shtml)
+- 2026-06-30 00:06 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/408430822.shtml)
+- 2026-06-30 00:24 - [一见倾心](http://www.blog.minike.top/Article/details/7799794.shtml)
+- 2026-06-30 00:14 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/873788061287.shtml)
+- 2026-06-30 00:29 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/042427549.shtml)
+- 2026-06-30 00:10 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/34423.shtml)
+- 2026-06-30 00:04 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/59063594148.shtml)
+- 2026-06-30 00:17 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/90623864.shtml)
+- 2026-06-30 00:13 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/200679370.shtml)
+- 2026-06-30 00:03 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/868192152377.shtml)
+- 2026-06-30 00:08 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/906021446493.shtml)
+- 2026-06-30 00:22 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/52849.shtml)
+- 2026-06-30 00:16 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/083160811.shtml)
+- 2026-06-30 00:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/60482.shtml)

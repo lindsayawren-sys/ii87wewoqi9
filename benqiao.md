@@ -1,60 +1,60 @@
-# 三部门联合出台意见 破解“工厂开窗关窗”标准不一难题
+# 北京平谷国际桃花节开幕 全域“宠客”惠民生
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-为巩固规范涉企行政执法专项行动成果，健全规范涉企执法长效机制，持续为企业松绑减负，近日，司法部会同生态环境部、应急管理部出台《关于正确理解和适用“工厂开窗还是关窗生产”执法标准的意见》(以下简称“《意见》”)，直面企业反映强烈的“工厂开窗还是关窗生产”痛点问题，指导基层精准化、规范化适用执法标准，推动执法监管既严守安全和生态底线，又坚决杜绝“一刀切”机械执法，全力护航经济社会高
+中新网北京4月10日电(记者 徐婧)第二十八届北京平谷国际桃花节10日开幕。本届桃花节以“桃醉平谷·共赢未来”为主题，围绕农文体旅商融合发展主线，全域暖心“宠客”，通过精品游览线路打造、惠民举措落地、夜间场景营造、沉浸式活动升级等聚人气、兴产业、惠民生。 历经50余年发展，平谷大桃已成为国家地理标志产品，拥有白桃、蟠桃、油桃和黄桃四大系列近300个品种，以“平谷大桃地方标准”为
 
 ## 正文
 
-为巩固规范涉企行政执法专项行动成果，健全规范涉企执法长效机制，持续为企业松绑减负，近日，司法部会同生态环境部、应急管理部出台《关于正确理解和适用“工厂开窗还是关窗生产”执法标准的意见》(以下简称“《意见》”)，直面企业反映强烈的“工厂开窗还是关窗生产”痛点问题，指导基层精准化、规范化适用执法标准，推动执法监管既严守安全和生态底线，又坚决杜绝“一刀切”机械执法，全力护航经济社会高质量发展。
+中新网北京4月10日电(记者 徐婧)第二十八届北京平谷国际桃花节10日开幕。
 
-《意见》在总结地方实践经验的基础上，多维度系统施策，靶向化解执法难题。
+本届桃花节以“桃醉平谷·共赢未来”为主题，围绕农文体旅商融合发展主线，全域暖心“宠客”，通过精品游览线路打造、惠民举措落地、夜间场景营造、沉浸式活动升级等聚人气、兴产业、惠民生。
 
-一是聚焦“开关窗”核心要求，精准破解监管难题。
+历经50余年发展，平谷大桃已成为国家地理标志产品，拥有白桃、蟠桃、油桃和黄桃四大系列近300个品种，以“平谷大桃地方标准”为核心的近百项技术集成体系，依托与科研院所的合作，为这片土地注入新动能。
 
-明确标准内涵及例外规定，从生态环境保护角度，无法封闭或密闭的，可以采取清洁原料、废气局部收集处理等措施，不是“一律关窗”；从安全生产角度，当危险物超出安全阀值时，需要采取风机联锁等通风措施，不是“一直开窗”，要求执法人员根据现场实际研判，为企业生产经营留足空间。
+在开幕式核心环节，一场特别展示成为焦点。
 
-二是建立健全联合执法机制，打通监管衔接堵点。
+从本土果农讲述坚守生态种植的初心，到行业专家解读科技如何赋能新品种研发与全链条升级；从桃汁、桃酒等深加工产品远销海外，到桃文化研学与农事体验的兴起，勾勒出平谷大桃从“一产”发力，向“二产”深加工、“三产”文旅服务延伸的产业链。
 
-强化执法程序保障，要求各地生态环境、应急管理部门严格落实有关规定，建立健全协同联动机制，统筹制定联合检查计划，开展联合执法，加强协同治理，及时会商解决监管要求不一致的问题。
+本届桃花节的一大亮点是平谷区全域开启“宠客模式”。
 
-三是强化协同指导服务，兼顾安全与发展。
+为提升游客体验，平谷推出八项重磅惠民举措，包括桃花节期间，生肖属马的游客可凭身份证免费畅游9大景区等。
 
-着力提升基层执法人员精准执法、服务企业能力水平，督促各地生态环境、应急管理部门统筹生产经营与安全生产、生态环境保护的关系，不断增强服务意识，指导企业严格执行法律法规及标准规范，科学规范设置设备设施，同步满足环保和安全要求，切实帮助企业破解两难困境。
+该区增设便民停车位4700余个，开通3条免费摆渡车，在核心区设立160余个“桃花小屋”便民服务站，保障游客出行顺畅。
 
 ## 相关推荐
 
-- 2026-06-30 00:08 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 00:20 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 00:02 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 23:59 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 00:18 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 00:05 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 00:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 23:57 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 00:11 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 00:02 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 23:59 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 00:02 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 00:06 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 00:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 00:25 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 00:08 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 00:16 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 00:06 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 00:18 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 00:23 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 00:03 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 00:05 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 00:12 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 00:14 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 00:13 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-30 00:01 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 00:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 00:18 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:00 - [周生如故](https://www.blog.kurohicncr.top/Article/details/376689759.shtml)
-- 2026-06-30 00:14 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/5940000.shtml)
-- 2026-06-30 00:20 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/8310424961.shtml)
-- 2026-06-30 00:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/36214.shtml)
-- 2026-06-30 00:20 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/60301855.shtml)
-- 2026-06-30 00:01 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/4943644120.shtml)
-- 2026-06-30 00:16 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/46444213.shtml)
-- 2026-06-30 00:00 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/6182408363.shtml)
-- 2026-06-30 00:09 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/8223486.shtml)
-- 2026-06-30 00:20 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/95534373477.shtml)
-- 2026-06-30 00:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/324567012.shtml)
-- 2026-06-29 23:57 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/089538.shtml)
-- 2026-06-30 00:18 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/555275875.shtml)
-- 2026-06-30 00:11 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/5822026815.shtml)
-- 2026-06-30 00:02 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/91404073.shtml)
+- 2026-06-30 00:19 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/04723.shtml)
+- 2026-06-30 00:28 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/32534010708.shtml)
+- 2026-06-30 00:01 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/89614.shtml)
+- 2026-06-30 00:03 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/861751715.shtml)
+- 2026-06-30 00:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/97357975.shtml)
+- 2026-06-30 00:02 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/863151.shtml)
+- 2026-06-30 00:15 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/2751685646.shtml)
+- 2026-06-30 00:05 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/4619202.shtml)
+- 2026-06-30 00:01 - [欧洲缘何成为变暖最快的大洲](http://www.share.kurohicncr.top/Article/details/94063430962.shtml)
+- 2026-06-30 00:06 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/620191.shtml)
+- 2026-06-30 00:21 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/530923384341.shtml)
+- 2026-06-30 00:14 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/028112562.shtml)
+- 2026-06-30 00:22 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/24417433363.shtml)
+- 2026-06-30 00:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/854216.shtml)
+- 2026-06-30 00:13 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/69720258.shtml)

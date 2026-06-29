@@ -1,57 +1,50 @@
-# 3月末中国债券市场托管余额达200万亿元
+# 伊朗政府发言人：伊方将以最高谨慎态度参与谈判
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月20日电 (陶思阅)中国央行20日公布2026年3月金融市场运行情况。数据显示，截至3月末，中国债券市场托管余额为200万亿元(人民币，下同)。 3月，政府债券净融资11657.8亿元，同比减少3208.2亿元；企业债券净融资3909.7亿元，同比增加4814.2亿元。一季度熊猫债券累计发行842.4亿元，新增10家境外机构进入银行间债券市场。 此外，3月黄金市场
+专题：美伊谈判最新进展 当地时间11日，伊朗政府发言人穆哈杰拉尼表示，伊朗派遣以议长卡利巴夫率领的外交团队参加美伊谈判，显示了伊朗进行对话的意愿。她强调，正如伊朗总统此前所说，伊朗将以“手指放在扳机上”的状态进行谈判。伊方虽然愿意对话，但对对方缺乏信任，因此伊朗外交团队将以最高谨慎态度参与谈判。 穆哈杰拉尼希望，在最高领袖的指导下，伊朗谈判团队能够取得成功。（总台记者 李健南
 
 ## 正文
 
-中新社北京4月20日电 (陶思阅)中国央行20日公布2026年3月金融市场运行情况。
+专题：美伊谈判最新进展 当地时间11日，伊朗政府发言人穆哈杰拉尼表示，伊朗派遣以议长卡利巴夫率领的外交团队参加美伊谈判，显示了伊朗进行对话的意愿。
 
-数据显示，截至3月末，中国债券市场托管余额为200万亿元(人民币，下同)。
+她强调，正如伊朗总统此前所说，伊朗将以“手指放在扳机上”的状态进行谈判。
 
-3月，政府债券净融资11657.8亿元，同比减少3208.2亿元；企业债券净融资3909.7亿元，同比增加4814.2亿元。
+伊方虽然愿意对话，但对对方缺乏信任，因此伊朗外交团队将以最高谨慎态度参与谈判。
 
-一季度熊猫债券累计发行842.4亿元，新增10家境外机构进入银行间债券市场。
+穆哈杰拉尼希望，在最高领袖的指导下，伊朗谈判团队能够取得成功。
 
-此外，3月黄金市场价格显著回落。
-
-3月末，上海黄金交易所Au(T+D)合约收于每克1015.7元，环比下跌11.1%；上海黄金交易所黄金成交5675.4吨，同比减少6.3%。
-
-从外汇市场看，人民币对美元小幅贬值，人民币汇率指数走强。
-
-3月末，银行间外汇市场人民币对美元汇率收盘价为6.9081，较上月末贬值0.76%，中国外汇交易中心(CFETS)人民币汇率指数为100.87，较上月末升值2.32%。
+（总台记者 李健南 江浩宇）责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 00:18 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 00:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 23:59 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 23:55 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 00:17 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 23:58 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 00:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 23:59 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 00:22 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 00:19 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 00:15 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 00:26 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 00:08 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 00:07 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 00:20 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 00:21 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 00:14 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 00:24 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 00:21 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 00:02 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/79654764.shtml)
-- 2026-06-30 00:11 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/857158384480.shtml)
-- 2026-06-30 00:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/584716476078.shtml)
-- 2026-06-30 00:09 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/14445176963.shtml)
-- 2026-06-30 00:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/26984.shtml)
-- 2026-06-30 00:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/13662219.shtml)
-- 2026-06-30 00:10 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/7795001.shtml)
-- 2026-06-30 00:12 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/1860581.shtml)
-- 2026-06-30 00:16 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/320890762.shtml)
-- 2026-06-30 00:19 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/723734666.shtml)
-- 2026-06-30 00:20 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/9200620181.shtml)
-- 2026-06-30 00:11 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/345413.shtml)
-- 2026-06-30 00:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/125375822.shtml)
-- 2026-06-29 23:56 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/916663.shtml)
-- 2026-06-30 00:09 - [东方风云榜](http://www.share.minike.top/Article/details/75701.shtml)
+- 2026-06-30 00:12 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/543133.shtml)
+- 2026-06-30 00:04 - [肝不好身体这几处会“说话”](https://www.share.kurohicncr.top/Article/details/25336153321.shtml)
+- 2026-06-30 00:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/6849666.shtml)
+- 2026-06-30 00:00 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/63684695.shtml)
+- 2026-06-30 00:03 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/55002.shtml)
+- 2026-06-30 00:22 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/3037829642.shtml)
+- 2026-06-30 00:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/24812.shtml)
+- 2026-06-30 00:29 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/5160197.shtml)
+- 2026-06-30 00:19 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/42682479.shtml)
+- 2026-06-30 00:22 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/36368.shtml)
+- 2026-06-30 00:18 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/997505.shtml)
+- 2026-06-30 00:27 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/714538375359.shtml)
+- 2026-06-30 00:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/978465645.shtml)
+- 2026-06-30 00:05 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/7137030.shtml)
+- 2026-06-30 00:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/17611198.shtml)

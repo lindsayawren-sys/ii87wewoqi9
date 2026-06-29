@@ -1,58 +1,60 @@
-# 美伊停火协议将到期 中方：支持保持停火和谈判势头
+# 全国铁路4月10日18时起实行新的货物列车运行图
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新网北京4月21日电 (记者 黄钰钦)中国外交部发言人郭嘉昆21日主持例行记者会。 有记者提问：美国与伊朗之间的停火协议将于“华盛顿时间22日晚”到期，目前尚不清楚美伊是否会在巴基斯坦复谈。中方对当前事态有何评论？ 郭嘉昆：当前地区形势正处在战和转换的关键阶段。和平窗口既已打开，就应为尽早结束战争创造有利条件。中方支持相关方继续保持停火和谈判势头，将继续为推动局势缓和、实现中
+中新网4月10日电 据“中国铁路”微信公众号消息，全国铁路4月10日18时起实行新的货物列车运行图。 一是优化城际班列产品，促进城市间货物快速集散。城际班列主要在城市之间点对点开行，安排固定运行时刻，以‌整车运输为主。二季度，安排开行最高时速160公里的特快城际班列8列、最高时速120公里的快速城际班列53列以及最高时速80公里的普快城际班列87列，其中增开长春北至乔司、乔司至
 
 ## 正文
 
-中新网北京4月21日电 (记者 黄钰钦)中国外交部发言人郭嘉昆21日主持例行记者会。
+中新网4月10日电 据“中国铁路”微信公众号消息，全国铁路4月10日18时起实行新的货物列车运行图。
 
-有记者提问：美国与伊朗之间的停火协议将于“华盛顿时间22日晚”到期，目前尚不清楚美伊是否会在巴基斯坦复谈。
+一是优化城际班列产品，促进城市间货物快速集散。
 
-中方对当前事态有何评论？
+城际班列主要在城市之间点对点开行，安排固定运行时刻，以‌整车运输为主。
 
-郭嘉昆：当前地区形势正处在战和转换的关键阶段。
+二季度，安排开行最高时速160公里的特快城际班列8列、最高时速120公里的快速城际班列53列以及最高时速80公里的普快城际班列87列，其中增开长春北至乔司、乔司至团结村、芜湖东至库尔勒等方向快速城际班列8列，增开二连至侯马北、勉西至成都北、乔司至龙川北等方向普快城际班列6列，安排开行棉花班列5列，更好服务‌国内城市间电商、快递、民生物资等时效性货物运输。
 
-和平窗口既已打开，就应为尽早结束战争创造有利条件。
+二是优化多式联运班列产品，提升全程综合物流效能。
 
-中方支持相关方继续保持停火和谈判势头，将继续为推动局势缓和、实现中东地区的持久和平稳定发挥建设性作用。
+多式联运班列采用集装箱运输方式、与其他运输方式有序衔接、实现“一箱到底”，提供全程物流服务。
 
-(完）
+二季度，安排开行最高时速120公里的快速多式联运班列81列，最高时速80公里的普快多式联运班列121列，继续开行京津冀、长三角、粤港澳大湾区、成渝等主要经济区域间的快捷物流示范班列，实行网上公开订舱；增开赤峰南至南仓、石家庄南至广州国际港、城厢至王家营西等方向快速多式联运班列13列；增开漯河东至铜城闸、襄阳北至靖边东、万州至乌西等方向普快多式联运班列16列，为跨区域货物运输提供更加快速、准时、可靠、经济的综合物流解决方案。
+
+动态优化西部陆海新通道海铁联运班列开行方案，适时增加班列运行线、发到站点，服务沿线内外贸运输。
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 00:00 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 00:06 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 00:21 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 00:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 00:10 - [刘宇宁 好听](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 00:19 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 00:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-30 00:18 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 23:57 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 23:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 00:04 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 00:14 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 00:19 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 00:16 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 00:11 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 00:10 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 00:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 00:03 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 00:03 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 00:06 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 00:29 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 00:13 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 00:10 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 00:27 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 00:08 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 00:28 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 00:19 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/322626.shtml)
-- 2026-06-30 00:15 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/684886.shtml)
-- 2026-06-29 23:58 - [千香](http://www.blog.kurohicncr.top/Article/details/658175154109.shtml)
-- 2026-06-30 00:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/10643557298.shtml)
-- 2026-06-30 00:17 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/075110.shtml)
-- 2026-06-29 23:59 - [肝不好身体这几处会“说话”](http://www.blog.kurohicncr.top/Article/details/6502108.shtml)
-- 2026-06-30 00:02 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/0552952.shtml)
-- 2026-06-30 00:10 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/12869211993.shtml)
-- 2026-06-30 00:17 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/90496349.shtml)
-- 2026-06-30 00:11 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/850265754.shtml)
-- 2026-06-30 00:12 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/24495033998.shtml)
-- 2026-06-30 00:04 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/142244254145.shtml)
-- 2026-06-30 00:17 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/694938088378.shtml)
-- 2026-06-30 00:10 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/4031419242.shtml)
-- 2026-06-30 00:14 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/557241079738.shtml)
+- 2026-06-30 00:27 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/98087.shtml)
+- 2026-06-30 00:13 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/256881208586.shtml)
+- 2026-06-30 00:20 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/63464.shtml)
+- 2026-06-30 00:04 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/68309195425.shtml)
+- 2026-06-30 00:18 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/9442740.shtml)
+- 2026-06-30 00:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/6887861.shtml)
+- 2026-06-30 00:05 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/44551776830.shtml)
+- 2026-06-30 00:07 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/827981689.shtml)
+- 2026-06-30 00:03 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/02857050.shtml)
+- 2026-06-30 00:06 - [逃狱兄弟](http://www.share.minike.top/Article/details/17416.shtml)
+- 2026-06-30 00:20 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/63485972.shtml)
+- 2026-06-30 00:02 - [月亮](http://www.share.kurohicncr.top/Article/details/50726.shtml)
+- 2026-06-30 00:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/90376.shtml)
+- 2026-06-30 00:24 - [扫黑风暴](http://www.share.minike.top/Article/details/1100899.shtml)
+- 2026-06-30 00:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/21599220.shtml)

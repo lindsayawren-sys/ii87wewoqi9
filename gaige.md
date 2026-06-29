@@ -1,57 +1,58 @@
-# 阿联酋据悉寻求与美国建立货币互换机制，警告若美元短缺或改用人民币交易石油
+# 俄罗斯总统普京宣布东正教复活节期间停火 乌总统泽连斯基表示同意
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-专题：中国股市有望走出新高 新兴科技是主线 据报道，阿联酋央行行长上周在华盛顿特区与美国财政部和美联储官员会晤期间，提出了建立货币互换机制的想法。 尽管阿联酋目前尚未受到伊朗冲突最严重的经济影响，但其能源基础设施已遭到破坏，而霍尔木兹海峡的封锁阻断了石油出口，从而影响了其美元计价的收入。 如果伊朗冲突引发更严重的经济衰退，与美国达成货币互换协议将为阿联酋央行提供廉价的美元供应，
+俄罗斯总统普京周四宣布，东正教复活节期间将停火32小时，乌克兰总统泽连斯基表示，基辅方面将遵守这一做法。克里姆林宫声明称：“鉴于东正教复活节即将到来，现宣布自4月11日16时至12日24时停火。”声明并称，认为乌克兰方面将效仿俄罗斯联邦的做法。声明称，俄国防部长别洛乌索夫（Andrei Belousov）已向总参谋长格拉西莫夫（Valery Gerasimov）下达命令，“在停
 
 ## 正文
 
-专题：中国股市有望走出新高 新兴科技是主线 据报道，阿联酋央行行长上周在华盛顿特区与美国财政部和美联储官员会晤期间，提出了建立货币互换机制的想法。
+俄罗斯总统普京周四宣布，东正教复活节期间将停火32小时，乌克兰总统泽连斯基表示，基辅方面将遵守这一做法。
 
-尽管阿联酋目前尚未受到伊朗冲突最严重的经济影响，但其能源基础设施已遭到破坏，而霍尔木兹海峡的封锁阻断了石油出口，从而影响了其美元计价的收入。
+克里姆林宫声明称：“鉴于东正教复活节即将到来，现宣布自4月11日16时至12日24时停火。
 
-如果伊朗冲突引发更严重的经济衰退，与美国达成货币互换协议将为阿联酋央行提供廉价的美元供应，用于支撑与美元挂钩的迪拉姆，或在流动性不足时补充外汇储备。
+”声明并称，认为乌克兰方面将效仿俄罗斯联邦的做法。
 
-据报道，阿联酋官员还指出，是美国挑起了伊朗战事，使阿联酋卷入这场毁灭性冲突，并表示如果美元供应紧张，他们可能被迫使用人民币或其他货币进行石油交易。
+声明称，俄国防部长别洛乌索夫（Andrei Belousov）已向总参谋长格拉西莫夫（Valery Gerasimov）下达命令，“在停火期间停止所有方向作战行动，”同时表示“部队须做好准备，应对敌方一切可能的挑衅及侵犯行为。
 
-任何主要产油国放弃美元都将对美元的霸主地位构成重大威胁。
+”泽连斯基发文称，乌克兰曾多次提议在东正教复活节期间停火。
 
-沙特在1974年决定以美元计价其石油出口，这一举措帮助确立了美元在全球石油贸易中的标准地位。
+今年东正教复活节为4月12日。
 
-由于石油是制造业和运输业的核心投入，其他地区的供应链也纷纷美元化，从而巩固了美元在支付领域的主导地位。
-
-但德意志银行的析师上个月警告称，伊朗冲突可能会加剧所谓“石油美元”体系中已经出现的一些裂痕。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 00:02 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 00:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 00:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 00:09 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 00:19 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 00:00 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 00:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 23:54 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 00:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 00:01 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 00:04 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 00:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 00:18 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 00:16 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 00:01 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 00:29 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 00:08 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 00:14 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 00:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 00:15 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 00:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 00:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 00:29 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 00:11 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:22 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/11217451.shtml)
-- 2026-06-30 00:21 - [月亮](http://www.blog.kurohicncr.top/Article/details/59613951.shtml)
-- 2026-06-30 00:10 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/3876753.shtml)
-- 2026-06-30 00:06 - [世界杯](http://www.share.minike.top/Article/details/16462.shtml)
-- 2026-06-30 00:23 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/448366.shtml)
-- 2026-06-30 00:06 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/86604.shtml)
-- 2026-06-30 00:13 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/15573.shtml)
-- 2026-06-29 23:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/901447.shtml)
-- 2026-06-30 00:10 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/720942369.shtml)
-- 2026-06-30 00:06 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/11033427645.shtml)
-- 2026-06-29 23:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/5170438429.shtml)
-- 2026-06-29 23:56 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/79830917481.shtml)
-- 2026-06-30 00:18 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/50720689.shtml)
-- 2026-06-29 23:58 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/745441.shtml)
-- 2026-06-30 00:14 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/14587384.shtml)
+- 2026-06-30 00:24 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/4119935023.shtml)
+- 2026-06-30 00:22 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/87817.shtml)
+- 2026-06-30 00:07 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/592898.shtml)
+- 2026-06-30 00:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/05375283.shtml)
+- 2026-06-30 00:14 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/74529805.shtml)
+- 2026-06-30 00:18 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/536780983724.shtml)
+- 2026-06-30 00:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/22133.shtml)
+- 2026-06-30 00:20 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/3713994373.shtml)
+- 2026-06-30 00:12 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/27908447090.shtml)
+- 2026-06-30 00:15 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/2457020547.shtml)
+- 2026-06-30 00:20 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/1720910614.shtml)
+- 2026-06-30 00:27 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/3335015475.shtml)
+- 2026-06-30 00:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/4252404645.shtml)
+- 2026-06-30 00:18 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/965396226312.shtml)
+- 2026-06-30 00:04 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/415105243.shtml)

@@ -1,57 +1,59 @@
-# 全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证
+# 十几万娶的“外籍新娘”全跑路 揭秘跨境骗婚黑色产业链
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月21日电 (记者 庞无忌)记者21日从中国广核集团(简称“中广核”)获悉，由中广核自主研发的全球开口最大——8.6米熔盐槽式集热器成套装备及工艺，当日在青海省德令哈市中广核光热试验基地中试平台完成技术验证。这标志着中国全面掌握熔盐槽式集热核心技术，为国内大型熔盐槽式光热项目的规模化发展奠定基础。 “该中试平台由槽式集热系统、储热系统、蒸汽发生系统等构成，是目前全球
+十几万就能娶越南、缅甸“温柔新娘”？这样的违规广告吸引了一些单身人士的目光。但广告的背后，根本不是相亲，而是组织偷渡加连环骗婚的黑色产业链。国家移民管理局、公安部、中国海警局自2022年起联合开展“獴猎”行动，严打组织偷渡、伪造证件、跨境电诈、涉外婚骗等违法犯罪，已侦办数万起案件、抓获数万名嫌疑人。近日，山东边检总站与湖南省冷水江市公安局公布，两地警方联合办案，凭一条可疑网帖，
 
 ## 正文
 
-中新社北京4月21日电 (记者 庞无忌)记者21日从中国广核集团(简称“中广核”)获悉，由中广核自主研发的全球开口最大——8.6米熔盐槽式集热器成套装备及工艺，当日在青海省德令哈市中广核光热试验基地中试平台完成技术验证。
+十几万就能娶越南、缅甸“温柔新娘”？
 
-这标志着中国全面掌握熔盐槽式集热核心技术，为国内大型熔盐槽式光热项目的规模化发展奠定基础。
+这样的违规广告吸引了一些单身人士的目光。
 
-“该中试平台由槽式集热系统、储热系统、蒸汽发生系统等构成，是目前全球开口尺寸最大的标准熔盐槽式集热器测试系统。
+但广告的背后，根本不是相亲，而是组织偷渡加连环骗婚的黑色产业链。
 
-其中，槽式集热系统作为核心组成部分，采用标准模块化设计，有效集热面积5970平方米，由4组长度182米、开口8.6米的集热器阵列组成。
+国家移民管理局、公安部、中国海警局自2022年起联合开展“獴猎”行动，严打组织偷渡、伪造证件、跨境电诈、涉外婚骗等违法犯罪，已侦办数万起案件、抓获数万名嫌疑人。
 
-”中广核光热技术型号首席专家尹航表示，该集热技术采用熔盐作为传热介质，聚光比达107.5倍，可实现290摄氏度进口至550摄氏度出口的稳定运行，实现储能温差达260摄氏度，是传统导热油系统的2.6倍，电网调峰保障能力显著增强。
+近日，山东边检总站与湖南省冷水江市公安局公布，两地警方联合办案，凭一条可疑网帖，牵出一桩特大跨境婚骗案。
 
-该成套装备的关键设备——包括集热器支架、柔性连接组件、就地控制器和支架精度面形检测装置等，均由中广核牵头国内产业链优势企业完成攻关，实现核心技术100%自主可控。
+一条可疑网帖牵出特大跨境婚骗案 2025年2月，山东边检总站石岛边检站民警在日常网络巡查时，一条高频刷屏的违规广告，瞬间触发预警。
 
-针对熔盐槽式光热技术的运行痛点，中广核还系统开展了集热管预热、大流速排气与压缩空气排盐、无人机检测、系统防凝以及阻抗加热等技术攻关，形成全套成熟工艺与设备方案，并在中试平台进行了验证。
+有人长期公开揽客，专业介绍越南、缅甸美女入境结婚生子。
 
-光热发电兼具调峰电源和长时储能双重功能。
+话术极具诱惑，专门瞄准单身男性。
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 23:59 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 00:03 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 23:57 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 00:19 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 00:15 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 00:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 00:01 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 00:16 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 00:15 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 00:14 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 00:20 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 00:10 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 00:21 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 00:03 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 00:05 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 00:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-30 00:19 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 00:30 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 00:06 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 00:12 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 00:29 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 00:12 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 00:01 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:04 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/118650.shtml)
-- 2026-06-29 23:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/802078158715.shtml)
-- 2026-06-30 00:18 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/18546768869.shtml)
-- 2026-06-30 00:20 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/246349341254.shtml)
-- 2026-06-30 00:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/195044270.shtml)
-- 2026-06-29 23:58 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/32237071584.shtml)
-- 2026-06-30 00:13 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/10154.shtml)
-- 2026-06-30 00:16 - [女心理师](https://www.blog.kurohicncr.top/Article/details/530024806.shtml)
-- 2026-06-30 00:09 - [斗破苍穹](http://www.share.minike.top/Article/details/3757361.shtml)
-- 2026-06-30 00:08 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/3869918891.shtml)
-- 2026-06-30 00:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/9417870901.shtml)
-- 2026-06-30 00:11 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/5920552004.shtml)
-- 2026-06-30 00:02 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/25857.shtml)
-- 2026-06-30 00:14 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/75271501.shtml)
-- 2026-06-30 00:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/201339278717.shtml)
+- 2026-06-30 00:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/87751.shtml)
+- 2026-06-30 00:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/664330.shtml)
+- 2026-06-30 00:14 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/72455.shtml)
+- 2026-06-30 00:23 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/2335620.shtml)
+- 2026-06-30 00:02 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/06584191.shtml)
+- 2026-06-30 00:15 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/9028936375.shtml)
+- 2026-06-30 00:08 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/1759543.shtml)
+- 2026-06-30 00:20 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/8685849.shtml)
+- 2026-06-30 00:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/808545.shtml)
+- 2026-06-30 00:29 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/16013.shtml)
+- 2026-06-30 00:22 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/08651.shtml)
+- 2026-06-30 00:22 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/91639936751.shtml)
+- 2026-06-30 00:14 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/1654030.shtml)
+- 2026-06-30 00:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/18169393872.shtml)
+- 2026-06-30 00:28 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/7544259273.shtml)

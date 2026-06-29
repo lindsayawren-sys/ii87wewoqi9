@@ -1,50 +1,56 @@
-# 机器人半马冠军打破人类记录 工程师：主要是学习了人类的大长腿
+# 探访新疆喀什多样巴扎：烟火气一直都没变
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月20日 00:54 来源：中国新闻网 4月19日，2026人形机器人半程马拉松鸣枪开跑，来自荣耀的齐天大圣战队自主导航机器人“闪电”以50分26秒(净用时)的成绩夺得冠军，打破了人类半程马拉松57分20秒的记录。谈及夺冠感想，荣耀终端股份有限公司工程师杜晓迪表示，主要是我们在设计时，参考学习了人类优秀运动员的“大长腿”。 (记者 谢龙飞 董泽宇 制作
+发布时间：2026年04月10日 17:26 来源：中国新闻网 在新疆，巴扎(意为：集市或农贸市场)不仅是买卖货物的场所，也是数千年生活在这片土地上的人们生活的集体记忆。从物资交换到如今成为日常消费、文化旅游一体的多元空间，喀什市的每一个具有特色的巴扎正经历着悄无声息的变化。4月10日，中新社记者走进新疆喀什市3处巴扎，记录下传统集市的变迁图景。 汗巴扎从昔日土巷子发展为汇聚上
 
 ## 正文
 
-发布时间：2026年04月20日 00:54 来源：中国新闻网 4月19日，2026人形机器人半程马拉松鸣枪开跑，来自荣耀的齐天大圣战队自主导航机器人“闪电”以50分26秒(净用时)的成绩夺得冠军，打破了人类半程马拉松57分20秒的记录。
+发布时间：2026年04月10日 17:26 来源：中国新闻网 在新疆，巴扎(意为：集市或农贸市场)不仅是买卖货物的场所，也是数千年生活在这片土地上的人们生活的集体记忆。
 
-谈及夺冠感想，荣耀终端股份有限公司工程师杜晓迪表示，主要是我们在设计时，参考学习了人类优秀运动员的“大长腿”。
+从物资交换到如今成为日常消费、文化旅游一体的多元空间，喀什市的每一个具有特色的巴扎正经历着悄无声息的变化。
 
-(记者 谢龙飞 董泽宇 制作 王雪尔) 责任编辑：【李岩】
+4月10日，中新社记者走进新疆喀什市3处巴扎，记录下传统集市的变迁图景。
+
+汗巴扎从昔日土巷子发展为汇聚上百家美食、手工艺品摊位的热门景点，吸引着海内外游客；喀什牛羊大巴扎作为亚洲最大活畜交易市场，如今也迎接着来自各地的旅客；喀什中西亚国际贸易市场也正在建设中，未来将成为中亚五国与新疆的贸易枢纽。
+
+巴扎不仅保持了传统的烟火气，更成为促进就业、增收的文旅平台，2025年喀什接待游客突破5000万人次，旅游收入超450亿元，展现出从传统农贸到多元业态的活力。
+
+(贾志鹏 新疆喀什报道） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 00:16 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 00:20 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 00:03 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 23:54 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 00:07 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 00:00 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 23:55 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 23:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 00:20 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 23:56 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 00:21 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 00:18 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 00:23 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 23:54 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 00:05 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 00:19 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 00:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 00:19 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 00:28 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 00:17 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 00:16 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 00:12 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 00:12 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 00:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 00:09 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 00:21 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 00:01 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 00:02 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:23 - [周生如故](http://www.share.minike.top/Article/details/526581592038.shtml)
-- 2026-06-30 00:15 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/98407.shtml)
-- 2026-06-30 00:00 - [金刚川](https://www.share.kurohicncr.top/Article/details/992317.shtml)
-- 2026-06-30 00:15 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/62073396.shtml)
-- 2026-06-30 00:11 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/5410971.shtml)
-- 2026-06-30 00:15 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/730555452.shtml)
-- 2026-06-29 23:54 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/96072334774.shtml)
-- 2026-06-30 00:15 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/13311317795.shtml)
-- 2026-06-30 00:03 - [流金岁月](https://www.share.kurohicncr.top/Article/details/9918711257.shtml)
-- 2026-06-30 00:15 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/36835743425.shtml)
-- 2026-06-30 00:21 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/713318588128.shtml)
-- 2026-06-30 00:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/459239181.shtml)
-- 2026-06-30 00:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/98045457676.shtml)
-- 2026-06-30 00:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/339864.shtml)
-- 2026-06-29 23:58 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/340487.shtml)
+- 2026-06-30 00:08 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/656206483812.shtml)
+- 2026-06-30 00:20 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/878353.shtml)
+- 2026-06-30 00:27 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/372896914.shtml)
+- 2026-06-30 00:26 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/12427.shtml)
+- 2026-06-30 00:09 - [沙丘](http://www.share.minike.top/Article/details/002676624586.shtml)
+- 2026-06-30 00:29 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/157926426.shtml)
+- 2026-06-30 00:03 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/558596580306.shtml)
+- 2026-06-30 00:06 - [美人鱼](https://www.blog.minike.top/Article/details/35875808977.shtml)
+- 2026-06-30 00:24 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/355057530.shtml)
+- 2026-06-30 00:12 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/48015996.shtml)
+- 2026-06-30 00:14 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/446615456289.shtml)
+- 2026-06-30 00:08 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/5288108.shtml)
+- 2026-06-30 00:12 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/58297513888.shtml)
+- 2026-06-30 00:16 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/297499004.shtml)
+- 2026-06-30 00:20 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/962265106616.shtml)

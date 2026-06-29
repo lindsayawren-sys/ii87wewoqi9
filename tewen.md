@@ -1,60 +1,61 @@
-# 长城基金韩林：光纤行业高景气有望延续
+# 一季度台胞办证、入境大陆人次同比分别升11.8%、27.6%
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-近期，A股光纤光缆板块热度持续升温。Wind数据显示，截至4月15日，光纤指数今年以来累计上涨81.31%。光纤光缆板块的这一行情是否具备支撑？行业景气度能否延续？针对这些投资关心的问题，长城数字经济混合基金经理韩林展开了深入分析。 针对光纤行业，近日多个券商研报分析，高景气有望持续到2027年。对此，韩林表示，基本认同券商研报判断，光纤行业高景气或将持续至2027年底，甚至有
+中新社北京4月10日电 (记者 郭超凯)国家移民管理局新闻发言人、综合司副司长吕宁10日在北京表示，台胞办证和来往大陆人数持续增长，2026年一季度，台胞办证人次同比上升11.8%，台胞入境大陆人次同比上升27.6%。国家移民管理局当天召开新闻发布会，发布2026年一季度移民管理工作主要数据。 中国出入境管理局于去年11月先后实施大陆居民申办往来台湾探亲签注“全国通办”、扩大可
 
 ## 正文
 
-近期，A股光纤光缆板块热度持续升温。
+中新社北京4月10日电 (记者 郭超凯)国家移民管理局新闻发言人、综合司副司长吕宁10日在北京表示，台胞办证和来往大陆人数持续增长，2026年一季度，台胞办证人次同比上升11.8%，台胞入境大陆人次同比上升27.6%。
 
-Wind数据显示，截至4月15日，光纤指数今年以来累计上涨81.31%。
+国家移民管理局当天召开新闻发布会，发布2026年一季度移民管理工作主要数据。
 
-光纤光缆板块的这一行情是否具备支撑？
+中国出入境管理局于去年11月先后实施大陆居民申办往来台湾探亲签注“全国通办”、扩大可签发一次有效台湾居民来往大陆通行证口岸范围等创新举措，受到两岸各界关注。
 
-行业景气度能否延续？
+吕宁介绍，自2025年11月20日起，大陆可签发一次有效台湾居民来往大陆通行证的口岸数量由58个增加至100个，覆盖56个航空、27个水运和17个铁路公路口岸，这一惠台利民政策可让台胞从世界各地更加安全便利地入境大陆；同期实施的大陆居民申办往来台湾探亲签注“全国通办”，便利台胞亲属就近办理出入境证件赴台团聚，大幅节约申请人的经济和时间成本，极大地提高了办证效率。
 
-针对这些投资关心的问题，长城数字经济混合基金经理韩林展开了深入分析。
+吕宁说，两项政策受到了社会各界的广泛关注，广大民众高度评价。
 
-针对光纤行业，近日多个券商研报分析，高景气有望持续到2027年。
+政策实施以来，口岸办证、赴台探亲呈“双增长”态势，政策成效正不断显现。
 
-对此，韩林表示，基本认同券商研报判断，光纤行业高景气或将持续至2027年底，甚至有望在需求超预期情况下延长至2028年，这一轮涨价潮具备较强的持续性，核心支撑来自需求刚性与供给刚性形成的持续供需缺口。
+吕宁表示，台胞办证和来往大陆人数持续增长。
 
-需求端，AI算力基建是长期系统性工程，并非短期脉冲式投入，Meta、微软等海外巨头光纤采购订单已覆盖至2030年，国内智算中心、一体化算力网络、千兆光网建设持续落地，根据CRU数据，数据中心光纤需求占比或将快速提升至2027年的30%-35%，无人机等场景也带来小幅增量，整体需求可能不会快速回落。
+一季度，台胞办证人次同比上升11.8%，台胞入境大陆人次同比上升27.6%。
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 00:17 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 00:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 00:07 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 00:16 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 00:19 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 23:58 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 00:14 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 23:57 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 00:01 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 23:59 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 00:16 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 23:58 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 00:17 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 00:27 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 00:10 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 00:17 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 00:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 00:02 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 00:20 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 00:28 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 00:16 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 00:05 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 00:25 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 00:04 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 00:17 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 00:17 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 00:26 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 00:28 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:21 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/599731246983.shtml)
-- 2026-06-30 00:08 - [起风了](https://www.share.kurohicncr.top/Article/details/6718167.shtml)
-- 2026-06-30 00:20 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/426894039.shtml)
-- 2026-06-30 00:21 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/118314397.shtml)
-- 2026-06-29 23:59 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/73007613817.shtml)
-- 2026-06-29 23:58 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/69616.shtml)
-- 2026-06-30 00:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/1549940.shtml)
-- 2026-06-30 00:13 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/7488546.shtml)
-- 2026-06-30 00:12 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/72858157896.shtml)
-- 2026-06-30 00:01 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/049955.shtml)
-- 2026-06-30 00:09 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/49602567.shtml)
-- 2026-06-30 00:13 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/92339805.shtml)
-- 2026-06-30 00:12 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/30516640.shtml)
-- 2026-06-30 00:04 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/721682177488.shtml)
-- 2026-06-30 00:05 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/06589.shtml)
+- 2026-06-30 00:02 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/941495842.shtml)
+- 2026-06-30 00:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/8454600.shtml)
+- 2026-06-30 00:17 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/10318.shtml)
+- 2026-06-30 00:02 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/86137128813.shtml)
+- 2026-06-30 00:28 - [刘念回应](https://www.blog.minike.top/Article/details/7269237077.shtml)
+- 2026-06-30 00:13 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/955587516174.shtml)
+- 2026-06-30 00:06 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/788828.shtml)
+- 2026-06-30 00:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/081114633050.shtml)
+- 2026-06-30 00:27 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/1936715038.shtml)
+- 2026-06-30 00:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/97962.shtml)
+- 2026-06-30 00:25 - [欧洲缘何成为变暖最快的大洲](https://www.share.minike.top/Article/details/47757.shtml)
+- 2026-06-30 00:10 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/09136325.shtml)
+- 2026-06-30 00:07 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/1238259174.shtml)
+- 2026-06-30 00:02 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/00310.shtml)
+- 2026-06-30 00:21 - [金刚川](https://www.blog.kurohicncr.top/Article/details/6663042670.shtml)

@@ -1,61 +1,59 @@
-# 2026年中华茶祖节祭祀典礼在湖南株洲举行
+# 爆款舞剧《永乐未央》将再登京城舞台 呈现“中式美学”盛宴
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新网株洲4月20日电 (张和生 何湘柳)谷雨时节，茶香氤氲。4月20日，2026(丙午)年“中华茶祖节”祭祀炎帝陵典礼在湖南株洲举行，茶业协会代表、茶农代表以及社会各界人士参加。 相传炎帝神农氏是中华农耕文明的创始者，与黄帝轩辕氏一起并称为中华民族两大始祖。《茶经》中记载：“茶之为饮，发乎神农氏”。炎帝神农氏被公认为中华茶祖。谷雨时节正是采茶制茶的关键时期，2009年起，茶界
+中新网北京4月9日电 (记者 应妮)由中国文化遗产研究院指导，中国东方演艺集团、山西省文化和旅游厅、山西省文物局、芮城县人民政府出品的爆款舞剧《永乐未央》将于7月11日至12日登台北京天桥艺术中心连演三场。 2026年春节，舞剧《永乐未央》惊艳亮相河南春晚，一舞封神。短短几分钟的表演，让“壁画活了”的视觉奇观瞬间点燃全网。网友纷纷留言“你永远可以相信老祖宗的审美！”“这才是中式
 
 ## 正文
 
-中新网株洲4月20日电 (张和生 何湘柳)谷雨时节，茶香氤氲。
+中新网北京4月9日电 (记者 应妮)由中国文化遗产研究院指导，中国东方演艺集团、山西省文化和旅游厅、山西省文物局、芮城县人民政府出品的爆款舞剧《永乐未央》将于7月11日至12日登台北京天桥艺术中心连演三场。
 
-4月20日，2026(丙午)年“中华茶祖节”祭祀炎帝陵典礼在湖南株洲举行，茶业协会代表、茶农代表以及社会各界人士参加。
+2026年春节，舞剧《永乐未央》惊艳亮相河南春晚，一舞封神。
 
-相传炎帝神农氏是中华农耕文明的创始者，与黄帝轩辕氏一起并称为中华民族两大始祖。
+短短几分钟的表演，让“壁画活了”的视觉奇观瞬间点燃全网。
 
-《茶经》中记载：“茶之为饮，发乎神农氏”。
+网友纷纷留言“你永远可以相信老祖宗的审美！
 
-炎帝神农氏被公认为中华茶祖。
+”“这才是中式美学的天花板！
 
-谷雨时节正是采茶制茶的关键时期，2009年起，茶界将“中华茶祖节”定于谷雨日。
+”“神仙真的下凡了！
 
-9时39分，祭祀大典正式开始，全体参祭人员凝神肃立，敬献茶品、高香、花篮，参祭人员行三鞠躬礼，恭读《祭炎帝陵文》，焚帛书，谒陵一周，礼成。
+”“没看够，求加场！
 
-随后举行的品茶活动中，往来宾客共品炎陵高山茶，共话茶产业发展。
+” 自2025年10月开启全国巡演以来，舞剧《永乐未央》席卷北京、山西、上海、成都、武汉、杭州六大文化重镇，18场演出好评如潮，现场观众的热情一次次将剧场点燃，社交媒体上更是口碑刷屏。
 
 ## 相关推荐
 
-- 2026-06-29 23:55 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 00:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 00:10 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 00:19 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 00:10 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 23:59 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 00:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 00:11 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 00:21 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 00:16 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 00:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-30 00:22 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 00:06 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 00:18 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 00:11 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 00:04 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 00:07 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 00:08 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 00:07 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 00:18 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 00:07 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 00:23 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 00:01 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 00:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 00:01 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 00:20 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 00:14 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 00:18 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:58 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/4391458815.shtml)
-- 2026-06-30 00:14 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/368734585.shtml)
-- 2026-06-30 00:16 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/5470545.shtml)
-- 2026-06-30 00:17 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/35127439688.shtml)
-- 2026-06-30 00:11 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/328483.shtml)
-- 2026-06-30 00:10 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/04491.shtml)
-- 2026-06-30 00:08 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/145821002.shtml)
-- 2026-06-30 00:09 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/444215.shtml)
-- 2026-06-30 00:20 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/53456024.shtml)
-- 2026-06-30 00:03 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/8631036.shtml)
-- 2026-06-29 23:56 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/77295.shtml)
-- 2026-06-29 23:58 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/17165.shtml)
-- 2026-06-30 00:02 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/83019.shtml)
-- 2026-06-30 00:06 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/56459.shtml)
-- 2026-06-30 00:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/492274593.shtml)
+- 2026-06-30 00:28 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/47996285930.shtml)
+- 2026-06-30 00:03 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/3028494.shtml)
+- 2026-06-30 00:12 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/374740884506.shtml)
+- 2026-06-30 00:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/64409.shtml)
+- 2026-06-30 00:01 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/06994921.shtml)
+- 2026-06-30 00:18 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/37065686.shtml)
+- 2026-06-30 00:04 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/2120887.shtml)
+- 2026-06-30 00:25 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/444557.shtml)
+- 2026-06-30 00:21 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/05397334.shtml)
+- 2026-06-30 00:06 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/28642294.shtml)
+- 2026-06-30 00:17 - [毒液2](https://www.share.minike.top/Article/details/5131683218.shtml)
+- 2026-06-30 00:21 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/336034.shtml)
+- 2026-06-30 00:00 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/71860.shtml)
+- 2026-06-30 00:00 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/06182263.shtml)
+- 2026-06-30 00:03 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/0752842225.shtml)

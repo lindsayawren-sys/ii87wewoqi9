@@ -1,56 +1,61 @@
-# 初步贸易数据显示：韩国出口势头依旧强劲
+# 从“一人一天”到“三人半年” 中国航天跑出加速度
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-4月上旬韩国出口增长依旧强劲，显示海外需求韧性充足；尽管油价飙升、本币走弱，已给国内通胀与经济增长带来上行风险。韩国海关周二公布的数据显示，经工作日调整后，4月前20日出口同比大增49.4%，高于3月同期20日40.4%的增幅。未经调整口径下，出口同样同比上涨49.4%，进口同比增长17.7%，实现104亿美元贸易顺差。 受全球人工智能与数据中心投资火热拉动，半导体出口暴涨18
+今天是“国际载人航天日”。65年前的今天，苏联宇航员尤里·加加林乘坐“东方一号”飞船，绕地飞行108分钟后安全返回，成为进入太空第一人。2011年4月7日，联合国大会正式将4月12日设为国际载人航天日，以此来纪念人类开启太空时代。加加林成功飞行的108分钟具有划时代意义，证明人类可以进入太空，在失重、辐射、加速度等极端环境下正常生活并安全返回地球。人类仰望星空的渴望被点燃，载人
 
 ## 正文
 
-4月上旬韩国出口增长依旧强劲，显示海外需求韧性充足；尽管油价飙升、本币走弱，已给国内通胀与经济增长带来上行风险。
+今天是“国际载人航天日”。
 
-韩国海关周二公布的数据显示，经工作日调整后，4月前20日出口同比大增49.4%，高于3月同期20日40.4%的增幅。
+65年前的今天，苏联宇航员尤里·加加林乘坐“东方一号”飞船，绕地飞行108分钟后安全返回，成为进入太空第一人。
 
-未经调整口径下，出口同样同比上涨49.4%，进口同比增长17.7%，实现104亿美元贸易顺差。
+2011年4月7日，联合国大会正式将4月12日设为国际载人航天日，以此来纪念人类开启太空时代。
 
-受全球人工智能与数据中心投资火热拉动，半导体出口暴涨182.5%，成为整体出口增长的核心驱动力；电脑外设出口更是激增399%。
+加加林成功飞行的108分钟具有划时代意义，证明人类可以进入太空，在失重、辐射、加速度等极端环境下正常生活并安全返回地球。
 
-成品油出口同比上涨48.4%，国际原油价格走高也对能源类出口形成提振。
+人类仰望星空的渴望被点燃，载人航天的大门从此打开，但在很长一段时间里，这扇门只向少数国家敞开。
 
-与此同时，汽车及汽车零部件出口均出现下滑。
+2003年10月15日，当神舟五号载人飞船从中国酒泉卫星发射中心升空，航天员杨利伟进入预定轨道，中国由此成为世界上第三个独立掌握载人航天技术的国家。
 
-数据表明，尽管外部风险持续加剧，韩国当前出口动力依旧稳固。
+在飞行过程中，杨利伟写下了“为了人类的和平与进步，中国人来到了太空”这句话‌，并通过舱内摄像机向全国人民和世界展示。
 
-伊朗局势冲突带来的不确定性推高国际油价，抬高了韩国能源进口成本，也为这个高度依赖能源进口的经济体增添了通胀压力。
+此时此刻，神舟二十一号的航天员们在轨驻留时间已经超过五个月，三位航天员完成了两次出舱活动、多项科学实验与技术试验，空间站平台维护及站务管理等工作也在有条不紊地进行。
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 00:09 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 00:09 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 00:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 00:17 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 00:20 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 00:01 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 00:02 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 00:16 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 23:58 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 00:12 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 00:17 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 00:03 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 00:05 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 00:19 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 00:03 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 00:16 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 00:17 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 00:25 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 00:10 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 00:29 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 00:17 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 00:06 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 00:05 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 00:22 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:06 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/3018370.shtml)
-- 2026-06-30 00:23 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/10826488956.shtml)
-- 2026-06-30 00:09 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/660129892.shtml)
-- 2026-06-30 00:23 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/63171830.shtml)
-- 2026-06-30 00:01 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/246434.shtml)
-- 2026-06-30 00:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/808283.shtml)
-- 2026-06-29 23:54 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/7319578723.shtml)
-- 2026-06-30 00:18 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/2574450037.shtml)
-- 2026-06-29 23:56 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/5943346786.shtml)
-- 2026-06-30 00:23 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/239895.shtml)
-- 2026-06-29 23:55 - [世界杯](https://www.share.minike.top/Article/details/841876.shtml)
-- 2026-06-30 00:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/59617942078.shtml)
-- 2026-06-30 00:04 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/67909680305.shtml)
-- 2026-06-29 23:59 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/14568.shtml)
-- 2026-06-30 00:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/1858695718.shtml)
+- 2026-06-30 00:11 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/14219977.shtml)
+- 2026-06-30 00:28 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/029424003030.shtml)
+- 2026-06-30 00:17 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/50885039.shtml)
+- 2026-06-30 00:04 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/575691241.shtml)
+- 2026-06-30 00:28 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/59350850.shtml)
+- 2026-06-30 00:21 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/31135835.shtml)
+- 2026-06-30 00:17 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/00086941.shtml)
+- 2026-06-30 00:04 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/448926640.shtml)
+- 2026-06-30 00:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/4909549179.shtml)
+- 2026-06-30 00:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/53222324734.shtml)
+- 2026-06-30 00:19 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/9462433.shtml)
+- 2026-06-30 00:07 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/6196397873.shtml)
+- 2026-06-30 00:07 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/174946.shtml)
+- 2026-06-30 00:15 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/294782.shtml)
+- 2026-06-30 00:19 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/346180.shtml)

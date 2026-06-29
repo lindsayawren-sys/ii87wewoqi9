@@ -1,61 +1,58 @@
-# 马斯克无视法国检方传唤，科技巨头与欧洲裂痕再加深
+# 英国将向海湾地区派遣新型拦截导弹
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-埃隆·马斯克与欧洲监管机构之间的紧张关系再度升级。这位科技亿万富翁周一被曝无视法国检方的正式传唤，拒绝就涉嫌操纵社交媒体算法的指控出庭作证，此举进一步加剧了欧洲对大型科技公司的警惕情绪。 无视司法传唤 法国巴黎检察机关数月前对马斯克及其旗下社交平台X发起调查，指控平台通过算法机制系统性放大特定内容，涉嫌市场操纵及误导用户。检方多次尝试安排问询，但马斯克始终未予回应。法国司法消息
+英国国防大臣希利表示，英国计划为英军及其海湾地区伙伴采购先进拦截导弹，专门用于对抗伊朗“沙赫德”类攻击无人机。 英国国防部称，首批大量导弹及发射装置将于5月交付，根据协议，更多装备将在六个月内陆续供应。这款名为Skyhammer的新型导弹由剑桥航空航天公司研制，射程超18英里，最高时速逾430英里。 此项宣布正值英国首相斯塔默对海湾地区进行为期三天的访问。尽管起步较晚，英国目前
 
 ## 正文
 
-埃隆·马斯克与欧洲监管机构之间的紧张关系再度升级。
+英国国防大臣希利表示，英国计划为英军及其海湾地区伙伴采购先进拦截导弹，专门用于对抗伊朗“沙赫德”类攻击无人机。
 
-这位科技亿万富翁周一被曝无视法国检方的正式传唤，拒绝就涉嫌操纵社交媒体算法的指控出庭作证，此举进一步加剧了欧洲对大型科技公司的警惕情绪。
+英国国防部称，首批大量导弹及发射装置将于5月交付，根据协议，更多装备将在六个月内陆续供应。
 
-无视司法传唤 法国巴黎检察机关数月前对马斯克及其旗下社交平台X发起调查，指控平台通过算法机制系统性放大特定内容，涉嫌市场操纵及误导用户。
+这款名为Skyhammer的新型导弹由剑桥航空航天公司研制，射程超18英里，最高时速逾430英里。
 
-检方多次尝试安排问询，但马斯克始终未予回应。
+此项宣布正值英国首相斯塔默对海湾地区进行为期三天的访问。
 
-法国司法消息人士透露，若马斯克继续无视传唤，当局可能采取包括签发欧洲逮捕令在内的进一步行动。
+尽管起步较晚，英国目前已成为海湾国家防空领域最主要的外部援助方之一。
 
-马斯克的律师团队则以“缺乏司法管辖权”为由拒绝配合。
+自美国和以色列打击伊朗后，伊朗向邻国发射数千枚弹药，海湾国家便一直在寻求新的防空装备供应，相关采购多来自乌克兰及欧洲其他初创企业。
 
-数字主权之争 此次对峙恰逢欧盟全面推进《数字服务法案》落地实施。
-
-该法案要求大型平台对内容审核算法保持透明，违者面临全球营业额6%的巨额罚款。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 00:06 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 00:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 00:21 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 00:07 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 00:20 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 23:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 00:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 00:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 00:02 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 00:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 23:56 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 00:03 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 00:14 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 23:59 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 00:19 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 00:24 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 00:11 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 00:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 00:00 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 00:19 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 00:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 00:08 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 00:06 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 00:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 00:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 00:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 00:09 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 00:26 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:58 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/387271.shtml)
-- 2026-06-29 23:59 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/049089385.shtml)
-- 2026-06-30 00:02 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/79165561.shtml)
-- 2026-06-30 00:17 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/45590357698.shtml)
-- 2026-06-30 00:02 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/059198.shtml)
-- 2026-06-30 00:23 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/557443290.shtml)
-- 2026-06-29 23:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/698396.shtml)
-- 2026-06-30 00:09 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/291541.shtml)
-- 2026-06-30 00:19 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/52684.shtml)
-- 2026-06-30 00:20 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/987210444.shtml)
-- 2026-06-29 23:58 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/2226104.shtml)
-- 2026-06-29 23:57 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/961632055.shtml)
-- 2026-06-30 00:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/05970.shtml)
-- 2026-06-30 00:14 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/556464.shtml)
-- 2026-06-29 23:54 - [一生一世](https://www.share.minike.top/Article/details/73779.shtml)
+- 2026-06-30 00:16 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/386995984258.shtml)
+- 2026-06-30 00:03 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/09023697.shtml)
+- 2026-06-30 00:15 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/692287.shtml)
+- 2026-06-30 00:08 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/75505773112.shtml)
+- 2026-06-30 00:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/30899.shtml)
+- 2026-06-30 00:07 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/085466.shtml)
+- 2026-06-30 00:29 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/40842789.shtml)
+- 2026-06-30 00:08 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/095216650496.shtml)
+- 2026-06-30 00:19 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/238825.shtml)
+- 2026-06-30 00:12 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/308850660958.shtml)
+- 2026-06-30 00:25 - [千香](https://www.blog.kurohicncr.top/Article/details/685721732657.shtml)
+- 2026-06-30 00:03 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/214596053045.shtml)
+- 2026-06-30 00:19 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/48219887790.shtml)
+- 2026-06-30 00:11 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/91770.shtml)
+- 2026-06-30 00:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/742898.shtml)

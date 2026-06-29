@@ -1,56 +1,58 @@
-# 西贝上海首店转型为“天边砂锅焖面” 贾国龙新品牌全国已开出11家店
+# 民建云南省委召开省直属基层组织建设工作推进会
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者：赵雯琪 自今年3月在北京798园区落地首家“天边砂锅焖面”以来，贾国龙新品牌的扩张脚步正在加速。 4月20日，《每日经济新闻》记者（以下简称每经记者）获悉，西贝在上海的首家门店转型升级为“天边砂锅焖面”后正式开业，这也是“天边砂锅焖面”在沪的第四家店。 值得一提的是，该店位于‌上海市浦东新区东方路‌，
+4月11日，民建云南省委在省级民主党派大楼小礼堂召开省直属基层组织工作推进会。民建云南省委主委苏莉出席会议并讲话。民建云南省委专职副主委赵燕蓉主持会议，副主委兰骏、高中建、莫非、普雁翔，原一级巡视员、内部监督委副主任马夏林，秘书长刘建军出席会议。苏莉指出，省直属基层组织是省委会和广大会员之间的“连心桥”、是全省基层组织建设的“领头羊”、是省委会履行参政党职能的“主阵地”，地位特
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月11日，民建云南省委在省级民主党派大楼小礼堂召开省直属基层组织工作推进会。
 
-记者：赵雯琪 自今年3月在北京798园区落地首家“天边砂锅焖面”以来，贾国龙新品牌的扩张脚步正在加速。
+民建云南省委主委苏莉出席会议并讲话。
 
-4月20日，《每日经济新闻》记者（以下简称每经记者）获悉，西贝在上海的首家门店转型升级为“天边砂锅焖面”后正式开业，这也是“天边砂锅焖面”在沪的第四家店。
+民建云南省委专职副主委赵燕蓉主持会议，副主委兰骏、高中建、莫非、普雁翔，原一级巡视员、内部监督委副主任马夏林，秘书长刘建军出席会议。
 
-值得一提的是，该店位于‌上海市浦东新区东方路‌，于‌2008年11月8日‌正式开业，面积1400多平方米、18个包厢，是典型的西贝早期大店模式。
+苏莉指出，省直属基层组织是省委会和广大会员之间的“连心桥”、是全省基层组织建设的“领头羊”、是省委会履行参政党职能的“主阵地”，地位特殊、责任重大。
 
-2008年，西贝以这家店为起点，随后十多年在上海拓展至约70家门店。
+2022年换届以来，省直属基层组织紧紧围绕省委会中心工作，凝心聚力、主动作为，在思想政治引领、组织建设、参政议政、社会服务等方面取得了积极进展，为全省民建事业发展作出了重要贡献。
 
-如今，这家承载着西贝上海十几年记忆的“起点之店”悄然转身。
+苏莉强调，当前，我省正锚定“3815”战略发展目标奋勇前行，多党合作事业迎来新机遇、面临新挑战，进一步加强省直属基层组织建设，既是践行多党合作制度的政治责任，也是推动民建事业健康发展的必然要求。
 
-据了解，自今年3月在北京798园区首店开业以来，贾国龙的新品牌“天边砂锅焖面”接连在呼和浩特、上海、深圳、杭州多地开店，至今已开出第11家店。
+下一步，要突出抓好四方面工作：一是提高政治站位，把旗帜鲜明“讲政治、讲奉献、讲履职、讲服务、讲规矩”要求贯穿省直属基层组织建设全过程、各方面，努力把省直属基层组织建设成为政治坚定、组织坚实、履职有力、作风优良、制度健全的坚强集体。
 
-每经记者注意到，位于北京合生汇的西贝门店近日也在闭店装修，围挡已显示出“天边砂锅焖面”的品牌广告，在大众点评上已能搜索到该店信息。
+二是正视当前省直属基层组织中存在的规范意识不强、工作合力不足、履职成效不均、特色优势不突出、阵地作用发挥不充分等问题短板，以开展“参政为公、实干为民”主题教育为重要契机，采取务实举措推动省直属基层组织建设提质增效。
 
 ## 相关推荐
 
-- 2026-06-30 00:07 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 00:19 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 23:56 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 00:05 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 00:07 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 00:12 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 00:19 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 00:13 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 23:57 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 00:03 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 00:24 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 00:00 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 00:16 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 00:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 00:04 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 00:07 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 00:17 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-30 00:29 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 00:27 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 00:20 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 00:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 00:16 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/228994.shtml)
-- 2026-06-30 00:08 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/088171436486.shtml)
-- 2026-06-30 00:03 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/8527431.shtml)
-- 2026-06-30 00:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/60276350.shtml)
-- 2026-06-30 00:09 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/66026663727.shtml)
-- 2026-06-30 00:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/8046043.shtml)
-- 2026-06-30 00:13 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/714925.shtml)
-- 2026-06-30 00:03 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/917451723.shtml)
-- 2026-06-29 23:57 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/9310196.shtml)
-- 2026-06-30 00:03 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/0772643606.shtml)
-- 2026-06-29 23:56 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/0775268.shtml)
-- 2026-06-30 00:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/7757116276.shtml)
-- 2026-06-30 00:02 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/420060.shtml)
-- 2026-06-29 23:56 - [沉睡花园](https://www.blog.minike.top/Article/details/841210756216.shtml)
-- 2026-06-30 00:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/6549480.shtml)
+- 2026-06-30 00:04 - [毒液2](http://www.share.kurohicncr.top/Article/details/934545092119.shtml)
+- 2026-06-30 00:05 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/4376429.shtml)
+- 2026-06-30 00:25 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/55492028330.shtml)
+- 2026-06-30 00:06 - [田曦薇没招了](http://www.blog.minike.top/Article/details/8639297524.shtml)
+- 2026-06-30 00:02 - [恋与深空致歉](http://www.blog.minike.top/Article/details/1992999436.shtml)
+- 2026-06-30 00:12 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/084581.shtml)
+- 2026-06-30 00:01 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/625552010.shtml)
+- 2026-06-30 00:13 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/22699618.shtml)
+- 2026-06-30 00:04 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/80643796116.shtml)
+- 2026-06-30 00:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/34161352.shtml)
+- 2026-06-30 00:20 - [送你一朵小红花](https://www.blog.minike.top/Article/details/79632382686.shtml)
+- 2026-06-30 00:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/99207693989.shtml)
+- 2026-06-30 00:05 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/616884.shtml)
+- 2026-06-30 00:25 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/261402677.shtml)
+- 2026-06-30 00:27 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/6613649.shtml)

@@ -1,52 +1,61 @@
-# 打击“囤积居奇” 工信部回应存储器价格上涨
+# 奇瑞张志福：自研混动专用发动机热效率突破48%，目标突破50%
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 15:53 来源：中国新闻网 4月21日，国新办举行新闻发布会。工业和信息化部新闻发言人、信息通信发展司司长谢存在会上表示，近期存储器价格上涨，引发手机终端产品价格调整，受到各界广泛关注。针对这一问题，工信部将多措并举，支持存储器产业发展，保障产业链供应链稳定。一方面增强供给能力，促进供需对接，鼓励内外资企业加大投资力度，提升产出能力，支持终端
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。奇瑞集团芜湖埃科泰克动力总成有限公司副总经理张志福出席并演讲。 张志福谈到，当前汽车市场发展速度极快，同时技术同质化趋势也越来越明显。在这样的背景下，如何在满足用户需求的基础上实现技术突破，是
 
 ## 正文
 
-发布时间：2026年04月21日 15:53 来源：中国新闻网 4月21日，国新办举行新闻发布会。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-工业和信息化部新闻发言人、信息通信发展司司长谢存在会上表示，近期存储器价格上涨，引发手机终端产品价格调整，受到各界广泛关注。
+奇瑞集团芜湖埃科泰克动力总成有限公司副总经理张志福出席并演讲。
 
-针对这一问题，工信部将多措并举，支持存储器产业发展，保障产业链供应链稳定。
+张志福谈到，当前汽车市场发展速度极快，同时技术同质化趋势也越来越明显。
 
-一方面增强供给能力，促进供需对接，鼓励内外资企业加大投资力度，提升产出能力，支持终端企业与存储器企业加强互动对接，拓宽多元化供应渠道。
+在这样的背景下，如何在满足用户需求的基础上实现技术突破，是行业共同思考的问题。
 
-另一方面，通过多种手段维护市场秩序，引导存储器企业加强渠道管理，配合相关部门依法打击扰乱市场行为。
+目前主流混动架构、混动变速箱（单档、多档）都趋于同质化，发动机也普遍朝着高效化方向升级，大多在传统架构上进行优化探索，对此，奇瑞形成了自己的思路与方案。
 
-(记者 董泽宇 制作 王佳琪) 责任编辑：【于晓】
+从市场格局来看，中国新能源汽车渗透率已位居全球首位，电动化全球化发展趋势不可逆转。
+
+“我们更关注的是，未来混动、增程（REV）、油电混动（HEV）等仍搭载发动机的车型，市场份额会如何演变。
+
+” 他指出，从混动架构分布来看，串并联与增程架构已成为绝对主流，市场占比超过97%。
 
 ## 相关推荐
 
-- 2026-06-29 23:58 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 00:23 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 23:56 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 00:00 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 23:56 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 00:07 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 23:55 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 00:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 00:22 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 00:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 00:01 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 00:19 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 00:29 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 00:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 00:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 00:22 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 00:06 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 00:29 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 00:08 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 00:28 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 00:24 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 00:26 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 00:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 00:29 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 00:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/6051697.shtml)
-- 2026-06-30 00:00 - [千香](https://www.blog.minike.top/Article/details/18283884283.shtml)
-- 2026-06-30 00:20 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/321839757.shtml)
-- 2026-06-30 00:03 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/06577.shtml)
-- 2026-06-30 00:17 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/21006194987.shtml)
-- 2026-06-30 00:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/75794.shtml)
-- 2026-06-29 23:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/0078002.shtml)
-- 2026-06-30 00:04 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/638395745.shtml)
-- 2026-06-29 23:55 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/987631426025.shtml)
-- 2026-06-30 00:12 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/4842181239.shtml)
-- 2026-06-30 00:03 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/444087.shtml)
-- 2026-06-29 23:57 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/646913568789.shtml)
-- 2026-06-30 00:22 - [时光音乐会](http://www.share.minike.top/Article/details/965722466.shtml)
-- 2026-06-30 00:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/17855433073.shtml)
-- 2026-06-30 00:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/78238740.shtml)
+- 2026-06-30 00:10 - [一见倾心](http://www.share.minike.top/Article/details/633226462905.shtml)
+- 2026-06-30 00:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/20114921.shtml)
+- 2026-06-30 00:26 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/8536249.shtml)
+- 2026-06-30 00:29 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/83205.shtml)
+- 2026-06-30 00:22 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/976479390217.shtml)
+- 2026-06-30 00:00 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/530712847216.shtml)
+- 2026-06-30 00:04 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/9029938959.shtml)
+- 2026-06-30 00:12 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/53865838.shtml)
+- 2026-06-30 00:11 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/979198.shtml)
+- 2026-06-30 00:10 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/314914.shtml)
+- 2026-06-30 00:09 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/604280658.shtml)
+- 2026-06-30 00:12 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/7823253867.shtml)
+- 2026-06-30 00:03 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/8989199.shtml)
+- 2026-06-30 00:16 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/4292500.shtml)
+- 2026-06-30 00:29 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/931235.shtml)

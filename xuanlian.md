@@ -1,52 +1,60 @@
-# “爱奇艺疯了”冲上热搜第一，CEO独家回应
+# 增收不增利：凯发电气营收增22%净利反跌25%，三大隐忧浮出水面
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者：刘佳 4月20日，爱奇艺公布有超百名艺人同意入驻爱奇艺专业级影视制作平台纳逗Pro的艺人库，很快“爱奇艺疯了”登上微博热搜第一，有用户质疑平台没有经过艺人AI授权生成了AI视频内容，还有多位艺人否认签约AI相关授权。 今日下午，爱奇艺CEO龚宇在接受第一财经独家采访时回应争议，表示爱奇艺纳逗艺人库列出
+营收增长逾两成，净利润却缩水近四分之一——凯发电气交出的2025年成绩单，折射出这家轨道交通电气化龙头正面临“增收不增利”的尴尬处境。 4月9日，凯发电气发布2025年年度报告。报告期内，公司实现营业收入27.01亿元，同比增长22.11%；但归母净利润仅为7051.07万元，同比大幅下降24.90%；扣非净利润5632.10万元，同比下降24.17%。营业利润也较去年同期下滑
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+营收增长逾两成，净利润却缩水近四分之一——凯发电气交出的2025年成绩单，折射出这家轨道交通电气化龙头正面临“增收不增利”的尴尬处境。
 
-记者：刘佳 4月20日，爱奇艺公布有超百名艺人同意入驻爱奇艺专业级影视制作平台纳逗Pro的艺人库，很快“爱奇艺疯了”登上微博热搜第一，有用户质疑平台没有经过艺人AI授权生成了AI视频内容，还有多位艺人否认签约AI相关授权。
+4月9日，凯发电气发布2025年年度报告。
 
-今日下午，爱奇艺CEO龚宇在接受第一财经独家采访时回应争议，表示爱奇艺纳逗艺人库列出的艺人，只是表示有意愿参与AI制作，并不是这些艺人已经同意了某一个AI项目的制作，此外该艺人库没有某些媒体提到的张若昀和于和伟等。
+报告期内，公司实现营业收入27.01亿元，同比增长22.11%；但归母净利润仅为7051.07万元，同比大幅下降24.90%；扣非净利润5632.10万元，同比下降24.17%。
 
-他表示，爱奇艺纳逗Pro的商业模式是原则上尽可能把现实的艺人经纪公司、制作项目之前的关系丝滑地平移到AI制作上，艺人对一个项目的角色拥有决策权。
+营业利润也较去年同期下滑15.43%至9837.11万元。
 
-责任编辑：张乔松
+营收与利润走向严重背离，成为这份财报最刺眼的注脚。
+
+一、毛利率承压：项目毛利波动叠加行业竞争加剧 对于利润下滑的原因，公司在财报中给出了多重解释，但最核心的变量在于毛利率的下降。
+
+凯发电气表示，受行业特点影响，不同规模项目的毛利水平和执行周期不尽相同，叠加行业周期性原因以及市场竞争加剧，国内业务毛利率有所下降，进而导致整体毛利率略有下滑。
+
+这意味着，公司在营收规模扩大的同时，每一元收入所贡献的利润正在变薄。
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 00:18 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 00:21 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 00:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 00:03 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 00:12 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 23:56 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 00:19 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 00:12 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 00:11 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 23:56 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 00:05 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 00:11 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 00:16 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 00:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 00:15 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 00:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 00:16 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 00:20 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 00:26 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 00:27 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 00:18 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 00:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 00:12 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 00:00 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 00:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/16511646025.shtml)
-- 2026-06-30 00:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/1031908439.shtml)
-- 2026-06-30 00:01 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/6693126318.shtml)
-- 2026-06-30 00:10 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/5957065.shtml)
-- 2026-06-30 00:10 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/04120.shtml)
-- 2026-06-30 00:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/3891276211.shtml)
-- 2026-06-30 00:23 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/6388767.shtml)
-- 2026-06-30 00:13 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/0498156089.shtml)
-- 2026-06-30 00:06 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/619501274.shtml)
-- 2026-06-29 23:58 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/35029836.shtml)
-- 2026-06-30 00:13 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/142811920652.shtml)
-- 2026-06-30 00:10 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/912507.shtml)
-- 2026-06-30 00:12 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/07372163697.shtml)
-- 2026-06-30 00:06 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/312855.shtml)
-- 2026-06-29 23:59 - [恋与深空致歉](https://www.blog.minike.top/Article/details/321843.shtml)
+- 2026-06-30 00:00 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/117976123.shtml)
+- 2026-06-30 00:21 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/151887652.shtml)
+- 2026-06-30 00:03 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/9488442652.shtml)
+- 2026-06-30 00:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/9184718865.shtml)
+- 2026-06-30 00:26 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/52155.shtml)
+- 2026-06-30 00:13 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/28229.shtml)
+- 2026-06-30 00:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/772298.shtml)
+- 2026-06-30 00:29 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/85890998768.shtml)
+- 2026-06-30 00:19 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/269448.shtml)
+- 2026-06-30 00:04 - [速度与激情9](https://www.blog.minike.top/Article/details/581487.shtml)
+- 2026-06-30 00:28 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/51077.shtml)
+- 2026-06-30 00:10 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/624153549699.shtml)
+- 2026-06-30 00:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/456898.shtml)
+- 2026-06-30 00:17 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/14777436414.shtml)
+- 2026-06-30 00:23 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/688417.shtml)

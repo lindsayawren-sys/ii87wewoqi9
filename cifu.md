@@ -1,58 +1,61 @@
-# A股“股王”宝座易主后复归：贵州茅台反超源杰科技重夺股价第一
+# 地平线余凯：智能化时代，未来将不会区分座舱跟智驾
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 记者 | 江怡曼 4月20日，A股市场见证了一“股王”宝座的激烈争夺。贵州茅台（600519.SH）盘中股价反超源杰科技（688498.SH），重新夺回A股市场股价“一哥”的位置。 截至当天收盘，贵州茅台报1410.89元/股，股价上涨了0.26%，源杰科技报1387.66元/股，股价下跌了3.97%。 而在4月17日，
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 地平线创始人兼CEO余凯表示，未来产品走向中央计算那么结构一定要跟组织结构相配。从最近半年以来无论是小鹏，蔚来还是理想，他们都在推动组织架构，往智能化时代的就是说不区分座舱跟智驾方向前进。
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 记者 | 江怡曼 4月20日，A股市场见证了一“股王”宝座的激烈争夺。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-贵州茅台（600519.SH）盘中股价反超源杰科技（688498.SH），重新夺回A股市场股价“一哥”的位置。
+地平线创始人兼CEO余凯表示，未来产品走向中央计算那么结构一定要跟组织结构相配。
 
-截至当天收盘，贵州茅台报1410.89元/股，股价上涨了0.26%，源杰科技报1387.66元/股，股价下跌了3.97%。
+从最近半年以来无论是小鹏，蔚来还是理想，他们都在推动组织架构，往智能化时代的就是说不区分座舱跟智驾方向前进。
 
-而在4月17日，源杰科技股价超越贵州茅台，成为A股新晋“股王”。
+他指出，传统主机厂还有很多实际上是组织架构是分开的，这种组织架构是适应于过去的分布式的产品架产品架构，但是未来组织架构一定要朝着就是新一代的一智能化底座为核心的中央计算的。
 
-当日早盘，在光通信板块带动下，源杰科技股价持续走强，盘中一度触及1460.08元/股的历史高点，最终收涨10.05%，收于1445元/股。
+“这样的一个架构去发展所以相应的组织也要去适配这样的一个趋势，这是我给大家的建议。
 
-与此同时，贵州茅台当日股价大幅低开超4%，最终收跌3.8%，报1407.24元/股。
+”他说。
 
-据了解，这是自2025年8月寒武纪（688256.SH）首次超越茅台以来，第二只科技股完成对消费龙头贵州茅台的股价反超。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-源杰科技成立于2013年，2022年12月登陆科创板，是国内稀缺的光芯片IDM（集成器件制造商）厂商，主营业务覆盖芯片设计、外延生长、晶圆制造到测试封装的全产业链。
+责任编辑：李思阳
 
 ## 相关推荐
 
-- 2026-06-30 00:08 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 23:54 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 00:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 00:06 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 00:16 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 00:15 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 23:56 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 00:13 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 00:17 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 00:10 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 00:18 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 00:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 00:10 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 00:07 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 00:05 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 00:09 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 00:08 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 00:23 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 00:19 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 00:05 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 00:16 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 00:06 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 00:22 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 00:22 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 00:29 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 00:15 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 00:16 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:06 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/414539976552.shtml)
-- 2026-06-30 00:16 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/507115050217.shtml)
-- 2026-06-30 00:17 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/03078.shtml)
-- 2026-06-30 00:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/4227764.shtml)
-- 2026-06-30 00:07 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/149646896753.shtml)
-- 2026-06-30 00:08 - [恋与深空 巧合](https://www.share.minike.top/Article/details/146715605.shtml)
-- 2026-06-30 00:15 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/551962099477.shtml)
-- 2026-06-29 23:54 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/770652359776.shtml)
-- 2026-06-30 00:09 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/9942967.shtml)
-- 2026-06-30 00:14 - [东方风云榜直播](https://www.blog.minike.top/Article/details/5471912.shtml)
-- 2026-06-30 00:12 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/092861677851.shtml)
-- 2026-06-30 00:20 - [周生如故](http://www.share.kurohicncr.top/Article/details/53399538541.shtml)
-- 2026-06-30 00:07 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/8316803.shtml)
-- 2026-06-30 00:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/847605.shtml)
-- 2026-06-30 00:03 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/23318426.shtml)
+- 2026-06-30 00:25 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/60392564.shtml)
+- 2026-06-30 00:03 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/7039052270.shtml)
+- 2026-06-30 00:10 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/082171084.shtml)
+- 2026-06-30 00:09 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/29638653.shtml)
+- 2026-06-30 00:07 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/960825474382.shtml)
+- 2026-06-30 00:12 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/441747059419.shtml)
+- 2026-06-30 00:20 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/11403691359.shtml)
+- 2026-06-30 00:01 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/364321327922.shtml)
+- 2026-06-30 00:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/99602.shtml)
+- 2026-06-30 00:01 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/52374721116.shtml)
+- 2026-06-30 00:27 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/827216648.shtml)
+- 2026-06-30 00:23 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/716859462.shtml)
+- 2026-06-30 00:16 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/7509665.shtml)
+- 2026-06-30 00:03 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/883309213280.shtml)
+- 2026-06-30 00:12 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/499406124.shtml)

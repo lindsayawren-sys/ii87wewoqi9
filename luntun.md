@@ -1,58 +1,61 @@
-# 琼台同胞欢舞乐聚共庆“三月三”
+# 中信证券：战争间歇期的缩圈策略
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新网海南东方4月20日电 (记者 符宇群)4月19日晚，2026年“海南三月三·山海同心圆”主会场活动在东方市开幕，台湾少数民族同胞与大陆同胞同台欢舞共庆“三月三”。 主会场开幕式文艺演出通过歌舞、情景表演等形式，以海南自由贸易港建设一线奋斗者的故事为原型，将海南聚焦“五向图强”打造新质生产力重要实践地等内容融入舞台叙事，艺术化呈现各族儿女在推动海南自由贸易港建设中的担当与奉
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中信证券研究 文|裘翔 高玉森 陈泽平 张铭楷 陈峰 硝烟渐远，航道未通。美伊双方谈判诉求看似分歧很多，但核心诉求达成一致的概率并不低。战争尾部风险消除，战争进程和谈判对市场的实际影响在减弱，未来影响市场的关键变量是真实的通航量。海峡通航中断的时间在拉长，经济和流动性的不确定性仍在积累，空头回补的普遍
 
 ## 正文
 
-中新网海南东方4月20日电 (记者 符宇群)4月19日晚，2026年“海南三月三·山海同心圆”主会场活动在东方市开幕，台湾少数民族同胞与大陆同胞同台欢舞共庆“三月三”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-主会场开幕式文艺演出通过歌舞、情景表演等形式，以海南自由贸易港建设一线奋斗者的故事为原型，将海南聚焦“五向图强”打造新质生产力重要实践地等内容融入舞台叙事，艺术化呈现各族儿女在推动海南自由贸易港建设中的担当与奉献，勾勒出海南各民族交往交流交融、同心奋斗的时代图景。
+来源：中信证券研究 文|裘翔 高玉森 陈泽平 张铭楷 陈峰 硝烟渐远，航道未通。
 
-“看到这种场景，我们非常感动，就像‘台湾丰年祭’盛况。
+美伊双方谈判诉求看似分歧很多，但核心诉求达成一致的概率并不低。
 
-”台湾少数民族同胞林金辉告诉中新网记者，他们抱着非常喜乐的心，与大陆同胞共舞，“代表着两岸一家亲，兄弟一条心”。
+战争尾部风险消除，战争进程和谈判对市场的实际影响在减弱，未来影响市场的关键变量是真实的通航量。
 
-林金辉说，参加活动期间，他们还前往东方市民族地区参观交流，大家真切感受到两岸文化同根同源、一脉相承，许多习俗、技艺与审美都有着相通之处。
+海峡通航中断的时间在拉长，经济和流动性的不确定性仍在积累，空头回补的普遍反弹后，市场还会缩圈聚焦，而不是扩散。
 
-他将把此行所见所闻分享给台湾的乡亲、朋友，并期待今后带更多台湾少数民族同胞前来，与大陆同胞共叙情谊、同欢同乐。
+缩圈的四个方向包括AI硬件、资源、周期涨价和红利，这四条仅存的仍在趋势之上的线索中，预期差主要存在于国产AI硬件和周期涨价环节。
 
-“三月三”是海南人民世代相传的传统佳节、各族群众共庆共享的文化活动，是中华优秀传统文化的重要组成部分，也是铸牢中华民族共同体意识、促进各民族交往交流交融的重要平台。
+配置上，围绕中国优势制造继续聚焦。
 
-2026年“海南三月三·山海同心圆”活动以“铸牢中华民族共同体意识 共启海南自贸港远航新程”为主题，设东方主会场及17个分会场，推出了一系列精彩的节目和活动。
+美伊双方谈判诉求看似分歧很多 但核心诉求达成一致的概率并不低 从美方核心诉求来看，如果伊朗可以放弃铀浓缩，则将成为美方最核心的战争成果，也是特朗普可以用于安抚国内的最大“成就”。
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 23:57 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 23:56 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 00:10 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 00:01 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 00:18 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 00:12 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 00:23 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 00:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 00:06 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 23:56 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 00:23 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 00:28 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 00:07 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 00:22 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 00:13 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 00:19 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 00:22 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 00:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 00:00 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 00:18 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 00:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 00:14 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 00:17 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 00:05 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 00:06 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 00:06 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/6023950275.shtml)
-- 2026-06-30 00:07 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/963250.shtml)
-- 2026-06-30 00:22 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/599444674697.shtml)
-- 2026-06-30 00:15 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/178714.shtml)
-- 2026-06-29 23:56 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/11102106.shtml)
-- 2026-06-30 00:02 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/2333205.shtml)
-- 2026-06-30 00:04 - [美股](http://www.share.minike.top/Article/details/290167574.shtml)
-- 2026-06-30 00:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/57938815.shtml)
-- 2026-06-30 00:11 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/3521697157.shtml)
-- 2026-06-30 00:14 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/09857.shtml)
-- 2026-06-30 00:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/876884.shtml)
-- 2026-06-30 00:14 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/1654935.shtml)
-- 2026-06-30 00:12 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/88051.shtml)
-- 2026-06-30 00:00 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/33300401506.shtml)
-- 2026-06-30 00:00 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/5360442.shtml)
+- 2026-06-30 00:06 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/98405.shtml)
+- 2026-06-30 00:18 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/116799.shtml)
+- 2026-06-30 00:09 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/4747766798.shtml)
+- 2026-06-30 00:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/5177029159.shtml)
+- 2026-06-30 00:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/57195786118.shtml)
+- 2026-06-30 00:00 - [极限挑战第一季](http://www.share.minike.top/Article/details/5765660819.shtml)
+- 2026-06-30 00:05 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/64670095150.shtml)
+- 2026-06-30 00:11 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/96380537248.shtml)
+- 2026-06-30 00:13 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/395480084502.shtml)
+- 2026-06-30 00:20 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/555617.shtml)
+- 2026-06-30 00:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/93706537.shtml)
+- 2026-06-30 00:04 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/30988.shtml)
+- 2026-06-30 00:15 - [爱很美味](https://www.share.kurohicncr.top/Article/details/97076517453.shtml)
+- 2026-06-30 00:03 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/22588.shtml)
+- 2026-06-30 00:01 - [请回答王牌2019](https://www.blog.minike.top/Article/details/708631412456.shtml)

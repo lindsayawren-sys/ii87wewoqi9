@@ -1,60 +1,60 @@
-# 减航班、涨票价 全球多家航空公司进入“自保”模式
+# 黄河全流域进入春灌高峰期
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-转自：新华网 新华社北京4月20日电航空业专家19日说，今后数月，全球各地的旅客应为航班取消、航线减少、机票继续涨价作好准备，因为许多航空公司正在进入“自我保护”模式，通过削减运力、提高票价应对航空燃油供应不足、价格飙升等不利局面。 英国睿思誉航空数据分析公司说，根据目前已获知的数据，5月全球航空运力预计下降3%，全球规模最大的20家航空公司中至少19家削减了5月份的航班。 国
+中新网郑州4月10日电 (记者 阚力)中国水利部黄河水利委员会(以下简称黄委)10日消息，随着气温回升，当前黄河上中下游春灌工作全面铺开，春灌期间黄河中下游已累计引黄供水超过21.5亿立方米，有效满足了小麦生长期用水需求。进入4月以来，黄河流域局部地区持续高温少雨，青海、甘肃、宁夏、内蒙古、山西、陕西部分地区存在不同程度旱情。自清明节后，宁夏、内蒙古引黄灌区冬小麦开始返青，黄河
 
 ## 正文
 
-转自：新华网 新华社北京4月20日电航空业专家19日说，今后数月，全球各地的旅客应为航班取消、航线减少、机票继续涨价作好准备，因为许多航空公司正在进入“自我保护”模式，通过削减运力、提高票价应对航空燃油供应不足、价格飙升等不利局面。
+中新网郑州4月10日电 (记者 阚力)中国水利部黄河水利委员会(以下简称黄委)10日消息，随着气温回升，当前黄河上中下游春灌工作全面铺开，春灌期间黄河中下游已累计引黄供水超过21.5亿立方米，有效满足了小麦生长期用水需求。
 
-英国睿思誉航空数据分析公司说，根据目前已获知的数据，5月全球航空运力预计下降3%，全球规模最大的20家航空公司中至少19家削减了5月份的航班。
+进入4月以来，黄河流域局部地区持续高温少雨，青海、甘肃、宁夏、内蒙古、山西、陕西部分地区存在不同程度旱情。
 
-国际航空运输协会数据显示，航空燃油价格是航空公司成本中最大的部分，约占其总成本的30%。
+自清明节后，宁夏、内蒙古引黄灌区冬小麦开始返青，黄河上游引黄春灌工作全面启动；中游山西、陕西，下游河南、山东春灌持续展开，引黄入冀补淀工作也稳定推进。
 
-2月底，美国和以色列向伊朗发起军事打击、霍尔木兹海峡陷入事实性封锁后，航油价格翻了一番，最高时突破200美元。
+黄委方面称，黄河上中下游全线进入春灌用水高峰期，需水量较大，干流合计引水流量由4月1日的989立方米每秒增加至9日的1138立方米每秒。
 
-3月以来，全球大部分航空公司已采取紧急措施应对高油价，包括提高票价、减少航班等。
+截至4月9日，黄河干流龙羊峡、刘家峡、万家寨、三门峡、小浪底五大水库合计蓄水283.06亿立方米。
 
-根据国际能源署几天前发布的报告，一些欧洲国家的航油储备量已不足20天。
+其中，小浪底水库蓄水58.69亿立方米，比去年同期多蓄0.57亿立方米。
 
-报告说，自2020年以来，欧洲国家航油储备量从未低于29天。
+今年3月以来，4次调整刘家峡水库下泄流量，5次调整小浪底水库下泄流量。
 
-报告警告，如果这一数字低于23天，意味着一些机场可能已经出现航油短缺。
+4月8日，黄委及时下达4月中旬黄河水量调度方案，进一步细化调度举措，为上中下游春灌高峰期供水提供坚实保障。
 
 ## 相关推荐
 
-- 2026-06-30 00:17 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 23:54 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 00:10 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 00:20 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 00:14 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 00:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 23:59 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 00:06 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 00:08 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 23:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 00:15 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 00:01 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 00:13 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 00:00 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 00:14 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 00:14 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 00:10 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 00:19 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 00:07 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 00:28 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 00:05 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 00:16 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 00:01 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 00:13 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 00:20 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 00:21 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 00:30 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 00:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:22 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/3790834.shtml)
-- 2026-06-30 00:02 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/54313032.shtml)
-- 2026-06-30 00:08 - [斗破苍穹](https://www.blog.minike.top/Article/details/6632312.shtml)
-- 2026-06-29 23:59 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/461097.shtml)
-- 2026-06-30 00:16 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/17302914.shtml)
-- 2026-06-30 00:09 - [周生如故](http://www.share.kurohicncr.top/Article/details/8029095012.shtml)
-- 2026-06-30 00:01 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/1454548028.shtml)
-- 2026-06-30 00:18 - [第一炉香](https://www.blog.minike.top/Article/details/980724409.shtml)
-- 2026-06-30 00:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/116926338.shtml)
-- 2026-06-30 00:08 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/464092459057.shtml)
-- 2026-06-29 23:55 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/33908757040.shtml)
-- 2026-06-30 00:05 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/60810338617.shtml)
-- 2026-06-30 00:16 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/67532001.shtml)
-- 2026-06-30 00:03 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/8929138.shtml)
-- 2026-06-29 23:59 - [一见倾心](http://www.share.kurohicncr.top/Article/details/17953412017.shtml)
+- 2026-06-30 00:06 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/957014821194.shtml)
+- 2026-06-30 00:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/79035304453.shtml)
+- 2026-06-30 00:29 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/6075939524.shtml)
+- 2026-06-30 00:27 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/0394776.shtml)
+- 2026-06-30 00:10 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/01632491155.shtml)
+- 2026-06-30 00:04 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/897022755.shtml)
+- 2026-06-30 00:04 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/94313820755.shtml)
+- 2026-06-30 00:18 - [天道](https://www.share.kurohicncr.top/Article/details/3127748.shtml)
+- 2026-06-30 00:29 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/6846957279.shtml)
+- 2026-06-30 00:00 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/02607243.shtml)
+- 2026-06-30 00:20 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/14657.shtml)
+- 2026-06-30 00:21 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/553125887155.shtml)
+- 2026-06-30 00:19 - [85花告别古偶](https://www.share.minike.top/Article/details/93030.shtml)
+- 2026-06-30 00:10 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/410838982.shtml)
+- 2026-06-30 00:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/726511.shtml)

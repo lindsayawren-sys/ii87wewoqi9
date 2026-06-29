@@ -1,52 +1,61 @@
-# 福森药业：“硫酸氨基葡萄糖胶囊”获批上市
+# 严禁向未成年人提供虚拟伴侣等服务 新规今年7月施行
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-福森药业（01652）发布公告，公司全资附属公司河南福森药业有限公司研发的“硫酸氨基葡萄糖胶囊”（商标：舒汇通），上市申请已获得中国国家药品监督管理局批准，批准用于治疗原发性及继发性骨关节炎。 硫酸氨基葡萄糖胶囊是一种天然的氨基单糖，是人体关节软骨基质合成所必需的物质。它作为关节软骨保护剂，可以改善关节疼痛及关节功能，修复软骨，强健关节，促进软骨基质的修复和重建，从而延缓骨关节
+平时我们刷手机遇到的AI陪伴助手、虚拟情感好友，甚至给老人孩子提供陪伴的智能互动产品，今后将有明确的“行为规范”了。今年7月15日，《人工智能拟人化互动服务管理暂行办法》将正式施行。那什么是“人工智能拟人化互动服务”呢？《办法》规定的“人工智能拟人化互动服务”是指，利用人工智能技术，向中华人民共和国境内公众提供的、模拟自然人人格特征、思维模式和沟通风格，且能开展持续性情感互动的
 
 ## 正文
 
-福森药业（01652）发布公告，公司全资附属公司河南福森药业有限公司研发的“硫酸氨基葡萄糖胶囊”（商标：舒汇通），上市申请已获得中国国家药品监督管理局批准，批准用于治疗原发性及继发性骨关节炎。
+平时我们刷手机遇到的AI陪伴助手、虚拟情感好友，甚至给老人孩子提供陪伴的智能互动产品，今后将有明确的“行为规范”了。
 
-硫酸氨基葡萄糖胶囊是一种天然的氨基单糖，是人体关节软骨基质合成所必需的物质。
+今年7月15日，《人工智能拟人化互动服务管理暂行办法》将正式施行。
 
-它作为关节软骨保护剂，可以改善关节疼痛及关节功能，修复软骨，强健关节，促进软骨基质的修复和重建，从而延缓骨关节疼痛的病理过程和疾病的进程，改善关节活动，缓解疼痛。
+那什么是“人工智能拟人化互动服务”呢？
 
-骨关节炎作为一种与年龄、体重、关节劳损等相关的退行性疾病，病程长、易反复，患者需要的不仅是短期止痛，更是关节功能的长期维护，硫酸氨基葡萄糖胶囊正契合了这一治疗需求。
+《办法》规定的“人工智能拟人化互动服务”是指，利用人工智能技术，向中华人民共和国境内公众提供的、模拟自然人人格特征、思维模式和沟通风格，且能开展持续性情感互动的服务。
 
-责任编辑：卢昱君
+而智能客服、知识问答、工作助手等不涉及持续性情感互动的服务，不属于此类拟人化互动服务，不适用该办法监管。
+
+中国政法大学网络法学研究所所长 李怀胜：这类服务通过模拟人类情感和沟通方式，很容易让用户产生非理性的依赖，削弱现实的社交能力，甚至可能被用于情感操控或者说诱导危险行为。
+
+因此为了填补监管空白，防范化解这类潜在风险，同时也是为了响应国家关于完善人工智能治理体系的战略部署，出台针对性的管理规范。
+
+严禁向未成年人提供虚拟伴侣等服务 《人工智能拟人化互动服务管理暂行办法》还聚焦未成年人保护，从服务限制、身份识别到监护管控，给出了解决方案。
 
 ## 相关推荐
 
-- 2026-06-30 00:08 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 00:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 23:57 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 00:12 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 00:03 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 00:21 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 00:10 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 23:56 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 00:03 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 00:06 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 00:10 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 00:05 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 00:25 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 00:23 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 00:24 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 00:10 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 00:28 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 00:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 00:06 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 00:22 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 00:08 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 00:01 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 00:17 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 00:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 00:17 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 00:25 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 00:00 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:03 - [一见倾心](http://www.blog.minike.top/Article/details/916330205.shtml)
-- 2026-06-30 00:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/6398046629.shtml)
-- 2026-06-30 00:11 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/1699873576.shtml)
-- 2026-06-30 00:10 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/31297705.shtml)
-- 2026-06-29 23:56 - [金牌调解](http://www.blog.minike.top/Article/details/4593604.shtml)
-- 2026-06-29 23:56 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/60190968.shtml)
-- 2026-06-29 23:58 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/85708262.shtml)
-- 2026-06-30 00:20 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/39165350.shtml)
-- 2026-06-29 23:57 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/997594.shtml)
-- 2026-06-30 00:22 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/36769.shtml)
-- 2026-06-30 00:07 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/30123.shtml)
-- 2026-06-30 00:16 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/84944646.shtml)
-- 2026-06-30 00:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/494203477.shtml)
-- 2026-06-30 00:01 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/42011154.shtml)
-- 2026-06-30 00:01 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/684707982374.shtml)
+- 2026-06-30 00:07 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/67283356.shtml)
+- 2026-06-30 00:25 - [金牌调解](https://www.share.kurohicncr.top/Article/details/85325194.shtml)
+- 2026-06-30 00:25 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/7254063.shtml)
+- 2026-06-30 00:16 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/44731810254.shtml)
+- 2026-06-30 00:22 - [斗破苍穹](http://www.blog.minike.top/Article/details/5385696.shtml)
+- 2026-06-30 00:11 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/61922.shtml)
+- 2026-06-30 00:23 - [美人鱼](http://www.share.minike.top/Article/details/6103413.shtml)
+- 2026-06-30 00:05 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/009843344.shtml)
+- 2026-06-30 00:21 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/4002704536.shtml)
+- 2026-06-30 00:07 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/45704161.shtml)
+- 2026-06-30 00:24 - [勇敢的心第二部](https://www.share.minike.top/Article/details/4475186.shtml)
+- 2026-06-30 00:03 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/554167646700.shtml)
+- 2026-06-30 00:04 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/146561204.shtml)
+- 2026-06-30 00:08 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/674507039964.shtml)
+- 2026-06-30 00:05 - [TOP Prada](https://www.share.minike.top/Article/details/77037.shtml)

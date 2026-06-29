@@ -1,61 +1,60 @@
-# 商务部：欧盟《网络安全法》修订草案存在多方面问题
+# 清华大学教授李克强：去年智驾相关投诉比例激增，安全事故频发已引起社会公众质疑
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月20日电 (记者 尹倩芸)中国商务部近日向欧委会提交了对欧盟《网络安全法》修订草案的评论意见，表达了中方严正关切和正式立场。中国商务部新闻发言人20日称，中方认为草案内容存在多方面问题。 具体而言，一是涉嫌违反最惠国待遇、国民待遇等世贸组织基本原则，既违反《1994年关税与贸易总协定》《服务贸易总协定》《补贴与反补贴措施协定》《技术性贸易壁垒协定》等多项协定规则，
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 清华大学车辆与运载学院教授、智能绿色车辆与交通全国重点实验室主任、国家智能网联汽车创新中心首席科学家李克强表示，当前中国汽车智能化产业已经发展到了一个关键的节点、一个临界点。他认为，在这个发
 
 ## 正文
 
-中新社北京4月20日电 (记者 尹倩芸)中国商务部近日向欧委会提交了对欧盟《网络安全法》修订草案的评论意见，表达了中方严正关切和正式立场。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-中国商务部新闻发言人20日称，中方认为草案内容存在多方面问题。
+清华大学车辆与运载学院教授、智能绿色车辆与交通全国重点实验室主任、国家智能网联汽车创新中心首席科学家李克强表示，当前中国汽车智能化产业已经发展到了一个关键的节点、一个临界点。
 
-具体而言，一是涉嫌违反最惠国待遇、国民待遇等世贸组织基本原则，既违反《1994年关税与贸易总协定》《服务贸易总协定》《补贴与反补贴措施协定》《技术性贸易壁垒协定》等多项协定规则，也违背欧盟服务贸易减让承诺。
+他认为，在这个发展过程中，要真正实现高质量、可持续发展，应当尽快解决所面临的一系列挑战性问题。
 
-二是涉嫌超出欧盟法律授权，侵蚀成员国管理国家安全事务的专属权限。
+首先，李克强表示，目前为止，尽管行业投入巨大，但在汽车智能化领域，商业闭环及盈利模式并不理想，这一点从各家公司的报表中就能看出。
 
-三是将对中欧经贸关系造成实质性伤害，对全球产供链造成严重冲击，也必将拖累欧盟自身的数字化、绿色化转型进程。
+从原因上分析，首先是安全可靠性不足。
 
-发言人称，中方认为，草案以网络安全和供应链安全为名，引入极具主观随意性的“非技术风险”因素，特别是在草案中认定“网络安全关切国家”和“高风险供应商”名单，并在能源、交通、ICT等18个行业将列单的国家和供应商，全链条排除出欧盟相关供应链之外，这是经贸问题政治化、泛安全化的典型做法。
+“大家试想一下，自动驾驶的首要属性是保证交通的安全，如果安全可靠性无法保障，用户自然不会买单，也就难以形成盈利闭环。
 
-发言人说，在评论意见中，中方建议欧方删除草案中关于“网络安全关切国家”和“非技术风险”的规定，删除或实质修改“高风险供应商”认定标准及相关限制措施。
+”他说。
 
-希望欧方高度重视并认真考虑中方提交的评论意见和修改建议，严格遵守世贸组织规则，避免采取歧视性限制措施，维护中欧及全球产供链稳定畅通。
+另外，他认为目前在产品定义上存在诸多问题，尚未形成自主闭环，也没有建立起统一的技术规范，这就导致开发成本居高不下；同时，系统的兼容性、架构设计不合理，进一步推高了开发成本。
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 00:11 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 00:16 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 23:57 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 00:08 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 00:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 00:22 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 00:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 00:20 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 00:09 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 00:02 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 00:06 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 00:06 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 00:01 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 00:16 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 00:24 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 00:17 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 00:18 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 00:15 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 00:17 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 00:05 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 00:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 00:29 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 00:15 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 00:16 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 00:17 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 00:02 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 00:28 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 00:09 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/939098297950.shtml)
-- 2026-06-30 00:12 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/2624119750.shtml)
-- 2026-06-30 00:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/7240758476.shtml)
-- 2026-06-29 23:59 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/809121057.shtml)
-- 2026-06-29 23:59 - [爱很美味](https://www.share.minike.top/Article/details/225510.shtml)
-- 2026-06-30 00:23 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/01946217.shtml)
-- 2026-06-29 23:54 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/72175.shtml)
-- 2026-06-30 00:01 - [周生如故](https://www.share.minike.top/Article/details/8656657759.shtml)
-- 2026-06-30 00:11 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/429701105775.shtml)
-- 2026-06-30 00:01 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/801800.shtml)
-- 2026-06-30 00:19 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/60517928.shtml)
-- 2026-06-30 00:18 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/4073059.shtml)
-- 2026-06-30 00:16 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/55712949.shtml)
-- 2026-06-29 23:57 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/1269303212.shtml)
-- 2026-06-30 00:04 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/649650796.shtml)
+- 2026-06-30 00:16 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/568367815.shtml)
+- 2026-06-30 00:09 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/57351476.shtml)
+- 2026-06-30 00:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/90855.shtml)
+- 2026-06-30 00:28 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/5556266780.shtml)
+- 2026-06-30 00:24 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/1369593583.shtml)
+- 2026-06-30 00:11 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/86427.shtml)
+- 2026-06-30 00:17 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/762034746.shtml)
+- 2026-06-30 00:05 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/20800.shtml)
+- 2026-06-30 00:26 - [美人鱼](https://www.share.minike.top/Article/details/8116237047.shtml)
+- 2026-06-30 00:12 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/180668859654.shtml)
+- 2026-06-30 00:25 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/744442974354.shtml)
+- 2026-06-30 00:03 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/27590282.shtml)
+- 2026-06-30 00:17 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/6119138.shtml)
+- 2026-06-30 00:07 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/621183380.shtml)
+- 2026-06-30 00:11 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/297945582879.shtml)

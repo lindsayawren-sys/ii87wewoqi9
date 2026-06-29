@@ -1,52 +1,56 @@
-# 金鸿顺：实控人刘栩被列入失信被执行人 公司亦无法与其取得联系
+# 北京半程马拉松开跑 中国男子半马新纪录诞生
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-金鸿顺公告，公司于近日通过查询获悉实际控制人刘栩被列入失信被执行人，公司及公司董事会在此之前未收到控股股东或实际控制人及其相关人员的任何形式通知。公司将按照相关规定解除刘栩的非独立董事职务。实际控制人刘栩自2025年9月底起已不到公司现场履职，同时其多次缺席第三届董事会会议；自2025年12月中旬至本公告披露日，刘栩未与公司联系，公司亦无法与刘栩取得联系。目前公司经营业务正常开
+中新社北京4月12日电 (记者 邢翀)2026北京国际长跑节-北京半程马拉松12日开跑，起点设置在天安门广场，终点为奥林匹克公园中心区景观大道。经过激烈角逐，中国选手王文杰以1小时01分15秒的成绩夺得男子组冠军，并打破该项目的全国纪录。 北京国际长跑节-北京半程马拉松是中国历史悠久的大众路跑赛事，今年共有2.2万名跑者参与赛事，赛道实现全程“无折返”，尤其在17.5公里后进一
 
 ## 正文
 
-金鸿顺公告，公司于近日通过查询获悉实际控制人刘栩被列入失信被执行人，公司及公司董事会在此之前未收到控股股东或实际控制人及其相关人员的任何形式通知。
+中新社北京4月12日电 (记者 邢翀)2026北京国际长跑节-北京半程马拉松12日开跑，起点设置在天安门广场，终点为奥林匹克公园中心区景观大道。
 
-公司将按照相关规定解除刘栩的非独立董事职务。
+经过激烈角逐，中国选手王文杰以1小时01分15秒的成绩夺得男子组冠军，并打破该项目的全国纪录。
 
-实际控制人刘栩自2025年9月底起已不到公司现场履职，同时其多次缺席第三届董事会会议；自2025年12月中旬至本公告披露日，刘栩未与公司联系，公司亦无法与刘栩取得联系。
+北京国际长跑节-北京半程马拉松是中国历史悠久的大众路跑赛事，今年共有2.2万名跑者参与赛事，赛道实现全程“无折返”，尤其在17.5公里后进一步减少弯道，有助于选手冲击个人最好成绩。
 
-目前公司经营业务正常开展，其停止履职不会对公司经营管理活动产生重大影响。
+本次赛事海外选手报名人数较2025年有大幅增长。
 
-责任编辑：刘万里 SF014
+男子组竞争尤为激烈，国内共有8名参赛选手的个人最好成绩在1小时04分之内。
+
+比赛中，王文杰保持稳定配速，15公里处已确立了明显领先优势，最终以1小时01分15秒的成绩打破中国男子半马纪录。
+
+李金豪以1小时03分06秒的成绩获得亚军，王琪以1小时04分37秒的成绩摘得季军。
+
+王文杰还是中国男子万米纪录保持者。
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 00:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 23:54 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 23:57 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 00:11 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 00:18 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 00:18 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 00:09 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 00:00 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 23:55 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 00:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 00:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 00:22 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 00:29 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 00:23 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 00:23 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 00:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 00:28 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 00:22 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 00:26 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 00:01 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 00:27 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/8367216065.shtml)
-- 2026-06-30 00:17 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/825157247671.shtml)
-- 2026-06-30 00:18 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/037216691242.shtml)
-- 2026-06-29 23:54 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/057368790080.shtml)
-- 2026-06-30 00:17 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/8464398.shtml)
-- 2026-06-30 00:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/856802.shtml)
-- 2026-06-30 00:21 - [扬名立万](http://www.share.kurohicncr.top/Article/details/189360112.shtml)
-- 2026-06-30 00:04 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/5396605385.shtml)
-- 2026-06-30 00:15 - [美人鱼](https://www.blog.minike.top/Article/details/1587358352.shtml)
-- 2026-06-29 23:57 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/197831.shtml)
-- 2026-06-30 00:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/4441574.shtml)
-- 2026-06-30 00:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/9807907292.shtml)
-- 2026-06-30 00:07 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/176797833.shtml)
-- 2026-06-30 00:06 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/704189457.shtml)
-- 2026-06-30 00:08 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/948702796.shtml)
+- 2026-06-30 00:00 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/664252769966.shtml)
+- 2026-06-30 00:26 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/4549472485.shtml)
+- 2026-06-30 00:07 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/960255157052.shtml)
+- 2026-06-30 00:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/1264902.shtml)
+- 2026-06-30 00:01 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/3253690764.shtml)
+- 2026-06-30 00:04 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/252430722.shtml)
+- 2026-06-30 00:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/00773.shtml)
+- 2026-06-30 00:24 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/678792946.shtml)
+- 2026-06-30 00:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/7105882791.shtml)
+- 2026-06-30 00:08 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/39633035352.shtml)
+- 2026-06-30 00:07 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/522372.shtml)
+- 2026-06-30 00:26 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/29061693923.shtml)
+- 2026-06-30 00:26 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/985409197531.shtml)
+- 2026-06-30 00:06 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/20017.shtml)
+- 2026-06-30 00:25 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/566108907914.shtml)

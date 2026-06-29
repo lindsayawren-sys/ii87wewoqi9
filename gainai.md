@@ -1,60 +1,59 @@
-# TOP TOY赴港IPO：营收高增净利腰斩，5.74亿对赌倒计时
+# 出入境数据走高 春日中国热度拉升
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-《港湾商业观察》萧秀妮 3月31日，名创优品（广州）有限责任公司旗下的大潮玩国际集团有限公司（以下简称，TOP TOY）更新港股招股书，联席保荐人为摩根大通、瑞银公司及中信证券。 2025年9月，TOP TOY首次提交招股说明书，在6个月后上市申请失效的情况下，此次重新提交申请。作为2020年成立、依托名创优品体系快速崛起的品牌，TOP TOY以GMV口径位居中国潮玩零售商第二
+新华鲜报|出入境数据走高 春日中国热度拉升 4月10日，国家移民管理局发布数据：2026年一季度全国累计查验出入境人员1.85亿人次，同比上升13.5%；其中外国人2133.3万人次，同比上升22.3%。 出入境数据节节走高，春日中国，“China Travel”热度拉升。 “免签朋友圈”不断扩大，中国成为更多外国人触手可及的选择。4月9日上午，一架来自新加坡的民航客机缓缓降落
 
 ## 正文
 
-《港湾商业观察》萧秀妮 3月31日，名创优品（广州）有限责任公司旗下的大潮玩国际集团有限公司（以下简称，TOP TOY）更新港股招股书，联席保荐人为摩根大通、瑞银公司及中信证券。
+新华鲜报|出入境数据走高 春日中国热度拉升 4月10日，国家移民管理局发布数据：2026年一季度全国累计查验出入境人员1.85亿人次，同比上升13.5%；其中外国人2133.3万人次，同比上升22.3%。
 
-2025年9月，TOP TOY首次提交招股说明书，在6个月后上市申请失效的情况下，此次重新提交申请。
+出入境数据节节走高，春日中国，“China Travel”热度拉升。
 
-作为2020年成立、依托名创优品体系快速崛起的品牌，TOP TOY以GMV口径位居中国潮玩零售商第二位、潮玩集合品类首位。
+“免签朋友圈”不断扩大，中国成为更多外国人触手可及的选择。
 
-然而，在亮眼增长的背后，公司同期净利润大幅下滑超六成，盈利质量、IP结构、渠道依赖、海外扩张及关联交易等多重风险也随之显现。
+4月9日上午，一架来自新加坡的民航客机缓缓降落在海口美兰国际机场，191名旅客开启海南之旅。
 
-1 “增收不增利”，自有IP孱弱外部授权隐忧凸显 TOP TOY品牌创立于2020年12月，是名创优品集团在2020年内部孵化的潮玩子品牌，依托名创优品供应链、渠道与零售能力起步，在广州开出首家门店。
+“我和十几位同事跟着旅游团来到海南，想看看这里的景色，品尝一下地道的海南美食。
 
-2025年4月24日，大潮玩国际集团有限公司（TOP TOY International Group Limited）在开曼群岛注册成立，为港股上市主体。
+”新加坡旅客戴秀荣说。
 
-公司以“IP价值最大化”为核心战略，构建了覆盖IP开发、产品设计、供应链管理及全渠道销售的一体化平台，定位为中国规模最大的潮玩集合品牌。
+随着系列免签政策叠加扩容，全球86国公民持普通护照即可轻松入境海南。
 
-其产品线涵盖手办、3D拼装模型、搪胶毛绒、盲盒等多个品类。
+“海南自贸港全岛封关运作以来，出入境旅客人数大幅增长，俄罗斯、马来西亚、印度尼西亚、哈萨克斯坦等国成为外国人主要来源地。
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 23:56 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 00:23 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 00:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 00:05 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 23:54 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 00:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 00:23 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 23:54 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 00:20 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 23:55 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 00:09 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 00:12 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 00:21 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 00:09 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 00:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 00:01 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 00:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 00:21 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 00:19 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 00:24 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 00:13 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 00:12 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 00:17 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 00:16 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 00:11 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 00:06 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:05 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/514082505180.shtml)
-- 2026-06-30 00:06 - [明星大侦探第一季](http://www.share.minike.top/Article/details/875980.shtml)
-- 2026-06-30 00:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/914898929609.shtml)
-- 2026-06-30 00:04 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/094042.shtml)
-- 2026-06-30 00:07 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/80930.shtml)
-- 2026-06-29 23:56 - [乔家的儿女](https://www.share.minike.top/Article/details/2425124284.shtml)
-- 2026-06-30 00:16 - [女心理师](https://www.share.minike.top/Article/details/9014393.shtml)
-- 2026-06-30 00:16 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/748648261.shtml)
-- 2026-06-30 00:07 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/649029912.shtml)
-- 2026-06-30 00:20 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/02261075455.shtml)
-- 2026-06-30 00:09 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/094000686.shtml)
-- 2026-06-29 23:59 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/621157.shtml)
-- 2026-06-30 00:14 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/786124.shtml)
-- 2026-06-30 00:08 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/75490.shtml)
-- 2026-06-30 00:24 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/591417853885.shtml)
+- 2026-06-30 00:25 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/558616259741.shtml)
+- 2026-06-30 00:01 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/96121042.shtml)
+- 2026-06-30 00:02 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/3621107.shtml)
+- 2026-06-30 00:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/380874129.shtml)
+- 2026-06-30 00:14 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/2537998746.shtml)
+- 2026-06-30 00:00 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/9640114.shtml)
+- 2026-06-30 00:16 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/1031698086.shtml)
+- 2026-06-30 00:14 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/693396524.shtml)
+- 2026-06-30 00:23 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/338528729.shtml)
+- 2026-06-30 00:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/0775482652.shtml)
+- 2026-06-30 00:00 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/560544.shtml)
+- 2026-06-30 00:04 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/9321153.shtml)
+- 2026-06-30 00:15 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/776343977760.shtml)
+- 2026-06-30 00:04 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/355196504.shtml)
+- 2026-06-30 00:27 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/566452462213.shtml)

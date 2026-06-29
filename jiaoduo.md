@@ -1,60 +1,59 @@
-# 铁路部门开行14趟“书香列车” 丰富全民阅读体验
+# 中兴通讯许志成：开发co-Claw平台，结合各场景开发Skill
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新网南昌4月21日电 (刘力鑫 陈临燕 王梦婧子)G2319次“书香列车”车窗贴着阅读主题窗花，座椅头枕巾上印着电子阅读二维码；高铁站“书香驿站”内摆放着各类优质图书......4月20日至22日，第五届全民阅读大会在江西南昌举办。为深入服务本届全民阅读大会，铁路部门开行了14趟“书香列车”，并在南昌西、萍乡北等车站精心打造了“书香驿站”。 21日上午，登上由南昌西站开往成都
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京召开。中兴通讯大企业CTO许志成出席并演讲。 许志成指出，车路云一体化是推动中国智能交通系统建设，引领交通、汽车、通信等行业科技创新的重点领域，是实现交通强国、汽车强国、网络强国、数字中国战略目标的重要支撑。 他介绍到，中心通讯自研双频芯片模组，为车企提供稳定连接。他也建议
 
 ## 正文
 
-中新网南昌4月21日电 (刘力鑫 陈临燕 王梦婧子)G2319次“书香列车”车窗贴着阅读主题窗花，座椅头枕巾上印着电子阅读二维码；高铁站“书香驿站”内摆放着各类优质图书......4月20日至22日，第五届全民阅读大会在江西南昌举办。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京召开。
 
-为深入服务本届全民阅读大会，铁路部门开行了14趟“书香列车”，并在南昌西、萍乡北等车站精心打造了“书香驿站”。
+中兴通讯大企业CTO许志成出席并演讲。
 
-21日上午，登上由南昌西站开往成都东站的G2319次列车，只见车体、车窗、车门等处均张贴有全民阅读主题相关的宣传标语，座椅头枕巾和小桌板则印有“书香铁路”电子阅读二维码，旅客扫码即可免费畅读海量电子书；餐吧台专设“读书角”，提供实体书籍免费借阅服务。
+许志成指出，车路云一体化是推动中国智能交通系统建设，引领交通、汽车、通信等行业科技创新的重点领域，是实现交通强国、汽车强国、网络强国、数字中国战略目标的重要支撑。
 
-“我们列车依托铁路‘悦’读好书榜、江西出版精品书目及旅客阅读偏好，定期更新补充图书资源。
+他介绍到，中心通讯自研双频芯片模组，为车企提供稳定连接。
 
-线上阅读平台也已汇聚超万册电子图书。
+他也建议，面向各城市差异化道路场景和业务需求，需要构建分级感知体系。
 
-通过线上线下二者结合，打造‘纸质阅读+数字阅读’双载体场景，全面满足不同年龄段旅客的多样化阅读需求，真正实现‘一书一世界，一程一风景’的沉浸式阅读体验。
+许志成还特别介绍，中兴通讯在OpenClaw的基础上，开发了co-Claw平台，可以结合各个场景开发Skill。
 
-”G2319次列车长燕珍珍说。
+比如利用公路智能体，提升城市交通内外部服务能力。
 
-在开行“书香列车”的同时，铁路部门还在南昌西、萍乡北等车站，精心打造第五届全民阅读大会“书香驿站”，在候车区设置读书角和自助借书柜，投放各类优秀图书，让旅客在候车间隙轻松邂逅书香。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 00:02 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 00:18 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 00:16 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 00:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 00:18 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 00:09 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 23:58 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 23:59 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 00:14 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 23:54 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 00:10 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 00:19 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 00:00 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 00:02 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 00:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 00:07 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 00:19 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 00:25 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 00:10 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 00:04 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 00:28 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 00:26 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 00:17 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 00:09 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 00:04 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 00:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [男子称在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/882309.shtml)
-- 2026-06-30 00:22 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/84361097.shtml)
-- 2026-06-30 00:23 - [一生一世](https://www.blog.kurohicncr.top/Article/details/7797624084.shtml)
-- 2026-06-30 00:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/980458.shtml)
-- 2026-06-30 00:01 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/92693.shtml)
-- 2026-06-30 00:18 - [小娘惹](https://www.share.minike.top/Article/details/027441852484.shtml)
-- 2026-06-30 00:11 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/983278738.shtml)
-- 2026-06-29 23:58 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/56881.shtml)
-- 2026-06-30 00:23 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/8555683.shtml)
-- 2026-06-29 23:55 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/254091.shtml)
-- 2026-06-29 23:55 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/6977633.shtml)
-- 2026-06-30 00:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/60505.shtml)
-- 2026-06-30 00:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/42087.shtml)
-- 2026-06-30 00:03 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/54969993786.shtml)
-- 2026-06-30 00:06 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/8609014897.shtml)
+- 2026-06-30 00:04 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/45252263424.shtml)
+- 2026-06-30 00:18 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/6929934.shtml)
+- 2026-06-30 00:00 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/0744667979.shtml)
+- 2026-06-30 00:11 - [85花告别古偶](https://www.blog.minike.top/Article/details/12438.shtml)
+- 2026-06-30 00:15 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/205443074.shtml)
+- 2026-06-30 00:20 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/61607993.shtml)
+- 2026-06-30 00:13 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/25122600.shtml)
+- 2026-06-30 00:08 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/96174605.shtml)
+- 2026-06-30 00:03 - [急先锋](https://www.blog.kurohicncr.top/Article/details/301821844245.shtml)
+- 2026-06-30 00:18 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/48328129.shtml)
+- 2026-06-30 00:02 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/84335.shtml)
+- 2026-06-30 00:27 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/186862.shtml)
+- 2026-06-30 00:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/339301534.shtml)
+- 2026-06-30 00:04 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/72547.shtml)
+- 2026-06-30 00:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/87831.shtml)

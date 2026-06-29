@@ -1,55 +1,56 @@
-# 宁德时代，将发布全新技术产品
+# 东北制药的“双降”困局：仿制药承压，创新药“烧钱”
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财联社 记者获悉，宁德时代计划于明日举办的“超级科技日”上，发布钠电、凝聚态、快充等相关技术产品。 4月15日，在宁德时代2026年一季度财报上，该公司确认将于4月21日举办2026年“超级科技日”发布会，主题为“极域之约”。彼时，宁德时代方面表示，这是成立以来技术密度最高的一场发布会，届时将带来全新
+在集采常态化与医保控费持续深化的背景下，老牌药企东北制药（000597）交出了一份并不乐观的2025年成绩单。年报数据显示，公司全年实现营业收入70.75亿元，同比下降5.70%；归母净利润为2.60亿元，同比大幅下滑36.54%。利润降幅远超营收，反映出公司在核心业务上面临的结构性压力。 一、仿制药主业陷入“价格战”，产品结构单一风险凸显 东北制药的业务高度依赖传统化学仿制药
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+在集采常态化与医保控费持续深化的背景下，老牌药企东北制药（000597）交出了一份并不乐观的2025年成绩单。
 
-来源：财联社 记者获悉，宁德时代计划于明日举办的“超级科技日”上，发布钠电、凝聚态、快充等相关技术产品。
+年报数据显示，公司全年实现营业收入70.75亿元，同比下降5.70%；归母净利润为2.60亿元，同比大幅下滑36.54%。
 
-4月15日，在宁德时代2026年一季度财报上，该公司确认将于4月21日举办2026年“超级科技日”发布会，主题为“极域之约”。
+利润降幅远超营收，反映出公司在核心业务上面临的结构性压力。
 
-彼时，宁德时代方面表示，这是成立以来技术密度最高的一场发布会，届时将带来全新的技术、产品和生态，每一个都指向行业最关注的问题。
+一、仿制药主业陷入“价格战”，产品结构单一风险凸显 东北制药的业务高度依赖传统化学仿制药。
 
-责任编辑：张乔松
+2025年，原料销售板块收入同比下降13.19%，制剂销售板块下降6.34%。
+
+公司坦言，维生素、抗生素等大宗原料药为争夺市场份额陷入“价格战”，部分品种价格已跌破原材料成本。
+
+这种以低毛利仿制药为主的收入结构，在集采“以价换量”的逻辑下尤为脆弱。
+
+尽管出口业务逆势增长20.55%，但海外市场的增量远不足以对冲国内内销收入9.29%的下滑。
 
 ## 相关推荐
 
-- 2026-06-30 00:08 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 00:19 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 00:01 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 00:14 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 00:15 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 23:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 00:11 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 00:21 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 23:59 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 00:05 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 00:20 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 00:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 00:07 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 00:13 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 00:02 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 00:28 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 00:18 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 00:10 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 00:29 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 00:25 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 00:11 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 00:11 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 00:23 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 00:26 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 00:21 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/277337839975.shtml)
-- 2026-06-30 00:04 - [乔家的儿女](https://www.blog.minike.top/Article/details/859053.shtml)
-- 2026-06-30 00:09 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/10907.shtml)
-- 2026-06-30 00:01 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/8830614703.shtml)
-- 2026-06-29 23:59 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/56099015049.shtml)
-- 2026-06-29 23:56 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/4993654494.shtml)
-- 2026-06-30 00:22 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/0453424902.shtml)
-- 2026-06-29 23:59 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/60569525293.shtml)
-- 2026-06-30 00:10 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/204081692923.shtml)
-- 2026-06-30 00:16 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/915397177937.shtml)
-- 2026-06-30 00:23 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/0207361620.shtml)
-- 2026-06-30 00:11 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/6110893050.shtml)
-- 2026-06-30 00:08 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/17079.shtml)
-- 2026-06-30 00:05 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/939604.shtml)
-- 2026-06-29 23:55 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/65479326.shtml)
+- 2026-06-30 00:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/021388034.shtml)
+- 2026-06-30 00:10 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/82176.shtml)
+- 2026-06-30 00:03 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/9938470138.shtml)
+- 2026-06-30 00:05 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/237043642.shtml)
+- 2026-06-30 00:03 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/66509323.shtml)
+- 2026-06-30 00:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/80321.shtml)
+- 2026-06-30 00:05 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/483009.shtml)
+- 2026-06-30 00:09 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/9051623.shtml)
+- 2026-06-30 00:07 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/0087531803.shtml)
+- 2026-06-30 00:15 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/46161844.shtml)
+- 2026-06-30 00:07 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/648329759179.shtml)
+- 2026-06-30 00:23 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/111917250420.shtml)
+- 2026-06-30 00:13 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/379232166.shtml)
+- 2026-06-30 00:17 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/20771177384.shtml)
+- 2026-06-30 00:17 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/0178075.shtml)

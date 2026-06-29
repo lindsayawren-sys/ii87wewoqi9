@@ -1,58 +1,48 @@
-# IMF货币与资本市场部助理主任：中国市场具备显著吸引力
+# 浙江富阳农村商业银行被罚13万元：未按照规定开展客户尽职调查
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！地缘冲突与通胀阴霾下，全球市场似乎正在达成某种脆弱的平衡。近日，标普500指数在短短11个交易日内接近盘整的低点反弹至历史新高，创36年来最快复苏。 国际货币基金组织（IMF）货币与资本市场部助理主任Jason Wu在接受第一财经专访时表示，一方面，资本市场的迅速回暖反映出投资者的风险偏好和全球经济韧性。另
+4月10日金融一线消息，中国人民银行浙江省分行行政处罚决定信息公示表显示，浙江富阳农村商业银行股份有限公司因未按照规定开展客户尽职调查，未按照规定报告可疑交易，受到警告并被罚款13万元。 序号 当事人名称 （姓名、职务） 行政处罚 决定书文号 违法行为类型 行政处罚 内容 作出行政处罚决定机关名称 作出行政 处罚决定 日期 公示期限 （自公示之日起计算） 备注 1 浙江富阳农村
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月10日金融一线消息，中国人民银行浙江省分行行政处罚决定信息公示表显示，浙江富阳农村商业银行股份有限公司因未按照规定开展客户尽职调查，未按照规定报告可疑交易，受到警告并被罚款13万元。
 
-地缘冲突与通胀阴霾下，全球市场似乎正在达成某种脆弱的平衡。
+序号 当事人名称 （姓名、职务） 行政处罚 决定书文号 违法行为类型 行政处罚 内容 作出行政处罚决定机关名称 作出行政 处罚决定 日期 公示期限 （自公示之日起计算） 备注 1 浙江富阳农村商业银行股份有限公司 浙银罚决字〔2026〕8号 1．未按照规定开展客户尽职调查； 2．未按照规定报告可疑交易。
 
-近日，标普500指数在短短11个交易日内接近盘整的低点反弹至历史新高，创36年来最快复苏。
+警告，处13万元罚款。
 
-国际货币基金组织（IMF）货币与资本市场部助理主任Jason Wu在接受第一财经专访时表示，一方面，资本市场的迅速回暖反映出投资者的风险偏好和全球经济韧性。
-
-另一方面，强劲的风险偏好也可能引发不对称性风险，而非银机构杠杆错配的深层风险和AI繁荣背后的隐忧或成为地缘政治冲击下不容忽视的系统性风险共振点。
-
-Wu特别提到，在全球避险资产逻辑重塑的过程中，中国市场因其低相关性与经济稳健性，具备显著吸引力，“有效提振了投资者对中国及其金融市场的信心”。
-
-美股快速反弹背后的逻辑 第一财经：自中东冲突于2月末爆发以来，美股市场已经完全收复失地。
-
-这一快速的反弹反映了怎样的市场情绪？
+中国人民银行浙江省分行 2026年4月7日 三年 责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 00:04 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 00:19 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 00:18 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 00:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 00:01 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 00:07 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 00:23 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 00:12 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 00:09 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 00:19 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 00:20 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 00:03 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 00:19 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 00:06 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 00:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 00:29 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 00:14 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 00:12 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 00:15 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 00:15 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 00:19 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:19 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/7791334.shtml)
-- 2026-06-30 00:11 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/38786038.shtml)
-- 2026-06-30 00:11 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/41983108848.shtml)
-- 2026-06-30 00:00 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/93288.shtml)
-- 2026-06-30 00:06 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/6652940647.shtml)
-- 2026-06-30 00:12 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/56838712.shtml)
-- 2026-06-30 00:02 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/628464124.shtml)
-- 2026-06-30 00:08 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/211402164879.shtml)
-- 2026-06-29 23:57 - [炽夏](http://www.blog.minike.top/Article/details/9331519462.shtml)
-- 2026-06-30 00:13 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/351576278054.shtml)
-- 2026-06-30 00:16 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/75558.shtml)
-- 2026-06-30 00:04 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/11753.shtml)
-- 2026-06-30 00:00 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/06118.shtml)
-- 2026-06-30 00:12 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/38043271338.shtml)
-- 2026-06-30 00:07 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/4640917.shtml)
+- 2026-06-30 00:13 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/85185.shtml)
+- 2026-06-30 00:14 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/22603332.shtml)
+- 2026-06-30 00:11 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/2166950065.shtml)
+- 2026-06-30 00:21 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/15846067999.shtml)
+- 2026-06-30 00:00 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/882391357285.shtml)
+- 2026-06-30 00:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/48360190.shtml)
+- 2026-06-30 00:05 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/1499810141.shtml)
+- 2026-06-30 00:25 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/1844181024.shtml)
+- 2026-06-30 00:20 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/0254354394.shtml)
+- 2026-06-30 00:08 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/046905187056.shtml)
+- 2026-06-30 00:28 - [啊啊啊](https://www.share.minike.top/Article/details/661231384.shtml)
+- 2026-06-30 00:04 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/322249203677.shtml)
+- 2026-06-30 00:26 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/76516.shtml)
+- 2026-06-30 00:09 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/451717303.shtml)
+- 2026-06-30 00:03 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/639002992728.shtml)

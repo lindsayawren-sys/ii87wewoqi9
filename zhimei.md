@@ -1,46 +1,48 @@
-# 习近平同沙特王储兼首相穆罕默德通电话
+# 工商银行：完成发行500亿元二级资本债券
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-新华社快讯：习近平同沙特王储兼首相穆罕默德通电话。 责任编辑：刘万里 SF014
+4月10日金融一线消息，工商银行今日发布公告称，该行2026年二级资本债券（第一期）（债券通）（简称本期债券）已于近日在全国银行间债券市场发行完毕。 工商银行表示，本期债券发行规模为人民币500亿元，品种为10年期固定利率债券，在第5年末附有条件的发行人赎回权，票面利率为2.00%。本期债券募集资金在扣除发行费用后，将依据适用法律和主管部门的批准，补充银行的二级资本。 责任编辑
 
 ## 正文
 
-新华社快讯：习近平同沙特王储兼首相穆罕默德通电话。
+4月10日金融一线消息，工商银行今日发布公告称，该行2026年二级资本债券（第一期）（债券通）（简称本期债券）已于近日在全国银行间债券市场发行完毕。
 
-责任编辑：刘万里 SF014
+工商银行表示，本期债券发行规模为人民币500亿元，品种为10年期固定利率债券，在第5年末附有条件的发行人赎回权，票面利率为2.00%。
+
+本期债券募集资金在扣除发行费用后，将依据适用法律和主管部门的批准，补充银行的二级资本。
+
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 00:03 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 00:06 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 00:02 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 00:16 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 00:11 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 00:04 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 23:59 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 00:11 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 00:13 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 00:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 00:14 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 00:13 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 00:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 00:01 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 00:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 00:03 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 00:09 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 00:20 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 00:19 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 00:15 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 00:09 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:21 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/9266634717.shtml)
-- 2026-06-29 23:55 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/537114171.shtml)
-- 2026-06-30 00:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/7898123.shtml)
-- 2026-06-30 00:18 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/747372.shtml)
-- 2026-06-30 00:06 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/571682653.shtml)
-- 2026-06-30 00:21 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/89457947682.shtml)
-- 2026-06-30 00:21 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/875928.shtml)
-- 2026-06-30 00:05 - [极限挑战第一季](http://www.share.minike.top/Article/details/804086671.shtml)
-- 2026-06-29 23:58 - [金刚川](http://www.share.minike.top/Article/details/56482182282.shtml)
-- 2026-06-30 00:19 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/73437054.shtml)
-- 2026-06-30 00:02 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/30155763102.shtml)
-- 2026-06-30 00:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/2328290.shtml)
-- 2026-06-30 00:04 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/4100818.shtml)
-- 2026-06-30 00:03 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/5020987107.shtml)
-- 2026-06-29 23:58 - [请回答王牌2019](https://www.share.minike.top/Article/details/865730448836.shtml)
+- 2026-06-30 00:23 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/16392303107.shtml)
+- 2026-06-30 00:14 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/37378640316.shtml)
+- 2026-06-30 00:11 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/91400.shtml)
+- 2026-06-30 00:28 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/248184468119.shtml)
+- 2026-06-30 00:19 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/232816.shtml)
+- 2026-06-30 00:21 - [流金岁月](https://www.share.kurohicncr.top/Article/details/155523878.shtml)
+- 2026-06-30 00:15 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/9866177209.shtml)
+- 2026-06-30 00:11 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/3625519.shtml)
+- 2026-06-30 00:19 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/8274434879.shtml)
+- 2026-06-30 00:21 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/71332.shtml)
+- 2026-06-30 00:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/97782.shtml)
+- 2026-06-30 00:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/99364.shtml)
+- 2026-06-30 00:21 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/475412.shtml)
+- 2026-06-30 00:11 - [极限挑战第一季](http://www.blog.minike.top/Article/details/64754.shtml)
+- 2026-06-30 00:10 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/0095040.shtml)

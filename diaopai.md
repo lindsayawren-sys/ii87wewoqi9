@@ -1,58 +1,57 @@
-# 梁家辉第五度夺得香港电影金像奖最佳男主角
+# 今日视点：三大引擎驱动中国资产全球吸引力攀升
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新社香港4月19日电 (记者 戴小橦)第44届香港电影金像奖颁奖典礼19日晚在香港文化中心举行。香港演员梁家辉凭借在电影《捕风追影》中的出色表现，第五次夺得香港电影金像奖最佳男主角。 颁奖典礼现场，最佳电影、最佳男女主角、终身成就奖等奖项依次揭晓。其中，终身成就奖由香港演员周润发、导演刘伟强共同颁发，获奖者为被誉为“港产片特效之父”的朱家欣。 由演员转型导演的舒淇，凭借首部自
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！■ 邢 萌 近日，中国证券业协会向业内下发的《证券公司2025年度经营情况分析》显示，截至2025年末，境外机构和个人持有境内股票近3.7万亿元，近年保持增长态势，彰显中国资产的吸引力持续提升。 这表明，中国资产正从全球资本配置的“可选项”升级为“必选项”，
 
 ## 正文
 
-中新社香港4月19日电 (记者 戴小橦)第44届香港电影金像奖颁奖典礼19日晚在香港文化中心举行。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-香港演员梁家辉凭借在电影《捕风追影》中的出色表现，第五次夺得香港电影金像奖最佳男主角。
+■ 邢 萌 近日，中国证券业协会向业内下发的《证券公司2025年度经营情况分析》显示，截至2025年末，境外机构和个人持有境内股票近3.7万亿元，近年保持增长态势，彰显中国资产的吸引力持续提升。
 
-颁奖典礼现场，最佳电影、最佳男女主角、终身成就奖等奖项依次揭晓。
+这表明，中国资产正从全球资本配置的“可选项”升级为“必选项”，彰显出全球资本对中国经济前景的集体看好。
 
-其中，终身成就奖由香港演员周润发、导演刘伟强共同颁发，获奖者为被誉为“港产片特效之父”的朱家欣。
+其背后，是三大引擎协同驱动：基本面韧性筑牢价值底座，制度型开放畅通投资通道，产业新动能重构增长逻辑。
 
-由演员转型导演的舒淇，凭借首部自编自导的电影《女孩》拿下新晋导演奖。
+其一，经济基本面稳健，夯实资产价值基础。
 
-舒淇感慨入行多年后再获“新人奖”，心情十分奇妙。
+在持续动荡的全球宏观环境下，资产的确定性越强，对资本的吸引力越大。
 
-她提到自己29年前曾斩获香港电影金像奖最佳新人与最佳女配角，自称“最老的新导演”，并向支持自己的香港观众及业内友人致谢。
+我国经济稳中向好，展现出强劲韧性——2025年我国国内生产总值首破140万亿元，比上年增长5.0%；《政府工作报告》提出，“今年发展主要预期目标是：经济增长4.5%—5%，在实际工作中努力争取更好结果”。
 
-入行41年的演员杜德伟，凭借电影《风林火山》首次提名香港电影金像奖，便成功拿下最佳男配角。
+这彰显了我国对经济增长的坚定信心，极大增强了国际资本配置中国资产的意愿。
 
 ## 相关推荐
 
-- 2026-06-29 23:58 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 00:04 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 00:06 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 23:55 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 00:03 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 00:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 00:22 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 00:09 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 00:09 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 00:11 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 00:01 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 00:03 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 00:11 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 00:12 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 00:09 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 00:04 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 00:14 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 00:22 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 00:13 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 00:02 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 00:09 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 00:22 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 00:11 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:15 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/580827031469.shtml)
-- 2026-06-30 00:01 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/4997118748.shtml)
-- 2026-06-30 00:05 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/2171544.shtml)
-- 2026-06-30 00:06 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/075927.shtml)
-- 2026-06-30 00:03 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/1400644.shtml)
-- 2026-06-29 23:54 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/28668054.shtml)
-- 2026-06-30 00:14 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/08107899.shtml)
-- 2026-06-30 00:08 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/6281273.shtml)
-- 2026-06-30 00:10 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/38415849.shtml)
-- 2026-06-30 00:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/36280322143.shtml)
-- 2026-06-30 00:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/420507361.shtml)
-- 2026-06-30 00:05 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/24618.shtml)
-- 2026-06-30 00:19 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/243171126163.shtml)
-- 2026-06-30 00:05 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/404347.shtml)
-- 2026-06-30 00:18 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/3739160681.shtml)
+- 2026-06-30 00:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/6083613.shtml)
+- 2026-06-30 00:29 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/24182803.shtml)
+- 2026-06-30 00:06 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/90697.shtml)
+- 2026-06-30 00:18 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/36199270295.shtml)
+- 2026-06-30 00:26 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/54247479264.shtml)
+- 2026-06-30 00:02 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/88848.shtml)
+- 2026-06-30 00:11 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/856294024841.shtml)
+- 2026-06-30 00:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/258715885.shtml)
+- 2026-06-30 00:26 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/273199.shtml)
+- 2026-06-30 00:18 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/75461891390.shtml)
+- 2026-06-30 00:24 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/2909085135.shtml)
+- 2026-06-30 00:06 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/3697225631.shtml)
+- 2026-06-30 00:06 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/27477154915.shtml)
+- 2026-06-30 00:03 - [速度与激情9](http://www.blog.minike.top/Article/details/80353009623.shtml)
+- 2026-06-30 00:24 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/97061082328.shtml)

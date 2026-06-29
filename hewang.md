@@ -1,60 +1,50 @@
-# 2026第六届雷达未来大会举行 全面展现中国雷达科技创新实力
+# 伊朗最高领袖提出三点主张：赔偿损失、海峡新规、不弃权利
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新网青岛4月20日电 (记者 孙自法)有“千里眼”与“顺风耳”之誉的雷达，以在国防安全和经济社会发展的方方面面广泛应用而备受关注，雷达领域的科技创新更是至关重要且影响深远。 作为中国雷达领域规模最大、规格最高、专业性最强的前沿盛会，2026第六届雷达未来大会4月18日至20日在青岛举行。大会以“雷达赋能百业，共享数智未来”为主题，汇聚全国政产学研用各方力量，共话前沿技术、共促
+中新网4月10日电 据伊朗媒体报道，当地时间9日，伊朗最高领袖穆杰塔巴·哈梅内伊就前任最高领袖阿里·哈梅内伊殉难四十天和当前战事等议题发表书面讲话。 据报道，穆杰塔巴提出三点主张：侵略者必须赔偿损失，霍尔木兹海峡的管理将进入新阶段，伊朗绝不放弃正当权利并将本地区所有“抵抗阵线”视为整体。 穆杰塔巴表示，伊朗在冲突中付出重大牺牲，指责敌人犯下严重罪行，对阿里·哈梅内伊表达缅怀、悼
 
 ## 正文
 
-中新网青岛4月20日电 (记者 孙自法)有“千里眼”与“顺风耳”之誉的雷达，以在国防安全和经济社会发展的方方面面广泛应用而备受关注，雷达领域的科技创新更是至关重要且影响深远。
+中新网4月10日电 据伊朗媒体报道，当地时间9日，伊朗最高领袖穆杰塔巴·哈梅内伊就前任最高领袖阿里·哈梅内伊殉难四十天和当前战事等议题发表书面讲话。
 
-作为中国雷达领域规模最大、规格最高、专业性最强的前沿盛会，2026第六届雷达未来大会4月18日至20日在青岛举行。
+据报道，穆杰塔巴提出三点主张：侵略者必须赔偿损失，霍尔木兹海峡的管理将进入新阶段，伊朗绝不放弃正当权利并将本地区所有“抵抗阵线”视为整体。
 
-大会以“雷达赋能百业，共享数智未来”为主题，汇聚全国政产学研用各方力量，共话前沿技术、共促产业融合、共商协同发展，全面展现中国雷达科技创新实力。
+穆杰塔巴表示，伊朗在冲突中付出重大牺牲，指责敌人犯下严重罪行，对阿里·哈梅内伊表达缅怀、悼念。
 
-中国雷达行业协会理事长吴剑旗院士、中国雷达行业科技委主任委员吴一戎院士等多位院士和雷达行业领军人物、专家学者及企业负责人等代表齐聚一堂，围绕国防安全与数字战争、空天感知与成像探测、智能雷达与电磁测量、环境监测与民生应用等前沿领域，分享颠覆性、原创性技术突破，共同谋划中国雷达行业迈向智能化、融合化发展的大计。
+穆杰塔巴宣布，伊朗民族在这场“强加的战争”中取得“决定性胜利”，伊朗正崛起为重要力量，霸权体系正走向衰落，这一切成果源于伊朗军民的浴血奋斗。
 
-除主论坛外，本届雷达未来大会还精心打造推出23场高端专题分论坛，深度聚焦雷达与量子科技、人工智能(AI)、航空航天、低空经济、通感一体化、水下探测、智慧城市等核心方向，开展跨学科、跨领域前沿研讨与成果交流，推动雷达技术向低空经济、商业航天、应急救援、气象观测、医疗健康等场景规模化落地，构建技术创新与产业应用双向赋能的生态闭环。
-
-大会期间，2025年度中国雷达行业协会科学技术奖揭晓并颁奖，一批在雷达技术攻关、产业创新、工程应用中作出突出贡献的单位与个人获得表彰。
-
-本届大会由中国雷达行业协会、中国雷达行业科技委、山东大学联合主办，中电科思仪科技股份有限公司承办。
-
-雷达全产业链前沿成果展同期举办，来自全国300余家科研院所、龙头企业与专精特新机构集中参展，量子雷达、智能感知、AI算力平台、生命探测、高端测量仪器等一批引领行业未来的创新成果精彩亮相，全方位、成体系呈现中国雷达产业自主可控、智能融合、配套完善、协同发展的发展新格局，彰显出中国雷达科技的硬核实力与时代担当。
+穆杰塔巴还称，伊朗将在谈判桌和战场上推进既定目标，“彻底战胜敌人”。
 
 ## 相关推荐
 
-- 2026-06-30 00:16 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 00:22 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 00:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 23:55 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 00:08 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 00:10 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 23:58 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 23:56 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 00:15 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-30 00:21 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 00:18 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 23:56 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 00:03 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 23:59 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 00:18 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 00:18 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 00:09 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 00:08 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 00:17 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 00:19 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 00:25 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 00:13 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 00:04 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 00:29 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/81518.shtml)
-- 2026-06-30 00:13 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/926241906452.shtml)
-- 2026-06-30 00:11 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/444808344507.shtml)
-- 2026-06-29 23:55 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/62846.shtml)
-- 2026-06-30 00:18 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/183912176.shtml)
-- 2026-06-30 00:02 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/19560939205.shtml)
-- 2026-06-30 00:00 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/89642.shtml)
-- 2026-06-30 00:04 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/13702351475.shtml)
-- 2026-06-30 00:06 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/38461834541.shtml)
-- 2026-06-29 23:54 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/21663.shtml)
-- 2026-06-30 00:00 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/46890839.shtml)
-- 2026-06-30 00:17 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/1289274374.shtml)
-- 2026-06-30 00:05 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/01226982.shtml)
-- 2026-06-30 00:09 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/514868964142.shtml)
-- 2026-06-30 00:02 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/64769.shtml)
+- 2026-06-30 00:18 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/44743.shtml)
+- 2026-06-30 00:05 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/9756656483.shtml)
+- 2026-06-30 00:09 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/285631871038.shtml)
+- 2026-06-30 00:10 - [千与千寻](https://www.blog.minike.top/Article/details/9304793.shtml)
+- 2026-06-30 00:02 - [极限挑战第一季](https://www.blog.minike.top/Article/details/874992.shtml)
+- 2026-06-30 00:21 - [起风了](http://www.share.minike.top/Article/details/6252956.shtml)
+- 2026-06-30 00:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/71326.shtml)
+- 2026-06-30 00:24 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/69014.shtml)
+- 2026-06-30 00:14 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/1799206.shtml)
+- 2026-06-30 00:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/6440367.shtml)
+- 2026-06-30 00:27 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/4808972.shtml)
+- 2026-06-30 00:22 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/79417793968.shtml)
+- 2026-06-30 00:26 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/0839760305.shtml)
+- 2026-06-30 00:15 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/48137579.shtml)
+- 2026-06-30 00:27 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/4493383068.shtml)

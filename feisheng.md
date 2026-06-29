@@ -1,56 +1,47 @@
-# 《诗刊》社第42届青春诗会启幕
+# 新华社快讯：巴基斯坦总理同伊朗谈判代表团的会见已结束
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新网浙江丽水4月20日电《诗刊》社第42届青春诗会日前在松阳开幕。 据了解，“青春诗会”自1980年创办，以发现青年诗人为己任，四十余载风雨兼程，见证了一代又一代青年诗人的成长与蜕变。2024年国际青春诗会更将视野扩大到全世界，彰显了青春的力量和诗歌的力量。第42届青春诗会将继续秉持其初心，以更开放的视野、更多元的视角、更创新的形式，为怀揣文学梦想的青年诗人提供展示才华的舞台
+新华社快讯：据消息人士告诉新华社记者，巴基斯坦总理夏巴兹11日同伊朗谈判代表团的会见已结束。责任编辑：赵思远
 
 ## 正文
 
-中新网浙江丽水4月20日电《诗刊》社第42届青春诗会日前在松阳开幕。
+新华社快讯：据消息人士告诉新华社记者，巴基斯坦总理夏巴兹11日同伊朗谈判代表团的会见已结束。
 
-据了解，“青春诗会”自1980年创办，以发现青年诗人为己任，四十余载风雨兼程，见证了一代又一代青年诗人的成长与蜕变。
-
-2024年国际青春诗会更将视野扩大到全世界，彰显了青春的力量和诗歌的力量。
-
-第42届青春诗会将继续秉持其初心，以更开放的视野、更多元的视角、更创新的形式，为怀揣文学梦想的青年诗人提供展示才华的舞台，促进诗歌创作与理论的深入交流。
-
-《诗刊》社主编李少君在开幕式上表示，第42届青春诗会是一次“双向奔赴”的唤醒。
-
-诗歌的美，在于青春心灵对世界的敏锐感知。
-
-希望各位青年诗人们以此次诗会为纽带，用年轻的笔触去丈量松阳的经纬。
-
-中国作家协会党组成员、副主席何向阳当日致辞，并宣布第42届青春诗会正式启动。
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 00:21 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 00:02 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 00:03 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 23:55 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 00:05 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 00:22 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 23:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 00:00 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 00:16 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 00:20 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 00:11 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 00:26 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 00:25 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 00:26 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 00:23 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 00:29 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 00:14 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 00:14 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 00:00 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 00:22 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 00:27 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 00:20 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/0172435347.shtml)
-- 2026-06-30 00:01 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/73968.shtml)
-- 2026-06-30 00:12 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/565283852574.shtml)
-- 2026-06-30 00:15 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/912741190529.shtml)
-- 2026-06-30 00:01 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/2879042.shtml)
-- 2026-06-30 00:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/65622203.shtml)
-- 2026-06-30 00:17 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/3101685.shtml)
-- 2026-06-29 23:57 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/192806585.shtml)
-- 2026-06-30 00:05 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/1440991.shtml)
-- 2026-06-30 00:12 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/0758148.shtml)
-- 2026-06-30 00:09 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/170278509378.shtml)
-- 2026-06-30 00:11 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/319972033034.shtml)
-- 2026-06-30 00:03 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/2666480201.shtml)
-- 2026-06-30 00:17 - [沉睡花园](http://www.blog.minike.top/Article/details/038377769.shtml)
-- 2026-06-30 00:12 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/67834720959.shtml)
+- 2026-06-30 00:03 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/8820665.shtml)
+- 2026-06-30 00:09 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/4938903.shtml)
+- 2026-06-30 00:10 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/8683285069.shtml)
+- 2026-06-30 00:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/71876346658.shtml)
+- 2026-06-30 00:28 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/928222586.shtml)
+- 2026-06-30 00:29 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/970653698472.shtml)
+- 2026-06-30 00:09 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/97438911623.shtml)
+- 2026-06-30 00:27 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/490634024552.shtml)
+- 2026-06-30 00:18 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/64862058.shtml)
+- 2026-06-30 00:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/186620317522.shtml)
+- 2026-06-30 00:27 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/20314623736.shtml)
+- 2026-06-30 00:19 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/429852839340.shtml)
+- 2026-06-30 00:20 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/58833230.shtml)
+- 2026-06-30 00:21 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/3784026417.shtml)
+- 2026-06-30 00:28 - [周生如故](https://www.blog.kurohicncr.top/Article/details/8857653877.shtml)

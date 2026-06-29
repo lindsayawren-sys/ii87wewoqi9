@@ -1,57 +1,59 @@
-# 002297，6连板！4月机构调研火爆：22股获百家扎堆，19股净利翻倍（附股）
+# 900名骑行选手竞逐炎帝故里山西高平邂逅春日太行
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-多只机构调研股业绩大爆发。 今日（4月20日），市场主要股指涨跌不一，沪指上涨0.76%，深证成指上涨0.55%，创业板指微跌0.02%。其他市场核心指数中，科创50、北证50表现较好，分别上涨1.91%、1.12%。 从板块上来看，化学纤维、培育钻石概念爆发，概念指数涨幅均超过4%；其他还有特高压、卫星互联网、商业航天等概念涨幅居前。锂矿、煤炭等资源板块小幅回调。 商业航天概
+中新网晋城4月11日电 (杨佩佩 李金莎)2026高平市“神农杯”太行一号公路自行车公开赛11日在山西晋城高平市鸣枪开赛。来自全国各地的900名骑行选手齐聚炎帝故里，用速度与激情点燃比赛热情，在春日美景中畅享骑行之乐。 四月春风和煦，太行一号公路沿线的连翘、梨花、油菜花、桃花竞相绽放。此次赛道全长29.8公里，累计爬升300米，兼具平缓从容与起伏破风。选手们不仅能够在比赛中挥洒
 
 ## 正文
 
-多只机构调研股业绩大爆发。
+中新网晋城4月11日电 (杨佩佩 李金莎)2026高平市“神农杯”太行一号公路自行车公开赛11日在山西晋城高平市鸣枪开赛。
 
-今日（4月20日），市场主要股指涨跌不一，沪指上涨0.76%，深证成指上涨0.55%，创业板指微跌0.02%。
+来自全国各地的900名骑行选手齐聚炎帝故里，用速度与激情点燃比赛热情，在春日美景中畅享骑行之乐。
 
-其他市场核心指数中，科创50、北证50表现较好，分别上涨1.91%、1.12%。
+四月春风和煦，太行一号公路沿线的连翘、梨花、油菜花、桃花竞相绽放。
 
-从板块上来看，化学纤维、培育钻石概念爆发，概念指数涨幅均超过4%；其他还有特高压、卫星互联网、商业航天等概念涨幅居前。
+此次赛道全长29.8公里，累计爬升300米，兼具平缓从容与起伏破风。
 
-锂矿、煤炭等资源板块小幅回调。
+选手们不仅能够在比赛中挥洒激情，更能欣赏到沿途的湖光山色、古建群落、春日风光，体验炎帝故里独特的风土人情。
 
-商业航天概念大涨 商业航天概念股集体大涨，概念指数上涨3.24%，其中博云新材（002297）收获6连板，中国卫通、中国卫星、天奥电子纷纷涨停，天银机电、航天电器、博云新材等5股股价创历史新高。
+据介绍，此次比赛由高平市卫生健康和体育局主办，高平市农投集团承办，分为男子公路公开组、男子山地精英组、男子山地大师组、女子山地公开组、本地男子公开组、本地女子公开组、体验组7个组别，覆盖不同骑行类型与年龄段爱好者的需求。
 
-消息面上，4月17日下午，国家航天局举办2026年“中国航天日”新闻发布会，会上表示，2026年中国航天任务继续密集实施，多型重复使用火箭将开展飞行验证；商业航天将以高水平安全保障高质量发展。
+经过激烈角逐，最终丁禹兮以36分5.653秒获得男子公路公开组第一名、黄世海以44分56.80秒获得男子山地精英组第一名、陈贻恩以42分29.808秒获得男子山地大师组第一名、李绍英以45分39.644秒获得本地男子公开组第一名、何冲以48分44.764秒获得女子山地公开组第一名、李丹阳以52分32.870秒获得本地女子公开组第一名。
 
-华西证券研报认为，2026年作为商业航天“火箭回收”推动加速元年，多家民营企业密集推进液体火箭芯级回收验证，支持低轨星座组网需求。
+参赛选手男子公路公开组冠军丁禹兮说：“今天在高平比赛拿到了冠军，非常高兴。
 
 ## 相关推荐
 
-- 2026-06-30 00:15 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 23:54 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 00:22 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 00:00 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 00:13 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 00:10 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 00:23 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 23:56 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 00:22 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 00:02 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 00:18 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 00:10 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 00:14 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 00:29 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 00:23 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 00:02 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 00:07 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 00:14 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 00:29 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 00:12 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 00:07 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 00:01 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 00:10 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 00:15 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/0060244393.shtml)
-- 2026-06-30 00:10 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/302669.shtml)
-- 2026-06-30 00:10 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/022608.shtml)
-- 2026-06-30 00:14 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/1684333.shtml)
-- 2026-06-30 00:04 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/193470.shtml)
-- 2026-06-30 00:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/73903369.shtml)
-- 2026-06-29 23:56 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/8674846.shtml)
-- 2026-06-30 00:13 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/15323023843.shtml)
-- 2026-06-30 00:03 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/4819136.shtml)
-- 2026-06-29 23:59 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/655886289.shtml)
-- 2026-06-30 00:16 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/31219.shtml)
-- 2026-06-29 23:58 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/408169551240.shtml)
-- 2026-06-30 00:06 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/1525335.shtml)
-- 2026-06-30 00:13 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/653349112.shtml)
-- 2026-06-30 00:00 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/413064.shtml)
+- 2026-06-30 00:19 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/411780.shtml)
+- 2026-06-30 00:17 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/3591575.shtml)
+- 2026-06-30 00:04 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/907984714126.shtml)
+- 2026-06-30 00:21 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/2411173.shtml)
+- 2026-06-30 00:14 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/1593220239.shtml)
+- 2026-06-30 00:02 - [女心理师](http://www.blog.kurohicncr.top/Article/details/98803.shtml)
+- 2026-06-30 00:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/773361.shtml)
+- 2026-06-30 00:18 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/2956262.shtml)
+- 2026-06-30 00:07 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/202350.shtml)
+- 2026-06-30 00:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/113666439000.shtml)
+- 2026-06-30 00:14 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/9656513959.shtml)
+- 2026-06-30 00:01 - [金刚川](https://www.blog.kurohicncr.top/Article/details/5275423289.shtml)
+- 2026-06-30 00:00 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/03910.shtml)
+- 2026-06-30 00:04 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/8859494670.shtml)
+- 2026-06-30 00:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/79915.shtml)

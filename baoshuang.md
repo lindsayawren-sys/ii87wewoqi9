@@ -1,56 +1,61 @@
-# “沉默的杀手”肾癌如何防？专家：及时检查 改掉这些坏习惯
+# 香港学子合肥科学岛追“人造太阳”
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-因肾癌在疾病的早期阶段，大多数患者并没有明显的临床症状，极易被忽视，所以被称为“沉默的杀手”，血尿、腹部肿块、腰痛为其三大晚期症状。肾癌发生的原因有哪些？如何预防？一起了解。 中国医学科学院肿瘤医院泌尿外科副主任叶雄俊介绍，最好的预防方法是45岁之后进行健康查体。 B超可以发现1厘米以上的肿瘤，并显示肿瘤的位置，同时可以初步判断是否为良性。 如果提示肾脏有占位，可以进一步通过C
+中新社合肥4月9日电 (记者 赵强)电子温度一亿摄氏度如何精准测温？可控核聚变能源离我们还有多远？这个装置为何被称为“人造太阳”？带着好奇与疑问，香港学子在合肥科学岛开启一场探秘之旅。 此次科学探秘之旅，是“皖港同心青春同行”皖港青年交流计划2026活动的重要组成部分。该活动于4月7日至9日在合肥举行，来自香港中华基金中学的30余位师生走进杨振宁故居、合肥科学岛，感受合肥科创魅
 
 ## 正文
 
-因肾癌在疾病的早期阶段，大多数患者并没有明显的临床症状，极易被忽视，所以被称为“沉默的杀手”，血尿、腹部肿块、腰痛为其三大晚期症状。
+中新社合肥4月9日电 (记者 赵强)电子温度一亿摄氏度如何精准测温？
 
-肾癌发生的原因有哪些？
+可控核聚变能源离我们还有多远？
 
-如何预防？
+这个装置为何被称为“人造太阳”？
 
-一起了解。
+带着好奇与疑问，香港学子在合肥科学岛开启一场探秘之旅。
 
-中国医学科学院肿瘤医院泌尿外科副主任叶雄俊介绍，最好的预防方法是45岁之后进行健康查体。
+此次科学探秘之旅，是“皖港同心青春同行”皖港青年交流计划2026活动的重要组成部分。
 
-B超可以发现1厘米以上的肿瘤，并显示肿瘤的位置，同时可以初步判断是否为良性。
+该活动于4月7日至9日在合肥举行，来自香港中华基金中学的30余位师生走进杨振宁故居、合肥科学岛，感受合肥科创魅力。
 
-如果提示肾脏有占位，可以进一步通过CT或者核磁影像检查确诊到底是不是一个恶性的肾脏肿瘤。
+在合肥科学岛，有“人造太阳”之称的全超导托卡马克核聚变实验装置(EAST)多次刷新世界纪录。
 
-叶雄俊说，肾癌发生主要有三个原因： 遗传。
+学子们在该装置前主动提问、认真聆听，直观感受人类探索清洁能源的不懈努力。
 
 ## 相关推荐
 
-- 2026-06-30 00:12 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 00:22 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 23:55 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 00:09 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 00:02 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 00:14 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 00:18 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 00:03 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 00:18 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 00:02 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 00:20 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 00:06 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 00:22 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 00:28 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 00:26 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 00:01 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 00:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 00:18 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 00:25 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 00:02 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 00:28 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 00:26 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 00:01 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 00:11 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 00:13 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/663261.shtml)
-- 2026-06-30 00:12 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/6294180986.shtml)
-- 2026-06-30 00:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/6364548.shtml)
-- 2026-06-30 00:04 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/3247095996.shtml)
-- 2026-06-30 00:21 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/521949841.shtml)
-- 2026-06-30 00:11 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/889917327.shtml)
-- 2026-06-29 23:55 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/377397079.shtml)
-- 2026-06-29 23:57 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/509299253.shtml)
-- 2026-06-30 00:22 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/831074291914.shtml)
-- 2026-06-30 00:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/743950575.shtml)
-- 2026-06-30 00:03 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/93296846926.shtml)
-- 2026-06-29 23:56 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/866989252.shtml)
-- 2026-06-30 00:01 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/76322248012.shtml)
-- 2026-06-30 00:09 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/23130.shtml)
-- 2026-06-29 23:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/73383.shtml)
+- 2026-06-30 00:05 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/18674625.shtml)
+- 2026-06-30 00:13 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/1001294.shtml)
+- 2026-06-30 00:03 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/6608208.shtml)
+- 2026-06-30 00:13 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/1036463158.shtml)
+- 2026-06-30 00:08 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/7783779.shtml)
+- 2026-06-30 00:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/3014399.shtml)
+- 2026-06-30 00:15 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/37348460657.shtml)
+- 2026-06-30 00:07 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/19435.shtml)
+- 2026-06-30 00:13 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/103440202344.shtml)
+- 2026-06-30 00:26 - [扬名立万](https://www.blog.minike.top/Article/details/384876978559.shtml)
+- 2026-06-30 00:13 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/965963596.shtml)
+- 2026-06-30 00:04 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/80294029.shtml)
+- 2026-06-30 00:11 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/12190.shtml)
+- 2026-06-30 00:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/936049.shtml)
+- 2026-06-30 00:19 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/79442055908.shtml)

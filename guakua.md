@@ -1,57 +1,49 @@
-# 远洋盖了一栋“只有一个业主的房子”，获得了国际认可
+# 正式会谈前 伊美代表团将分别与巴基斯坦总理会面
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-近日，2026年MUSE国际设计奖名单揭晓，远洋集团与远洋资本联合孵化的定制住宅品牌远洋小筑获得最高荣誉——铂金奖。 这次获奖作品并非摩天大楼，而是一栋位于北京城郊、专为一个家庭定制的私宅改建项目。远洋小筑打破了传统别墅的封闭感，将湖光、光影与家庭互动的温情融为一体，充分结合客户需求，提供了融合多套主力户型、多重空间场景与生活亮点的定制化设计菜单，让客户可以用公道的市场价格，享
+总台记者当地时间11日上午获悉，伊朗与美国之间的会谈“很有可能”在伊斯兰堡当地时间当天下午开始。按照伊朗方面得到的消息，双方代表团将首先分别与巴基斯坦总理会面，之后会谈才会正式开始。（总台记者 李健南 李超）责任编辑：赵思远
 
 ## 正文
 
-近日，2026年MUSE国际设计奖名单揭晓，远洋集团与远洋资本联合孵化的定制住宅品牌远洋小筑获得最高荣誉——铂金奖。
+总台记者当地时间11日上午获悉，伊朗与美国之间的会谈“很有可能”在伊斯兰堡当地时间当天下午开始。
 
-这次获奖作品并非摩天大楼，而是一栋位于北京城郊、专为一个家庭定制的私宅改建项目。
+按照伊朗方面得到的消息，双方代表团将首先分别与巴基斯坦总理会面，之后会谈才会正式开始。
 
-远洋小筑打破了传统别墅的封闭感，将湖光、光影与家庭互动的温情融为一体，充分结合客户需求，提供了融合多套主力户型、多重空间场景与生活亮点的定制化设计菜单，让客户可以用公道的市场价格，享受到大品牌的产品和服务，让定制住宅成为高性价比之选 。
-
-获奖作品空间效果图（会客厅） 房地产进入“私人定制”时代 房地产下半场，远洋的镜头不但对准了城市天际线，也面向了一个个家庭的具体生活。
-
-过去，房企最擅长规模化、标准化。
-
-如今居住者的需求正变得极其具体： 有人想在老家宅基地盖一栋有乡愁、有品质的房子。
-
-有人需要翻新旧别墅，以适应三代同堂甚至四代同堂的新生活。
-
-有人向往在城郊拥有一处安顿身心的田园小院。
+（总台记者 李健南 李超）责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 00:03 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 23:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 00:03 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 00:06 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 00:07 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 00:19 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 00:13 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 23:56 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 00:05 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 23:57 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 00:26 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 00:19 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 00:19 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 00:22 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 00:16 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 00:16 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 00:25 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 00:02 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 00:26 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 00:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 00:29 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 00:03 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 00:17 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/930414910909.shtml)
-- 2026-06-30 00:12 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/3105218.shtml)
-- 2026-06-30 00:11 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/343939593.shtml)
-- 2026-06-30 00:05 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/8334365818.shtml)
-- 2026-06-30 00:03 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/7866642.shtml)
-- 2026-06-30 00:21 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/8830014999.shtml)
-- 2026-06-29 23:55 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/97928474.shtml)
-- 2026-06-30 00:21 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/73318706.shtml)
-- 2026-06-30 00:23 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/4226293.shtml)
-- 2026-06-29 23:58 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/67183362586.shtml)
-- 2026-06-30 00:09 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/545618350.shtml)
-- 2026-06-30 00:19 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/337300.shtml)
-- 2026-06-30 00:04 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/70277.shtml)
-- 2026-06-30 00:04 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/236342336080.shtml)
-- 2026-06-30 00:10 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/2753713754.shtml)
+- 2026-06-30 00:14 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/9353487.shtml)
+- 2026-06-30 00:07 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/560373250.shtml)
+- 2026-06-30 00:14 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/43842591299.shtml)
+- 2026-06-30 00:28 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/27254220968.shtml)
+- 2026-06-30 00:20 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/8709254.shtml)
+- 2026-06-30 00:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/90998.shtml)
+- 2026-06-30 00:05 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/67709.shtml)
+- 2026-06-30 00:02 - [刘念回应](http://www.share.kurohicncr.top/Article/details/94040559778.shtml)
+- 2026-06-30 00:21 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/7155110.shtml)
+- 2026-06-30 00:11 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/67008140.shtml)
+- 2026-06-30 00:00 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/79664062.shtml)
+- 2026-06-30 00:16 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/2477169915.shtml)
+- 2026-06-30 00:10 - [美人鱼](http://www.share.minike.top/Article/details/717222.shtml)
+- 2026-06-30 00:12 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/8448257981.shtml)
+- 2026-06-30 00:04 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/6372341035.shtml)

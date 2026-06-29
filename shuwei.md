@@ -1,56 +1,59 @@
-# 友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会
+# 靳兵：货运车辆没无人驾驶走不下去，给几万块钱年轻人也不干
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 何柳颖 界面新闻编辑 | 王姝 近日，友邦保险控股有限公司（下称“友邦保险”，01299.HK）发布公告称，将于2026年5月22日举行股东周年大会，同时包括顾敏在内的6名独立非执行董事将进入重选流程。 界面新闻记者留意到，微众银行董事长、微众科技董事长顾敏于2026年2月5日获委任为友邦保险的独立非执行董事，任期约为3年。同时自2026年4月1日起，顾敏获委
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京召开。国家邮政局政策法规司原一级巡视员、副司长靳兵在演讲时表示，我国快递物流行业，随着人口红利的大幅减少、消费领域和生产制造业社会的刚需爆发，全球降碳、减碳要求、国家对全社会物流成本降低要求的逐步落地，整个行业对干支线大中型重卡无人物流车的需求也将快速爆发，有机构预测将达到
 
 ## 正文
 
-界面新闻记者 | 何柳颖 界面新闻编辑 | 王姝 近日，友邦保险控股有限公司（下称“友邦保险”，01299.HK）发布公告称，将于2026年5月22日举行股东周年大会，同时包括顾敏在内的6名独立非执行董事将进入重选流程。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京召开。
 
-界面新闻记者留意到，微众银行董事长、微众科技董事长顾敏于2026年2月5日获委任为友邦保险的独立非执行董事，任期约为3年。
+国家邮政局政策法规司原一级巡视员、副司长靳兵在演讲时表示，我国快递物流行业，随着人口红利的大幅减少、消费领域和生产制造业社会的刚需爆发，全球降碳、减碳要求、国家对全社会物流成本降低要求的逐步落地，整个行业对干支线大中型重卡无人物流车的需求也将快速爆发，有机构预测将达到干万辆级。
 
-同时自2026年4月1日起，顾敏获委任为友邦保险新设的科技、营运及数据委员会主席。
+靳兵介绍，当前快递物流行业参与主体越来越多。
 
-据了解，该委员会主席的年度袍金为每年65000美元（约合人民币44.3万元），与其他董事委员会的袍金一致。
+各方势力见到商业模式跑通，市场需求放量，纷纷进入无人货运市场，主机厂利用自身优势开始与无人车企合作，实现优势互补强强联合，生产规模不断扩大。
 
-接近微众银行人士告诉界面新闻记者，顾敏受邀担任友邦集团独立非执行董事，该任职不影响在微众的正常履职。
+预计今年产能达10万辆。
 
-友邦保险公告显示，鉴于科技在集团业务运作中的角色日益重要，董事会已批准成立科技、营运及数据委员会，以支持董事会就集团于相关领域的策略、管治及执行方面，提供更专注及更高效的监督。
+“货运车辆可能没有无人驾驶根本走不下去”，靳兵说，“因为你招不到驾驶员了，太辛苦了，（就算）你给几万块钱，年轻人也不干了”。
 
-根据公告，该委员会主要关注范畴应包括现有及新兴科技、数码应用、旨在推动数码转型的举措、人工智能的使用及其对集团的潜在影响、集团网络安全计划的范围和成效，以及相关监管发展。
+也正因如此，靳兵说，行业也得到了社会资本的高度认同。
 
-对于顾敏在友邦保险的履职，招联首席经济学家董希淼向界面新闻记者分析称，友邦保险引入数字银行背景的顾敏进入董事会参与战略决策，可能是想借助其数字银行丰富经验，加速自身科技转型，尤其是在人工智能应用、数据驱动经营和运营效率提升等领域，以更好地应对市场竞争。
+行业融资从过去艰难的几亿、十几亿，到如今轻松过百亿。
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 00:21 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 23:55 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 00:12 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 00:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 00:06 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 00:04 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 00:00 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 00:05 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 00:22 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 00:20 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 00:19 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 00:07 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 00:08 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 00:26 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 00:25 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 00:29 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 00:20 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 00:26 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 00:23 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 00:14 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 00:28 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 00:01 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/283413405.shtml)
-- 2026-06-30 00:05 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/30575193.shtml)
-- 2026-06-30 00:19 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/6681799.shtml)
-- 2026-06-30 00:11 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/64488826.shtml)
-- 2026-06-30 00:04 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/073396257386.shtml)
-- 2026-06-30 00:12 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/094223.shtml)
-- 2026-06-30 00:20 - [女心理师](http://www.blog.kurohicncr.top/Article/details/79750.shtml)
-- 2026-06-29 23:55 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/20354.shtml)
-- 2026-06-30 00:15 - [急先锋](http://www.blog.minike.top/Article/details/52571.shtml)
-- 2026-06-30 00:18 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/6236963.shtml)
-- 2026-06-30 00:08 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/456190478543.shtml)
-- 2026-06-29 23:59 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/7590852935.shtml)
-- 2026-06-30 00:00 - [流金岁月](http://www.share.kurohicncr.top/Article/details/5165869407.shtml)
-- 2026-06-30 00:01 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/2016215.shtml)
-- 2026-06-30 00:15 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/66599287582.shtml)
+- 2026-06-30 00:13 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/467839.shtml)
+- 2026-06-30 00:13 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/7113862336.shtml)
+- 2026-06-30 00:23 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/92278429665.shtml)
+- 2026-06-30 00:15 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/26570185.shtml)
+- 2026-06-30 00:01 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/5238107121.shtml)
+- 2026-06-30 00:27 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/77757938.shtml)
+- 2026-06-30 00:14 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/3609100.shtml)
+- 2026-06-30 00:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/90977713274.shtml)
+- 2026-06-30 00:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/10991.shtml)
+- 2026-06-30 00:05 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/5716219.shtml)
+- 2026-06-30 00:16 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/991437.shtml)
+- 2026-06-30 00:09 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/242518.shtml)
+- 2026-06-30 00:27 - [男子称在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/40322.shtml)
+- 2026-06-30 00:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/58756.shtml)
+- 2026-06-30 00:00 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/4198662.shtml)

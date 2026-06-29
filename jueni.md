@@ -1,60 +1,60 @@
-# 厦大留学生身穿汉服头戴簪花：“我在中国不见外”
+# 港股硬科技V型反转确认？同类规模最大港股通信息技术ETF（159131）上涨1.71%，实时净申购1700万份！
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月20日 19:45 来源：中国新闻网 身穿汉服、头戴簪花，来自意大利的留学生爱琳，与同学们一起在谷雨节气前夕参加了福建省庆祝第十七个“联合国中文日”暨2026年厦门大学“国际中文日”主题嘉年华活动。刚到厦门大学仅两个月，为演好《国际汉服风华》节目，爱琳一边学习一边加紧排练。尽管起初表演起来颇为生疏，但因对中华文化满怀热忱，她直言自己已然“不见外”。 当
+4月10日，AH市场在昨日短暂调整后再度走强，港股硬科技锐度突出，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）强势高开，现涨1.71%，日线呈现出V型反转形态，盘中资金加速流入，实时资金净申购1700万份。 中信证券4月港股策略指出，2月底开始的地缘冲突放大了港股基本面下修的压力，但随着财报披露接近尾声，业绩预期的修正已较为充分。在冲突缓和的迹象下，港股
 
 ## 正文
 
-发布时间：2026年04月20日 19:45 来源：中国新闻网 身穿汉服、头戴簪花，来自意大利的留学生爱琳，与同学们一起在谷雨节气前夕参加了福建省庆祝第十七个“联合国中文日”暨2026年厦门大学“国际中文日”主题嘉年华活动。
+4月10日，AH市场在昨日短暂调整后再度走强，港股硬科技锐度突出，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）强势高开，现涨1.71%，日线呈现出V型反转形态，盘中资金加速流入，实时资金净申购1700万份。
 
-刚到厦门大学仅两个月，为演好《国际汉服风华》节目，爱琳一边学习一边加紧排练。
+中信证券4月港股策略指出，2月底开始的地缘冲突放大了港股基本面下修的压力，但随着财报披露接近尾声，业绩预期的修正已较为充分。
 
-尽管起初表演起来颇为生疏，但因对中华文化满怀热忱，她直言自己已然“不见外”。
+在冲突缓和的迹象下，港股有望获得境内外资金的回流。
 
-当天，近3000名中外嘉宾与师生齐聚厦门大学，共赴这场文化盛宴。
+叠加“十五五”的政策催化，我们判断港股有望在4-5月迎来估值扩张行情。
 
-舞台上，《中外太极风云》刚柔相济，《木偶三绝》精妙绝伦……传统与国际交融，古韵与新潮碰撞，也让登台表演的留学生们对中华文化有了更为真切的感悟。
+投资者或可重点关注科技板块中业绩预期已充分调整的互联网和半导体板块。
 
-来自印度的留学生尤金在厦门大学学习医学专业，她告诉中新社记者，学好中文，将为她日后返回印度就业提供助力。
+支持T+0交易！
 
-活动现场还专门设置了文化互动体验区，中外师生沉浸式体验书法绘画、闽南春仔花和宋江阵等中华传统文化项目。
+直指港股芯片超级周期——同类规模最大、全市场首只聚焦“港股芯片”产业链的港股通信息技术ETF华宝（159131），场外联接基金代码026755，标的指数由“70%硬件+30%软件”构成，重仓港股“半导体+电子+计算机软件”，涵盖50只港股硬科技公司，其中小米集团-W权重13.25%，中芯国际权重达12.54%，联想集团权重达9.04%，华虹半导体权重7.09%；不含阿里巴巴、腾讯、美团等大市值互联网企业，锐度更高，更易捕捉港股AI硬科技行情。
 
-记者 李思源 福建厦门报道 责任编辑：【于晓】
+（截至2026.3.31） 数据来源：中证指数公司，沪深交易所。
 
 ## 相关推荐
 
-- 2026-06-30 00:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 00:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 00:12 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 00:05 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 00:00 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 00:11 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 00:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 00:06 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 00:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 00:20 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 00:18 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 00:22 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 00:07 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 00:15 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 00:21 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 00:01 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 00:20 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 00:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 00:22 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 00:02 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 00:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 00:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 00:19 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 00:20 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 00:16 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 00:04 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 00:03 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 00:11 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:03 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/1744277155.shtml)
-- 2026-06-29 23:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/8602640.shtml)
-- 2026-06-30 00:14 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/17794.shtml)
-- 2026-06-30 00:04 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/501419.shtml)
-- 2026-06-29 23:59 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/404140917.shtml)
-- 2026-06-30 00:03 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/90675275.shtml)
-- 2026-06-30 00:10 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/9210512.shtml)
-- 2026-06-30 00:20 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/135224062899.shtml)
-- 2026-06-30 00:17 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/834633706.shtml)
-- 2026-06-30 00:18 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/745487385020.shtml)
-- 2026-06-29 23:59 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/458741.shtml)
-- 2026-06-30 00:21 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/88496.shtml)
-- 2026-06-30 00:21 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/99700.shtml)
-- 2026-06-29 23:55 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/761254.shtml)
-- 2026-06-30 00:09 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/46404.shtml)
+- 2026-06-30 00:16 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/89137.shtml)
+- 2026-06-30 00:19 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/561134845.shtml)
+- 2026-06-30 00:13 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/10647.shtml)
+- 2026-06-30 00:18 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/4618772977.shtml)
+- 2026-06-30 00:20 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/92074.shtml)
+- 2026-06-30 00:11 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/857124551961.shtml)
+- 2026-06-30 00:19 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/41971657125.shtml)
+- 2026-06-30 00:24 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/66212728.shtml)
+- 2026-06-30 00:09 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/73804.shtml)
+- 2026-06-30 00:11 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/421780332837.shtml)
+- 2026-06-30 00:17 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/813255.shtml)
+- 2026-06-30 00:14 - [85花告别古偶](https://www.share.minike.top/Article/details/17529544392.shtml)
+- 2026-06-30 00:07 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/6694804596.shtml)
+- 2026-06-30 00:16 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/52270.shtml)
+- 2026-06-30 00:24 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/542645847483.shtml)

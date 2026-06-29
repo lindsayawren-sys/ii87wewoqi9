@@ -1,59 +1,56 @@
-# 3000亿特别国债注资5月启幕 国有大行再迎资本补强
+# 黄炎培职业教育思想研究会学术年会在佛山举行
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 张欣 近日，财政部在官网披露2026年一般国债、特别国债，以及给中央金融机构注资特别国债发行安排。 上述安排显示，该券种将分别在5月22日和6月12日发行，对应期限分别为5年期和7年期，付息方式为按年付息。 这一安排标志着国有大行第二轮国家资本注资正式进入实操阶段，结合2025年完成的首轮注资，两轮合计8000亿元的资本支持，将构建起覆盖全部国有大型商业银
+中新网佛山4月10日电 (记者 郭军)由中华职业教育社主办的黄炎培职业教育思想研究会2025—2026学术年会9日在佛山开幕。本次年会主题为：“十五五”职业教育高质量发展与教育强国建设。 中华职业教育社第十一届理事会理事长陈昌智出席并作主旨讲话。他表示，黄炎培职业教育思想是我国职业教育的宝贵思想财富。站在“十五五”新起点上，要与时俱进传承弘扬黄炎培职业教育思想，推动职业教育高质
 
 ## 正文
 
-21世纪经济报道记者 张欣 近日，财政部在官网披露2026年一般国债、特别国债，以及给中央金融机构注资特别国债发行安排。
+中新网佛山4月10日电 (记者 郭军)由中华职业教育社主办的黄炎培职业教育思想研究会2025—2026学术年会9日在佛山开幕。
 
-上述安排显示，该券种将分别在5月22日和6月12日发行，对应期限分别为5年期和7年期，付息方式为按年付息。
+本次年会主题为：“十五五”职业教育高质量发展与教育强国建设。
 
-这一安排标志着国有大行第二轮国家资本注资正式进入实操阶段，结合2025年完成的首轮注资，两轮合计8000亿元的资本支持，将构建起覆盖全部国有大型商业银行的系统性资本保障体系。
+中华职业教育社第十一届理事会理事长陈昌智出席并作主旨讲话。
 
-首轮5000亿注资高效落地，定价机制实现历史性突破 2025年，我国通过特别国债完成首轮注资，财政部牵头对建行、中行、交行、邮储银行四家银行实施定向增发，合计注资5000亿元；2026年，3000亿元特别国债即将启动，支持国有大行补充资本。
+他表示，黄炎培职业教育思想是我国职业教育的宝贵思想财富。
 
-两轮注资规模合计达8000亿元，形成覆盖国有大行的系统性资本支持安排。
+站在“十五五”新起点上，要与时俱进传承弘扬黄炎培职业教育思想，推动职业教育高质量发展，助力教育强国建设。
 
-从当年3月底，建行、中行、交行、邮储银行四家国有大行集体发布定增预案，到6月中下旬5200亿元募资全部到位，全程仅用时约3个月。
+要始终把立德树人作为职业教育的根本任务，把劳模精神、劳动精神、工匠精神融入教育教学各环节，加快现代职业教育体系建设，推动职业教育主动拥抱技术变革，全面提升服务产业升级与技能型社会建设的能力。
 
-此次定向增发以财政部（认购5000亿元）为核心发行对象。
+广东省人民政府副省长、佛山市委书记唐屹峰在致辞中提到，广东是经济大省、制造业大省，拥有全部31个制造业大类，制造业规模约占全国1/8，形成了10个万亿级战略性产业集群。
 
-兴业证券报告显示，此轮注资为四家大行的核心一级资本充足率带来了0.48至1.51个百分点的直接提升。
+庞大的产业基础，不仅对高素质技能技术人才提出了迫切需求，也为职业教育发展提供了广阔舞台。
 
 ## 相关推荐
 
-- 2026-06-29 23:58 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 23:59 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 00:03 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 00:00 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 00:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 00:14 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 00:03 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 00:01 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 23:59 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 00:21 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 00:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 00:03 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 00:17 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 00:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 00:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 00:00 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 00:09 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 00:03 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 00:11 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 00:28 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 00:18 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 00:09 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 00:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:15 - [金牌调解](https://www.blog.minike.top/Article/details/068085588.shtml)
-- 2026-06-29 23:55 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/35012597624.shtml)
-- 2026-06-30 00:14 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/102530530406.shtml)
-- 2026-06-30 00:07 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/792948514544.shtml)
-- 2026-06-30 00:19 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/2479748233.shtml)
-- 2026-06-30 00:06 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/106790998932.shtml)
-- 2026-06-30 00:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/50050.shtml)
-- 2026-06-30 00:21 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/05743.shtml)
-- 2026-06-30 00:09 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/762809547235.shtml)
-- 2026-06-30 00:14 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/3908948753.shtml)
-- 2026-06-30 00:08 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/60439.shtml)
-- 2026-06-29 23:55 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/962580147.shtml)
-- 2026-06-30 00:18 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/148502.shtml)
-- 2026-06-30 00:02 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/84006.shtml)
-- 2026-06-30 00:12 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/510074.shtml)
+- 2026-06-30 00:02 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/3333083583.shtml)
+- 2026-06-30 00:11 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/6606583991.shtml)
+- 2026-06-30 00:24 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/995227490898.shtml)
+- 2026-06-30 00:06 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/818448378570.shtml)
+- 2026-06-30 00:29 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/0737209639.shtml)
+- 2026-06-30 00:03 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/92026107.shtml)
+- 2026-06-30 00:29 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/073973194263.shtml)
+- 2026-06-30 00:04 - [天道](http://www.blog.kurohicncr.top/Article/details/1868330347.shtml)
+- 2026-06-30 00:23 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/50050046.shtml)
+- 2026-06-30 00:25 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/1171404.shtml)
+- 2026-06-30 00:02 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/2810926.shtml)
+- 2026-06-30 00:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/82596971841.shtml)
+- 2026-06-30 00:28 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/6179282853.shtml)
+- 2026-06-30 00:05 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/758588.shtml)
+- 2026-06-30 00:18 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/0622925.shtml)

@@ -1,61 +1,57 @@
-# 即便重开，“霍尔木兹溢价”也难消？80美元或成布油新底部
+# 增收难增利：和远气体营收增长8.55%，扣非净利却暴跌35.61% 新项目投产进入“阵痛期”
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！易卜拉欣认为，即便海峡重开，地缘政治风险也不会消失，油价中将长期包含一部分“霍尔木兹溢价”。 过去几天，全球石油运输的“咽喉”霍尔木兹海峡上演了一场“海峡开关”拉锯战，地缘政治不确定性令国际油价也随之发生大幅震荡。 据新华社引述多家伊朗媒体报道，伊朗已为战火重燃做好准备，拒绝参加与美国的第二轮谈判。此前，美
+4月9日，和远气体披露2025年年度报告。报告期内，公司实现营业收入16.64亿元，同比增长8.55%；营业利润7559.85万元，同比增长4.24%。然而，归属于上市公司股东的净利润仅为6039.22万元，同比下滑17.47%；扣除非经常性损益后的净利润更是大幅下降35.61%至4356.92万元，基本每股收益同比减少17.14%。 这是一份典型的“增收不增利”成绩单。在营收
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月9日，和远气体披露2025年年度报告。
 
-易卜拉欣认为，即便海峡重开，地缘政治风险也不会消失，油价中将长期包含一部分“霍尔木兹溢价”。
+报告期内，公司实现营业收入16.64亿元，同比增长8.55%；营业利润7559.85万元，同比增长4.24%。
 
-过去几天，全球石油运输的“咽喉”霍尔木兹海峡上演了一场“海峡开关”拉锯战，地缘政治不确定性令国际油价也随之发生大幅震荡。
+然而，归属于上市公司股东的净利润仅为6039.22万元，同比下滑17.47%；扣除非经常性损益后的净利润更是大幅下降35.61%至4356.92万元，基本每股收益同比减少17.14%。
 
-据新华社引述多家伊朗媒体报道，伊朗已为战火重燃做好准备，拒绝参加与美国的第二轮谈判。
+这是一份典型的“增收不增利”成绩单。
 
-此前，美军13日起对进出伊朗港口的船只实施封锁。
+在营收、营业利润双双实现正增长的表象之下，公司的核心盈利能力正在被快速侵蚀。
 
-美军中央司令部14日称“已完全切断伊朗海上进出口经济贸易”。
+一、扣非净利“腰斩”式下跌，真实盈利状况堪忧 归母净利润下滑17.47%已不算乐观，但扣非净利润同比暴跌35.61%，降幅是前者的两倍有余，这一数据更值得警惕。
 
-伊朗17日宣布对商船开放霍尔木兹海峡，后于18日宣布，鉴于美方未取消对伊朗的海上封锁，伊朗恢复控制霍尔木兹海峡通行。
+扣非净利润剔除了政府补助、投资收益等非经常性损益，更能反映公司主营业务的真实盈利水平。
 
-受不确定性影响，国际油价在宽幅波动中维持高溢价。
+非经常性损益的“粉饰”作用在本期尤为明显。
 
 ## 相关推荐
 
-- 2026-06-30 00:22 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 00:04 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 00:20 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 00:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 00:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 00:17 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 00:00 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 23:56 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 00:11 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 00:18 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 00:03 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 23:58 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 23:54 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 00:06 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 00:15 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 00:13 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 00:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 00:25 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 00:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 00:06 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 00:27 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 00:19 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 00:10 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 00:16 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 00:07 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 00:18 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/2600691.shtml)
-- 2026-06-30 00:12 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/3553940.shtml)
-- 2026-06-29 23:57 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/9355342.shtml)
-- 2026-06-30 00:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/149085560453.shtml)
-- 2026-06-29 23:56 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/633842363.shtml)
-- 2026-06-29 23:56 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/70773073.shtml)
-- 2026-06-29 23:58 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/060319006.shtml)
-- 2026-06-30 00:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/86686485.shtml)
-- 2026-06-30 00:12 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/467348.shtml)
-- 2026-06-30 00:09 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/79469.shtml)
-- 2026-06-30 00:06 - [月亮](https://www.blog.kurohicncr.top/Article/details/974493.shtml)
-- 2026-06-29 23:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/35024378685.shtml)
-- 2026-06-30 00:11 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/242317.shtml)
-- 2026-06-29 23:58 - [沙丘](https://www.blog.kurohicncr.top/Article/details/215411158307.shtml)
-- 2026-06-30 00:02 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/0431274.shtml)
+- 2026-06-30 00:25 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/767827.shtml)
+- 2026-06-30 00:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/51074245.shtml)
+- 2026-06-30 00:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/023120236610.shtml)
+- 2026-06-30 00:13 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/92005922393.shtml)
+- 2026-06-30 00:00 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/53103.shtml)
+- 2026-06-30 00:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/161721189741.shtml)
+- 2026-06-30 00:14 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/5797570.shtml)
+- 2026-06-30 00:04 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/19257.shtml)
+- 2026-06-30 00:28 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/382541165.shtml)
+- 2026-06-30 00:04 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/56146923.shtml)
+- 2026-06-30 00:20 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/42218.shtml)
+- 2026-06-30 00:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/0605053.shtml)
+- 2026-06-30 00:12 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/669647.shtml)
+- 2026-06-30 00:12 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/85559704164.shtml)
+- 2026-06-30 00:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/10590570715.shtml)

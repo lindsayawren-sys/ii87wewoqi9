@@ -1,61 +1,58 @@
-# 最高检发布《知识产权检察工作白皮书（2025）》
+# 农工党“参政为公、实干为民”主题教育动员部署会在京召开
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-最高检首次发布中英双语版 《知识产权检察工作白皮书(2025)》 2025年全国检察机关受理审查起诉侵犯知识产权犯罪案件11341件25160人 4月21日，最高人民检察院发布《知识产权检察工作白皮书(2025)》(以下简称“白皮书”)，并在最高检英文网站上首次推出英语版本。白皮书通过数据、图表、案例等形式，全面展现了全国检察机关服务国家创新驱动发展战略，营造市场化、法治化、国
+中新网北京4月10日电 “中国农工民主党开展‘参政为公、实干为民’主题教育动员部署会”4月9日以线上线下相结合方式在京召开。 会议深入学习贯彻习近平总书记关于树立和践行正确政绩观的重要要求。农工党中央主席何维出席并讲话，农工党中央常务副主席杨震出席并传达有关会议精神。农工党中央副主席王路、焦红、吕忠梅、杨关林、但彦铮、张全、王金南、邓蓉玲分别在主会场或分会场出席会议。会议由杨关
 
 ## 正文
 
-最高检首次发布中英双语版 《知识产权检察工作白皮书(2025)》 2025年全国检察机关受理审查起诉侵犯知识产权犯罪案件11341件25160人 4月21日，最高人民检察院发布《知识产权检察工作白皮书(2025)》(以下简称“白皮书”)，并在最高检英文网站上首次推出英语版本。
+中新网北京4月10日电 “中国农工民主党开展‘参政为公、实干为民’主题教育动员部署会”4月9日以线上线下相结合方式在京召开。
 
-白皮书通过数据、图表、案例等形式，全面展现了全国检察机关服务国家创新驱动发展战略，营造市场化、法治化、国际化一流营商环境的积极成效，为“十四五”圆满收官和经济社会高质量发展贡献检察力量。
+会议深入学习贯彻习近平总书记关于树立和践行正确政绩观的重要要求。
 
-白皮书全面介绍了2025年检察机关依法综合履行知识产权刑事、民事、行政和公益诉讼检察职能的基本情况。
+农工党中央主席何维出席并讲话，农工党中央常务副主席杨震出席并传达有关会议精神。
 
-据悉，2025年，各级检察机关全面准确贯彻宽严相济刑事政策，依法惩治侵犯知识产权犯罪，受理审查起诉侵犯知识产权犯罪案件11341件25160人，起诉9135件19102人，不起诉5105人。
+农工党中央副主席王路、焦红、吕忠梅、杨关林、但彦铮、张全、王金南、邓蓉玲分别在主会场或分会场出席会议。
 
-此外，全国检察机关还办理知识产权民事检察案件1251件；办理知识产权行政检察案件1795件；受理知识产权领域公益诉讼线索741件，立案612件。
+会议由杨关林主持。
 
-白皮书还从“围绕中心，服务经济社会高质量发展”“协同发力，着力构建大保护工作格局”“巩固提升，深入推进检察综合履职”等三个方面着重介绍了检察机关持续提升检察监督质效，有力维护司法公正取得的显著成效。
+何维要求，农工党全党要深刻认识、准确把握开展“参政为公、实干为民”主题教育的重要意义，充分认识这是把握正确政治方向，巩固多党合作共同思想政治基础的需要；是牢记多党合作初心，树立和践行正确政绩观的需要；是坚持服务中心大局，推进“十五五”高质量开局的需要；是纵深推进廉洁建设、作风建设，持续加强中国特色社会主义参政党建设的需要，以更坚定的政治自觉完成好这次重大政治任务。
 
-其中，服务新质生产力发展的相关内容格外引人瞩目。
+何维强调，要深刻认识、准确把握主题教育“学思想、讲大局、重实干、出实绩”的总体要求，不折不扣落实主题教育各项重点任务。
 
-检察机关聚焦新一代信息技术、人工智能、新能源、高端装备、生物医药等新兴产业、未来产业，加强对企业原始创新、关键核心技术知识产权刑事司法保护。
+要持续强化理论武装，坚持不懈用习近平新时代中国特色社会主义思想凝心铸魂，传承优良作风，涵养清廉生态，牢固树立和践行正确政绩观；要突出问题导向，聚焦在政治建设、履职尽责、作风纪律等方面存在的薄弱环节，全面排查形成问题清单；要狠抓整改整治，强化落实明确责任清单；要健全长效机制，做实整改后半篇文章；要持续提升履职能力，更加自觉把农工党所长与中心大局所需紧密结合，展现参政履职新作为。
 
 ## 相关推荐
 
-- 2026-06-29 23:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 00:03 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 23:54 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 00:00 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 00:23 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 00:11 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 23:57 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 00:17 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 00:07 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 00:12 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 00:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 23:56 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 23:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 00:23 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 00:02 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 00:02 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 00:15 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 00:19 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 00:05 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 00:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 00:04 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 00:21 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 00:28 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 00:11 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 00:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 00:12 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 00:00 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:18 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/4948086239.shtml)
-- 2026-06-30 00:08 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/77884313.shtml)
-- 2026-06-30 00:16 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/88550.shtml)
-- 2026-06-30 00:13 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/7753791276.shtml)
-- 2026-06-29 23:59 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/8266027.shtml)
-- 2026-06-29 23:59 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/71612889.shtml)
-- 2026-06-29 23:58 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/99599.shtml)
-- 2026-06-30 00:01 - [我和我的家乡](http://www.share.minike.top/Article/details/22766775285.shtml)
-- 2026-06-30 00:13 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/98101294.shtml)
-- 2026-06-30 00:17 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/85136455432.shtml)
-- 2026-06-29 23:57 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/21380089.shtml)
-- 2026-06-29 23:57 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/8800594.shtml)
-- 2026-06-30 00:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/03161.shtml)
-- 2026-06-30 00:01 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/467875708.shtml)
-- 2026-06-30 00:05 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/29028507.shtml)
+- 2026-06-30 00:06 - [速度与激情9](https://www.blog.minike.top/Article/details/155624.shtml)
+- 2026-06-30 00:06 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/87456261.shtml)
+- 2026-06-30 00:07 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/949647941.shtml)
+- 2026-06-30 00:06 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/5896494251.shtml)
+- 2026-06-30 00:15 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/813881238134.shtml)
+- 2026-06-30 00:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/92015.shtml)
+- 2026-06-30 00:24 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/31997398609.shtml)
+- 2026-06-30 00:05 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/780179468.shtml)
+- 2026-06-30 00:19 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/979485526142.shtml)
+- 2026-06-30 00:24 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/47356.shtml)
+- 2026-06-30 00:18 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/6785175.shtml)
+- 2026-06-30 00:18 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/25082.shtml)
+- 2026-06-30 00:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/4380487.shtml)
+- 2026-06-30 00:04 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/6579982.shtml)
+- 2026-06-30 00:07 - [一生一世](https://www.blog.minike.top/Article/details/019449909.shtml)

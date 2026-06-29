@@ -1,48 +1,60 @@
-# 大风黄色预警：新疆西藏内蒙古局地阵风可达8至9级
+# 丁香树下以诗为桥 让“故土情”化为“世界语”
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中国天气网讯 中央气象台4月20日06时继续发布大风黄色预警： 预计，4月20日08时至21日08时，新疆沿天山地区和南疆盆地、西藏大部、青海大部、甘肃河西、内蒙古中东部、东北地区大部、河北北部、北京、天津、山东半岛、苏皖大部、湖北东部等地部分地区有5～7级风，阵风8～9级，其中新疆东部山口、西藏北部、内蒙古中部局地有8～9级风，阵风10级以上；渤海、渤海海峡、黄海北部海域、黄
+“杨柳密栽烟外缕，丁香娇结雨中愁。”4月8日，北京细雨如丝，法源寺丁香摇曳。一场飞花令在百年古寺上演：台上，中国诗词大会季军韩墨言抛出令词“丁香”；台下，65岁侨胞刘洛霞脱口接答，字字铿锵。 在美生活20余年，古典诗词是刘洛霞最好的“朋友”，“诗词能治愈人心，诗里永远有故乡。”她说，此次在丁香花开的好时节以诗会友，不胜欢喜。 丁香诗会始于明、兴于清，百年文脉绵延至今。当天举行的
 
 ## 正文
 
-中国天气网讯 中央气象台4月20日06时继续发布大风黄色预警： 预计，4月20日08时至21日08时，新疆沿天山地区和南疆盆地、西藏大部、青海大部、甘肃河西、内蒙古中东部、东北地区大部、河北北部、北京、天津、山东半岛、苏皖大部、湖北东部等地部分地区有5～7级风，阵风8～9级，其中新疆东部山口、西藏北部、内蒙古中部局地有8～9级风，阵风10级以上；渤海、渤海海峡、黄海北部海域、黄海中西部和西南部部分海域将有7~8级、阵风9级的大风。
+“杨柳密栽烟外缕，丁香娇结雨中愁。
 
-预计，4月21日08时至22日08时，新疆沿天山地区、西藏北部、青海北部和南部、内蒙古中东部、东北地区大部、河北北部、山东半岛、云南东部等地部分地区有5～7级风，阵风8～9级，其中西藏北部、内蒙古中部、吉林中东部局地有8～9级风；渤海、渤海海峡、黄海北部部分海域将有7级、阵风8~9级的大风。
+”4月8日，北京细雨如丝，法源寺丁香摇曳。
 
-防御指南： 1、中央气象台、中国海上搜救中心提醒受大风影响海域航行、作业的船舶，注意航行安全； 2、森林、草场、城区防火部门做好防火准备，机场、铁路、公路等交通管理部门应采取措施保障交通安全； 3、停止高空、水上户外作业和游乐活动，加固或妥善安置围板、棚架广告牌、简易设施等易被大风吹动的搭建物； 4、行人与车辆不要在高大建筑物、广告牌等临时建筑物，或树的下方停留。
+一场飞花令在百年古寺上演：台上，中国诗词大会季军韩墨言抛出令词“丁香”；台下，65岁侨胞刘洛霞脱口接答，字字铿锵。
+
+在美生活20余年，古典诗词是刘洛霞最好的“朋友”，“诗词能治愈人心，诗里永远有故乡。
+
+”她说，此次在丁香花开的好时节以诗会友，不胜欢喜。
+
+丁香诗会始于明、兴于清，百年文脉绵延至今。
+
+当天举行的2026“百年丁香诗会”侨声朗诵会上，这份由诗歌承载的故土情愫静静流淌。
+
+作为百年丁香诗会系列活动之一，侨声朗诵会已走过三个春秋，十余个国家和地区的侨界力量热情参与，通过朗诵、创作等方式，以诗为媒，架起跨越国界的文化桥梁。
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 00:20 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 00:09 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 00:21 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 00:14 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 00:08 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 00:08 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 00:16 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 23:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 00:00 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 00:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 23:58 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 00:03 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 00:25 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 00:24 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 00:02 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 00:23 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 00:00 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 00:03 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 00:07 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 00:06 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 00:22 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 00:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 00:14 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 00:23 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 00:02 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:57 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/757739280.shtml)
-- 2026-06-30 00:05 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/5826165104.shtml)
-- 2026-06-29 23:59 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/63926710280.shtml)
-- 2026-06-29 23:57 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/38733313940.shtml)
-- 2026-06-30 00:22 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/34844.shtml)
-- 2026-06-30 00:01 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/819137898.shtml)
-- 2026-06-30 00:21 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/0374773.shtml)
-- 2026-06-30 00:07 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/70061325.shtml)
-- 2026-06-29 23:55 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/931449134.shtml)
-- 2026-06-30 00:10 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/0136674.shtml)
-- 2026-06-30 00:21 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/8681672491.shtml)
-- 2026-06-29 23:57 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/642499105.shtml)
-- 2026-06-30 00:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/840633456.shtml)
-- 2026-06-30 00:15 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/212446865671.shtml)
-- 2026-06-30 00:10 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/677494.shtml)
+- 2026-06-30 00:20 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/4305958528.shtml)
+- 2026-06-30 00:02 - [送你一朵小红花](http://www.share.minike.top/Article/details/6516233427.shtml)
+- 2026-06-30 00:25 - [恋与深空 日服](https://www.share.minike.top/Article/details/14797462253.shtml)
+- 2026-06-30 00:26 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/09889.shtml)
+- 2026-06-30 00:03 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/74506.shtml)
+- 2026-06-30 00:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/14286864485.shtml)
+- 2026-06-30 00:05 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/29354085634.shtml)
+- 2026-06-30 00:18 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/20581.shtml)
+- 2026-06-30 00:14 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/40311.shtml)
+- 2026-06-30 00:24 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/207596527541.shtml)
+- 2026-06-30 00:14 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/21880770.shtml)
+- 2026-06-30 00:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/71277964565.shtml)
+- 2026-06-30 00:20 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/53717382960.shtml)
+- 2026-06-30 00:08 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/89980.shtml)
+- 2026-06-30 00:09 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/20692853156.shtml)

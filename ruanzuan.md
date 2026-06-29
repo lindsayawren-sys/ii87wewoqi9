@@ -1,59 +1,57 @@
-# 牛市早报｜伊朗媒体称伊美“二谈”消息不实，4月LPR将公布
+# 上海市工商联召开常委会议 凝聚共识赋能民营经济发展
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-【市场数据】 截至4月17日收盘，上证综指跌0.1%，报4051.43点；深证成指涨0.6%，报14885.42点；创业板指涨1.43%，报3678.29点。沪深两市成交24256亿元。 截至4月17日美股收盘，道指涨1.79%，报49447.43点；标普500指数涨1.2%，报7126.06点；纳指涨1.52%，报24468.48点。 【财经要闻】 1、据新华社，国务院总理李
+中新网上海4月10日电(范宇斌)上海市工商联(总商会)十五届八次常委会议10日在上海召开。上海市政协副主席、上海市工商联(总商会)主席(会长)寿子琪主持会议。会议审议人事调整事项，增选张峰为上海市工商联(总商会)第十五届执行委员会常务副主席(副会长)，闫爽为副主席(副会长)。会议分析当前上海民营经济发展形势，就做好下阶段重点工作作出部署、提出要求。会议邀请上海国家会计学院教授刘
 
 ## 正文
 
-【市场数据】 截至4月17日收盘，上证综指跌0.1%，报4051.43点；深证成指涨0.6%，报14885.42点；创业板指涨1.43%，报3678.29点。
+中新网上海4月10日电(范宇斌)上海市工商联(总商会)十五届八次常委会议10日在上海召开。
 
-沪深两市成交24256亿元。
+上海市政协副主席、上海市工商联(总商会)主席(会长)寿子琪主持会议。
 
-截至4月17日美股收盘，道指涨1.79%，报49447.43点；标普500指数涨1.2%，报7126.06点；纳指涨1.52%，报24468.48点。
+会议审议人事调整事项，增选张峰为上海市工商联(总商会)第十五届执行委员会常务副主席(副会长)，闫爽为副主席(副会长)。
 
-【财经要闻】 1、据新华社，国务院总理李强4月17日主持召开国务院常务会议，听取自由贸易试验区建设情况汇报，审议通过《中华人民共和国行政复议法实施条例（修订草案）》。
+会议分析当前上海民营经济发展形势，就做好下阶段重点工作作出部署、提出要求。
 
-会议指出，要支持上海等自贸试验区立足功能定位，主动对接国际高标准经贸规则，稳步扩大规则、规制、管理、标准等制度型开放，探索形成更多可复制可推广的经验做法，更好发挥示范引领和辐射带动作用。
+会议邀请上海国家会计学院教授刘凤委作民营企业建立完善中国特色现代企业制度专题宣讲。
 
-2、据澎湃新闻，4月17日，证监会表示，为全面完善减持规则体系，严厉打击各类违规减持，结合监管实践需要，起草了《违规转让证券案件行政处罚实施规则（征求意见稿）》，现向社会公开征求意见。
+会议指出，上海民营经济发展呈现稳中有进、向上向好态势。
 
-意见反馈截止时间为2026年5月17日。
+国家和上海市持续完善民营经济政策体系，加大政策支持力度，为民营经济发展营造更好环境；上海民营经济质量效益稳步提升，展现出强劲发展韧性和创新活力。
 
-整体来看，《规则》共十八条，主要包括两方面内容：一是规范“违规转让证券”的认定。
+要进一步把握大势、坚定信心、躬身实践，成为推动上海民营经济高质量发展的重要力量。
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 00:15 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 23:59 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 23:54 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 00:23 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 00:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 00:04 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 00:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 00:01 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 00:10 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 23:54 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 00:20 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 23:57 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 00:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 00:17 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 00:21 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 00:25 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 00:04 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 00:06 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 00:27 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 00:18 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 00:17 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 00:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 00:10 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:17 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/123158220000.shtml)
-- 2026-06-30 00:09 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/38604.shtml)
-- 2026-06-30 00:10 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/59351903.shtml)
-- 2026-06-30 00:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/473133.shtml)
-- 2026-06-29 23:58 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/0795967293.shtml)
-- 2026-06-30 00:16 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/87801087986.shtml)
-- 2026-06-30 00:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/64001719.shtml)
-- 2026-06-30 00:09 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/66508211285.shtml)
-- 2026-06-30 00:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/55411390.shtml)
-- 2026-06-29 23:56 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/45268.shtml)
-- 2026-06-30 00:03 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/8848197.shtml)
-- 2026-06-29 23:57 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/73615558527.shtml)
-- 2026-06-30 00:16 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/95142.shtml)
-- 2026-06-30 00:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/393804946476.shtml)
-- 2026-06-30 00:11 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/7654960.shtml)
+- 2026-06-30 00:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/433857.shtml)
+- 2026-06-30 00:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/35836514130.shtml)
+- 2026-06-30 00:10 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/3381929.shtml)
+- 2026-06-30 00:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/167501306786.shtml)
+- 2026-06-30 00:19 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/82134956765.shtml)
+- 2026-06-30 00:22 - [刘念回应](http://www.blog.minike.top/Article/details/781361.shtml)
+- 2026-06-30 00:11 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/837627.shtml)
+- 2026-06-30 00:14 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/1591209.shtml)
+- 2026-06-30 00:11 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/928062213142.shtml)
+- 2026-06-30 00:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/6265464193.shtml)
+- 2026-06-30 00:12 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/87819.shtml)
+- 2026-06-30 00:16 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/48569120.shtml)
+- 2026-06-30 00:03 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/09438731779.shtml)
+- 2026-06-30 00:17 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/151551977932.shtml)
+- 2026-06-30 00:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/47954862.shtml)

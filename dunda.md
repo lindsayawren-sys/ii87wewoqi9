@@ -1,61 +1,52 @@
-# 特朗普重返白宫以来 “白宫篮子”股显著跑赢标普500指数
+# 4月10日“农产品批发价格200指数”比昨天下降0.06个点
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-彭博行业研究ETF分析师Athanasios Psarofagis表示，由与政策信号相关的股票组成的“白宫篮子”自特朗普第二任期开始以来显著跑赢标普500指数，不过投资者难以直接参与其中。 研究发现，该篮子包含约16只与政府支持和公开背书挂钩的股票。自特朗普重返白宫以来，该篮子已累计上涨约75%，其中英特尔和美国稀土公司领涨。相比之下，标普500指数同期涨幅约为20%。其中一些
+中新网4月10日电 据农业农村部网站消息，据农业农村部监测，4月10日“农产品批发价格200指数”为117.49，比昨天下降0.06个点，“菜篮子”产品批发价格指数为118.32，比昨天下降0.08个点。 截至今日14:00时，全国农产品批发市场猪肉平均价格为14.62元/公斤，比昨天下降1.3%；牛肉66.79元/公斤，比昨天上升0.2%；羊肉64.44元/公斤，比昨天下降0
 
 ## 正文
 
-彭博行业研究ETF分析师Athanasios Psarofagis表示，由与政策信号相关的股票组成的“白宫篮子”自特朗普第二任期开始以来显著跑赢标普500指数，不过投资者难以直接参与其中。
+中新网4月10日电 据农业农村部网站消息，据农业农村部监测，4月10日“农产品批发价格200指数”为117.49，比昨天下降0.06个点，“菜篮子”产品批发价格指数为118.32，比昨天下降0.08个点。
 
-研究发现，该篮子包含约16只与政府支持和公开背书挂钩的股票。
+截至今日14:00时，全国农产品批发市场猪肉平均价格为14.62元/公斤，比昨天下降1.3%；牛肉66.79元/公斤，比昨天上升0.2%；羊肉64.44元/公斤，比昨天下降0.1%；鸡蛋7.76元/公斤，比昨天下降0.4%；白条鸡17.42元/公斤，比昨天上升2.2%。
 
-自特朗普重返白宫以来，该篮子已累计上涨约75%，其中英特尔和美国稀土公司领涨。
+重点监测的28种蔬菜平均价格为4.52元/公斤，比昨天上升0.7%；重点监测的6种水果平均价格为7.68元/公斤，比昨天下降0.1%。
 
-相比之下，标普500指数同期涨幅约为20%。
+鲫鱼19.92元/公斤，比昨天上升0.7%；鲤鱼14.64元/公斤，比昨天上升0.5%；白鲢鱼10.40元/公斤，比昨天上升4.9%；大带鱼40.46元/公斤，比昨天下降1.7%。
 
-其中一些公司获得了政府直接持股，另一些则得到特朗普背书或受益于利好的立法。
-
-不过，这一篮子的波动性明显更高，回撤更深、涨跌周期更为剧烈，这反映出这些股票对政策变化高度敏感，而政策转向可能迅速改变其走势。
-
-一只旨在捕捉这种政治影响策略的拟议ETF仍处于搁置状态，因为交易所迄今不愿将其上市，这也体现出将此类敞口打包既具吸引力又存在争议。
-
-责任编辑：丁文武
+今日，国内鲜活农产品批发市场重点监测的46个品种中，与昨天相比价格升幅前五名的是白鲢鱼、菠菜、平菇、生菜和花鲢鱼，幅度分别为4.9%、3.3%、2.6%、2.4%和2.3%；价格降幅前五名的是菠萝、大黄花鱼、莴笋、大带鱼和南瓜，幅度分别为2.9%、2.9%、2.7%、1.7%和1.4%。
 
 ## 相关推荐
 
-- 2026-06-29 23:57 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 00:21 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 00:15 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 00:02 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 00:08 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 00:04 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 00:14 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 00:15 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 00:10 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 23:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 00:17 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 00:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 00:06 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 00:11 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 00:20 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 00:18 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 00:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 00:23 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 00:12 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 00:15 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 00:13 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 00:15 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 00:04 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 00:00 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 00:05 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 00:00 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 00:23 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/09229.shtml)
-- 2026-06-30 00:22 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/9006152.shtml)
-- 2026-06-30 00:12 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/23032633.shtml)
-- 2026-06-29 23:59 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/66551892731.shtml)
-- 2026-06-30 00:08 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/478275.shtml)
-- 2026-06-30 00:00 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/354536304.shtml)
-- 2026-06-30 00:22 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/65723875700.shtml)
-- 2026-06-30 00:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/8760907.shtml)
-- 2026-06-30 00:15 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/59604778.shtml)
-- 2026-06-29 23:54 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/902888315.shtml)
-- 2026-06-30 00:13 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/954181171.shtml)
-- 2026-06-30 00:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/02569466.shtml)
-- 2026-06-29 23:57 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/878024.shtml)
-- 2026-06-30 00:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/857766972634.shtml)
-- 2026-06-30 00:00 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/59467.shtml)
+- 2026-06-30 00:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/881338591937.shtml)
+- 2026-06-30 00:18 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/23522.shtml)
+- 2026-06-30 00:04 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/4112229122.shtml)
+- 2026-06-30 00:15 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/53587878491.shtml)
+- 2026-06-30 00:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/86859.shtml)
+- 2026-06-30 00:07 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/02195880703.shtml)
+- 2026-06-30 00:15 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/13523106909.shtml)
+- 2026-06-30 00:10 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/9454470082.shtml)
+- 2026-06-30 00:08 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/733541522.shtml)
+- 2026-06-30 00:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/430857114.shtml)
+- 2026-06-30 00:03 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/69559033.shtml)
+- 2026-06-30 00:26 - [天道](https://www.blog.kurohicncr.top/Article/details/92826016.shtml)
+- 2026-06-30 00:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/994561.shtml)
+- 2026-06-30 00:01 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/735789899123.shtml)
+- 2026-06-30 00:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/337858995645.shtml)

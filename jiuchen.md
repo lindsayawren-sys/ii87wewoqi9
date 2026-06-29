@@ -1,58 +1,61 @@
-# 峇峇娘惹寻根原乡 赓续文脉共话交融
+# 南航商城售假风波后续：香奈儿洗面奶仍有售 商家称支持国检
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新网漳州4月20日电 (记者 张金川)4月19日至20日，“2026年峇峇娘惹漳州寻根之旅”活动在福建漳州举行。来自马来西亚、新加坡、印度尼西亚、泰国、澳大利亚5个国家的230余名峇峇娘惹后裔齐聚漳州，循着先祖足迹探寻血脉根脉，共话文化交融，开启一场温暖走心的寻根之旅。 本次活动由漳州市归国华侨联合会、福建省闽南文化研究会、漳州城市职业学院联合主办。 主办方表示，活动旨在帮助
+4月11日消息，南航商城陷入假货风波。有消费者对媒体表示，怀疑自己用里程兑换的香奈儿泡沫洁面乳非正品。今年3月初，该消费者用8497里程在南航商城兑换了一瓶香奈儿泡沫洁面乳（150ml），但东西到手后，她发现不对劲，在第三方平台上传了照片鉴定。得物的识图鉴别报告结论为外观不符合正品特征。鉴别为仿品。不过，该报告仅供识图鉴别参考，最终结论以实物为准。 查询南航商场发现，目前，仍有
 
 ## 正文
 
-中新网漳州4月20日电 (记者 张金川)4月19日至20日，“2026年峇峇娘惹漳州寻根之旅”活动在福建漳州举行。
+4月11日消息，南航商城陷入假货风波。
 
-来自马来西亚、新加坡、印度尼西亚、泰国、澳大利亚5个国家的230余名峇峇娘惹后裔齐聚漳州，循着先祖足迹探寻血脉根脉，共话文化交融，开启一场温暖走心的寻根之旅。
+有消费者对媒体表示，怀疑自己用里程兑换的香奈儿泡沫洁面乳非正品。
 
-本次活动由漳州市归国华侨联合会、福建省闽南文化研究会、漳州城市职业学院联合主办。
+今年3月初，该消费者用8497里程在南航商城兑换了一瓶香奈儿泡沫洁面乳（150ml），但东西到手后，她发现不对劲，在第三方平台上传了照片鉴定。
 
-主办方表示，活动旨在帮助峇峇娘惹后裔寻访血脉渊源，增进对漳州祖籍地的理解与情感联系，推动闽南文化与峇峇娘惹文化的交流互动，特别是推动与漳州的经贸文化交流与合作，致力于建立跨区域的教育与文化合作关系，助推“海上丝绸之路”“世界闽南文化交流中心”建设，打好漳州新时代新“侨”牌。
+得物的识图鉴别报告结论为外观不符合正品特征。
 
-峇峇娘惹又称海峡华人、土生华人，是中华传统文化与东南亚地域文化交融共生的独特族群。
+鉴别为仿品。
 
-史料记载，大批峇峇娘惹先祖从漳州月港扬帆南下，将闽南文化的血脉与基因远播海外。
+不过，该报告仅供识图鉴别参考，最终结论以实物为准。
 
-活动以“原乡风·故土情”为主线，精心设置主题展览、研讨交流、文艺展演、实地寻根等内容，让远道而来的游子全方位感受漳州深厚的闽南文化底蕴与人文温度。
+查询南航商场发现，目前，仍有一款香奈儿（Chanel）山茶花泡沫保湿洁面乳在售。
 
-4月20日下午，“原乡风·故土情——峇峇娘惹文化的漳州根源”图片展览在漳州城市职业学院启动。
+店铺工作人员表示，他们是入驻商家，和南航是合作关系，店内在售的香奈儿产品是免税版本，可能和专柜产品包装不太一样，但成分支持国检，“都有相关的产品资质”。
 
 ## 相关推荐
 
-- 2026-06-30 00:07 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 00:23 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 23:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 00:07 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 00:20 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 00:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 00:05 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 00:13 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 23:59 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 23:55 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 23:55 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 00:15 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 00:14 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 00:08 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 00:11 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 00:18 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 00:08 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 00:07 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 00:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 00:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 00:07 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 00:06 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 00:20 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 00:24 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 00:17 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 00:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 00:20 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:23 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/7663924.shtml)
-- 2026-06-29 23:54 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/058511418.shtml)
-- 2026-06-30 00:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/239287456768.shtml)
-- 2026-06-30 00:08 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/599195.shtml)
-- 2026-06-30 00:02 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/76924907297.shtml)
-- 2026-06-30 00:11 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/1706697186.shtml)
-- 2026-06-30 00:00 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/3950031.shtml)
-- 2026-06-30 00:03 - [千香](http://www.share.minike.top/Article/details/887216.shtml)
-- 2026-06-30 00:02 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/19283843.shtml)
-- 2026-06-30 00:13 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/44850.shtml)
-- 2026-06-30 00:01 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/383757734.shtml)
-- 2026-06-30 00:12 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/3274491.shtml)
-- 2026-06-29 23:56 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/10591928.shtml)
-- 2026-06-30 00:14 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/684931875021.shtml)
-- 2026-06-30 00:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/7132584411.shtml)
+- 2026-06-30 00:29 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/58520444.shtml)
+- 2026-06-30 00:19 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/6033055313.shtml)
+- 2026-06-30 00:20 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/4989059854.shtml)
+- 2026-06-30 00:04 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/49818690852.shtml)
+- 2026-06-30 00:06 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/766913679.shtml)
+- 2026-06-30 00:06 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/593811676.shtml)
+- 2026-06-30 00:17 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/0592129.shtml)
+- 2026-06-30 00:28 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/1358402112.shtml)
+- 2026-06-30 00:19 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/93915211774.shtml)
+- 2026-06-30 00:02 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/7381625.shtml)
+- 2026-06-30 00:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/72668140.shtml)
+- 2026-06-30 00:10 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/580663.shtml)
+- 2026-06-30 00:00 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/459548456937.shtml)
+- 2026-06-30 00:19 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/752659214427.shtml)
+- 2026-06-30 00:23 - [女心理师](http://www.share.minike.top/Article/details/931848.shtml)

@@ -1,60 +1,56 @@
-# 解码明泰铝业2025年成绩单：营收净利双增，高端化突围之路如何走通？
+# 大型纪录片《寻古中国·朔门古港》揭秘“海上温州”繁华史
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者：彭斐 2025年，明泰铝业（SH601677，股价17.43元，市值216.75亿元）交出了一份亮眼的成绩单。 4月20日晚间，明泰铝业发布的2025年财报显示，公司2025年实现营业收入351.35亿元，同比增长8.71%；归母净利润达19.60亿元，同比增长12.10%。更令人瞩目的是，其经营
+中新网北京4月11日电 (记者 应妮)大型纪录片《寻古中国·朔门古港》聚焦入选2022年度“全国十大考古新发现”的浙江温州朔门古港遗址，结合最新考古研究成果，系统呈现古代港口城市的空间格局与贸易网络运行机制，实证温州作为海上丝绸之路重要节点的历史地位，生动讲述一个港、一座城、一条江、一条路的传奇故事。 朔门古港遗址目前已发掘面积近1万平方米，已发现包括12座码头、10段江岸、2
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京4月11日电 (记者 应妮)大型纪录片《寻古中国·朔门古港》聚焦入选2022年度“全国十大考古新发现”的浙江温州朔门古港遗址，结合最新考古研究成果，系统呈现古代港口城市的空间格局与贸易网络运行机制，实证温州作为海上丝绸之路重要节点的历史地位，生动讲述一个港、一座城、一条江、一条路的传奇故事。
 
-每经记者：彭斐 2025年，明泰铝业（SH601677，股价17.43元，市值216.75亿元）交出了一份亮眼的成绩单。
+朔门古港遗址目前已发掘面积近1万平方米，已发现包括12座码头、10段江岸、2艘沉船、航标以及古城水陆城门在内的丰富遗迹。
 
-4月20日晚间，明泰铝业发布的2025年财报显示，公司2025年实现营业收入351.35亿元，同比增长8.71%；归母净利润达19.60亿元，同比增长12.10%。
+该遗址集江岸、码头、仓储、航运、城防等多重元素于一体，是目前国内外罕见的“全要素”古代港口遗址。
 
-更令人瞩目的是，其经营活动产生的现金流量净额上涨117.03%至14.38亿元。
+现已出土超过30吨的各类瓷片、漆器、钱币等遗存，其中可修复文物达10000件以上，年代跨度以宋元时期为主，上溯唐代晚期，下延至民国时期。
 
-《每日经济新闻》记者注意到，在业绩稳步攀升的同时，明泰铝业大手笔分红，2025年度累计派发现金红利近4亿元。
+这种“水陆并行、城港一体”的格局历经千年基本未变，为研究古代港口城市运作及中外贸易往来提供了珍贵的实物资料。
 
-然而，亮眼的数据背后，明泰铝业的高端化转型之路并非一片坦途。
+节目记录了朔门古港考古发掘现场，呈现了一件南宋龙泉窑青釉瓜棱瓶的出土过程，由此展开对古代瓷器贸易出海路径的追溯，印证了温州朔门古港正是内陆商品走向海洋的重要通道之一；蕨草纹执壶等异域风格的“定制款”文物，则呈现出古代东西方文明交流与融合的历史图景。
 
-面对即将于2026年实施的欧盟碳关税（CBAM）以及激烈的市场竞争，明泰铝业的长期增长仍面临多重考验。
+除了瓷器，温州漆器同样在贸易体系中占据重要地位。
 
-营收净利稳步攀升，现金流与分红亮眼 在铝加工行业整体向高质量发展迈进的背景下，明泰铝业2025年的业绩展现出较强的韧性。
+遗址出土的带有“温州上牢”铭文的北宋漆器，见证了当年漆器远销海外。
 
 ## 相关推荐
 
-- 2026-06-30 00:22 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 23:56 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 00:04 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 00:12 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 23:57 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 00:23 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 00:08 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 00:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 00:13 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 00:03 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 23:54 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 00:19 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 23:58 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 00:20 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 00:11 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 00:06 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 00:06 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 00:13 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 00:22 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 00:15 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 00:11 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 00:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 00:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 00:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:06 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/36279865.shtml)
-- 2026-06-30 00:15 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/95218416719.shtml)
-- 2026-06-29 23:55 - [炽夏](http://www.share.kurohicncr.top/Article/details/67482.shtml)
-- 2026-06-30 00:04 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/940560.shtml)
-- 2026-06-30 00:08 - [沉睡花园](http://www.share.minike.top/Article/details/1270962602.shtml)
-- 2026-06-29 23:59 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/02547.shtml)
-- 2026-06-30 00:18 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/579460.shtml)
-- 2026-06-29 23:56 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/57353.shtml)
-- 2026-06-29 23:58 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/2213583.shtml)
-- 2026-06-30 00:15 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/42435263.shtml)
-- 2026-06-30 00:09 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/6450815160.shtml)
-- 2026-06-30 00:14 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/1909082.shtml)
-- 2026-06-30 00:23 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/88009028.shtml)
-- 2026-06-30 00:03 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/27264922004.shtml)
-- 2026-06-30 00:07 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/835087.shtml)
+- 2026-06-30 00:10 - [沉睡花园](https://www.blog.minike.top/Article/details/8035874.shtml)
+- 2026-06-30 00:01 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/68120650.shtml)
+- 2026-06-30 00:25 - [东方风云榜直播](http://www.share.minike.top/Article/details/184428662852.shtml)
+- 2026-06-30 00:17 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/40758394158.shtml)
+- 2026-06-30 00:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/03307405.shtml)
+- 2026-06-30 00:02 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/991180709442.shtml)
+- 2026-06-30 00:26 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/908127854776.shtml)
+- 2026-06-30 00:24 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/164416470.shtml)
+- 2026-06-30 00:09 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/623689.shtml)
+- 2026-06-30 00:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/27539076631.shtml)
+- 2026-06-30 00:10 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/334070.shtml)
+- 2026-06-30 00:10 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/603650116.shtml)
+- 2026-06-30 00:00 - [一见倾心](http://www.blog.minike.top/Article/details/764637612.shtml)
+- 2026-06-30 00:17 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/3809920.shtml)
+- 2026-06-30 00:24 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/182035.shtml)

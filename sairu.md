@@ -1,61 +1,57 @@
-# 特朗普：若美伊达成协议 “很可能”前往伊斯兰堡
+# 美国纽约地铁站持刀袭击事件致三伤 嫌疑人被击毙
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-新华社华盛顿4月19日电 美国总统特朗普19日在接受美国《纽约邮报》采访时说，如果美国和伊朗能在巴基斯坦首都伊斯兰堡达成协议，他“很可能”会前往伊斯兰堡。 当记者问特朗普是否会前往伊斯兰堡时，特朗普先是说：“我想可能会在稍晚一些的时候再说。我们得看看明天的情况如何。”当记者追问时，特朗普称，他不会在谈判取得进展前作决定，但“很可能会在晚些时候去”。 另据美国有线电视新闻网19日
+中新社纽约4月11日电 (记者 王帆)美国纽约市警察局11日称，一名手持砍刀的男子当天在纽约中央车站地铁站随机袭击砍伤三人，随后被赶到的警员开枪击毙。 据警方通报，当天上午9时30分许，一名行为异常的男子从皇后区搭乘7号线地铁。列车抵达中央车站地铁站后，该男子拔出一把砍刀，在站台上袭击乘客，并转至4、5、6号线地铁站台继续行凶，共造成三人受伤。 警方称，赶到现场的警员曾20次命
 
 ## 正文
 
-新华社华盛顿4月19日电 美国总统特朗普19日在接受美国《纽约邮报》采访时说，如果美国和伊朗能在巴基斯坦首都伊斯兰堡达成协议，他“很可能”会前往伊斯兰堡。
+中新社纽约4月11日电 (记者 王帆)美国纽约市警察局11日称，一名手持砍刀的男子当天在纽约中央车站地铁站随机袭击砍伤三人，随后被赶到的警员开枪击毙。
 
-当记者问特朗普是否会前往伊斯兰堡时，特朗普先是说：“我想可能会在稍晚一些的时候再说。
+据警方通报，当天上午9时30分许，一名行为异常的男子从皇后区搭乘7号线地铁。
 
-我们得看看明天的情况如何。
+列车抵达中央车站地铁站后，该男子拔出一把砍刀，在站台上袭击乘客，并转至4、5、6号线地铁站台继续行凶，共造成三人受伤。
 
-”当记者追问时，特朗普称，他不会在谈判取得进展前作决定，但“很可能会在晚些时候去”。
+警方称，赶到现场的警员曾20次命令嫌疑人放下武器，但其无视命令并持刀冲向警员。
 
-另据美国有线电视新闻网19日援引伊朗消息人士的话报道，伊朗代表团将于21日抵达，代表团成员包括伊朗伊斯兰议会议长卡利巴夫和伊朗外长阿拉格齐。
+一名警员随即开枪将其击中，嫌疑人被送医后宣告死亡。
 
-报道称，预计22日美伊将共同宣布延长停火。
+警方表示，嫌疑人已被确认为44岁的男子安东尼·格里芬，此前曾有三次未公开的被捕记录。
 
-接下来，如果谈判顺利，特朗普将前往伊斯兰堡同伊朗总统佩泽希齐扬举行会谈，两人还可能签署旨在停战的“伊斯兰堡宣言”。
+三名伤者分别为84岁男子、65岁男子和70岁女子，均已被送医治疗，目前伤情稳定。
 
-特朗普此前也曾表示，如果美伊和平协议在伊斯兰堡签署，他可能会去伊斯兰堡。
+纽约市市长马姆达尼在社交媒体上说，他已获悉在中央车站地铁站发生的持刀袭击事件。
 
 ## 相关推荐
 
-- 2026-06-30 00:22 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 00:04 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 00:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 00:03 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 00:21 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 00:02 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 00:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 00:10 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 00:20 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 00:06 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 23:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 00:09 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 00:20 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 00:22 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 00:02 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 00:29 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 00:10 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 00:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 00:09 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 00:12 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 00:01 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 00:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 00:10 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 00:14 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 00:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 00:15 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:17 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/951804.shtml)
-- 2026-06-30 00:03 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/9426312102.shtml)
-- 2026-06-30 00:07 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/03631459432.shtml)
-- 2026-06-30 00:19 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/84795748.shtml)
-- 2026-06-30 00:22 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/78629314.shtml)
-- 2026-06-29 23:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/85141012689.shtml)
-- 2026-06-30 00:07 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/76740952.shtml)
-- 2026-06-30 00:00 - [请回答王牌2019](http://www.share.minike.top/Article/details/99240353.shtml)
-- 2026-06-30 00:02 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/49370.shtml)
-- 2026-06-30 00:01 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/56420.shtml)
-- 2026-06-29 23:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/30621.shtml)
-- 2026-06-30 00:14 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/313998859.shtml)
-- 2026-06-30 00:00 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/488897075235.shtml)
-- 2026-06-30 00:03 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/002538261.shtml)
-- 2026-06-29 23:59 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/477829.shtml)
+- 2026-06-30 00:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/45467305.shtml)
+- 2026-06-30 00:25 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/09855.shtml)
+- 2026-06-30 00:22 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/878420910456.shtml)
+- 2026-06-30 00:11 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/6233728.shtml)
+- 2026-06-30 00:07 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/10794645720.shtml)
+- 2026-06-30 00:08 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/71829.shtml)
+- 2026-06-30 00:22 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/06943286528.shtml)
+- 2026-06-30 00:06 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/05958.shtml)
+- 2026-06-30 00:02 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/8569663644.shtml)
+- 2026-06-30 00:23 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/86378642.shtml)
+- 2026-06-30 00:29 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/572980737273.shtml)
+- 2026-06-30 00:04 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/8879123159.shtml)
+- 2026-06-30 00:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/68186.shtml)
+- 2026-06-30 00:26 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/93363956585.shtml)
+- 2026-06-30 00:28 - [千香](https://www.share.minike.top/Article/details/457141874.shtml)

@@ -1,58 +1,54 @@
-# 专访苏士澍：AI时代为何还要学书法？
+# 岚图汽车卢放谈“与华为合作”：是战略合作，也是两个独立主体，这对双方快速成长非常重要
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-“王羲之《兰亭序》、颜真卿《祭侄季明文稿》与苏轼《黄州寒食诗》——这些流传千年的经典，无论科技发展与生活习惯如何变迁，至今无可替代。”无党派人士，中央文史馆馆员、中国书法家协会名誉主席苏士澍近日接受本报专访时说。 多年来，苏士澍为书法教育普及奔走，推动书法走进中小学课堂。当被问及在AI时代长大的孩子是否还需要学书法，他直言，具备中文素养的人，才能更好驾驭AI，而书法正是打开中华
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日中午消息，在智能电动汽车发展高层论坛（2026）期间，岚图汽车董事长卢放与新浪科技等媒体对话。 当被问及“华为正与车企逐步扩大合作，岚图如何应对”，卢放表示：“华为确实有非常多的合作伙伴，这也是我们非常乐意看到的，这证明中国智能化技术正在广泛的被中国企业所应用，也正在广泛被消费者所接受。我觉得总体来讲这是很好的事
 
 ## 正文
 
-“王羲之《兰亭序》、颜真卿《祭侄季明文稿》与苏轼《黄州寒食诗》——这些流传千年的经典，无论科技发展与生活习惯如何变迁，至今无可替代。
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日中午消息，在智能电动汽车发展高层论坛（2026）期间，岚图汽车董事长卢放与新浪科技等媒体对话。
 
-”无党派人士，中央文史馆馆员、中国书法家协会名誉主席苏士澍近日接受本报专访时说。
+当被问及“华为正与车企逐步扩大合作，岚图如何应对”，卢放表示：“华为确实有非常多的合作伙伴，这也是我们非常乐意看到的，这证明中国智能化技术正在广泛的被中国企业所应用，也正在广泛被消费者所接受。
 
-多年来，苏士澍为书法教育普及奔走，推动书法走进中小学课堂。
+我觉得总体来讲这是很好的事情。
 
-当被问及在AI时代长大的孩子是否还需要学书法，他直言，具备中文素养的人，才能更好驾驭AI，而书法正是打开中华文化宝库的钥匙。
+” 他进一步表示，岚图应该是最早和华为做这种合作的企业，“我们跟华为合作这么多年，我觉得还是有很多独到之处和心得体会，这种默契程度也并不是所有企业都能去复制得来的”。
 
-当键盘取代了笔墨 语文课上，学生铺纸蘸墨、提笔习字，这样的场景在全国各地小学已成常态。
+另外，他强调，岚图和华为的合作当中，是坚固的战略合作，但同时又是坚决的两个主体，“岚图是岚图，华为是华为，我们彼此都保留了自己相对的独立。
 
-2024年教育部印发通知，明确保障语文课程写字教育及三至六年级语文课每周安排1课时书法课。
+我觉得这对于双方的快速成长和可持续发展，是非常重要的事情。
 
-书法正在融入中小学生的学习生活。
-
-“从将书法教育被确认为美育的核心载体，再到书法走进语文课堂成为必修课，这条路我们走了十多年，成绩颇丰。
+”责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 00:12 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 00:14 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 00:16 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 00:05 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 00:08 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 00:10 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 00:08 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 00:05 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 00:08 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 23:55 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 00:05 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 00:22 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 00:05 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 00:27 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 00:14 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 00:10 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 00:19 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 00:20 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 00:25 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 00:00 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 00:05 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 00:28 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/911971834.shtml)
-- 2026-06-30 00:11 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/372564629534.shtml)
-- 2026-06-29 23:56 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/57220572594.shtml)
-- 2026-06-29 23:57 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/82794575081.shtml)
-- 2026-06-29 23:54 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/233142043.shtml)
-- 2026-06-30 00:21 - [千与千寻](https://www.blog.minike.top/Article/details/9680573368.shtml)
-- 2026-06-30 00:00 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/717573393095.shtml)
-- 2026-06-30 00:10 - [极限挑战第一季](https://www.blog.minike.top/Article/details/465377.shtml)
-- 2026-06-30 00:10 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/514939611.shtml)
-- 2026-06-30 00:00 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/36510.shtml)
-- 2026-06-29 23:58 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/832776302551.shtml)
-- 2026-06-30 00:12 - [金牌调解](http://www.share.kurohicncr.top/Article/details/315631.shtml)
-- 2026-06-30 00:14 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/2723115.shtml)
-- 2026-06-30 00:17 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/518669707.shtml)
-- 2026-06-30 00:05 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/015636.shtml)
+- 2026-06-30 00:21 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/9840879.shtml)
+- 2026-06-30 00:26 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/3522546668.shtml)
+- 2026-06-30 00:00 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/95891741291.shtml)
+- 2026-06-30 00:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/179377854166.shtml)
+- 2026-06-30 00:04 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/29917005572.shtml)
+- 2026-06-30 00:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/18398.shtml)
+- 2026-06-30 00:25 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/103677081.shtml)
+- 2026-06-30 00:28 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/2237583.shtml)
+- 2026-06-30 00:28 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/03047082.shtml)
+- 2026-06-30 00:09 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/958078997124.shtml)
+- 2026-06-30 00:18 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/7012121.shtml)
+- 2026-06-30 00:22 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/80578801.shtml)
+- 2026-06-30 00:29 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/7568292048.shtml)
+- 2026-06-30 00:09 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/047032822595.shtml)
+- 2026-06-30 00:19 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/3575623.shtml)

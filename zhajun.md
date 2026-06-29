@@ -1,49 +1,59 @@
-# 大美边疆看我家丨黑龙江新林：“爱情小镇”的春日情书
+# 特朗普发文提振股价后，迈克尔・伯里称仍在做空帕兰提尔
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月20日 11:13 来源：中国新闻网 黑龙江大兴安岭地区“爱情小镇”新林，四月天里藏着冬与春的私语。冰河乍裂，潺潺流水声唤醒了沉睡的森林，那是春天寄来的告白信。(来源：新林广播电视台） 责任编辑：【魏聪聪】
+核心要点 尽管总统唐纳德・特朗普公开背书提振了股价，迈克尔・伯里仍坚持看空帕兰提尔技术公司。 这位因《大空头》闻名的投资者周五在 Substack 发文称，他继续持有这家人工智能软件公司的长期看跌期权。伯里表示，他于 2025 年秋季开始做空该公司，并多次展期头寸。 “我目前持有 2027 年 6 月 17 日到期、行权价 50 美元的看跌期权，以及 2026 年 12 月 1
 
 ## 正文
 
-发布时间：2026年04月20日 11:13 来源：中国新闻网 黑龙江大兴安岭地区“爱情小镇”新林，四月天里藏着冬与春的私语。
+核心要点 尽管总统唐纳德・特朗普公开背书提振了股价，迈克尔・伯里仍坚持看空帕兰提尔技术公司。
 
-冰河乍裂，潺潺流水声唤醒了沉睡的森林，那是春天寄来的告白信。
+这位因《大空头》闻名的投资者周五在 Substack 发文称，他继续持有这家人工智能软件公司的长期看跌期权。
 
-(来源：新林广播电视台） 责任编辑：【魏聪聪】
+伯里表示，他于 2025 年秋季开始做空该公司，并多次展期头寸。
+
+“我目前持有 2027 年 6 月 17 日到期、行权价 50 美元的看跌期权，以及 2026 年 12 月 19 日到期、行权价 100 美元的看跌期权。
+
+我今日不会卖出这些期权，” 伯里写道。
+
+伯里发表评论前，特朗普周五在 Truth Social 称赞帕兰提尔，推动该股从日内低点回升。
+
+尽管如此，该股本周仍预计下跌约 13%，2026 年以来累计跌幅约 28%。
+
+特朗普写道：“帕兰提尔技术公司（PLTR）已被证明拥有强大的作战能力与装备。
 
 ## 相关推荐
 
-- 2026-06-30 00:17 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 23:58 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 00:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 23:58 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 00:01 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 00:06 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 00:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 00:04 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 00:02 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 00:01 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 23:56 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 23:55 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 00:14 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 00:22 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 00:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 00:27 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 00:24 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 00:08 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 00:16 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 00:01 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 00:00 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 00:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 00:10 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 00:26 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 00:06 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 00:01 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/338755144198.shtml)
-- 2026-06-30 00:17 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/1993840.shtml)
-- 2026-06-30 00:08 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/513383662.shtml)
-- 2026-06-30 00:20 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/28002524931.shtml)
-- 2026-06-30 00:02 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/56801.shtml)
-- 2026-06-29 23:59 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/307365.shtml)
-- 2026-06-30 00:18 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/62994565.shtml)
-- 2026-06-30 00:10 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/06490.shtml)
-- 2026-06-30 00:01 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/80856633.shtml)
-- 2026-06-29 23:59 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/341613325851.shtml)
-- 2026-06-30 00:12 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/062813.shtml)
-- 2026-06-29 23:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/53611272003.shtml)
-- 2026-06-30 00:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/21304315.shtml)
-- 2026-06-30 00:18 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/20125.shtml)
-- 2026-06-30 00:03 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/1249652593.shtml)
+- 2026-06-30 00:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/833161835.shtml)
+- 2026-06-30 00:18 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/60131802016.shtml)
+- 2026-06-30 00:10 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/28541363.shtml)
+- 2026-06-30 00:22 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/892304352165.shtml)
+- 2026-06-30 00:24 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/4505224736.shtml)
+- 2026-06-30 00:28 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/45226598.shtml)
+- 2026-06-30 00:00 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/42124.shtml)
+- 2026-06-30 00:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/0410192.shtml)
+- 2026-06-30 00:09 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/208142.shtml)
+- 2026-06-30 00:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/56220.shtml)
+- 2026-06-30 00:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/849491638.shtml)
+- 2026-06-30 00:14 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/838610003227.shtml)
+- 2026-06-30 00:08 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/1505969116.shtml)
+- 2026-06-30 00:15 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/002590642253.shtml)
+- 2026-06-30 00:06 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/69150449.shtml)

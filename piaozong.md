@@ -1,50 +1,60 @@
-# 韩国将迎来自伊朗战争以来首艘经由霍尔木兹海峡的油轮
+# 世界无人机运动会在成都高新区开赛
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-韩国每日经济新闻援引匿名行业消息人士称，自本轮战事爆发以来，韩国即将迎来首批经由霍尔木兹海峡运输的原油到货。苏伊士型油轮敖德萨号载有约100万桶原油，计划于5月8日抵达韩国大山港，为现代炼油（HD Hyundai Oilbank）供货。该油轮在阿联酋装载原油后，顺利驶过霍尔木兹海峡，此次航行早于伊朗军方近期重新收紧海峡通行管控之前。报道称，本次供油，是自3月20日鹰韦洛尔号运送
+中新网成都4月11日电 (记者 王鹏)世界无人机运动会11日在成都高新区新川之心机器人公园开赛。来自中小学、高校、企业以及多个国家和地区的443支参赛队伍齐聚高新赛区，展开一场融合科技与体育的“空中对决”。 本次比赛由中国通信工业协会、电子科技大学主办，设置无人机举重、无人机击剑、无人机篮球、低空智控赛四大赛项。比赛现场，伴随阵阵嗡鸣声，各类无人机腾空而起，在选手的精准操控下完
 
 ## 正文
 
-韩国每日经济新闻援引匿名行业消息人士称，自本轮战事爆发以来，韩国即将迎来首批经由霍尔木兹海峡运输的原油到货。
+中新网成都4月11日电 (记者 王鹏)世界无人机运动会11日在成都高新区新川之心机器人公园开赛。
 
-苏伊士型油轮敖德萨号载有约100万桶原油，计划于5月8日抵达韩国大山港，为现代炼油（HD Hyundai Oilbank）供货。
+来自中小学、高校、企业以及多个国家和地区的443支参赛队伍齐聚高新赛区，展开一场融合科技与体育的“空中对决”。
 
-该油轮在阿联酋装载原油后，顺利驶过霍尔木兹海峡，此次航行早于伊朗军方近期重新收紧海峡通行管控之前。
+本次比赛由中国通信工业协会、电子科技大学主办，设置无人机举重、无人机击剑、无人机篮球、低空智控赛四大赛项。
 
-报道称，本次供油，是自3月20日鹰韦洛尔号运送200万桶原油抵韩之后，首艘经霍尔木兹海峡驶入韩国的油轮。
+比赛现场，伴随阵阵嗡鸣声，各类无人机腾空而起，在选手的精准操控下完成一系列高难度动作，将技术比拼转化为极具观赏性的空中竞技，吸引众多观众驻足观看。
 
-责任编辑：王永生
+电子科技大学航空航天学院(四川省无人机学院)学科竞赛中心主任方黎勇表示，此次赛事在规则设计上融合了国际国内顶级赛事标准，并结合院校课程内容与企业技术实践进行优化，既突出技术含量，也兼顾可操作性。
+
+赛项设计过程中，来自体育界、产业界和学术界的多方力量共同参与，裁判团队则由具备丰富执裁经验的专业人士组成。
+
+方黎勇介绍，无人机举重和无人机击剑是本次比赛的难点项目。
+
+其中，无人机举重主要考验两架飞行器在狭小空间内的协同控制与精准操作能力；无人机击剑则侧重对飞行器周边目标的精准识别、定位以及操控水平。
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 23:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 00:02 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 00:15 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 00:00 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 00:07 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 00:01 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 00:19 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 23:57 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 23:55 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 00:24 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 00:03 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 00:07 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 00:10 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 00:13 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 00:21 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 00:05 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 00:27 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 00:06 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 00:16 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 00:16 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 00:16 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 00:19 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 00:15 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:22 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/72031.shtml)
-- 2026-06-30 00:02 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/982655282.shtml)
-- 2026-06-30 00:05 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/737299422187.shtml)
-- 2026-06-29 23:57 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/89664768.shtml)
-- 2026-06-30 00:05 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/7165874.shtml)
-- 2026-06-30 00:21 - [月亮](http://www.blog.kurohicncr.top/Article/details/20774837689.shtml)
-- 2026-06-30 00:04 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/7824141.shtml)
-- 2026-06-30 00:14 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/32835247.shtml)
-- 2026-06-30 00:19 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/637255255.shtml)
-- 2026-06-30 00:12 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/724883.shtml)
-- 2026-06-30 00:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/51196.shtml)
-- 2026-06-29 23:57 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/206171529162.shtml)
-- 2026-06-29 23:55 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/288514271562.shtml)
-- 2026-06-29 23:56 - [小龙女配音去世 李若彤发文悼念](https://www.share.kurohicncr.top/Article/details/21902718.shtml)
-- 2026-06-30 00:05 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/2859201.shtml)
+- 2026-06-30 00:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/34786220530.shtml)
+- 2026-06-30 00:12 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/74158485.shtml)
+- 2026-06-30 00:25 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/970523401.shtml)
+- 2026-06-30 00:22 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/8595230.shtml)
+- 2026-06-30 00:17 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/9506969626.shtml)
+- 2026-06-30 00:29 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/8224099276.shtml)
+- 2026-06-30 00:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/75874381.shtml)
+- 2026-06-30 00:01 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/56790160.shtml)
+- 2026-06-30 00:09 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/71036.shtml)
+- 2026-06-30 00:06 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/016536.shtml)
+- 2026-06-30 00:20 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/211031406531.shtml)
+- 2026-06-30 00:22 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/5931187214.shtml)
+- 2026-06-30 00:22 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/2739023.shtml)
+- 2026-06-30 00:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/77475188811.shtml)
+- 2026-06-30 00:03 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/15502530685.shtml)

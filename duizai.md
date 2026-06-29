@@ -1,58 +1,54 @@
-# 美国扣押伊朗船只致紧张局势升级 伊朗对谈判态度犹豫
+# 中国第17批援尼泊尔医疗队赴甘达基省科尔马拉义诊
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-在美国持续封锁霍尔木兹海峡并扣押一艘伊朗船只后，伊朗表示不愿派遣外交官前往巴基斯坦参加第二轮和平谈判。 伊朗外交部发言人伊斯梅尔・巴加埃周一向记者表示，德黑兰目前尚无计划参加旨在正式结束为期七周冲突的潜在谈判，但尚未作出最终决定。 据伊朗半官方学生通讯社报道，他称：“种种迹象表明，美方在推进外交方面缺乏诚意。” 他补充道，伊朗正在审议巴基斯坦陆军参谋长阿西姆・穆尼尔访伊期间转交
+中新网加德满都4月12日电 (记者 崔楠)中国第17批援尼泊尔医疗队11日赴甘达基省科尔马拉义诊。 援尼医疗队在科尔马拉初级卫生中心设置诊疗点，提供多科室常规问诊、血压和血糖监测、心电图检查、超声检查及中医针灸等医疗服务。 当地华侨华人、中资企业项目尼泊尔籍职工及周边社区尼泊尔民众近百人接受义诊。 科尔马拉位于尼泊尔甘达基省南部，距离首都加德满都较远，当地医疗资源相对薄弱。中国
 
 ## 正文
 
-在美国持续封锁霍尔木兹海峡并扣押一艘伊朗船只后，伊朗表示不愿派遣外交官前往巴基斯坦参加第二轮和平谈判。
+中新网加德满都4月12日电 (记者 崔楠)中国第17批援尼泊尔医疗队11日赴甘达基省科尔马拉义诊。
 
-伊朗外交部发言人伊斯梅尔・巴加埃周一向记者表示，德黑兰目前尚无计划参加旨在正式结束为期七周冲突的潜在谈判，但尚未作出最终决定。
+援尼医疗队在科尔马拉初级卫生中心设置诊疗点，提供多科室常规问诊、血压和血糖监测、心电图检查、超声检查及中医针灸等医疗服务。
 
-据伊朗半官方学生通讯社报道，他称：“种种迹象表明，美方在推进外交方面缺乏诚意。
+当地华侨华人、中资企业项目尼泊尔籍职工及周边社区尼泊尔民众近百人接受义诊。
 
-” 他补充道，伊朗正在审议巴基斯坦陆军参谋长阿西姆・穆尼尔访伊期间转交的美国提案，但未披露提案细节。
+科尔马拉位于尼泊尔甘达基省南部，距离首都加德满都较远，当地医疗资源相对薄弱。
 
-巴加埃发表上述言论前，刚经历了局势动荡的周末，双方能否在美国时间周二晚停火协议到期前举行会晤再度成疑。
+中国第17批援尼泊尔医疗队队长黄晨在接受记者采访时说，此次义诊旨在践行“不畏艰苦、甘于奉献、救死扶伤、大爱无疆”的援外医疗精神。
 
-两国在一系列关键问题上仍存分歧，包括伊朗核计划及对全球能源供应关键水道霍尔木兹海峡的控制权。
+黄晨提到，在完成定点医疗援助任务的同时，援尼医疗队将继续加强与当地卫生机构和社区的联动，深入尼泊尔基层卫生机构和偏远社区开展公益医疗帮扶。
 
-美国总统特朗普周日表示，特使史蒂夫・维特科夫将于周二前往巴基斯坦参加会谈。
-
-但这位美国领导人在社交媒体上重拾强硬言论，威胁若无法达成协议将对伊朗实施大规模打击。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:12 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 00:23 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 00:19 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 00:00 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 23:54 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 00:20 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 00:11 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 00:00 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 00:16 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 00:05 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 00:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 00:11 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 00:14 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 00:13 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 00:26 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 00:26 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 00:25 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 00:18 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 00:16 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 00:04 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 00:02 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 00:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:13 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/715411440.shtml)
-- 2026-06-30 00:13 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/3979509497.shtml)
-- 2026-06-29 23:56 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/099265320.shtml)
-- 2026-06-30 00:09 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/13181754653.shtml)
-- 2026-06-30 00:17 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/144636364188.shtml)
-- 2026-06-30 00:18 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/15693.shtml)
-- 2026-06-30 00:22 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/52040122182.shtml)
-- 2026-06-30 00:23 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/5041071.shtml)
-- 2026-06-30 00:14 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/59133.shtml)
-- 2026-06-30 00:03 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/7080577555.shtml)
-- 2026-06-30 00:17 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/0726597.shtml)
-- 2026-06-30 00:20 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/1951433.shtml)
-- 2026-06-30 00:20 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/873084.shtml)
-- 2026-06-30 00:16 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/450196357853.shtml)
-- 2026-06-30 00:01 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/20311573.shtml)
+- 2026-06-30 00:07 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/967572.shtml)
+- 2026-06-30 00:02 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/35885.shtml)
+- 2026-06-30 00:19 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/83658.shtml)
+- 2026-06-30 00:28 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/49525.shtml)
+- 2026-06-30 00:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/06549164037.shtml)
+- 2026-06-30 00:07 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/892620409880.shtml)
+- 2026-06-30 00:01 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/07787.shtml)
+- 2026-06-30 00:11 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/274252779.shtml)
+- 2026-06-30 00:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/751602289960.shtml)
+- 2026-06-30 00:04 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/16045840.shtml)
+- 2026-06-30 00:09 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/26509529.shtml)
+- 2026-06-30 00:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/9450705158.shtml)
+- 2026-06-30 00:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/01413.shtml)
+- 2026-06-30 00:19 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2222610.shtml)
+- 2026-06-30 00:02 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/9766535.shtml)

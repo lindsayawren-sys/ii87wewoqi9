@@ -1,47 +1,56 @@
-# 万成集团股份于4月21日上午起停牌 以待发布内幕消息
+# 2026年山西首趟旅游专列开行
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-万成集团股份（01451）公布，公司股份将自2026年4月21日上午九时正起在香港联合交易所有限公司短暂停牌，以待发布公司将根据香港公司收购及合并守则刊发并构成公司内幕消息的公告。责任编辑：卢昱君
+中新网太原4月11日电 (范丽芳 任丽娜)4月10日14时12分，Y202次旅游列车缓缓驶离太原站，762名游客正式开启为期11天、跨越4省的沉浸式悠闲之旅。这也是山西省2026年开行的首趟旅游专列。 本次开行的旅游专列一路串联起鄱阳湖、鼓浪屿等知名文旅胜地，停靠站点均精选核心景区与热门打卡地，实现“一线多游、一票到底”，让游客无需中途换乘，一站式领略江西、福建、浙江、江苏的自
 
 ## 正文
 
-万成集团股份（01451）公布，公司股份将自2026年4月21日上午九时正起在香港联合交易所有限公司短暂停牌，以待发布公司将根据香港公司收购及合并守则刊发并构成公司内幕消息的公告。
+中新网太原4月11日电 (范丽芳 任丽娜)4月10日14时12分，Y202次旅游列车缓缓驶离太原站，762名游客正式开启为期11天、跨越4省的沉浸式悠闲之旅。
 
-责任编辑：卢昱君
+这也是山西省2026年开行的首趟旅游专列。
+
+本次开行的旅游专列一路串联起鄱阳湖、鼓浪屿等知名文旅胜地，停靠站点均精选核心景区与热门打卡地，实现“一线多游、一票到底”，让游客无需中途换乘，一站式领略江西、福建、浙江、江苏的自然奇观、人文古迹、民俗风情与特色美食。
+
+国铁太原局山西铁路文化旅游有限公司工作人员刘洋介绍，列车重点面向银发游客完善适老化设施，优化标识提示、加固卧铺护栏、增设防滑扶手与紧急呼叫装置，保障游客出行安全。
+
+为高标准开好首趟旅游车，进一步提升旅行体验，列车上设置医疗点，专门配备随车专业医护人员，可随时为游客提供健康咨询、身体检测等应急服务。
+
+同时安排导游陪同，不仅为游客讲解沿途历史文化和风土人情，还在车上设置休闲茶吧，组织各种文娱活动，让游客在饱览美景的同时，尽享轻松愉悦的旅途时光。
+
+后续，国铁太原局将以此次旅游列车改造升级为契机，持续创新“普惠型”运营模式，深挖“铁路+文旅”融合潜力，打造更多“一线直达、一铺到底”精品线路，不断丰富大众旅游选择，助力文旅产业与民生福祉同步提升。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:59 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 00:03 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 00:04 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 00:00 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 00:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 00:10 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 00:20 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 00:11 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 00:19 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 00:23 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 00:18 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 00:05 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 00:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 00:11 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 00:05 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 00:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 00:11 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 00:05 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 00:04 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 00:23 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 00:23 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 00:18 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 00:18 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/481640.shtml)
-- 2026-06-29 23:58 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/71970476.shtml)
-- 2026-06-30 00:06 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/762380.shtml)
-- 2026-06-30 00:06 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/70803.shtml)
-- 2026-06-30 00:17 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/054773813.shtml)
-- 2026-06-30 00:08 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/8110544699.shtml)
-- 2026-06-30 00:07 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/22141141.shtml)
-- 2026-06-30 00:04 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/643148.shtml)
-- 2026-06-30 00:14 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/272590478.shtml)
-- 2026-06-30 00:19 - [小龙女配音去世 李若彤发文悼念](https://www.share.kurohicncr.top/Article/details/1350337558.shtml)
-- 2026-06-30 00:12 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/991622192150.shtml)
-- 2026-06-30 00:21 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/46491165.shtml)
-- 2026-06-30 00:10 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/72687230639.shtml)
-- 2026-06-29 23:54 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/9629196858.shtml)
-- 2026-06-30 00:07 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/7287711.shtml)
+- 2026-06-30 00:29 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/93959154573.shtml)
+- 2026-06-30 00:15 - [毒液2](http://www.share.kurohicncr.top/Article/details/17798906215.shtml)
+- 2026-06-30 00:08 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/19976.shtml)
+- 2026-06-30 00:14 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/4808827231.shtml)
+- 2026-06-30 00:03 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/95510439.shtml)
+- 2026-06-30 00:01 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/184178.shtml)
+- 2026-06-30 00:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/28279830829.shtml)
+- 2026-06-30 00:18 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/67864968.shtml)
+- 2026-06-30 00:12 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/193867.shtml)
+- 2026-06-30 00:07 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/36016775010.shtml)
+- 2026-06-30 00:16 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/1788238.shtml)
+- 2026-06-30 00:10 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/0199377.shtml)
+- 2026-06-30 00:25 - [这一刀 会很帅](http://www.share.minike.top/Article/details/801977.shtml)
+- 2026-06-30 00:04 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/843050842410.shtml)
+- 2026-06-30 00:08 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/04956.shtml)

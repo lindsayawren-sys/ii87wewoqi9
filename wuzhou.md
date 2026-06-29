@@ -1,60 +1,56 @@
-# 习近平同沙特王储兼首相穆罕默德通电话
+# 四年四访，西班牙首相桑切斯高频访华引关注
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-新华社北京4月20日电 4月20日下午，国家主席习近平应约同沙特王储兼首相穆罕默德通电话。 习近平指出，中方高度重视发展对沙关系，始终坚持相互尊重、平等相待、互利共赢原则。今年是两国全面战略伙伴关系建立10周年，中方愿同沙方以此为契机，深化战略互信，加强务实合作，扩大各层级交往，持续拓展中沙关系的广度和深度，为中国同阿拉伯国家关系发展发挥示范作用。 针对当前中东海湾地区局势，习
+中新社北京4月10日电 (记者 李京泽)西班牙首相桑切斯将于4月11日至15日应邀对中国进行正式访问。这将是他四年内第四次访华，也是继去年西班牙国王、首相访华以来中国同西班牙在较短时间内又一次重要高层交往。北京外国语大学区域与全球治理高等研究院教授崔洪建表示，桑切斯频频访华展现出西班牙对华政策的高度连续性与稳定性，也反映出双方推动高层互动向机制化、长效化发展的战略意图。 从20
 
 ## 正文
 
-新华社北京4月20日电 4月20日下午，国家主席习近平应约同沙特王储兼首相穆罕默德通电话。
+中新社北京4月10日电 (记者 李京泽)西班牙首相桑切斯将于4月11日至15日应邀对中国进行正式访问。
 
-习近平指出，中方高度重视发展对沙关系，始终坚持相互尊重、平等相待、互利共赢原则。
+这将是他四年内第四次访华，也是继去年西班牙国王、首相访华以来中国同西班牙在较短时间内又一次重要高层交往。
 
-今年是两国全面战略伙伴关系建立10周年，中方愿同沙方以此为契机，深化战略互信，加强务实合作，扩大各层级交往，持续拓展中沙关系的广度和深度，为中国同阿拉伯国家关系发展发挥示范作用。
+北京外国语大学区域与全球治理高等研究院教授崔洪建表示，桑切斯频频访华展现出西班牙对华政策的高度连续性与稳定性，也反映出双方推动高层互动向机制化、长效化发展的战略意图。
 
-针对当前中东海湾地区局势，习近平强调，中方主张立即、全面停火止战，支持一切有利于恢复和平的努力，坚持通过政治外交途径化解争端。
+从2023年在建交50周年之际推动双边关系进一步发展，到2024年签署绿色发展等领域多项合作协议，再到2025年双方敲定加强全面战略伙伴关系的行动计划，桑切斯前三次访华均着眼长远，促进两国关系不断丰富内涵。
 
-霍尔木兹海峡应该保持正常通行，这符合地区国家和国际社会共同利益。
+复旦大学欧洲问题研究中心主任丁纯说，桑切斯此访延续中西高层密切交往势头，将为中西全面战略伙伴关系发展注入新动能。
 
-中方支持地区国家构建睦邻、发展、安全、合作的共同家园，把前途命运掌握在自己手中，促进地区长治久安。
+据外媒透露，桑切斯将率商界代表随行，计划与汽车、能源和电信等行业的企业代表举行会晤并将访问中国欧盟商会。
 
-穆罕默德表示，沙中关系是战略性的，发展对华关系对沙特至关重要。
+有评论称，相关安排意在进一步深化中西经贸往来，体现中西合作务实导向。
 
-当前中东战事损害海湾国家安全，严重影响世界能源供应和经济运行。
+近年来，中西经贸关系呈现较强韧性，新能源和绿色产业合作成为亮点。
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 00:10 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 00:21 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 00:01 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 00:01 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 00:13 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 00:10 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 00:17 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 23:59 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 00:22 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 00:22 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 00:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 23:58 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 23:54 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 00:11 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 00:20 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 00:24 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 00:17 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 00:24 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 00:20 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 00:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 00:12 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 00:19 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 00:22 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:15 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/856707238.shtml)
-- 2026-06-30 00:18 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/49885167.shtml)
-- 2026-06-30 00:07 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/04357.shtml)
-- 2026-06-30 00:20 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/99774.shtml)
-- 2026-06-30 00:01 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/810562650757.shtml)
-- 2026-06-30 00:10 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/579903.shtml)
-- 2026-06-29 23:58 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/6783548345.shtml)
-- 2026-06-30 00:07 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/513124.shtml)
-- 2026-06-30 00:22 - [女心理师](https://www.share.minike.top/Article/details/838807441739.shtml)
-- 2026-06-29 23:59 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/62203152318.shtml)
-- 2026-06-30 00:12 - [东方风云榜直播](https://www.blog.minike.top/Article/details/9746103745.shtml)
-- 2026-06-30 00:11 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/62178397.shtml)
-- 2026-06-30 00:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/623461.shtml)
-- 2026-06-30 00:07 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/7295195.shtml)
-- 2026-06-30 00:10 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/36946843.shtml)
+- 2026-06-30 00:10 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/02980.shtml)
+- 2026-06-30 00:18 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/387741.shtml)
+- 2026-06-30 00:07 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/32296185907.shtml)
+- 2026-06-30 00:28 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/0509318215.shtml)
+- 2026-06-30 00:11 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/2829092.shtml)
+- 2026-06-30 00:26 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/90590882436.shtml)
+- 2026-06-30 00:15 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/38336592635.shtml)
+- 2026-06-30 00:21 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/34387283.shtml)
+- 2026-06-30 00:20 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/74630944.shtml)
+- 2026-06-30 00:16 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/453882873513.shtml)
+- 2026-06-30 00:18 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/5522295592.shtml)
+- 2026-06-30 00:00 - [月亮](http://www.blog.minike.top/Article/details/503968.shtml)
+- 2026-06-30 00:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/13967711371.shtml)
+- 2026-06-30 00:00 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/4670307151.shtml)
+- 2026-06-30 00:10 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/02735771.shtml)

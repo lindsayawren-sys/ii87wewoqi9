@@ -1,57 +1,56 @@
-# 追觅俞浩：只要研究5个规律就可以管1000家公司
+# 欧洲央行支持欧盟集中金融监管的计划
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：晚点LatePost 原标题：对话追觅俞浩：我的真实世界 追觅创始人 俞浩 从百万亿公司到为人类探索边界，俞浩想讲一套什么逻辑？ 文丨小晚 管艺雯 追觅创始人俞浩，将会是中国商业史上最具争议的创业者之一。 这不仅因为他在短时间内闯入诸多赛道，从扫地机、吸尘器到汽车、手机、大家电，还因为他对创新、管理、
+欧洲央行周五对欧盟委员会通过联合监管以更好整合欧盟资本市场的计划表示支持，但同时提醒称，此举需配备充足的人员与资金保障。 推动金融市场参与者在欧盟层面而非成员国层面接受监管，是由法德牵头的一项举措的一部分。该举措旨在提升欧盟的竞争力，当前欧盟正面临经济增长乏力以及来自中美激烈竞争的困境。 欧洲央行的支持将向市场以及爱尔兰、卢森堡等部分对该计划态度消极的欧盟小国政府释放信心信号。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+欧洲央行周五对欧盟委员会通过联合监管以更好整合欧盟资本市场的计划表示支持，但同时提醒称，此举需配备充足的人员与资金保障。
 
-来源：晚点LatePost 原标题：对话追觅俞浩：我的真实世界 追觅创始人 俞浩 从百万亿公司到为人类探索边界，俞浩想讲一套什么逻辑？
+推动金融市场参与者在欧盟层面而非成员国层面接受监管，是由法德牵头的一项举措的一部分。
 
-文丨小晚 管艺雯 追觅创始人俞浩，将会是中国商业史上最具争议的创业者之一。
+该举措旨在提升欧盟的竞争力，当前欧盟正面临经济增长乏力以及来自中美激烈竞争的困境。
 
-这不仅因为他在短时间内闯入诸多赛道，从扫地机、吸尘器到汽车、手机、大家电，还因为他对创新、管理、商业的种种理解，几乎都站在主流认知的反面。
+欧洲央行的支持将向市场以及爱尔兰、卢森堡等部分对该计划态度消极的欧盟小国政府释放信心信号。
 
-1987 年出生于江苏南通的俞浩，因物理竞赛获奖被保送至清华大学航空航天系。
+欧洲央行在一份意见文件中表示，完全支持在欧盟层面加强对具有系统重要性的跨境金融市场参与者的监管，其中包括主要交易场所、中央对手方、中央证券存管机构以及加密资产服务提供商。
 
-他早年想做物理学家，研究生阶段试着研究湍流问题，很快放弃，转向工程与制造。
+欧盟委员会已提议将此类监管权限从各国监管机构移交至位于巴黎的欧洲证券和市场管理局（ESMA）。
 
-2017 年他创办追觅，从高速数字马达做起，曾是小米生态链最边缘的代工厂，自建品牌、出海、高端化。
+欧洲央行在这份欧盟立法程序要求出具、但对立法者无约束力的意见中称：“欧洲央行完全支持委员会的相关提案，这些提案是朝着深化欧盟内部资本市场与金融市场监管一体化迈出的雄心勃勃的一步。
 
-俞浩说，追觅成立以来，每年都保持 100% 的收入增速。
+” 欧洲央行表示，应在欧洲证券和市场管理局董事会中为其设立一个无表决权席位，且不仅在监管决策方面，在技术标准、指引和建议制定上也应采纳其专业意见。
 
 ## 相关推荐
 
-- 2026-06-30 00:10 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 00:15 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 00:02 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 00:10 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 00:20 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 00:13 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 00:10 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 00:08 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 00:09 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 00:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 00:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 00:07 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 00:04 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 00:12 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 00:14 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 00:28 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 00:22 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 00:24 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 00:10 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 00:22 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 00:13 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:15 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/525755069.shtml)
-- 2026-06-29 23:54 - [爱很美味](http://www.blog.minike.top/Article/details/43477731.shtml)
-- 2026-06-30 00:02 - [起风了](https://www.share.kurohicncr.top/Article/details/3445386837.shtml)
-- 2026-06-30 00:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/4551431.shtml)
-- 2026-06-30 00:04 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/887386429.shtml)
-- 2026-06-30 00:21 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/2116559.shtml)
-- 2026-06-30 00:17 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/01733986777.shtml)
-- 2026-06-30 00:19 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/62734611.shtml)
-- 2026-06-30 00:21 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/39199069.shtml)
-- 2026-06-30 00:02 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/4168403.shtml)
-- 2026-06-30 00:11 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/88056284.shtml)
-- 2026-06-30 00:00 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/46849298.shtml)
-- 2026-06-30 00:02 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/6168965035.shtml)
-- 2026-06-30 00:16 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/99223134.shtml)
-- 2026-06-30 00:17 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/78015.shtml)
+- 2026-06-30 00:24 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/87201.shtml)
+- 2026-06-30 00:00 - [女心理师](https://www.blog.kurohicncr.top/Article/details/09395.shtml)
+- 2026-06-30 00:12 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/9667728935.shtml)
+- 2026-06-30 00:09 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/911932457.shtml)
+- 2026-06-30 00:11 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/64464225.shtml)
+- 2026-06-30 00:25 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/40712723.shtml)
+- 2026-06-30 00:07 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/3952270026.shtml)
+- 2026-06-30 00:15 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/85082.shtml)
+- 2026-06-30 00:10 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/446388.shtml)
+- 2026-06-30 00:10 - [毒液2](https://www.share.kurohicncr.top/Article/details/23680870.shtml)
+- 2026-06-30 00:03 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/21862634032.shtml)
+- 2026-06-30 00:27 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.kurohicncr.top/Article/details/108108.shtml)
+- 2026-06-30 00:22 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/504846479266.shtml)
+- 2026-06-30 00:13 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/392438.shtml)
+- 2026-06-30 00:07 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/58221589.shtml)

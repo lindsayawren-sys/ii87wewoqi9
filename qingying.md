@@ -1,55 +1,53 @@
-# 中国马术协会第十一届会员代表大会在京召开
+# 美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中新网4月21日电 据中国马术协会网站消息，中国马术协会第十一届会员代表大会及第一次理事会于2026年4月21日在国家体育总局自行车击剑运动管理中心顺利召开。 大会审议通过了《第十届理事会财务报告》《第十届理事会工作报告》以及新修订的《中国马术协会章程》，选举产生了第十一届理事会成员。姚迎春当选第十一届中国马术协会主席，刘诗来、张莹君当选副主席，韩继玲当选秘书长。 国家体育总局
+美国3月预算赤字高于经济学家的预期。 根据美国财政部的数据，3月预算赤字为1641亿美元（经济学家预期为赤字1533亿美元）。 8位经济学家的预测区间为赤字2280亿美元至赤字1390亿美元。责任编辑：陈钰嘉
 
 ## 正文
 
-中新网4月21日电 据中国马术协会网站消息，中国马术协会第十一届会员代表大会及第一次理事会于2026年4月21日在国家体育总局自行车击剑运动管理中心顺利召开。
+美国3月预算赤字高于经济学家的预期。
 
-大会审议通过了《第十届理事会财务报告》《第十届理事会工作报告》以及新修订的《中国马术协会章程》，选举产生了第十一届理事会成员。
+根据美国财政部的数据，3月预算赤字为1641亿美元（经济学家预期为赤字1533亿美元）。
 
-姚迎春当选第十一届中国马术协会主席，刘诗来、张莹君当选副主席，韩继玲当选秘书长。
+8位经济学家的预测区间为赤字2280亿美元至赤字1390亿美元。
 
-国家体育总局自行车击剑运动管理中心副主任、党委副书记刘立强宣读理事会候选人名单。
-
-会议传达了国家体育总局关于同意中国马术协会换届的批复意见。
-
-姚迎春代表新一届协会理事会，首先对第十届理事会的工作及全体马术人的努力表示肯定和感谢。
-
-他表示，新一届理事会将锚定体育强国建设发展目标，立足项目发展实际，秉持服务国家战略、服务行业发展、服务会员需求、服务人民健康的宗旨，恪尽职守，守正创新，严于律己，扎实工作，全力推动中国马术事业健康有序可持续发展。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 00:21 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 00:02 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 23:56 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 00:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 00:11 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 00:17 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 00:16 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 23:56 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 23:57 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 00:13 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 00:16 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 00:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 00:09 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 00:05 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 00:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 00:07 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 00:26 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 00:02 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 00:23 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 00:00 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 00:06 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 00:11 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 00:10 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 00:03 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 00:02 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 00:26 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:10 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/7432543.shtml)
-- 2026-06-30 00:07 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/65799.shtml)
-- 2026-06-29 23:55 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/91393465494.shtml)
-- 2026-06-30 00:09 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/46767202.shtml)
-- 2026-06-30 00:12 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/189535245938.shtml)
-- 2026-06-30 00:00 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/027014.shtml)
-- 2026-06-29 23:59 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/57612120106.shtml)
-- 2026-06-30 00:05 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/3408915347.shtml)
-- 2026-06-30 00:02 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/3579620.shtml)
-- 2026-06-30 00:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/02142451.shtml)
-- 2026-06-30 00:04 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/760583333709.shtml)
-- 2026-06-30 00:19 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/073244662.shtml)
-- 2026-06-30 00:13 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/437917064877.shtml)
-- 2026-06-29 23:59 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/75352111.shtml)
-- 2026-06-29 23:57 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/7639253.shtml)
+- 2026-06-30 00:25 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/4308703908.shtml)
+- 2026-06-30 00:01 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/718165.shtml)
+- 2026-06-30 00:09 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/18994.shtml)
+- 2026-06-30 00:09 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/66295092751.shtml)
+- 2026-06-30 00:08 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/55799.shtml)
+- 2026-06-30 00:16 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/402359573513.shtml)
+- 2026-06-30 00:20 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/136009066.shtml)
+- 2026-06-30 00:10 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/688461852994.shtml)
+- 2026-06-30 00:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/09531.shtml)
+- 2026-06-30 00:18 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/65473.shtml)
+- 2026-06-30 00:28 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/53068475.shtml)
+- 2026-06-30 00:05 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/627832502453.shtml)
+- 2026-06-30 00:06 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/0824999341.shtml)
+- 2026-06-30 00:07 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/557956.shtml)
+- 2026-06-30 00:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/904120499.shtml)

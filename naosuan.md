@@ -1,44 +1,59 @@
-# 中国移动：一季度归母净利润293亿元，同比下降4.20%
+# 中国光谷设立“一院一基金” 加快布局智能传感产业
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-中国移动4月20日公告，2026年第一季度实现营业收入2665亿元，同比增长1%；归属于上市公司股东的净利润293亿元，上年同期归属于上市公司股东的净利润306亿元，同比下降4.20%。
+中新网武汉4月12日电 (卢琪 曾宪雯 叶光辉)光谷智能传感技术创新研究院12日在武汉东湖高新区(又称“中国光谷”)揭牌，光谷智能传感器科创基金同步设立，标志着光谷加快布局智能传感产业。 今年2月，湖北省印发《加快“世界光谷”传感器产业集群融合发展行动方案》，提出支持光谷抢抓“传感器+AI”融合发展的时代风口，以传感器产业的率先突破，推动光电子信息产业由“光芯屏端网”向“感存传
 
 ## 正文
 
-中国移动4月20日公告，2026年第一季度实现营业收入2665亿元，同比增长1%；归属于上市公司股东的净利润293亿元，上年同期归属于上市公司股东的净利润306亿元，同比下降4.20%。
+中新网武汉4月12日电 (卢琪 曾宪雯 叶光辉)光谷智能传感技术创新研究院12日在武汉东湖高新区(又称“中国光谷”)揭牌，光谷智能传感器科创基金同步设立，标志着光谷加快布局智能传感产业。
+
+今年2月，湖北省印发《加快“世界光谷”传感器产业集群融合发展行动方案》，提出支持光谷抢抓“传感器+AI”融合发展的时代风口，以传感器产业的率先突破，推动光电子信息产业由“光芯屏端网”向“感存传算”深度转型、迭代升级。
+
+光谷智能传感技术创新研究院是光谷传感器产业实现突破的重要一环。
+
+该研究院由东湖高新区管委会牵头发起，以华中科技大学为主体依托单位，联合九峰山实验室、光谷实验室及华工科技、高德红外、四方光电等企业共建。
+
+中国工程院院士、华中科技大学校长尤政表示，光谷智能传感技术创新研究院聚焦三大核心任务：攻坚核心技术，加速成果转化，融通产业生态。
+
+目标设定到2030年，推动光谷传感器产业规模突破300亿元，撬动千亿级智能终端产业集群，助力湖北打造全球传感器产业重要一极。
+
+据介绍，该研究院聚焦传感器创新设计、特色工艺、先进封测及系统级应用全流程，建设智能传感器设计、工艺验证、测试三大平台，在智能感知微系统、具身智能、智慧医疗、车规传感等六大方向开展技术攻关与成果转化。
+
+当日，多家企业与该研究院签约科研合作。
 
 ## 相关推荐
 
-- 2026-06-29 23:55 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 23:55 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 00:20 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 00:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 00:12 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 23:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 00:07 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 23:55 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 00:13 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 23:55 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 23:59 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 00:23 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 00:06 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 00:14 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 00:26 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 00:14 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 00:00 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 00:19 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 00:21 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 00:19 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 00:10 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 00:12 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 00:10 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 00:01 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 00:07 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:16 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/183359.shtml)
-- 2026-06-30 00:15 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/728679477.shtml)
-- 2026-06-30 00:04 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/045925.shtml)
-- 2026-06-29 23:56 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/5072236.shtml)
-- 2026-06-29 23:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/7473437754.shtml)
-- 2026-06-30 00:19 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/27907588150.shtml)
-- 2026-06-30 00:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/220402.shtml)
-- 2026-06-30 00:08 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/889996.shtml)
-- 2026-06-30 00:04 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/1039309.shtml)
-- 2026-06-30 00:20 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/57611761014.shtml)
-- 2026-06-29 23:54 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/431643.shtml)
-- 2026-06-30 00:21 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/8342144.shtml)
-- 2026-06-30 00:18 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/79911.shtml)
-- 2026-06-29 23:54 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/82670819467.shtml)
-- 2026-06-30 00:09 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/251404621591.shtml)
+- 2026-06-30 00:05 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/268251016.shtml)
+- 2026-06-30 00:25 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/548833466.shtml)
+- 2026-06-30 00:01 - [美股](http://www.blog.minike.top/Article/details/886454.shtml)
+- 2026-06-30 00:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/25387.shtml)
+- 2026-06-30 00:18 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/20161439182.shtml)
+- 2026-06-30 00:26 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/97095760.shtml)
+- 2026-06-30 00:28 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/8992721.shtml)
+- 2026-06-30 00:01 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/738283381887.shtml)
+- 2026-06-30 00:00 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/40950.shtml)
+- 2026-06-30 00:27 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/2520622.shtml)
+- 2026-06-30 00:03 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/595878.shtml)
+- 2026-06-30 00:02 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/329219.shtml)
+- 2026-06-30 00:22 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/2570195136.shtml)
+- 2026-06-30 00:26 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/842639.shtml)
+- 2026-06-30 00:04 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/83897622.shtml)

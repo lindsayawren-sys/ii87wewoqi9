@@ -1,60 +1,56 @@
-# 高德刘振飞：低空经济是空间认知革命，助力交通出行从“二维地面”进入“三维立体”
+# 外国驻港领团和商界中山行 助力更多内地企业依托香港走向国际市场
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-4月19日，“低空异构载具智能控制北京市重点实验室”(以下简称“低空北重”)揭牌仪式暨低空经济高端论坛在清华大学昌平南口国重基地举行。低空北重由清华大学牵头，联合高德软件有限公司、中国航天电子技术研究院等行业优势单位共建，聚焦低空飞行器智能控制、异构载具协同运行、低空安全保障与运行管控等核心方向，标志着北京市在低空经济领域又一高能级创新平台正式落地。 中国工程院院士李骏，中国民
+中新网中山4月10日电 (记者 戴小橦)“时隔25年再来中山，这座城市已从传统商贸地，蜕变为充满活力的高科技产业高地。”4月9日，香港奥地利商会主席鲍拿(Wilhelm Brauner)在参访时直言。 当日，“走进中山，共促伟人故里交流合作”外国驻港领团和商界参访团实地走访广东中山多家聚焦新质生产力的重点企业，参访团成员纷纷点赞中山发展势能。 参访团首站抵达中山翠亨新区规划馆，
 
 ## 正文
 
-4月19日，“低空异构载具智能控制北京市重点实验室”(以下简称“低空北重”)揭牌仪式暨低空经济高端论坛在清华大学昌平南口国重基地举行。
+中新网中山4月10日电 (记者 戴小橦)“时隔25年再来中山，这座城市已从传统商贸地，蜕变为充满活力的高科技产业高地。
 
-低空北重由清华大学牵头，联合高德软件有限公司、中国航天电子技术研究院等行业优势单位共建，聚焦低空飞行器智能控制、异构载具协同运行、低空安全保障与运行管控等核心方向，标志着北京市在低空经济领域又一高能级创新平台正式落地。
+”4月9日，香港奥地利商会主席鲍拿(Wilhelm Brauner)在参访时直言。
 
-中国工程院院士李骏，中国民航局空管局原局长车进军，中国民航局第二研究所所长刘卫东，国家邮政局政策法规司原一级巡视员、副司长靳兵，工信部装备工业司原副司长杨拴昌，航天九院院长姜梁，未来科学城管委会央企服务处处长郭宁，北京清华前沿交叉创新研究院院长田煜，清华大学车辆与运载学院院长王建强，北京市科委中关村管委会研究中心副主任李秋玮，高德副总裁董振宁，中国科学院地理科学与资源研究所研究员廖小罕，中国商飞北研中心总师杨志刚等出席活动。
+当日，“走进中山，共促伟人故里交流合作”外国驻港领团和商界参访团实地走访广东中山多家聚焦新质生产力的重点企业，参访团成员纷纷点赞中山发展势能。
 
-低空北重主任、欧洲科学院院士曲小波详细介绍了实验室的建设思路与发展实施计划。
+参访团首站抵达中山翠亨新区规划馆，这片珠江口东西两岸融合发展的区域，凭借深中通道(深圳至中山跨江通道)带来的区位优势，以及前瞻性的产业规划，获得参访团成员的认可。
 
-他表示，低空北重将依托清华大学在人才培养与基础理论研究方面的优势，结合高德地图的数据资源与示范应用场景，并与中国航天电子技术研究院在载具技术领域开展联合共建，聚焦低空交通面临的核心挑战，构建“单机建模—环境交互—群体管控”的完整研究链条，打造可扩展的低空异构载具智能控制体系，牵头承担国家重大低空飞行控制技术任务，深入开展关键核心技术攻关。
+多位参访团成员表示，翠亨新区区位与营商环境优势突出，是外资布局大湾区的优质落脚点。
 
-通过汇聚多方力量、凝聚行业共识、明晰发展路径，低空北重将有力支撑各方在低空经济领域的高质量发展，并积极推进国际合作，以科技创新驱动全球连接。
+在中山小神童创新科技有限公司，智能轮椅、智能爬楼机、具身智能机器人等多款创新产品集中亮相，现场产品演示引得参访团成员纷纷拿出手机拍摄记录。
 
-高德副总裁董振宁作为共建单位代表表示：高德作为低空北重的“数字底座”与“场景验证平台”，依托前沿的空间智能技术与海量时空大数据，为低空载具的算法迭代与复杂环境仿真打造坚实的数字底座。
+鲍拿表示，在欧洲老龄化趋势下，这类智能康养设备市场潜力巨大，后续将推动商会企业与中山的企业对接，拓展智能制造、康养科技领域的合作。
 
-高德将与清华大学、航天九院在低空经济基础设施共建、行业平台共享、技术成果转化应用等方面开展深度协同，共同推动低空经济生态建设。
+走进中山康方生物医药有限公司(简称“康方生物”)，参访团一行详细了解中国创新药在肿瘤治疗领域取得的突破，这家掌握生物医药核心自主知识产权的企业，给参访团留下深刻印象。
 
 ## 相关推荐
 
-- 2026-06-30 00:21 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 00:02 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 00:00 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 00:09 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 00:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 00:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 00:01 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 00:07 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 00:15 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 00:04 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 00:05 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 23:58 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 23:55 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 00:13 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 00:09 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 00:08 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 00:03 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 00:14 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 00:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 00:15 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 00:23 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 00:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 00:05 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 00:29 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/990206556.shtml)
-- 2026-06-30 00:08 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/7423415.shtml)
-- 2026-06-29 23:56 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/52090.shtml)
-- 2026-06-30 00:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/26053.shtml)
-- 2026-06-30 00:18 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/7848708524.shtml)
-- 2026-06-30 00:07 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/950353.shtml)
-- 2026-06-30 00:11 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/676774.shtml)
-- 2026-06-30 00:02 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/894208.shtml)
-- 2026-06-30 00:16 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/7142657.shtml)
-- 2026-06-30 00:11 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/39841553985.shtml)
-- 2026-06-30 00:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/19652.shtml)
-- 2026-06-30 00:03 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/3224099550.shtml)
-- 2026-06-30 00:22 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/06831377686.shtml)
-- 2026-06-29 23:56 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/279433843401.shtml)
-- 2026-06-29 23:54 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/89561210933.shtml)
+- 2026-06-30 00:13 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/61982.shtml)
+- 2026-06-30 00:09 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/96358.shtml)
+- 2026-06-30 00:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/544506835335.shtml)
+- 2026-06-30 00:26 - [沙丘](https://www.share.minike.top/Article/details/89739796551.shtml)
+- 2026-06-30 00:25 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/17931415.shtml)
+- 2026-06-30 00:25 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/12975.shtml)
+- 2026-06-30 00:11 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/45410991057.shtml)
+- 2026-06-30 00:16 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/235065.shtml)
+- 2026-06-30 00:11 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/325704346.shtml)
+- 2026-06-30 00:08 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/17039.shtml)
+- 2026-06-30 00:08 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/3535906531.shtml)
+- 2026-06-30 00:06 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/493456.shtml)
+- 2026-06-30 00:17 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/40192.shtml)
+- 2026-06-30 00:11 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/20146130812.shtml)
+- 2026-06-30 00:12 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/524149431.shtml)

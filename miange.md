@@ -1,57 +1,57 @@
-# 法治护航 共沐书香——写在第一个“全民阅读活动周”到来之际
+# 一季度净利大增，中信证券强势领涨8%，顶流券商ETF华宝（512000）猛攻逾4%，基金经理最新解读
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-春日正是读书时。 今年是《全民阅读促进条例》(以下简称《条例》)施行的第一年，也是国务院批复设立“全民阅读活动周”后的第一年。 4月20日至22日，第五届全民阅读大会在江西南昌市举办，“全民阅读活动周”同步启动。 习近平总书记高度重视推动全民阅读，建设书香社会，多次阐明阅读的重要性—— “要提倡多读书，建设书香社会，不断提升人民思想境界、增强人民精神力量，中华民族的精神世界就能
+4月9日，券商板块开盘走强，顶流券商ETF（512000）场内价格现涨4.67%。刚刚披露一季度业绩的中信证券高调领涨逾8%，广发证券、华泰证券、东方财富涨超5%。 消息面上，中信证券近日发布一季度业绩快报，单季实现营业收入231.55亿元，同比增长40.91%；归属于上市公司股东的净利润为102.16亿元，同比增长54.60%。 券商ETF（512000）基金经理丰晨成最新观
 
 ## 正文
 
-春日正是读书时。
+4月9日，券商板块开盘走强，顶流券商ETF（512000）场内价格现涨4.67%。
 
-今年是《全民阅读促进条例》(以下简称《条例》)施行的第一年，也是国务院批复设立“全民阅读活动周”后的第一年。
+刚刚披露一季度业绩的中信证券高调领涨逾8%，广发证券、华泰证券、东方财富涨超5%。
 
-4月20日至22日，第五届全民阅读大会在江西南昌市举办，“全民阅读活动周”同步启动。
+消息面上，中信证券近日发布一季度业绩快报，单季实现营业收入231.55亿元，同比增长40.91%；归属于上市公司股东的净利润为102.16亿元，同比增长54.60%。
 
-习近平总书记高度重视推动全民阅读，建设书香社会，多次阐明阅读的重要性—— “要提倡多读书，建设书香社会，不断提升人民思想境界、增强人民精神力量，中华民族的精神世界就能更加厚重深邃。
+券商ETF（512000）基金经理丰晨成最新观点指出，尽管海外地缘冲突带来短期扰动，但3月新开户高位运行，且板块估值处于历史洼地，关注券商基本面持续改善与股价持续背离过程中的估值快速修复机会： 1、估值底+高增长共振。
 
-” “共产党人要把读马克思主义经典、悟马克思主义原理当作一种生活习惯、当作一种精神追求，用经典涵养正气、淬炼思想、升华境界、指导实践。
+截至2025年4月3日，25家已披露年报的综合性券商数据显示，2025年整体收入同比增长32%，净利润同比增长46%，基本面持续景气。
 
-” “哪怕一天挤出半小时，即使读几页书，只要坚持下去，必定会积少成多、积沙成塔，积跬步以至千里。
+券商全业务线均实现改善：经纪业务高增，股权投行回暖：经纪/投行/两融利息收入yoy+44%/+38%/+21%，信用资产结构改善：股票质押规模占比降至7.6%。
 
-” ………… 习近平总书记的谆谆嘱托，化作全民阅读的生动实践。
+投资业务量价齐升：投资收益yoy+25%，行业OCI投资类资产规模yoy+61%。
 
-在习近平新时代中国特色社会主义思想特别是习近平文化思想指引下，全民阅读深入推进，中华大地共沐书香。
+尤其在2024年四季度的高基数背景下，2025年四季度单季度主营收入同比增长4%，净利润同比增长10%，体现出经营业绩再上一台阶。
 
 ## 相关推荐
 
-- 2026-06-29 23:59 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 00:22 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 00:11 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 00:00 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 23:56 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 00:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 00:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 00:21 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 00:07 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 00:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 00:23 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 00:23 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 00:25 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 00:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 00:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 00:23 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 00:28 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 00:26 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 00:01 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 00:24 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 00:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 00:06 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:57 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/7134537602.shtml)
-- 2026-06-29 23:57 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/3640275836.shtml)
-- 2026-06-30 00:22 - [东方风云榜直播](http://www.blog.minike.top/Article/details/2582876.shtml)
-- 2026-06-30 00:02 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/735448148477.shtml)
-- 2026-06-30 00:16 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/5675135406.shtml)
-- 2026-06-30 00:02 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/21685961690.shtml)
-- 2026-06-30 00:09 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/26332.shtml)
-- 2026-06-30 00:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/8743289156.shtml)
-- 2026-06-30 00:11 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/47101118.shtml)
-- 2026-06-30 00:08 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/954601.shtml)
-- 2026-06-30 00:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/161703380995.shtml)
-- 2026-06-30 00:07 - [天道](https://www.share.minike.top/Article/details/166510202574.shtml)
-- 2026-06-29 23:59 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/10537453929.shtml)
-- 2026-06-30 00:00 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/3432356743.shtml)
-- 2026-06-30 00:20 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/256076742943.shtml)
+- 2026-06-30 00:20 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/00731.shtml)
+- 2026-06-30 00:13 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/364855750832.shtml)
+- 2026-06-30 00:23 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/318291701.shtml)
+- 2026-06-30 00:22 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/719203499.shtml)
+- 2026-06-30 00:29 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/18004.shtml)
+- 2026-06-30 00:18 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/50309.shtml)
+- 2026-06-30 00:07 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/71293728.shtml)
+- 2026-06-30 00:29 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/68326.shtml)
+- 2026-06-30 00:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/079273023442.shtml)
+- 2026-06-30 00:16 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/99960120452.shtml)
+- 2026-06-30 00:22 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/84516920859.shtml)
+- 2026-06-30 00:00 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/96120.shtml)
+- 2026-06-30 00:05 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/52968667370.shtml)
+- 2026-06-30 00:16 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/327045926618.shtml)
+- 2026-06-30 00:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/64723316445.shtml)

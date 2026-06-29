@@ -1,56 +1,54 @@
-# 涉嫌信披违规被立案，*ST太和亟需采取一系列整改措施
+# 48小时“脑力马拉松”在沪落幕 200名科创者跨界交锋
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经评论员 杜宇 4月20日晚间，*ST太和（维权）（SH605081）发布公告称，收到中国证监会《立案告知书》。《立案告知书》显示，中国证监会决定对*ST太和立案，原因是*ST太和涉嫌信息披露违法违规。 另外，上海证监局近日下发给公司的《行政监管措施决定书》显示，经查，*ST太和在1月30日披露的《2025年度业绩预亏暨风险提
+发布时间：2026年04月11日 17:10 来源：中国新闻网 4月10日，一场持续48小时的“脑力马拉松”在上海张江科学会堂落下帷幕。没有疲惫与困意，200名来自世界各地的科创者，带着他们的创意产品，争先恐后地招呼着每一个路过的评委和观众。 黑客松，又名黑客马拉松，是一种“硬核”的科技比赛形式：几百名“脑力运动员”同处一个封闭空间中，在规定时间内用代码创作一个产品Demo，并
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经评论员 杜宇 4月20日晚间，*ST太和（维权）（SH605081）发布公告称，收到中国证监会《立案告知书》。
+发布时间：2026年04月11日 17:10 来源：中国新闻网 4月10日，一场持续48小时的“脑力马拉松”在上海张江科学会堂落下帷幕。
 
-《立案告知书》显示，中国证监会决定对*ST太和立案，原因是*ST太和涉嫌信息披露违法违规。
+没有疲惫与困意，200名来自世界各地的科创者，带着他们的创意产品，争先恐后地招呼着每一个路过的评委和观众。
 
-另外，上海证监局近日下发给公司的《行政监管措施决定书》显示，经查，*ST太和在1月30日披露的《2025年度业绩预亏暨风险提示公告》中，预计其2025年年度营业收入为3.80亿元至4亿元，扣除与主业无关的业务收入和不具备商业实质的收入后营业收入为3.78亿元至3.98亿元。
+黑客松，又名黑客马拉松，是一种“硬核”的科技比赛形式：几百名“脑力运动员”同处一个封闭空间中，在规定时间内用代码创作一个产品Demo，并进行路演和评选。
 
-3月20日，*ST太和披露的《关于2025年度业绩预告相关事项监管工作函的回复公告》列示，公司2025年第四季度新增工程项目15个，累计确认收入达2.1亿元，并载明上述项目不存在提前确认收入或不符合收入确认的情形。
+从“不会失忆的学习搭子”到“AI模拟剪发效果”，再到为人形机器人设计超萌面容……这场创意集市般的交锋，吸引了多国选手专程赶来。
 
-经上海证监局核查，*ST太和存在通过虚构工程项目、提前确认进度等方式确认工程项目收入的情况，导致《关于2025年度业绩预告相关事项监管工作函的回复公告》存在虚假记载，《2025年度业绩预亏暨风险提示公告》披露的预计实现营业收入金额不实。
-
-在监管利剑高悬的背景下，公司三名独立董事陈佳俊、甘韶球、陈伟海已联合发布《督促函》，就信息披露违规风险、会计差错更正、内部控制建设等五大事项发出督促。
-
-笔者认为，*ST太和亟需采取一系列整改措施。
-
-首先，公司必须全力配合证监会和上海证监局的调查工作，如实提供相关财务资料和项目凭证，确保调查过程公开透明，应及时进行会计差错更正，并依法承担相应责任。
+李姝徵 狄权 上海报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 00:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 00:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 23:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 00:01 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 23:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 00:20 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 00:01 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 00:14 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 00:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 00:13 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 00:20 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 00:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 00:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 00:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 00:23 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 00:06 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 00:01 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 00:21 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 00:21 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 00:24 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 00:27 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 00:05 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 00:23 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 00:26 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:22 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/9573906177.shtml)
-- 2026-06-30 00:22 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/589600.shtml)
-- 2026-06-30 00:11 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/985812505803.shtml)
-- 2026-06-29 23:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/4166063888.shtml)
-- 2026-06-30 00:09 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/478339582736.shtml)
-- 2026-06-30 00:13 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/015596.shtml)
-- 2026-06-30 00:07 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/64810417.shtml)
-- 2026-06-30 00:05 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/9121838.shtml)
-- 2026-06-30 00:18 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/503786441.shtml)
-- 2026-06-30 00:06 - [田曦薇没招了](http://www.blog.minike.top/Article/details/43798067.shtml)
-- 2026-06-30 00:09 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/952392.shtml)
-- 2026-06-30 00:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/519079895706.shtml)
-- 2026-06-30 00:07 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/16074.shtml)
-- 2026-06-30 00:01 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/57735066425.shtml)
-- 2026-06-30 00:18 - [第一炉香](https://www.share.minike.top/Article/details/58711486492.shtml)
+- 2026-06-30 00:28 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/6190517.shtml)
+- 2026-06-30 00:21 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/9307030449.shtml)
+- 2026-06-30 00:10 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/48380.shtml)
+- 2026-06-30 00:13 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/8610677113.shtml)
+- 2026-06-30 00:00 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/133095285858.shtml)
+- 2026-06-30 00:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/987857.shtml)
+- 2026-06-30 00:20 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/185978.shtml)
+- 2026-06-30 00:28 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/0121892.shtml)
+- 2026-06-30 00:27 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/128634242.shtml)
+- 2026-06-30 00:28 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/67794966.shtml)
+- 2026-06-30 00:12 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/359030655.shtml)
+- 2026-06-30 00:14 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/22106697.shtml)
+- 2026-06-30 00:19 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/02347739416.shtml)
+- 2026-06-30 00:22 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/5928720976.shtml)
+- 2026-06-30 00:12 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/58426392.shtml)

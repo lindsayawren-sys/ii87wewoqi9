@@ -1,60 +1,60 @@
-# 特斯拉就2018年佛罗里达州致命车祸达成和解
+# 美籍华人艺术家刘墉在中国国家博物馆举办作品展
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-法庭记录显示，特斯拉已就佛罗里达州的一起诉讼达成和解，该诉讼源于2018年一起高速车祸，事故导致一名乘坐特斯拉汽车的青少年丧生。 这起诉讼原定于当地时间周一在佛罗里达州劳德代尔堡州法院开庭审理，原告是这起事故中遇难者的遗产管理人。 当地时间周日，法院下令将特斯拉从被告名单中移除，诉讼中只剩下遇难者的遗产管理人。原告律师上周在一份法庭文件中表示，针对特斯拉的诉讼已经达成和解。 法
+中新社北京4月10日电 (记者 应妮)“岁月如诗入画梦——刘墉艺术作品展”10日在中国国家博物馆开幕，展出美籍华人艺术家刘墉不同时期创作的绘画作品89件(组)，涵盖山水、花鸟、风俗等多元题材，全面呈现其艺术创作的演变轨迹与风格特质。 刘墉1949年出生于台北市，上世纪七十年代末定居美国纽约，兼具艺术家、作家等多重身份。他早年钻研中华传统绘画，练就了扎实的传统艺术功底，之后汲取西
 
 ## 正文
 
-法庭记录显示，特斯拉已就佛罗里达州的一起诉讼达成和解，该诉讼源于2018年一起高速车祸，事故导致一名乘坐特斯拉汽车的青少年丧生。
+中新社北京4月10日电 (记者 应妮)“岁月如诗入画梦——刘墉艺术作品展”10日在中国国家博物馆开幕，展出美籍华人艺术家刘墉不同时期创作的绘画作品89件(组)，涵盖山水、花鸟、风俗等多元题材，全面呈现其艺术创作的演变轨迹与风格特质。
 
-这起诉讼原定于当地时间周一在佛罗里达州劳德代尔堡州法院开庭审理，原告是这起事故中遇难者的遗产管理人。
+刘墉1949年出生于台北市，上世纪七十年代末定居美国纽约，兼具艺术家、作家等多重身份。
 
-当地时间周日，法院下令将特斯拉从被告名单中移除，诉讼中只剩下遇难者的遗产管理人。
+他早年钻研中华传统绘画，练就了扎实的传统艺术功底，之后汲取西方绘画的造型逻辑与创作理念，贯通中西方艺术气韵，形成了别具一格的美学风格。
 
-原告律师上周在一份法庭文件中表示，针对特斯拉的诉讼已经达成和解。
+展览覆盖了刘墉16岁至76岁间创作的作品，包括山水、现代水墨、花鸟、写生等多种题材，时间跨度大、题材全面，其中很多作品此前从未发表或展出过。
 
-法庭记录显示，遇难者家属（其遗产管理人一直在为这起诉讼奔走）称，一名特斯拉技术人员在他们不知情的情况下禁用了限速软件，该软件原本限制车辆的最高时速不得超过85英里/小时（137公里/小时）。
+该展首次完整勾勒其近十年的探索轨迹，“我想做回顾展的最大好处，就是感觉自己又活了一次，看完之后再做检讨。
 
-特斯拉否认存在不当行为，并坚称事故是由驾驶者“鲁莽”驾驶造成的，“无论是否开启限速器”。
+” 据了解，刘墉2025年向中国国家博物馆无偿捐赠其收藏的国画作品《云山松瀑图》《绝壑风生图》，以及他自己采用喷染褶皱皴擦法创作的作品《晨曦》《水月》《书卷》《江山》。
 
-驾驶者的律师也否认了原告在诉讼中提出的指控。
+此次展览也现场展出了这四幅充满探索张力与现代气息的大尺幅作品。
 
-诉讼和解的具体条款尚不清楚。
+作为该展策展人，中国国家博物馆副研究馆员黄小娇表示，刘墉的作品兼具东方笔墨意蕴与西方造型张力，不仅是个人艺术探索的结晶，更是海外华人艺术家赓续中华文脉、融汇多元艺术理念的生动注脚。
 
 ## 相关推荐
 
-- 2026-06-30 00:10 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 00:10 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 00:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 00:11 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 00:16 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 00:04 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 00:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 23:57 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 23:56 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 00:12 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 00:09 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 23:56 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 23:58 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 00:00 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 00:24 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 00:22 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 00:25 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 00:08 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 00:08 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 00:07 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 00:16 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 00:27 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 00:29 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 00:02 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 00:12 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 00:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 00:26 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 00:05 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/7987259.shtml)
-- 2026-06-30 00:14 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/72893045828.shtml)
-- 2026-06-29 23:54 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/87230.shtml)
-- 2026-06-30 00:02 - [千与千寻](https://www.share.minike.top/Article/details/959573314038.shtml)
-- 2026-06-30 00:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/182640.shtml)
-- 2026-06-30 00:18 - [流金岁月](https://www.blog.minike.top/Article/details/820605.shtml)
-- 2026-06-29 23:57 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/30631.shtml)
-- 2026-06-30 00:01 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/015912698.shtml)
-- 2026-06-30 00:07 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/090830995935.shtml)
-- 2026-06-30 00:12 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/142907376183.shtml)
-- 2026-06-30 00:00 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/4583401.shtml)
-- 2026-06-30 00:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/325600249409.shtml)
-- 2026-06-30 00:21 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/81116.shtml)
-- 2026-06-30 00:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/6527363172.shtml)
-- 2026-06-29 23:54 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/72395607816.shtml)
+- 2026-06-30 00:25 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/9141678.shtml)
+- 2026-06-30 00:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/6929251.shtml)
+- 2026-06-30 00:05 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/6382458847.shtml)
+- 2026-06-30 00:20 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/461664959613.shtml)
+- 2026-06-30 00:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/21342940.shtml)
+- 2026-06-30 00:20 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/4359852.shtml)
+- 2026-06-30 00:14 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/7806221204.shtml)
+- 2026-06-30 00:18 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/34812340.shtml)
+- 2026-06-30 00:19 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/0621604211.shtml)
+- 2026-06-30 00:20 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/2569285.shtml)
+- 2026-06-30 00:22 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/41913.shtml)
+- 2026-06-30 00:16 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/97457804905.shtml)
+- 2026-06-30 00:26 - [急先锋](https://www.blog.minike.top/Article/details/777710232.shtml)
+- 2026-06-30 00:13 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/8169266796.shtml)
+- 2026-06-30 00:12 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/197204392861.shtml)

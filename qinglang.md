@@ -1,56 +1,55 @@
-# 台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变
+# 农村中小银行行政许可新规征求意见！农村商业联合银行被纳入
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 17:43 来源：中国新闻网 台湾民间智库“民主文教基金会”20日公布民调显示，近六成受访者不相信“台海若发生战事，美国会派兵保护台湾”。中国国民党籍民意代表翁晓玲表示，有过半受访民众认为，两岸必须要交流。台湾中流文教基金会董事长周阳山直言，57%的台湾民众认为美军不会来“护台”。新党副主席李胜峰指出，有50%受访者愿意面对统一，这是很大的质变
+北京商报讯（记者 宋亦桐） 4月10日，据金融监管总局官网，为进一步规范农村中小银行机构行政许可工作，金融监管总局修订形成了《农村中小银行机构行政许可事项实施办法（征求意见稿）》（以下简称《办法》），现向社会公开征求意见。 《办法》共8章129条，基本延续原有章节体例，主要是将农村商业联合银行准入政策、金融机构合规管理办法、银行业金融机构董事（理事）和高级管理人员任职资格管理办
 
 ## 正文
 
-发布时间：2026年04月21日 17:43 来源：中国新闻网 台湾民间智库“民主文教基金会”20日公布民调显示，近六成受访者不相信“台海若发生战事，美国会派兵保护台湾”。
+北京商报讯（记者 宋亦桐） 4月10日，据金融监管总局官网，为进一步规范农村中小银行机构行政许可工作，金融监管总局修订形成了《农村中小银行机构行政许可事项实施办法（征求意见稿）》（以下简称《办法》），现向社会公开征求意见。
 
-中国国民党籍民意代表翁晓玲表示，有过半受访民众认为，两岸必须要交流。
+《办法》共8章129条，基本延续原有章节体例，主要是将农村商业联合银行准入政策、金融机构合规管理办法、银行业金融机构董事（理事）和高级管理人员任职资格管理办法等最新监管规定和要求纳入行政许可办法予以明确，对部分行政许可事项的内部审查流程、审批事权划分及有关事项的报告路径等进行调整优化。
 
-台湾中流文教基金会董事长周阳山直言，57%的台湾民众认为美军不会来“护台”。
+《办法》明确，设立农村商业银行、农村商业联合银行，应当符合下列条件：有符合《中华人民共和国公司法》《中华人民共和国商业银行法》和金融监管总局有关规定的章程；农村商业银行应在农村商业银行、农村合作银行、农村信用社等机构基础上组建，农村商业联合银行应在省（自治区）农村信用社联合社基础上组建；注册资本为实缴资本，最低限额为5000万元人民币；有符合任职资格条件的董事、高级管理人员和熟悉银行业务的合格从业人员；有健全的组织机构和管理制度；有与业务经营相适应的营业场所、安全防范措施和其他设施。
 
-新党副主席李胜峰指出，有50%受访者愿意面对统一，这是很大的质变。
+设立农村商业银行、农村商业联合银行，还应符合其他审慎性条件，至少包括：具有良好的公司治理结构；具有清晰的农村金融发展战略和成熟的农村金融商业模式；具有健全的风险管理体系，能有效控制各类风险；具备有效的资本约束与资本补充机制；具有科学有效的人力资源管理制度，拥有高素质的专业人才；建立与业务经营相适应的信息科技治理体系，具有支撑业务经营的必要、合规的管理制度、信息系统与设备设施，保障信息系统安全、持续、稳健运行，保障数据和个人信息安全；最近1年无严重违法违规行为和因内部管理问题导致的重大案件，或者相关违法违规及内部管理问题已整改到位并经金融监管总局或其派出机构认可等。
 
-媒体人张钧凯则认为，郑丽文访问大陆期间，台湾社会对和平的想象变得更宽广。
+董事（理事）和高级管理人员任职资格许可方面，《办法》规定，农村中小银行机构董事（理事）和高级管理人员拟任人应符合具有完全民事行为能力；具有担任相应职务所需的知识、经验及能力；具有良好的守法合规记录和廉洁从业记录；具有良好的品行、声誉等基本条件。
 
-台湾有舆论认为，岛内民意正发生实质性变化。
+拟任人有因危害国家安全、实施恐怖活动、贪污、贿赂、侵占财产、挪用财产、黑社会性质的组织犯罪或者破坏社会主义市场经济秩序，被判处刑罚，或者因犯罪被剥夺政治权利以及有其他故意或重大过失犯罪记录的；有违反社会公德的不良行为，造成恶劣影响的；对曾任职机构违法违规经营活动或重大损失负有直接责任或领导责任，情节严重的；担任或曾任被接管、撤销、宣告破产或吊销营业执照机构的董事（理事）或高级管理人员的，但能够证明本人对曾任职机构被接管、撤销、宣告破产或吊销营业执照不负有个人责任的除外等情形之一的，视为不符合本《办法》相关规定的条件，不得担任农村中小银行机构董事（理事）和高级管理人员。
 
-(策划/制作：燕新台 君言晚 明昭言 中新网“燕新台”工作室出品) 责任编辑：【吉翔】
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 00:21 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 00:13 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 00:02 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 00:22 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 00:12 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 00:14 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 00:01 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 00:00 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 00:21 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 00:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 00:20 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 00:20 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 00:20 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 00:17 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 00:19 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 00:01 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 00:22 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 00:12 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 00:19 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 00:20 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 00:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 00:18 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 00:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/91147049.shtml)
-- 2026-06-30 00:21 - [沙丘](http://www.blog.minike.top/Article/details/209067.shtml)
-- 2026-06-30 00:22 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/27053.shtml)
-- 2026-06-30 00:10 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/149597378712.shtml)
-- 2026-06-30 00:18 - [美以这对亲密盟友要掰了吗](http://www.blog.kurohicncr.top/Article/details/50478902623.shtml)
-- 2026-06-30 00:00 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/39659429102.shtml)
-- 2026-06-29 23:54 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/92115.shtml)
-- 2026-06-30 00:19 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/220679.shtml)
-- 2026-06-30 00:21 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/348551283949.shtml)
-- 2026-06-30 00:20 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/01114.shtml)
-- 2026-06-30 00:00 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/4103910783.shtml)
-- 2026-06-29 23:56 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/30999697.shtml)
-- 2026-06-30 00:08 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/38268090432.shtml)
-- 2026-06-30 00:21 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/19389097.shtml)
-- 2026-06-30 00:14 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/233696956.shtml)
+- 2026-06-30 00:10 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/347314121461.shtml)
+- 2026-06-30 00:14 - [毒液2](http://www.blog.minike.top/Article/details/249415581.shtml)
+- 2026-06-30 00:09 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/08728582664.shtml)
+- 2026-06-30 00:28 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/835279534.shtml)
+- 2026-06-30 00:26 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/1213438.shtml)
+- 2026-06-30 00:12 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/964985.shtml)
+- 2026-06-30 00:07 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/39523273.shtml)
+- 2026-06-30 00:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/117772.shtml)
+- 2026-06-30 00:24 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/200851901.shtml)
+- 2026-06-30 00:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/6370354.shtml)
+- 2026-06-30 00:13 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/68934.shtml)
+- 2026-06-30 00:20 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/4357371837.shtml)
+- 2026-06-30 00:03 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/25723685.shtml)
+- 2026-06-30 00:23 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/219566564.shtml)
+- 2026-06-30 00:29 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/0516576.shtml)

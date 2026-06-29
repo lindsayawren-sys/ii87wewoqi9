@@ -1,57 +1,56 @@
-# 石油和天然气价格飙升 此前美国扣押伊朗船只致局势升级
+# （经济观察）打造“智能经济新形态” 中国物流驶入智慧“快车道”
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-石油和天然气价格飙升，此前美国海军扣押一艘伊朗船只；在这个混乱的周末，伊朗方面向船只开火，并重新封锁了霍尔木兹海峡。 布伦特原油价格一度上涨7.9%，抹去了上周五的大部分跌幅；欧洲天然气价格涨幅高达11%。伊朗周六再次封锁了这条咽喉要道，称美国拦截与伊朗有关的船只违反了将于周二结束的停火协议。 美国总统唐纳德·特朗普表示，一艘悬挂伊朗国旗的货船在驶离霍尔木兹海峡后未理会停船警告
+中新社北京4月10日电 (记者 刘文文)在宁波舟山港梅山港区，一辆无人集卡载着集装箱平稳前行。它的“视觉”来自车身四周的激光雷达、摄像头及北斗定位，“大脑”则是隐藏在云端的智能调度系统。驶近桥吊，集卡分毫不差停入装卸位，吊具锁头精准扣合锁孔。这种场景，正在中国越来越多的物流节点上演。 今年政府工作报告提出“打造智能经济新形态”“促进新一代智能终端和智能体加快推广”。在物流这一传
 
 ## 正文
 
-石油和天然气价格飙升，此前美国海军扣押一艘伊朗船只；在这个混乱的周末，伊朗方面向船只开火，并重新封锁了霍尔木兹海峡。
+中新社北京4月10日电 (记者 刘文文)在宁波舟山港梅山港区，一辆无人集卡载着集装箱平稳前行。
 
-布伦特原油价格一度上涨7.9%，抹去了上周五的大部分跌幅；欧洲天然气价格涨幅高达11%。
+它的“视觉”来自车身四周的激光雷达、摄像头及北斗定位，“大脑”则是隐藏在云端的智能调度系统。
 
-伊朗周六再次封锁了这条咽喉要道，称美国拦截与伊朗有关的船只违反了将于周二结束的停火协议。
+驶近桥吊，集卡分毫不差停入装卸位，吊具锁头精准扣合锁孔。
 
-美国总统唐纳德·特朗普表示，一艘悬挂伊朗国旗的货船在驶离霍尔木兹海峡后未理会停船警告，美国海军在阿曼湾向其开火并将该船扣押，这是美军实施海上封锁一周以来发生的首次重大冲突。
+这种场景，正在中国越来越多的物流节点上演。
 
-数小时前，双方就伊斯兰堡可能举行的和平谈判各执一词，特朗普表示他认为有达成协议的可能，而伊朗方面则表示没有达成协议的“明确前景”。
+今年政府工作报告提出“打造智能经济新形态”“促进新一代智能终端和智能体加快推广”。
 
-“市场在最后期限前仍然存在风险溢价，但并未完全信服。
+在物流这一传统行业，一场由人工智能驱动的系统性重构，正在悄然发生。
 
-”芝加哥Karobaar Capital LP首席投资官Haris Khurshid表示，“如果情况继续这样发展下去，你可能会看到油价逐步上涨至105-115美元左右，但期间会受到各种新闻的影响而出现很多波动。
+2025年全国公路货运量达432.9亿吨，占货运总量逾七成。
 
-” 霍尔木兹海峡的僵局有可能加剧全球能源危机，并削弱特朗普周末关于冲突将迅速结束的预测。
+在干线运输领域，数字货运正凭借算法优势，重新“编织”高效的公路运输网络。
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 23:58 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 00:01 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 00:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 00:22 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 00:19 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 23:54 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 23:59 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 00:19 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 00:23 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 00:06 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 00:16 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 00:03 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 00:07 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 00:02 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 00:13 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 00:00 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 00:08 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 00:29 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 00:11 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 00:20 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/179133656913.shtml)
-- 2026-06-30 00:00 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/463090075960.shtml)
-- 2026-06-30 00:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/29031.shtml)
-- 2026-06-30 00:16 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/404959657.shtml)
-- 2026-06-30 00:21 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/35422.shtml)
-- 2026-06-30 00:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/322491.shtml)
-- 2026-06-30 00:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/6296886.shtml)
-- 2026-06-30 00:16 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/6363932.shtml)
-- 2026-06-29 23:57 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/60775.shtml)
-- 2026-06-29 23:58 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/5588897730.shtml)
-- 2026-06-30 00:20 - [美人鱼](https://www.share.minike.top/Article/details/87498.shtml)
-- 2026-06-29 23:57 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/371174693.shtml)
-- 2026-06-29 23:56 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/41864669.shtml)
-- 2026-06-30 00:20 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/90704.shtml)
-- 2026-06-29 23:58 - [这一刀 会很帅](https://www.share.minike.top/Article/details/755883070970.shtml)
+- 2026-06-30 00:16 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/98464.shtml)
+- 2026-06-30 00:15 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/23731.shtml)
+- 2026-06-30 00:12 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/55918584.shtml)
+- 2026-06-30 00:12 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/106439624.shtml)
+- 2026-06-30 00:11 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/832238570.shtml)
+- 2026-06-30 00:12 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/628728836.shtml)
+- 2026-06-30 00:29 - [天道](http://www.blog.minike.top/Article/details/508511510805.shtml)
+- 2026-06-30 00:19 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/8795008416.shtml)
+- 2026-06-30 00:08 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/38880893.shtml)
+- 2026-06-30 00:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/77269682374.shtml)
+- 2026-06-30 00:26 - [女心理师](https://www.share.minike.top/Article/details/94813.shtml)
+- 2026-06-30 00:18 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/03057785.shtml)
+- 2026-06-30 00:27 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/2299514.shtml)
+- 2026-06-30 00:22 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/44135583439.shtml)
+- 2026-06-30 00:13 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/3349751.shtml)

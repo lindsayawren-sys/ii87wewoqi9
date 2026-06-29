@@ -1,46 +1,58 @@
-# 云南省商务厅关于中国（云南）自由贸易试验区制度创新决策咨询的采购意向
+# 百戏入皖 首届戏曲知音大会开启多地线下海选
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-为便于供应商及时了解政府采购信息，根据《财政部关于开展政府采购意向公开工作的通知》(财库〔2020〕10号)等有关规定，现将云南省商务厅2026年5月(至)2026年5月政府采购意向公开如下： 云南省商务厅 2026年4月17日
+中新网成都4月11日电 变脸、吐火等川剧绝技轮番亮相，经典折子戏韵味十足，京剧水袖、原创戏歌《锦色》尽显国粹之美……日前在四川省川剧院广场落幕的《戏韵风华 星耀合肥——中央广播电视总台首届戏曲知音大会》(简称“首届戏曲知音大会”)多地线下海选首站现场，充分展现了“知音不问出处”的开放姿态。 首届戏曲知音大会是中央广播电视总台文艺节目中心、中共合肥市委宣传部倾力打造的大型戏曲综艺
 
 ## 正文
 
-为便于供应商及时了解政府采购信息，根据《财政部关于开展政府采购意向公开工作的通知》(财库〔2020〕10号)等有关规定，现将云南省商务厅2026年5月(至)2026年5月政府采购意向公开如下： 云南省商务厅 2026年4月17日
+中新网成都4月11日电 变脸、吐火等川剧绝技轮番亮相，经典折子戏韵味十足，京剧水袖、原创戏歌《锦色》尽显国粹之美……日前在四川省川剧院广场落幕的《戏韵风华 星耀合肥——中央广播电视总台首届戏曲知音大会》(简称“首届戏曲知音大会”)多地线下海选首站现场，充分展现了“知音不问出处”的开放姿态。
+
+首届戏曲知音大会是中央广播电视总台文艺节目中心、中共合肥市委宣传部倾力打造的大型戏曲综艺竞演节目，活动以戏会友、以韵传情，多地联动海，也为传统戏曲的当代表达注入全新活力。
+
+继成都后，活动还将奔赴洛阳、西安、福州、上海，一城一韵，彰显地方特色。
+
+洛阳站将于4月12日在神都十三坊上演。
+
+作为豫剧文化重镇，洛阳站以“河洛传音”为主题，集结豫剧名家与优秀演员，带来《花打朝》《穆桂英挂帅》《花木兰》等经典选段，文戏武戏兼备、流派韵味纷呈。
+
+活动现场设置豫剧流派对碰、戏迷开放麦等环节，唱响中原戏曲的豪迈与深情，让豫剧艺术在古都文脉中焕发新彩。
+
+西安站同日登陆永宁门城墙，以秦腔为核心，展现西北戏曲的雄浑风骨。
+
+陕西省戏曲研究院倾力助阵，秦腔戏歌《上春山》开场惊艳，《二进宫》《再续红梅缘》等经典折子戏原汁原味呈现，帽翅、水袖、吹火等绝技荟萃一堂。
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 23:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 00:22 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 00:17 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 00:07 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 00:20 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 00:17 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 00:05 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 00:12 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 00:21 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 23:57 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 00:01 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 00:06 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 00:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 00:01 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 00:15 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 00:22 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 00:06 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 00:26 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 00:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 00:19 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 00:11 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 00:07 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 00:14 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 00:27 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 00:04 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/02414.shtml)
-- 2026-06-30 00:14 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/658528249697.shtml)
-- 2026-06-29 23:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/89967501645.shtml)
-- 2026-06-30 00:10 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/17991186.shtml)
-- 2026-06-29 23:56 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/0154434996.shtml)
-- 2026-06-30 00:22 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/83323640.shtml)
-- 2026-06-30 00:11 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/43429083.shtml)
-- 2026-06-30 00:03 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/784363186.shtml)
-- 2026-06-30 00:08 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/70235.shtml)
-- 2026-06-30 00:22 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/46547.shtml)
-- 2026-06-30 00:03 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/6816053153.shtml)
-- 2026-06-29 23:59 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/3144482479.shtml)
-- 2026-06-30 00:16 - [毒液2](http://www.share.minike.top/Article/details/055813150306.shtml)
-- 2026-06-30 00:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/92395756033.shtml)
-- 2026-06-30 00:16 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/21500251.shtml)
+- 2026-06-30 00:08 - [刘念回应](https://www.share.kurohicncr.top/Article/details/42233003.shtml)
+- 2026-06-30 00:14 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/35837171771.shtml)
+- 2026-06-30 00:13 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/044790210398.shtml)
+- 2026-06-30 00:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/77594.shtml)
+- 2026-06-30 00:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/5136956.shtml)
+- 2026-06-30 00:29 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/44302.shtml)
+- 2026-06-30 00:02 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/32686791.shtml)
+- 2026-06-30 00:19 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/282593.shtml)
+- 2026-06-30 00:18 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/239622.shtml)
+- 2026-06-30 00:25 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/7890739107.shtml)
+- 2026-06-30 00:06 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/461786720887.shtml)
+- 2026-06-30 00:09 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/872902253971.shtml)
+- 2026-06-30 00:21 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/8240718.shtml)
+- 2026-06-30 00:26 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/618874020.shtml)
+- 2026-06-30 00:28 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/104991833.shtml)

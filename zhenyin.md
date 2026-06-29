@@ -1,59 +1,53 @@
-# 于和伟、张若昀纷纷声明！爱奇艺回应：入驻不等于授权
+# 国家矿山安全监察局：持续深化打击盗采矿产资源整治 加强汛期矿山安全风险防范
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月20日下午，“爱奇艺”词条冲上社交媒体热搜榜首。 当日，在“2026爱奇艺世界·大会”上，爱奇艺宣布了其在AI方面的探索。其中，AI艺人库计划引发社交媒体热议，随后，于和伟、张若昀等多名艺人的工作室在社交平台发布声明，称并未进行AI授权。 爱奇艺方面表示，纳逗Pro艺人库建立的初衷，旨在为AIGC创作者
+记者从今天(10日)召开的国家矿山安全监察局新闻发布会上获悉，一季度国家矿山安全监察局已组织公安部、自然资源部等5部门召开会商会议。持续深化打击盗采矿产资源整治，“点对点”督促尚未完成整治任务的地区落实属地责任，形成整治工作闭环，目前未完成封堵任务的地区已从14个减少到5个。同时加强汛期矿山安全风险防范，已提前部署汛期防汛度汛措施，强化矿山倒风季节通风管理，严格落实瓦斯、水害、
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+记者从今天(10日)召开的国家矿山安全监察局新闻发布会上获悉，一季度国家矿山安全监察局已组织公安部、自然资源部等5部门召开会商会议。
 
-4月20日下午，“爱奇艺”词条冲上社交媒体热搜榜首。
+持续深化打击盗采矿产资源整治，“点对点”督促尚未完成整治任务的地区落实属地责任，形成整治工作闭环，目前未完成封堵任务的地区已从14个减少到5个。
 
-当日，在“2026爱奇艺世界·大会”上，爱奇艺宣布了其在AI方面的探索。
+同时加强汛期矿山安全风险防范，已提前部署汛期防汛度汛措施，强化矿山倒风季节通风管理，严格落实瓦斯、水害、火灾、顶板、冲击地压等重大灾害风险防控措施，严防“桃花水”、融雪性洪水、露天矿山边坡冻融滑坡等引发事故。
 
-其中，AI艺人库计划引发社交媒体热议，随后，于和伟、张若昀等多名艺人的工作室在社交平台发布声明，称并未进行AI授权。
-
-爱奇艺方面表示，纳逗Pro艺人库建立的初衷，旨在为AIGC创作者提供一个规范的平台，便于其在创作中遴选艺人，并通过爱奇艺与艺人方高效沟通合作细节。
-
-目前，已有100多位深度合作艺人同意入驻爱奇艺纳逗Pro艺人库。
-
-入驻爱奇艺纳逗Pro艺人库，代表艺人有接洽AI影视项目的意愿，但是否参加某个具体项目、是否出演某个具体角色，都需要进行单独的商谈和授权。
-
-纳逗Pro平台支撑AIGC专业创作 今年3月，爱奇艺纳逗Pro开始试商用后，一直备受关注。
+(总台央视记者 唐国荣 高子轩)
 
 ## 相关推荐
 
-- 2026-06-30 00:10 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 00:06 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 23:54 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 23:55 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 23:55 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 00:13 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 00:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 00:18 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 23:56 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 00:23 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 00:23 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 00:13 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 23:59 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 00:27 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 00:03 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 00:14 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 00:04 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 00:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 00:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 00:00 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 00:09 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 00:07 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 00:04 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 00:00 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 00:01 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 00:06 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 00:04 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 00:17 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/0946240611.shtml)
-- 2026-06-29 23:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/5918609939.shtml)
-- 2026-06-30 00:00 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/4569563.shtml)
-- 2026-06-30 00:16 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/9671275.shtml)
-- 2026-06-30 00:23 - [东方风云榜直播](http://www.blog.minike.top/Article/details/040314776.shtml)
-- 2026-06-30 00:23 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/829633400657.shtml)
-- 2026-06-30 00:06 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/758097.shtml)
-- 2026-06-29 23:54 - [周生如故](http://www.share.minike.top/Article/details/89174736.shtml)
-- 2026-06-30 00:23 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/1863246.shtml)
-- 2026-06-30 00:05 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/27450415.shtml)
-- 2026-06-30 00:00 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/018832360.shtml)
-- 2026-06-30 00:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/7619664.shtml)
-- 2026-06-29 23:56 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/020772.shtml)
-- 2026-06-30 00:04 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/601550188638.shtml)
-- 2026-06-30 00:04 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/50282.shtml)
+- 2026-06-30 00:06 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/46921976.shtml)
+- 2026-06-30 00:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/2958494.shtml)
+- 2026-06-30 00:03 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/4123481637.shtml)
+- 2026-06-30 00:24 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/603240.shtml)
+- 2026-06-30 00:15 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/825108715.shtml)
+- 2026-06-30 00:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/41010007118.shtml)
+- 2026-06-30 00:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/55082.shtml)
+- 2026-06-30 00:25 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/4417840043.shtml)
+- 2026-06-30 00:08 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/57196.shtml)
+- 2026-06-30 00:25 - [锐评T1零封KC](https://www.share.minike.top/Article/details/521574203.shtml)
+- 2026-06-30 00:14 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/92044861.shtml)
+- 2026-06-30 00:21 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/983144.shtml)
+- 2026-06-30 00:11 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/3941887.shtml)
+- 2026-06-30 00:21 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/505336552414.shtml)
+- 2026-06-30 00:24 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/7752378401.shtml)

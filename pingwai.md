@@ -1,56 +1,56 @@
-# 服务业稳中向好 新动能加快成长
+# “活化石”年年绽放 海外华媒见证攀枝花苏铁守护故事
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：今年一季度，我国服务业实现较快增长，对经济增长的贡献率为63.2%，比上年同期提高4.0个百分点，支柱作用持续凸显，成为拉动经济增长的关键引擎。 一季度，服务业增加值206117亿元，同比增长5.2%。现代服务业提速领跑，信息传输、软件和信息技术服务业，租赁和商务服务业增加值同比分别增长10.6%和12.2%，共拉动服务业增加值增长1.9个百分点。 高技
+中新网攀枝花4月10日电(王利文)在四川攀枝花，“千年铁树开花”的民间俗语被打破。春日里，金沙江干热河谷间，近40万株攀枝花苏铁竞相绽放，金黄纺锤状的雄花挺立如塔，棕褐绣球状的雌花圆润似球，构成世间罕见的生态奇观。 9日，来自全球17个国家和地区的华文媒体代表，走进四川攀枝花苏铁国家级自然保护区，探寻这一“植物活化石”的守护密码。 作为与恐龙同时代的孑遗物种，苏铁被誉为“植物活
 
 ## 正文
 
-央视网消息(新闻联播)：今年一季度，我国服务业实现较快增长，对经济增长的贡献率为63.2%，比上年同期提高4.0个百分点，支柱作用持续凸显，成为拉动经济增长的关键引擎。
+中新网攀枝花4月10日电(王利文)在四川攀枝花，“千年铁树开花”的民间俗语被打破。
 
-一季度，服务业增加值206117亿元，同比增长5.2%。
+春日里，金沙江干热河谷间，近40万株攀枝花苏铁竞相绽放，金黄纺锤状的雄花挺立如塔，棕褐绣球状的雌花圆润似球，构成世间罕见的生态奇观。
 
-现代服务业提速领跑，信息传输、软件和信息技术服务业，租赁和商务服务业增加值同比分别增长10.6%和12.2%，共拉动服务业增加值增长1.9个百分点。
+9日，来自全球17个国家和地区的华文媒体代表，走进四川攀枝花苏铁国家级自然保护区，探寻这一“植物活化石”的守护密码。
 
-高技术服务业投资促进服务供给不断优化。
+作为与恐龙同时代的孑遗物种，苏铁被誉为“植物活化石”。
 
-一季度，高技术服务业固定资产投资同比增长12.3%。
+攀枝花苏铁是国家一级重点保护野生植物，与大熊猫、恐龙化石并称为“巴蜀三宝”，在植物演化研究中具有不可替代的价值。
 
-其中，专业技术服务业、信息服务业、研发与设计服务业投资分别增长29.5%、20.9%和15.8%，创新活力持续释放。
+“它生长极慢，一年大约只长2毫米，看似普通的一株，往往已是千年古树。
 
-今年以来，服务消费市场活力也在不断迸发，新业态新模式新场景竞相涌现。
+”四川攀枝花苏铁国家级自然保护区保护中心资源管理科科长、工程师杨意斌介绍，生长在北纬27度的攀枝花苏铁，是欧亚大陆分布纬度最北、海拔最高、面积最大、株数最多、分布最集中的天然苏铁林，也是全球唯一每年大规模开花的野生苏铁群落，独特的干热河谷气候，让这里的苏铁不再是“千年开花”，每年3至6月如期绽放。
 
-一季度，服务零售额同比增长5.5%，高于商品零售额3.3个百分点。
+这份“世界绝无、中国仅有”的自然奇观，曾面临严峻生存危机。
 
 ## 相关推荐
 
-- 2026-06-30 00:21 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 23:55 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 23:58 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 00:08 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 00:13 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 00:13 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 00:18 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 00:07 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 23:59 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 00:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 00:06 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 00:30 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 00:29 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 00:21 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 00:23 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 00:24 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 00:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 00:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 00:29 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 00:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/57675948.shtml)
-- 2026-06-30 00:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/543602.shtml)
-- 2026-06-30 00:09 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/76422561726.shtml)
-- 2026-06-29 23:54 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/0978950.shtml)
-- 2026-06-29 23:55 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/6675485925.shtml)
-- 2026-06-30 00:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/53822.shtml)
-- 2026-06-30 00:20 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/4656725.shtml)
-- 2026-06-30 00:08 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/2347417.shtml)
-- 2026-06-30 00:16 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/419659759.shtml)
-- 2026-06-30 00:03 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/230748952.shtml)
-- 2026-06-30 00:08 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/6135172.shtml)
-- 2026-06-30 00:01 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/583432.shtml)
-- 2026-06-30 00:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/39283.shtml)
-- 2026-06-30 00:11 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/6551195777.shtml)
-- 2026-06-30 00:18 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/238803.shtml)
+- 2026-06-30 00:16 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/713369684880.shtml)
+- 2026-06-30 00:28 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/6370877039.shtml)
+- 2026-06-30 00:13 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/98322.shtml)
+- 2026-06-30 00:01 - [恋与深空 日服](http://www.share.minike.top/Article/details/849135.shtml)
+- 2026-06-30 00:07 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/701185720.shtml)
+- 2026-06-30 00:16 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/88228574.shtml)
+- 2026-06-30 00:28 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/74941.shtml)
+- 2026-06-30 00:23 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/82615671.shtml)
+- 2026-06-30 00:09 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/425380298.shtml)
+- 2026-06-30 00:01 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/57900181.shtml)
+- 2026-06-30 00:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/871701602.shtml)
+- 2026-06-30 00:02 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/3666455.shtml)
+- 2026-06-30 00:13 - [月亮](http://www.blog.minike.top/Article/details/44291203.shtml)
+- 2026-06-30 00:25 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/70139380058.shtml)
+- 2026-06-30 00:11 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/6332977.shtml)

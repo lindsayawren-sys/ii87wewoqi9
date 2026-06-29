@@ -1,56 +1,59 @@
-# 光大期货：4月20日能源化工日报
+# 信用卡“现金牛”褪色，四大股份行规模、收入双降
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-原油：油价计价将进入消息层面的影响 （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 1、周五油价重挫，达到冲突以来低位，其中WTI 5月合约收盘至84美元/桶，周度跌幅13%。布伦特6月合约收盘至92.42美元/桶，周度跌幅2.92%。SC2605以604元/桶收盘。主要来自地缘端的消息反复影响了原油的定价。 2、从近期消息面来看，呈现反转-再反转，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财熵 资料图。本文来源：第一财经 作者 陈君君 信用卡“现金牛”褪色，四大股份行规模、收入双降 在净息差持续收窄与消费修复偏缓的背景下，信用卡业务正从过去的零售增长引擎，转变为银行报表中的阶段性拖累项。 2025年年报季，曾长期以信用卡为“现金牛”的股份行，仍在经历零售抓手弱化的现实考验。招商银行、中
 
 ## 正文
 
-原油：油价计价将进入消息层面的影响 （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 1、周五油价重挫，达到冲突以来低位，其中WTI 5月合约收盘至84美元/桶，周度跌幅13%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-布伦特6月合约收盘至92.42美元/桶，周度跌幅2.92%。
+来源：财熵 资料图。
 
-SC2605以604元/桶收盘。
+本文来源：第一财经 作者 陈君君 信用卡“现金牛”褪色，四大股份行规模、收入双降 在净息差持续收窄与消费修复偏缓的背景下，信用卡业务正从过去的零售增长引擎，转变为银行报表中的阶段性拖累项。
 
-主要来自地缘端的消息反复影响了原油的定价。
+2025年年报季，曾长期以信用卡为“现金牛”的股份行，仍在经历零售抓手弱化的现实考验。
 
-2、从近期消息面来看，呈现反转-再反转，周五伊朗外交部发言人巴加埃表示，由于以色列与黎巴嫩已经停火，伊朗将履行本月早些时候所作的承诺，允许非军用船只在霍尔木兹海峡通行，但必须经由伊朗指定的航道，且须与伊朗伊斯兰革命卫队海军进行协调。
+招商银行、中信银行、平安银行与兴业银行等4家代表性机构，信用卡业务普遍呈现规模收缩、收入承压与资产质量分化并存的特征。
 
-船舶追踪数据显示，约有20艘船只正从波斯湾经霍尔木兹海峡驶向出口。
+从行业整体来看，信用卡市场正进入一轮系统性收缩周期。
 
-随着市场目前正在迅速消化过去两周积累的极端风险溢价，原油价格正重新回归反映实际供应正常化而非供应中断风险的水平。
+央行数据显示，截至2025年末，全国信用卡与借贷合一卡数量降至6.96亿张，较2022年高点8.07亿张累计减少逾1.1亿张。
 
-晚间特朗普发出消息“伊朗刚刚宣布，伊朗海峡已完全放开，准备全面通行”，此后媒体消息“特朗普称伊朗同意停止浓缩铀”，市场恐慌性情绪爆发，油价盘中跌幅超过13%。
+业内普遍认为，在经历“去杠杆式扩张”之后，信用卡业务已步入存量博弈阶段。
 
 ## 相关推荐
 
-- 2026-06-29 23:57 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 00:15 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 00:17 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 00:00 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 00:18 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 00:12 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 00:02 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 00:06 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 00:13 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 00:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 00:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 00:20 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 00:26 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 00:21 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 00:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 00:10 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 00:11 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 00:27 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 00:26 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 00:22 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 00:12 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 00:23 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 00:17 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:14 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/2542420258.shtml)
-- 2026-06-29 23:57 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/50573.shtml)
-- 2026-06-30 00:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/58805.shtml)
-- 2026-06-29 23:59 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/03104.shtml)
-- 2026-06-30 00:23 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/498229.shtml)
-- 2026-06-30 00:01 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/07804.shtml)
-- 2026-06-30 00:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/22032100045.shtml)
-- 2026-06-30 00:23 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/66087085009.shtml)
-- 2026-06-30 00:06 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/2935975.shtml)
-- 2026-06-29 23:57 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/1790963.shtml)
-- 2026-06-30 00:23 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/9276339183.shtml)
-- 2026-06-29 23:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/904856.shtml)
-- 2026-06-30 00:15 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/3351572.shtml)
-- 2026-06-29 23:56 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/09299105692.shtml)
-- 2026-06-30 00:07 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/1858723.shtml)
+- 2026-06-30 00:29 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/81107.shtml)
+- 2026-06-30 00:06 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/20279351.shtml)
+- 2026-06-30 00:03 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/68033489.shtml)
+- 2026-06-30 00:02 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/585370794.shtml)
+- 2026-06-30 00:21 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/1000664526.shtml)
+- 2026-06-30 00:11 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/25917307.shtml)
+- 2026-06-30 00:09 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/369996665890.shtml)
+- 2026-06-30 00:03 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/74889420471.shtml)
+- 2026-06-30 00:10 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/250462.shtml)
+- 2026-06-30 00:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/032570.shtml)
+- 2026-06-30 00:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/2084387903.shtml)
+- 2026-06-30 00:01 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/22309097.shtml)
+- 2026-06-30 00:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/54442474448.shtml)
+- 2026-06-30 00:09 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/622174609.shtml)
+- 2026-06-30 00:25 - [男子称在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/094832686.shtml)

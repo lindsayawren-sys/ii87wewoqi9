@@ -1,46 +1,54 @@
-# 沪指震荡微升，中信建投证券：目前A股核心进攻方向集中在创业板｜华宝基金3A日报（2026.4.21）
+# 波兰央行将继续购买黄金
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-责任编辑：杨红卜
+来源：金十数据 金十数据4月9日讯，波兰央行周四维持利率在3.75%不变。货币政策委员会表示，接下来的决策将取决于有关波兰通胀前景和经济活动情况的最新信息。这些前景目前受到国外宏观经济形势变化的影响，包括全球大宗商品价格和通胀的变化，以及地缘政治背景的影响。波兰央行行长在新闻发布会上表示，有关燃料价格的财政政策和法规仍是CPI面临的风险，央行可能再次干预外汇市场。在黄金储备方面
 
 ## 正文
 
-责任编辑：杨红卜
+来源：金十数据 金十数据4月9日讯，波兰央行周四维持利率在3.75%不变。
+
+货币政策委员会表示，接下来的决策将取决于有关波兰通胀前景和经济活动情况的最新信息。
+
+这些前景目前受到国外宏观经济形势变化的影响，包括全球大宗商品价格和通胀的变化，以及地缘政治背景的影响。
+
+波兰央行行长在新闻发布会上表示，有关燃料价格的财政政策和法规仍是CPI面临的风险，央行可能再次干预外汇市场。
+
+在黄金储备方面，格拉平斯基表示，波兰央行继续购金，目前持有580吨黄金，重申将黄金储备增至700吨的目标。
+
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 00:08 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 00:13 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 00:11 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 00:13 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 00:13 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 00:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 00:13 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 00:18 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 00:08 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 00:15 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 00:23 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 00:01 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 00:14 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 00:16 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 00:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 00:14 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 00:11 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 00:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 00:27 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 00:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 00:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 00:26 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 00:09 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 00:11 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 00:14 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/9767698730.shtml)
-- 2026-06-30 00:19 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/348017979.shtml)
-- 2026-06-30 00:20 - [时光音乐会](http://www.blog.minike.top/Article/details/9828267776.shtml)
-- 2026-06-30 00:10 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/690515990666.shtml)
-- 2026-06-30 00:16 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/66438712.shtml)
-- 2026-06-29 23:54 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/557973.shtml)
-- 2026-06-30 00:18 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/85157174.shtml)
-- 2026-06-30 00:05 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/6678186.shtml)
-- 2026-06-30 00:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/713018.shtml)
-- 2026-06-29 23:57 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/266288.shtml)
-- 2026-06-30 00:14 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/386594.shtml)
-- 2026-06-30 00:09 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/259551.shtml)
-- 2026-06-30 00:20 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/234583136293.shtml)
-- 2026-06-30 00:05 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/019930975783.shtml)
-- 2026-06-30 00:16 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/6537149.shtml)
+- 2026-06-30 00:08 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/131066216.shtml)
+- 2026-06-30 00:02 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/57609584488.shtml)
+- 2026-06-30 00:03 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/8725285766.shtml)
+- 2026-06-30 00:09 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/008833.shtml)
+- 2026-06-30 00:04 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/319402703851.shtml)
+- 2026-06-30 00:02 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/123094744.shtml)
+- 2026-06-30 00:16 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/4425456.shtml)
+- 2026-06-30 00:08 - [千与千寻](https://www.share.kurohicncr.top/Article/details/78361242638.shtml)
+- 2026-06-30 00:10 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/489903.shtml)
+- 2026-06-30 00:23 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/14976.shtml)
+- 2026-06-30 00:14 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/95548665424.shtml)
+- 2026-06-30 00:29 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/50123.shtml)
+- 2026-06-30 00:05 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/084922.shtml)
+- 2026-06-30 00:15 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/7810655607.shtml)
+- 2026-06-30 00:14 - [沙丘](http://www.share.minike.top/Article/details/085397458.shtml)

@@ -1,61 +1,56 @@
-# 美国军用无人机制造商Aevex上市两日股价翻倍 防务科技股获追捧
+# 首家数据科技央企布局天津 共建北方物流数字化高地
 
-> 更新时间：2026-06-30 00:24:02 UTC+8
+> 更新时间：2026-06-30 00:30:02 UTC+8
 
 ## 摘要
 
-军用无人机制造商Aevex Corp．股价在两个交易日内翻倍，成为近期上市后表现抢眼的防务科技公司之一。 该公司获Madison Dearborn Partners支持，其A类股周一在纽约一度大涨49%，至40.25美元，较上周20美元的首次公开募股（IPO）价翻倍。 此次发行正值防务科技公司IPO激增之际，随着全球冲突加剧，各国为应对新威胁而增加军费支出。无人机尤其受到关注，
+中新网天津4月9日电 (记者 周亚强)记者从天津官方获悉，天津市与中国数联物流信息有限公司8日签署战略框架协议，双方将围绕港航数字化、多式联运协同、数据要素流通及供应链赋能等领域深化合作，共同推动天津打造中国北方地区物流数字化高地。中国数联物流是中国首家数据科技央企，以“有效降低全社会物流成本”为使命，构建了物流行业数字化基础平台、数据要素产品等六大产品体系。该公司党委常委、副
 
 ## 正文
 
-军用无人机制造商Aevex Corp．股价在两个交易日内翻倍，成为近期上市后表现抢眼的防务科技公司之一。
+中新网天津4月9日电 (记者 周亚强)记者从天津官方获悉，天津市与中国数联物流信息有限公司8日签署战略框架协议，双方将围绕港航数字化、多式联运协同、数据要素流通及供应链赋能等领域深化合作，共同推动天津打造中国北方地区物流数字化高地。
 
-该公司获Madison Dearborn Partners支持，其A类股周一在纽约一度大涨49%，至40.25美元，较上周20美元的首次公开募股（IPO）价翻倍。
+中国数联物流是中国首家数据科技央企，以“有效降低全社会物流成本”为使命，构建了物流行业数字化基础平台、数据要素产品等六大产品体系。
 
-此次发行正值防务科技公司IPO激增之际，随着全球冲突加剧，各国为应对新威胁而增加军费支出。
+该公司党委常委、副总经理王可在签约后接受采访时表示，企业将把与天津的合作作为全国网络布局的重要一环，结合天津物流供应链场景需求，发挥全网数据联通运营能力，赋能天津供应链综合服务能力提升，带动相关产业能级跃升。
 
-无人机尤其受到关注，因其在当前战争中被伊朗、以色列和美国广泛使用，这一趋势延续了自2022年俄乌冲突以来的态势。
+根据协议，双方近期将重点推进港航数字化、网络货运数据服务平台等项目，全面深化供应链数字化赋能。
 
-“公司所处行业正当其时 —— 防务科技 —— 而且其上市正值上周五市场整体风险偏好回升之际，”盈透证券首席策略师Steve Sosnick表示。
+王可介绍，中国数联物流将加大在天津的技术、人才和资金投入，根据产业特点和实际需求定制数字化解决方案，并积极引入合作伙伴资源，推动上下游企业集聚天津，为京津冀协同发展注入新动能。
 
-这为该股提供了足够动力，吸引新一批交易员“跟风入场，”他表示。
+天津港作为中国北方联通国内国际双循环的重要战略支点，近年来持续推进智慧绿色枢纽港口建设。
 
-由Arcline Investment Management支持的Arxis Inc．上周上市首日大涨38%，融资11.3亿美元；而无人机软件公司Swarmer Inc．在3月IPO后前两个交易日股价飙升1000%。
+自动化岸桥、人工智能水平运输机器人、港口大模型PortGPT等技术的应用，正推动港口向航运服务智慧化、综合型港航物流营运商转变。
 
-随着军费开支转向以无人机等无人化、相对低成本技术为主的新一代系统，投资者兴趣也随之上升，Aevex正有望从中受益。
+王可表示，天津港航线密布、腹地广阔，且天津产业基础良好，先进制造业与现代服务业统筹推进，丰富的应用场景和充足的算力资源是城市发展的核心优势。
 
 ## 相关推荐
 
-- 2026-06-29 23:58 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 00:05 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 23:58 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 23:56 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 00:02 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 00:03 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 00:10 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 00:19 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 00:01 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 00:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 00:19 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 23:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 00:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 00:18 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 23:56 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 00:06 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 00:00 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 00:06 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 00:25 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 00:11 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 00:03 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 00:04 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 00:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 00:08 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 00:19 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:03 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/3873250758.shtml)
-- 2026-06-30 00:23 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/78678643.shtml)
-- 2026-06-30 00:05 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/769382619.shtml)
-- 2026-06-30 00:03 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/92947507.shtml)
-- 2026-06-30 00:21 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/298891.shtml)
-- 2026-06-30 00:01 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/74747.shtml)
-- 2026-06-30 00:14 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/40709237148.shtml)
-- 2026-06-30 00:18 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/707951438.shtml)
-- 2026-06-30 00:05 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/590549.shtml)
-- 2026-06-29 23:59 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/45435592.shtml)
-- 2026-06-30 00:08 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/60508317.shtml)
-- 2026-06-29 23:55 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/03519295677.shtml)
-- 2026-06-30 00:10 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/64958817009.shtml)
-- 2026-06-30 00:16 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/0546938.shtml)
-- 2026-06-30 00:13 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/3269978475.shtml)
+- 2026-06-30 00:00 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/559319346.shtml)
+- 2026-06-30 00:03 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/34116066.shtml)
+- 2026-06-30 00:27 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/284468842.shtml)
+- 2026-06-30 00:07 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/29488.shtml)
+- 2026-06-30 00:21 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/8904044.shtml)
+- 2026-06-30 00:21 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/46672486145.shtml)
+- 2026-06-30 00:05 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/1345355652.shtml)
+- 2026-06-30 00:15 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/7955066.shtml)
+- 2026-06-30 00:27 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/993092607.shtml)
+- 2026-06-30 00:05 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/5953349.shtml)
+- 2026-06-30 00:05 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/473729491.shtml)
+- 2026-06-30 00:25 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/79391990554.shtml)
+- 2026-06-30 00:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/0491909206.shtml)
+- 2026-06-30 00:10 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/30896315.shtml)
+- 2026-06-30 00:03 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/225869288821.shtml)
