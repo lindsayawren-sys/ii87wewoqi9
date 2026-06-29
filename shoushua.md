@@ -1,59 +1,57 @@
-# 海南自贸港发布城市高质量发展“路线图”
+# “我本来就是中国人” 周锡玮：台湾人都是中国人 多次表态引发全场掌声
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-中新网海口6月2日电(记者 王子谦)《中共海南省委 海南省人民政府关于推动城市高质量发展的实施意见》(简称《意见》)2日正式印发，明确要求到2035年，基本建成具有海南特色和优势的现代化人民城市。 《意见》称，海南将加快构建与自贸港建设相适应的现代化城市体系，深化推动全岛同城化发展，提升中心城市和节点城市发展能级。做强做优海口、三亚、儋州等中心城市核心功能，增强海口对国内外高端
+发布时间：2026年05月12日 16:07 来源：中国新闻网 5月12日，第七届两岸媒体人峰会在北京举行。旺旺集团副董事长周锡玮在会上发言时表示，“三年前我来的时候，我讲了我是中国人，回到台湾有些人就警告我，我跟他讲，我本来就是中国人，台湾人都是中国人！到了今天，我是中国人(这句话)在台湾讲起来，大家都觉得应该欣然接受。郑丽文主席在选中国国民党主席的时候，讲我是中国人，讲台湾
 
 ## 正文
 
-中新网海口6月2日电(记者 王子谦)《中共海南省委 海南省人民政府关于推动城市高质量发展的实施意见》(简称《意见》)2日正式印发，明确要求到2035年，基本建成具有海南特色和优势的现代化人民城市。
+发布时间：2026年05月12日 16:07 来源：中国新闻网 5月12日，第七届两岸媒体人峰会在北京举行。
 
-《意见》称，海南将加快构建与自贸港建设相适应的现代化城市体系，深化推动全岛同城化发展，提升中心城市和节点城市发展能级。
+旺旺集团副董事长周锡玮在会上发言时表示，“三年前我来的时候，我讲了我是中国人，回到台湾有些人就警告我，我跟他讲，我本来就是中国人，台湾人都是中国人！
 
-做强做优海口、三亚、儋州等中心城市核心功能，增强海口对国内外高端生产要素的配置能力，用好三亚国际旅游和科技创新资源，放大儋州洋浦聚合效应。
+到了今天，我是中国人(这句话)在台湾讲起来，大家都觉得应该欣然接受。
 
-支持文昌、琼海、东方、澄迈、万宁打造重要节点城市。
+郑丽文主席在选中国国民党主席的时候，讲我是中国人，讲台湾跟大陆同属一个中国，讲得最清楚，所以她高票当选。
 
-《意见》提出，海南要加快培育自由贸易港城市发展新动能，因地制宜发展新质生产力。
+台湾的民众，大家都勇敢地讲出自己的真心话，支持一个中国，我是中国人”。
 
-推动四大主导产业(旅游业、现代服务业、高新技术产业和热带特色高效农业)补链延链、优化升级，培育壮大“五向图强”(向种图强、向海图强、向天图强、向绿图强、向数图强)特色产业链，创新发展“四新”未来产业(生物制造、氢能、脑机接口、具身智能)。
-
-在深入推进国际旅游消费中心建设上，海南将充分释放离岛免税政策效应，做大做强高端医疗健康消费，擦亮“留学海南”品牌。
-
-大力发展海洋、航天、康养旅游，拓展数字、绿色、体验、低空等消费新场景，做大银发经济、会展经济规模，鼓励发展首店经济、夜间经济。
+(记者 刘子衿 范思忆 制作 王雪茵） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 05:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 05:37 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 05:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 05:26 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 05:38 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 05:30 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 05:26 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 05:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 05:24 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 05:50 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 05:26 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 05:49 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 05:45 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 05:46 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 05:53 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 05:31 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 05:48 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 05:54 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 05:49 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 05:39 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 05:49 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-30 05:48 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 05:56 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 05:53 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 05:46 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 05:43 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 05:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 05:58 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/354771.shtml)
-- 2026-06-30 05:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/446839.shtml)
-- 2026-06-30 05:48 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/8296922926.shtml)
-- 2026-06-30 05:32 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/0089049880.shtml)
-- 2026-06-30 05:37 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/740890961.shtml)
-- 2026-06-30 05:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/027386019011.shtml)
-- 2026-06-30 05:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/845242269299.shtml)
-- 2026-06-30 05:44 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/8158938489.shtml)
-- 2026-06-30 05:31 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/1607311.shtml)
-- 2026-06-30 05:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/83968000554.shtml)
-- 2026-06-30 05:53 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/22848861806.shtml)
-- 2026-06-30 05:43 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/98696.shtml)
-- 2026-06-30 05:46 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/082018.shtml)
-- 2026-06-30 05:27 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/7715341132.shtml)
-- 2026-06-30 05:44 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/66504720724.shtml)
+- 2026-06-30 05:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/4259737.shtml)
+- 2026-06-30 05:48 - [日本领先巴西](https://www.share.minike.top/Article/details/7076788250.shtml)
+- 2026-06-30 05:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/5022599158.shtml)
+- 2026-06-30 05:55 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/77918434.shtml)
+- 2026-06-30 05:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/18553733.shtml)
+- 2026-06-30 05:45 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/5558059.shtml)
+- 2026-06-30 05:43 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/560771.shtml)
+- 2026-06-30 05:35 - [美人鱼](https://www.share.minike.top/Article/details/3566969582.shtml)
+- 2026-06-30 05:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/218736189105.shtml)
+- 2026-06-30 05:35 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/4998961.shtml)
+- 2026-06-30 05:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/17726397.shtml)
+- 2026-06-30 05:40 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/590735080274.shtml)
+- 2026-06-30 05:36 - [千与千寻](http://www.blog.minike.top/Article/details/850296151179.shtml)
+- 2026-06-30 05:46 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/2492464870.shtml)
+- 2026-06-30 05:32 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/711327.shtml)

@@ -1,56 +1,57 @@
-# 开源证券：汇量科技维持“买入”评级 看好新Infra上线加速业绩增长
+# TMC与Allseas签署协议，共建首套商业深海结核回收系统
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-开源证券发布研报称，看好AIInfra支撑汇量科技（01860）加速拓展IAP及非游品类，驱动业绩持续高增，维持预计2026-2028年归母净利润为1.37/2.37/3.80亿美元，当前股价对应PE分别为21.9/12.7/7.9倍，维持“买入”评级。 开源证券主要观点如下： Q1延续高增，看好新Infra加速产品拓展驱动业绩高增 公司2026Q1实现营收5.81亿美元（同比
+The Metals Company（TMC）已与海上承包商Allseas签署商业协议，共同开发和运营双方所称的首套商业深海结核回收系统。 该协议涵盖了结核收集系统的开发、调试和运行，旨在为太平洋克拉里昂-克利珀顿区的海上回收作业做准备。 该商业生产系统的额定年产能为300万湿吨，将使用两台在超过4公里深度的水下运行的收集车，将结核输送至水面支持船Hidden Gem号。 TM
 
 ## 正文
 
-开源证券发布研报称，看好AIInfra支撑汇量科技（01860）加速拓展IAP及非游品类，驱动业绩持续高增，维持预计2026-2028年归母净利润为1.37/2.37/3.80亿美元，当前股价对应PE分别为21.9/12.7/7.9倍，维持“买入”评级。
+The Metals Company（TMC）已与海上承包商Allseas签署商业协议，共同开发和运营双方所称的首套商业深海结核回收系统。
 
-开源证券主要观点如下： Q1延续高增，看好新Infra加速产品拓展驱动业绩高增 公司2026Q1实现营收5.81亿美元（同比+32%、环比+1%），归母净利润0.34亿美元（同比+61%），经调整利润净额0.24亿美元（同比+11%）。
+该协议涵盖了结核收集系统的开发、调试和运行，旨在为太平洋克拉里昂-克利珀顿区的海上回收作业做准备。
 
-Q1毛利率为20.96%，销售/管理/研发费率分别同比+0.04/-0.44/+1.06pct，研发费率提升主因模型训练费用增加，，主要系金融工具公允价值变动实现收益0.17亿美元。
+该商业生产系统的额定年产能为300万湿吨，将使用两台在超过4公里深度的水下运行的收集车，将结核输送至水面支持船Hidden Gem号。
 
-游戏持续高增，非游稳步拓展，看好“数据飞轮”持续巩固公司算法优势 Q1广告技术业务收入5.77亿美元（同比+33%，环比+1%），其中Mintegral收入5.60亿美元（同比+33%，环比+1%）。
+TMC表示，该系统还将包括布放回收系统、立管系统以及一艘转运船。
 
-游戏品类收入4.30亿美元（同比+41%、环比+3%），非游品类收入1.29亿美元（同比+12%）。
+TMC称，关键长周期设备（包括立管和脐带缆系统）的概念设计和基础工程已经完成，预计在2026年第三季度末启动供应商接洽和分包合同授予。
 
-据Singular发布的《2026年第一季度趋势报告》，按下载量统计，Mintegral在娱乐、工具及游戏等多个核心垂类中均位列全球前四，反映公司广告算法的持续领先，该行看好“数据飞轮”持续巩固公司优势。
+公司预计海上系统的调试将于2027年第四季度开始。
 
-IAP产品稳健增长，新一代Infra或加速IAP发展及非游品类拓展 公司持续推进AIInfra建设，新一代Infra已完成主要开发，有望于10月上线。
+根据协议，Allseas将承担部分开发成本，并通过未来的生产收入回收。
 
-IAP产品在现有Infra上稳健增长，新一代Infra可承载更复杂的模型及更多维度的特征和数据，有望推动IAP产品加速发展。
+TMC董事长兼首席执行官杰拉德·巴伦表示：“与Allseas的这份协议现在是我们与Allseas战略联盟的合同基石：它建立了一个清晰的商业框架，规定了我们如何完成首套商业规模结核回收系统的开发和调试，并启动海上结核回收作业。
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 05:37 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 05:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 05:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 05:39 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 05:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 05:44 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 05:48 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 05:39 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 05:51 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 05:41 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 05:45 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 05:40 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 05:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 05:57 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 05:33 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 05:35 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 05:48 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 05:53 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 05:55 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 05:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:37 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/65864210.shtml)
-- 2026-06-30 05:45 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/65434491612.shtml)
-- 2026-06-30 05:43 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/51477757.shtml)
-- 2026-06-30 05:45 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/3276030.shtml)
-- 2026-06-30 05:29 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/193390001548.shtml)
-- 2026-06-30 05:33 - [时光音乐会](http://www.share.minike.top/Article/details/393062255.shtml)
-- 2026-06-30 05:36 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/82082462.shtml)
-- 2026-06-30 05:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/460501526.shtml)
-- 2026-06-30 05:38 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/05133374473.shtml)
-- 2026-06-30 05:41 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/3040583.shtml)
-- 2026-06-30 05:24 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/6714296.shtml)
-- 2026-06-30 05:49 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/390604.shtml)
-- 2026-06-30 05:48 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/681488.shtml)
-- 2026-06-30 05:49 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/773185638342.shtml)
-- 2026-06-30 05:44 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/0827579323.shtml)
+- 2026-06-30 05:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/895972.shtml)
+- 2026-06-30 05:45 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/2560130.shtml)
+- 2026-06-30 05:32 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/48114014083.shtml)
+- 2026-06-30 05:37 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/315862.shtml)
+- 2026-06-30 05:48 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/496003.shtml)
+- 2026-06-30 05:36 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/673415.shtml)
+- 2026-06-30 05:33 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/66487913066.shtml)
+- 2026-06-30 05:54 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/15995283.shtml)
+- 2026-06-30 05:46 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/419978.shtml)
+- 2026-06-30 05:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/134540267562.shtml)
+- 2026-06-30 05:42 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/049319501.shtml)
+- 2026-06-30 05:42 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/198457237.shtml)
+- 2026-06-30 05:46 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/61839104.shtml)
+- 2026-06-30 05:52 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/3444440804.shtml)
+- 2026-06-30 05:37 - [逃狱兄弟](http://www.share.minike.top/Article/details/90839.shtml)

@@ -1,45 +1,56 @@
-# 北京首都机场股份完成发行10亿元短期融资券
+# 曾被罚没7700万元的牛散，全家举牌可川科技！公司股价年内已涨超2倍，光模块子公司去年营收仅6万余元
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-北京首都机场股份（00694）公布，公司已于2026年6月2日发行2026年首期短期融资券，发行总额10亿元，期限1年，发行利率1.37%。责任编辑：卢昱君
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！一字涨停！曾被罚没7700万元的牛散，全家举牌可川科技！公司股价年内已涨超2倍，光模块子公司去年营收仅6万余元，亏损超2000万元 今日，可川科技（603052.SH）一字涨停，报收95.35元/股，总市值179.2亿元。 5月11日盘后，可川科技公告称，股东屠文斌、屠施恩、施玉庆通过二级市场集中竞价方式，
 
 ## 正文
 
-北京首都机场股份（00694）公布，公司已于2026年6月2日发行2026年首期短期融资券，发行总额10亿元，期限1年，发行利率1.37%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-责任编辑：卢昱君
+一字涨停！
+
+曾被罚没7700万元的牛散，全家举牌可川科技！
+
+公司股价年内已涨超2倍，光模块子公司去年营收仅6万余元，亏损超2000万元 今日，可川科技（603052.SH）一字涨停，报收95.35元/股，总市值179.2亿元。
+
+5月11日盘后，可川科技公告称，股东屠文斌、屠施恩、施玉庆通过二级市场集中竞价方式，合计增持公司股份940.41万股，占公司总股本的5%，触发举牌线。
+
+其中，屠施恩为屠文斌的儿子，施玉庆为屠文斌的配偶，三人为一致行动人。
+
+公告显示，屠文斌一家建仓时间为4月13日至5月11日；按5月12日收盘价计算，本次举牌持仓市值约8.97亿元。
+
+值得注意的是，屠文斌、施玉庆夫妇为A股知名“牛散”，曾于2022年6月至8月两度举牌宝馨科技（*ST宝馨（维权），002514.SZ），引发市场广泛关注。
 
 ## 相关推荐
 
-- 2026-06-30 05:40 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 05:53 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 05:53 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 05:28 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 05:27 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 05:53 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 05:46 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 05:41 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 05:30 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 05:34 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 05:38 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 05:41 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 06:00 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 05:54 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 05:49 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 05:40 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 05:51 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 05:35 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 05:44 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 05:52 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 05:42 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:45 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/2076006886.shtml)
-- 2026-06-30 05:38 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/663579428.shtml)
-- 2026-06-30 05:45 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/536949273106.shtml)
-- 2026-06-30 05:27 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/261618.shtml)
-- 2026-06-30 05:27 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/063617.shtml)
-- 2026-06-30 05:38 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/19492950.shtml)
-- 2026-06-30 05:28 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/016374.shtml)
-- 2026-06-30 05:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/5031785483.shtml)
-- 2026-06-30 05:36 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/93564.shtml)
-- 2026-06-30 05:44 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/07003.shtml)
-- 2026-06-30 05:49 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/22080.shtml)
-- 2026-06-30 05:33 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/1367447.shtml)
-- 2026-06-30 05:37 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/551336782.shtml)
-- 2026-06-30 05:43 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/8748193812.shtml)
-- 2026-06-30 05:33 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/786512.shtml)
+- 2026-06-30 05:31 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/78648918221.shtml)
+- 2026-06-30 05:52 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/59204448562.shtml)
+- 2026-06-30 05:32 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/532293072435.shtml)
+- 2026-06-30 05:36 - [月亮](https://www.blog.kurohicncr.top/Article/details/2177710.shtml)
+- 2026-06-30 05:50 - [金牌调解](http://www.share.kurohicncr.top/Article/details/86253.shtml)
+- 2026-06-30 05:45 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/192235152752.shtml)
+- 2026-06-30 05:55 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/31998.shtml)
+- 2026-06-30 05:52 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/5902461603.shtml)
+- 2026-06-30 05:43 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/775494424995.shtml)
+- 2026-06-30 05:34 - [小娘惹](http://www.share.minike.top/Article/details/7537154148.shtml)
+- 2026-06-30 05:33 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/97304644627.shtml)
+- 2026-06-30 05:30 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/71889532918.shtml)
+- 2026-06-30 05:51 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/88954.shtml)
+- 2026-06-30 05:38 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/484389912.shtml)
+- 2026-06-30 05:46 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/88418721921.shtml)

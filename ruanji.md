@@ -1,57 +1,60 @@
-# 云南向海图强 加速富宁港建设将与平陆运河同步投入使用
+# 中国地震局：61.3%的公众基本具备防震避险能力
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月4日电 (罗婕)云南省文山壮族苗族自治州人民政府州长马忠俊3日在云南省“开局起步‘十五五’”主题系列新闻发布会·文山专场上向媒体透露，该州的富宁港将于年内建成，并与平陆运河同步投入使用，使之成为云南出海最近的“黄金港口”。与此同时，与文山州毗邻的广西壮族自治区传来消息：平陆运河今日全线通水。 作为新中国成立以来第一条通江达海的大运河，平陆运河全长134.2公里，预
+中新网吉林5月12日电 (记者 孙自法)中国地震局5月12日发布的公众防震避险能力评估结果显示，包括具备较好防震避险能力、具备防震避险能力、具有一定的防震避险能力等三种情况在内，61.3%的公众基本具备防震避险能力，38.7%的公众能力不足。 当天是中国第18个全国防灾减灾日，聚焦“提升公众避险能力，夯实防震减灾基础”主题，中国地震局、吉林省人民政府在吉林市共同举办第三届全国防
 
 ## 正文
 
-中新网昆明6月4日电 (罗婕)云南省文山壮族苗族自治州人民政府州长马忠俊3日在云南省“开局起步‘十五五’”主题系列新闻发布会·文山专场上向媒体透露，该州的富宁港将于年内建成，并与平陆运河同步投入使用，使之成为云南出海最近的“黄金港口”。
+中新网吉林5月12日电 (记者 孙自法)中国地震局5月12日发布的公众防震避险能力评估结果显示，包括具备较好防震避险能力、具备防震避险能力、具有一定的防震避险能力等三种情况在内，61.3%的公众基本具备防震避险能力，38.7%的公众能力不足。
 
-与此同时，与文山州毗邻的广西壮族自治区传来消息：平陆运河今日全线通水。
+当天是中国第18个全国防灾减灾日，聚焦“提升公众避险能力，夯实防震减灾基础”主题，中国地震局、吉林省人民政府在吉林市共同举办第三届全国防震减灾科普主场活动。
 
-作为新中国成立以来第一条通江达海的大运河，平陆运河全长134.2公里，预计于今年9月通航。
+中国地震局在活动上发布了公众防震避险能力评估结果。
 
-届时，平陆运河将联通珠江水系与北部湾，为中国西南地区货物提供一条运距最短、最经济、最便捷的出海通道，比经由广州港出海，缩短内河航程在560公里以上。
+该评估基于中国地震局2025年印发的《防震减灾基本知识与技能大纲及释义》构建，以线上抽样问卷调查形式开展，本次调查共覆盖31个省(自治区、直辖市)110个地级市、630个区、1473个乡镇、5683个社区(村)。
 
-沿珠江水系溯流而上，位于云南“东大门”的文山州富宁县剥隘镇的“珠江第一港”——富宁港的建设进入冲刺阶段。
+调查对象为10岁-74周岁居民，获得有效样本80845份，涵盖不同职业、学历人群。
 
-富宁港是云南规划建设的最大内陆港口，其建成后与平陆运河“牵手联动”，将为云南新增一条更为便捷的水运通道，加快“通江达海”的脚步。
+据中国地震局公共服务司介绍，经过对调查样本得分进行分布统计与聚类分析，形成四级能力分类：4.7%的公众具备较好防震避险能力，14.5%的公众具备防震避险能力，42.1%的公众具有一定的防震避险能力，38.7%的公众能力不足。
 
-富宁港建设不仅是文山州主动融入西部陆海新通道建设的重要举措，还将为当地产业发展注入新动能。
+从能力维度上看，公众避险知识技能相对较好，风险与科学认知存在短板，防灾意识与应急准备偏弱，信息渠道多元化不足。
 
-近年来，文山州全力打造云南“绿色铝谷”核心区，大宗货物“公铁水”联运需求旺盛，富宁港建成后，与各港口通道联动潜力巨大。
+从年龄结构上看，10岁-14岁的少年组具备防震避险能力占比最高，为21.9%；从学历水平上看，防震避险能力与受教育程度呈正相关关系；从职业分类上看，机关事业单位人员、专业技术人员、学生三类群体具备防震避险能力占比最高，均超过了20%。
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 05:49 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 05:43 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 05:31 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 05:25 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 05:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 05:28 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 05:38 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 05:46 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 05:24 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 05:27 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 05:41 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 05:37 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 05:52 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 05:36 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 05:45 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 05:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 05:58 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 05:34 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 05:31 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 05:55 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 05:55 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 05:40 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 05:45 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 05:56 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:37 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/42356614.shtml)
-- 2026-06-30 05:36 - [周生如故](https://www.share.kurohicncr.top/Article/details/780396396465.shtml)
-- 2026-06-30 05:40 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/976776988.shtml)
-- 2026-06-30 05:26 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/24813.shtml)
-- 2026-06-30 05:28 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/671124790.shtml)
-- 2026-06-30 05:24 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/2640768517.shtml)
-- 2026-06-30 05:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/68858038.shtml)
-- 2026-06-30 05:25 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/9992851.shtml)
-- 2026-06-30 05:26 - [日本进球](https://www.blog.minike.top/Article/details/43806938215.shtml)
-- 2026-06-30 05:41 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/060519.shtml)
-- 2026-06-30 05:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/28935353.shtml)
-- 2026-06-30 05:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/582026498.shtml)
-- 2026-06-30 05:47 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/602067035.shtml)
-- 2026-06-30 05:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/0477300.shtml)
-- 2026-06-30 05:32 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/275024.shtml)
+- 2026-06-30 05:48 - [女心理师](http://www.blog.minike.top/Article/details/4964471.shtml)
+- 2026-06-30 05:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/987281278058.shtml)
+- 2026-06-30 05:31 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/812131290.shtml)
+- 2026-06-30 05:38 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/103417.shtml)
+- 2026-06-30 05:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/35818611.shtml)
+- 2026-06-30 05:38 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/19629442.shtml)
+- 2026-06-30 05:58 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/1849591853.shtml)
+- 2026-06-30 05:33 - [点菜也要教吗](http://www.share.minike.top/Article/details/267495768.shtml)
+- 2026-06-30 05:38 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/0664388.shtml)
+- 2026-06-30 05:35 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/2657989553.shtml)
+- 2026-06-30 05:55 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/899469093.shtml)
+- 2026-06-30 05:44 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/5252355.shtml)
+- 2026-06-30 05:38 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/1716244848.shtml)
+- 2026-06-30 05:49 - [千香](http://www.blog.kurohicncr.top/Article/details/833222211.shtml)
+- 2026-06-30 05:51 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/2524912.shtml)

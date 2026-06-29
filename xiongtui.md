@@ -1,59 +1,60 @@
-# 西格奈珠宝营收走高、上调业绩指引
+# 精神病院炒股出圈背后：非公医疗如何突围？
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 内容速览西格奈珠宝一季度销售额同比提升，上调全年业绩指引下限。 西格奈珠宝（股票代码：SIG，跌幅 2.94%）一季度营收向好，上调全年业绩预期下限。 这家旗下拥有凯珠宝（Kay）与扎莱斯（Zales）品牌的珠宝零售商周二披露财报：当期净利润 3170 万美元，折合每股收益 0.78 美元；去年同期净利润 3350 万美元，每股收益同样 0
+记者丨韩利明 实习生蒋雨桐 编辑丨季媛媛 张明艳 日前，盛通股份（002599.SZ）发布一季报显示，上饶市广丰区十五岭山精神病医院有限公司以143.37万股的持股量、0.27%的占比跻身其第九大股东。一时间，“精神病院炒股成A股公司前十大股东”的话题意外出圈。 针对市场热议，当事方明确回应，这家二级民营医院的投资行为完全符合相关规定，属于正常的资本市场参与行为。另据中国证券报
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 内容速览西格奈珠宝一季度销售额同比提升，上调全年业绩指引下限。
+记者丨韩利明 实习生蒋雨桐 编辑丨季媛媛 张明艳 日前，盛通股份（002599.SZ）发布一季报显示，上饶市广丰区十五岭山精神病医院有限公司以143.37万股的持股量、0.27%的占比跻身其第九大股东。
 
-西格奈珠宝（股票代码：SIG，跌幅 2.94%）一季度营收向好，上调全年业绩预期下限。
+一时间，“精神病院炒股成A股公司前十大股东”的话题意外出圈。
 
-这家旗下拥有凯珠宝（Kay）与扎莱斯（Zales）品牌的珠宝零售商周二披露财报：当期净利润 3170 万美元，折合每股收益 0.78 美元；去年同期净利润 3350 万美元，每股收益同样 0.78 美元。
+针对市场热议，当事方明确回应，这家二级民营医院的投资行为完全符合相关规定，属于正常的资本市场参与行为。
 
-剔除一次性损益后，公司调整后每股收益 1.56 美元，高于 FactSet 统计分析师一致预期的 1.38 美元。
+另据中国证券报道，这家精神病院相关负责人表示，公司实控人早在10年前就开始涉足A股投资，初期资金规模不大，主要是出于闲置资金保值增值的理财需求，并非盲目跟风。
 
-一季度总销售额达 15.5 亿美元，去年同期为 15.4 亿美元，营收数据符合市场分析师预期。
+事实上，这家精神病医院的投资行为并非个例。
 
-同店销售额同比上涨 1.8%，达标市场预估，但增速低于去年同期的 2.7%。
+业内亦有不少上市非公医疗机构在保障日常经营资金需求的前提下，使用部分闲置资金进行炒股、理财等管理。
 
-公司首席执行官 J.K． 西曼西克在采访中表示：低收入客群出现降级消费，而高端消费客群需求走强，带动旗下连锁门店产品均价上行。
+此次事件之所以引发热议，或源于精神病院的行业特殊性与资本市场行为的强烈反差。
 
-“高端产品线仍存在增量销售空间。
+而这一热点事件或也像一面镜子，折射出当前非公医疗行业在转型发展中的焦虑。
 
 ## 相关推荐
 
-- 2026-06-30 05:31 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 05:25 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 05:48 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 05:29 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 05:47 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 05:31 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 05:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 05:26 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 05:50 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 05:34 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 05:35 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 05:29 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 05:49 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 05:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 05:37 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 05:33 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 05:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 05:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 05:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 05:51 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 05:48 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 05:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 05:40 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 05:37 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 05:49 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 05:42 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 05:51 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:42 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/09425.shtml)
-- 2026-06-30 05:38 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/001805.shtml)
-- 2026-06-30 05:42 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/658686.shtml)
-- 2026-06-30 05:38 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/0819671.shtml)
-- 2026-06-30 05:51 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/73340202170.shtml)
-- 2026-06-30 05:36 - [恋与深空 巧合](http://www.share.minike.top/Article/details/09122788559.shtml)
-- 2026-06-30 05:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/9696478595.shtml)
-- 2026-06-30 05:32 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/15445674.shtml)
-- 2026-06-30 05:35 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/657008.shtml)
-- 2026-06-30 05:28 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/17534.shtml)
-- 2026-06-30 05:40 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/83216681696.shtml)
-- 2026-06-30 05:52 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/1720890048.shtml)
-- 2026-06-30 05:33 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/15403226458.shtml)
-- 2026-06-30 05:30 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/64854334.shtml)
-- 2026-06-30 05:49 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/2619091.shtml)
+- 2026-06-30 05:38 - [TOP Prada](http://www.share.minike.top/Article/details/978554624.shtml)
+- 2026-06-30 05:37 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/998124589.shtml)
+- 2026-06-30 05:32 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/0961652028.shtml)
+- 2026-06-30 05:37 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/039290.shtml)
+- 2026-06-30 05:56 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/092599317.shtml)
+- 2026-06-30 05:40 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/43801824056.shtml)
+- 2026-06-30 05:41 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/29982405.shtml)
+- 2026-06-30 05:42 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/4958072.shtml)
+- 2026-06-30 05:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/336736.shtml)
+- 2026-06-30 05:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/1160148131.shtml)
+- 2026-06-30 05:33 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/782722804.shtml)
+- 2026-06-30 05:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/4224006.shtml)
+- 2026-06-30 05:43 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/566775.shtml)
+- 2026-06-30 05:47 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/39277.shtml)
+- 2026-06-30 05:46 - [我和我的家乡](http://www.blog.minike.top/Article/details/56808331927.shtml)

@@ -1,57 +1,60 @@
-# 上交所问询聚焦三大方向，国金证券逐项回应
+# AI短剧冲击下，红果保底15亿扶持真人剧
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月3日，国金证券就上交所监管问询逐项答疑。上海证券报记者梳理发现，监管部门聚焦金融投资、股票质押、资管业务三大方向，重点关注关联方产品认购、资产减值计提比例下滑、资管子公司持续亏损等细节。 年报显示，国金证券2025年实现营业收入84.57亿元，同比增长26.9%；归属于母公司股东的净利润22.77亿元，
+界面新闻记者 | 伍洋宇 界面新闻编辑 | 文姝琪 在一个兴起不久便开始经历某种结构性调整的内容产业里，来自抖音集团短剧版权中心的态度很明确：加大对真人短剧的投入与扶持，加强对AI漫剧的治理与管控。 这的确能够提升内容质量，但对行业中的众多从业者而言，这对他们正在经历的挑战可能起不了什么作用。 5月12日，抖音集团短剧版权中心举办首届短剧产业大会。红果短剧总编辑乐力的很多观点围
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+界面新闻记者 | 伍洋宇 界面新闻编辑 | 文姝琪 在一个兴起不久便开始经历某种结构性调整的内容产业里，来自抖音集团短剧版权中心的态度很明确：加大对真人短剧的投入与扶持，加强对AI漫剧的治理与管控。
 
-6月3日，国金证券就上交所监管问询逐项答疑。
+这的确能够提升内容质量，但对行业中的众多从业者而言，这对他们正在经历的挑战可能起不了什么作用。
 
-上海证券报记者梳理发现，监管部门聚焦金融投资、股票质押、资管业务三大方向，重点关注关联方产品认购、资产减值计提比例下滑、资管子公司持续亏损等细节。
+5月12日，抖音集团短剧版权中心举办首届短剧产业大会。
 
-年报显示，国金证券2025年实现营业收入84.57亿元，同比增长26.9%；归属于母公司股东的净利润22.77亿元，同比增长36.32%。
+红果短剧总编辑乐力的很多观点围绕对真人短剧的判断。
 
-此番监管问询，折射出当前中小券商共性发展难题：在行业整体经营向好、竞争日趋白热化的背景下，中小券商如何在抢抓业绩的同时，统筹合规管控、妥善缓释潜在经营风险。
+他表示，真人短剧的价值在于对人和生活的贴近，背后的真情实感仍然是行业发展的核心。
 
-金融投资规模达440.16亿元 关联方产品投资合计3.10亿元 年报显示，截至2025年末，国金证券持有的交易性金融资产、其他债权投资、其他权益工具投资、衍生金融资产等合计达440.16亿元，较上年末增长47.06%。
+乐力透露，短剧版权中心近期推出了多项真人短剧扶持计划。
 
-其中，公司持有的关联方产品——上海涌铧投资管理有限公司发行的基金产品、云南国际信托有限公司发行的信托产品，期末余额分别为2.59亿元和5109.21万元，合计3.10亿元。
+例如，针对真人剧核心品类调高内容分成比例。
 
-对此，上交所追问公司认购关联方金融产品的具体情况。
+该中心5月11日发布的新政策公告显示，自然流量场景下，真人剧付费内容分成比例从70%调高至80%，免费内容广告分成预算同等调高。
 
 ## 相关推荐
 
-- 2026-06-30 05:46 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 05:37 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 05:32 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 05:42 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 05:48 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 05:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 05:34 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 05:38 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 05:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 05:25 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 05:31 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 05:52 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 05:41 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 05:34 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 05:38 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 05:45 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 05:33 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 05:56 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 05:42 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 05:52 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 05:36 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 05:52 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 05:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 05:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 05:48 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:50 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/38977.shtml)
-- 2026-06-30 05:37 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/16793.shtml)
-- 2026-06-30 05:47 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/399742687.shtml)
-- 2026-06-30 05:37 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/90738.shtml)
-- 2026-06-30 05:30 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/33605.shtml)
-- 2026-06-30 05:28 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/087691675.shtml)
-- 2026-06-30 05:31 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/17076829.shtml)
-- 2026-06-30 05:29 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/09681890.shtml)
-- 2026-06-30 05:34 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/42509.shtml)
-- 2026-06-30 05:50 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/4829038606.shtml)
-- 2026-06-30 05:38 - [请回答王牌2019](http://www.blog.minike.top/Article/details/4718424.shtml)
-- 2026-06-30 05:46 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/99660951288.shtml)
-- 2026-06-30 05:37 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/338545652.shtml)
-- 2026-06-30 05:39 - [千与千寻](http://www.share.minike.top/Article/details/7637124279.shtml)
-- 2026-06-30 05:29 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/0846985.shtml)
+- 2026-06-30 05:46 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/94400116749.shtml)
+- 2026-06-30 05:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/677243407.shtml)
+- 2026-06-30 05:32 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/89595446.shtml)
+- 2026-06-30 05:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/566346210524.shtml)
+- 2026-06-30 05:39 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/950721.shtml)
+- 2026-06-30 05:50 - [速度与激情9](https://www.share.minike.top/Article/details/184562051.shtml)
+- 2026-06-30 05:35 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/874594438424.shtml)
+- 2026-06-30 05:38 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/88453532224.shtml)
+- 2026-06-30 05:56 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/82875440.shtml)
+- 2026-06-30 05:31 - [急先锋](https://www.blog.minike.top/Article/details/722306.shtml)
+- 2026-06-30 05:47 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/632247212.shtml)
+- 2026-06-30 05:54 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/9633400765.shtml)
+- 2026-06-30 05:52 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/03445658.shtml)
+- 2026-06-30 05:49 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/63080680.shtml)
+- 2026-06-30 05:52 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/0795906.shtml)

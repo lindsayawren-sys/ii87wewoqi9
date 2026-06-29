@@ -1,59 +1,58 @@
-# 险资“潜伏”长鑫科技、宇树科技，熬过亏损迎上市收获期
+# 一场“无电视”的发布会，揭开海信视像第二增长曲线
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-近期，长鑫科技、宇树科技两大“硬核”科技公司接连闯关资本市场备受瞩目。贝壳财经记者注意到，两大龙头公司的股东阵营中，早已“埋伏”一批险资。 根据招股说明书，2023年长鑫科技完成股改时，和谐健康持股1.68%；2024年，宇树科技首次股权转让后，经纬叁号持有其约1.54%的股份，背后，友邦人寿、中美联泰大都会人寿均为经纬叁号的合伙人。 业内人士认为，保险资金是长期负债资金，与硬
+5月8日，海信召开全场景新品发布会，推出涵盖海信和Vidda两大品牌的六款3C智能硬件新品。这是海信成立50多年来，海信视像第一次召开没有“电视”的发布会。 50余年，海信沉淀了最硬核的显示底色。2019年，“海信电器”正式升级为“海信视像”，战略发展也更加笃定：要让屏幕突破物理边界，为用户提供有温度的陪伴。正是循着这个战略，海信开始了全场景生态的探索。 “未来的智能硬件，屏幕
 
 ## 正文
 
-近期，长鑫科技、宇树科技两大“硬核”科技公司接连闯关资本市场备受瞩目。
+5月8日，海信召开全场景新品发布会，推出涵盖海信和Vidda两大品牌的六款3C智能硬件新品。
 
-贝壳财经记者注意到，两大龙头公司的股东阵营中，早已“埋伏”一批险资。
+这是海信成立50多年来，海信视像第一次召开没有“电视”的发布会。
 
-根据招股说明书，2023年长鑫科技完成股改时，和谐健康持股1.68%；2024年，宇树科技首次股权转让后，经纬叁号持有其约1.54%的股份，背后，友邦人寿、中美联泰大都会人寿均为经纬叁号的合伙人。
+50余年，海信沉淀了最硬核的显示底色。
 
-业内人士认为，保险资金是长期负债资金，与硬科技企业研发周期长、资金需求持续的特性高度匹配。
+2019年，“海信电器”正式升级为“海信视像”，战略发展也更加笃定：要让屏幕突破物理边界，为用户提供有温度的陪伴。
 
-通过基金化投资、尽职调查、退出安排和产业协同等，险资可以在稳健的基础上，对硬科技企业进行长期布局。
+正是循着这个战略，海信开始了全场景生态的探索。
 
-亏损仍未离场6家险资合计持有长鑫科技23.84亿股 瞄准中国“硬核”科技，险资早已抢先布局。
+“未来的智能硬件，屏幕不再是配件，而是感知的核⼼入口。
 
-“存储芯片第一股”长鑫科技的招股说明书显示，2023年，公司整体变更设立后，至少有6家险资现身持股股东之列，合计持股数量约为23.84亿股。
+既然技术走到了这里，海信作为显示龙头，就必须出现在这里！
 
-其中，和谐健康持股约9.01亿股，持股比例为1.68%，为并列第七大股东；国寿投资（国寿投资保险资产管理有限公司）持股约4.76亿股，持股比例为0.89%；人保资本（人保资本保险资产管理有限公司）持股约4.67亿股，持股比例为0.87%。
+”海信视像科技总裁李炜在发布会上公开了海信的发展逻辑：不是海信进⼊了3C，而是3C终于进⼊了“显示智能”时代。
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 05:30 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 05:32 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 05:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 05:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 05:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 05:46 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 05:42 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 05:50 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 05:52 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 05:29 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 05:26 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 05:51 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 05:39 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 05:47 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 05:42 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 05:57 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 05:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 05:47 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 05:45 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 05:40 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 05:41 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 05:41 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 05:49 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 05:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:34 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/95959420841.shtml)
-- 2026-06-30 05:34 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/71483.shtml)
-- 2026-06-30 05:43 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/06142.shtml)
-- 2026-06-30 05:33 - [啊啊啊](https://www.blog.minike.top/Article/details/86365951.shtml)
-- 2026-06-30 05:38 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/419068552.shtml)
-- 2026-06-30 05:33 - [第一炉香](http://www.blog.minike.top/Article/details/528888420.shtml)
-- 2026-06-30 05:47 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/33298725871.shtml)
-- 2026-06-30 05:52 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/6383042654.shtml)
-- 2026-06-30 05:35 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/7548564.shtml)
-- 2026-06-30 05:36 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/4581757956.shtml)
-- 2026-06-30 05:29 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/40884829.shtml)
-- 2026-06-30 05:48 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/55168451850.shtml)
-- 2026-06-30 05:44 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/2457924661.shtml)
-- 2026-06-30 05:48 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/93104255.shtml)
-- 2026-06-30 05:46 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/69742.shtml)
+- 2026-06-30 05:46 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/149247.shtml)
+- 2026-06-30 05:43 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/80416903196.shtml)
+- 2026-06-30 05:50 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/97538470.shtml)
+- 2026-06-30 05:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/18415137040.shtml)
+- 2026-06-30 05:51 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/0625501.shtml)
+- 2026-06-30 05:54 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/91403733.shtml)
+- 2026-06-30 05:33 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/11553.shtml)
+- 2026-06-30 05:35 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/129016055.shtml)
+- 2026-06-30 05:51 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/39691645.shtml)
+- 2026-06-30 05:43 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/24159516.shtml)
+- 2026-06-30 05:53 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/3813736.shtml)
+- 2026-06-30 05:31 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/3683094299.shtml)
+- 2026-06-30 05:55 - [千香](https://www.share.minike.top/Article/details/8575266.shtml)
+- 2026-06-30 05:32 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/825579378974.shtml)
+- 2026-06-30 05:33 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/553693150467.shtml)

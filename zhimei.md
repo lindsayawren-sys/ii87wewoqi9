@@ -1,60 +1,48 @@
-# Monro将出席Oppenheimer第26届消费者增长与电商大会
+# 日本央行一名审议委员：可能在下次政策会议上加息
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-Monro， Inc．宣布，公司总裁兼首席执行官Peter Fitzsimmons、执行副总裁兼首席财务官Brian D‘Ambrosia以及投资者关系副总裁Felix Veksler将出席Oppenheimer第26届年度消费者增长与电商大会，并参与炉边对话环节。 根据公司公告，该环节定于6月9日（周二）上午9时45分（美国东部时间）举行。投资者可通过Monro官网投资者关系
+根据周二发布的4月27日至28日政策会议意见摘要，日本央行一名审议委员表示，央行完全有可能在下次会议或之后的会议上加息。一名委员表示，如果通胀上行风险加大，当局需要以更快速度加息；一名委员表示，如果伊朗冲突持续，需要将政策利率提高至中性水平；一名委员表示，除非经济出现明确放缓迹象，否则央行应尽快加息；一名委员指出，日本实际利率处于全球最低水平之列；一名委员表示，根据经济和通胀形
 
 ## 正文
 
-Monro， Inc．宣布，公司总裁兼首席执行官Peter Fitzsimmons、执行副总裁兼首席财务官Brian D‘Ambrosia以及投资者关系副总裁Felix Veksler将出席Oppenheimer第26届年度消费者增长与电商大会，并参与炉边对话环节。
+根据周二发布的4月27日至28日政策会议意见摘要，日本央行一名审议委员表示，央行完全有可能在下次会议或之后的会议上加息。
 
-根据公司公告，该环节定于6月9日（周二）上午9时45分（美国东部时间）举行。
+一名委员表示，如果通胀上行风险加大，当局需要以更快速度加息；一名委员表示，如果伊朗冲突持续，需要将政策利率提高至中性水平；一名委员表示，除非经济出现明确放缓迹象，否则央行应尽快加息；一名委员指出，日本实际利率处于全球最低水平之列；一名委员表示，根据经济和通胀形势发展来上调利率是合适的；一名委员表示，经济面临的主要下行风险来自通胀；另一名委员表示，鉴于中东冲突，央行需要观望。
 
-投资者可通过Monro官网投资者关系页面观看现场网络直播。
-
-此次会议召开之际，Monro正处于战略调整的关键期。
-
-公司5月公布的2026财年第一季度财报显示，营收为2.738亿美元，同比下降7.2%，低于市场预期的2.837亿美元；调整后每股亏损16美分，也未能达到市场预期的亏损5美分。
-
-同店销售额增长2.8%，主要得益于高利润服务类别（如前减震、刹车、电池和维护服务）的增长。
-
-公司期末拥有1，115家门店，较去年同期的1，260家有所减少。
-
-毛利率表现是当季亮点，同比提升90个基点至33.9%。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 05:31 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 05:34 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 05:46 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 05:32 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 05:50 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 05:30 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 05:29 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 05:43 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 05:35 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 05:51 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 05:49 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 05:48 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 05:50 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 05:37 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 05:34 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 05:34 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 05:54 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 05:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 05:58 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 05:43 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 05:34 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 05:57 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 05:31 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 05:57 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 05:53 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 05:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/604842349.shtml)
-- 2026-06-30 05:47 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/740095.shtml)
-- 2026-06-30 05:44 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/4223218900.shtml)
-- 2026-06-30 05:41 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/32560425.shtml)
-- 2026-06-30 05:39 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/81440800.shtml)
-- 2026-06-30 05:45 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/23707.shtml)
-- 2026-06-30 05:24 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/00268343.shtml)
-- 2026-06-30 05:27 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/031162968.shtml)
-- 2026-06-30 05:39 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/5334898468.shtml)
-- 2026-06-30 05:27 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/424578712.shtml)
-- 2026-06-30 05:28 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/6954638850.shtml)
-- 2026-06-30 05:29 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/099978.shtml)
-- 2026-06-30 05:49 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/63322.shtml)
-- 2026-06-30 05:36 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/7577688.shtml)
-- 2026-06-30 05:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/20293.shtml)
+- 2026-06-30 05:33 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/350036.shtml)
+- 2026-06-30 05:36 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/12353897249.shtml)
+- 2026-06-30 05:42 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/357070.shtml)
+- 2026-06-30 05:57 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/594078155975.shtml)
+- 2026-06-30 05:56 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/98787527.shtml)
+- 2026-06-30 05:30 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/431508204138.shtml)
+- 2026-06-30 05:59 - [巴西扳平比分](http://www.blog.minike.top/Article/details/50939463.shtml)
+- 2026-06-30 05:36 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/2784671353.shtml)
+- 2026-06-30 05:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/0884514036.shtml)
+- 2026-06-30 05:35 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/0061747858.shtml)
+- 2026-06-30 05:34 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/2949583638.shtml)
+- 2026-06-30 05:30 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/6785075082.shtml)
+- 2026-06-30 05:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/669919407291.shtml)
+- 2026-06-30 05:42 - [小娘惹](http://www.blog.minike.top/Article/details/42299.shtml)
+- 2026-06-30 05:39 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/63985269.shtml)

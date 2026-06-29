@@ -1,44 +1,60 @@
-# 内蒙古自治区兴安盟政协党组书记、主席杨冀鹏接受审查调查
+# 赖亚文当选新一届中国排球协会主席
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新网6月3日电 据内蒙古自治区纪委监委消息：内蒙古自治区兴安盟政协党组书记、主席杨冀鹏涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。
+中新社北京5月12日电 中国排球协会第八届会员大会12日在北京举行，赖亚文当选新一届中国排球协会主席。 会议完成了协会换届选举工作，按照国家有关社会团体管理相关规定，赖亚文当选中国排协主席，薛辉、陈少军、乔云萍、张欣、陈东升、盖洋当选副主席，袁磊当选副主席兼秘书长。 赖亚文总结了第七届委员会工作，代表中国排协对为中国排球作出杰出贡献的前辈和第七届委员会成员表示衷心感谢，并对协会
 
 ## 正文
 
-中新网6月3日电 据内蒙古自治区纪委监委消息：内蒙古自治区兴安盟政协党组书记、主席杨冀鹏涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。
+中新社北京5月12日电 中国排球协会第八届会员大会12日在北京举行，赖亚文当选新一届中国排球协会主席。
+
+会议完成了协会换届选举工作，按照国家有关社会团体管理相关规定，赖亚文当选中国排协主席，薛辉、陈少军、乔云萍、张欣、陈东升、盖洋当选副主席，袁磊当选副主席兼秘书长。
+
+赖亚文总结了第七届委员会工作，代表中国排协对为中国排球作出杰出贡献的前辈和第七届委员会成员表示衷心感谢，并对协会下一步工作进行了展望。
+
+公开资料显示，赖亚文出生于1970年，是中国女排的功勋球员和教练员。
+
+运动员时期，她曾担任中国女排队长，1996年帮助中国女排拿到亚特兰大奥运会银牌。
+
+退役后，赖亚文从1999年开始转型为中国女排助理教练，经历胡进、陈忠和、蔡斌、俞觉敏、郎平等主教练，协助中国女排夺得2003年、2015年两届世界杯冠军以及2004年、2016年两届奥运会冠军。
+
+2017年，赖亚文被任命为国家体育总局排球运动管理中心副主任，2023年出任国家体育总局排球运动管理中心主任。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:35 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 05:42 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 05:39 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 05:33 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 05:28 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 05:51 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 05:30 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 05:41 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 05:28 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 05:35 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 05:46 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 05:38 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 05:46 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 05:58 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 05:43 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 05:42 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 05:46 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 05:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 05:37 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 05:50 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 05:42 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 05:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 05:33 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 05:37 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 05:52 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 05:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:44 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/877973512808.shtml)
-- 2026-06-30 05:48 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/53709744380.shtml)
-- 2026-06-30 05:42 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/02587456867.shtml)
-- 2026-06-30 05:45 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/3200083.shtml)
-- 2026-06-30 05:26 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/53039536.shtml)
-- 2026-06-30 05:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/36371.shtml)
-- 2026-06-30 05:52 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/759558.shtml)
-- 2026-06-30 05:33 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/699926.shtml)
-- 2026-06-30 05:26 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/73299073192.shtml)
-- 2026-06-30 05:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/45772.shtml)
-- 2026-06-30 05:50 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/49172083493.shtml)
-- 2026-06-30 05:29 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/890808285.shtml)
-- 2026-06-30 05:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/627138836.shtml)
-- 2026-06-30 05:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/676931657267.shtml)
-- 2026-06-30 05:25 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/7692638053.shtml)
+- 2026-06-30 05:34 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/08855004.shtml)
+- 2026-06-30 05:41 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/86469.shtml)
+- 2026-06-30 05:44 - [金牌调解](https://www.share.minike.top/Article/details/80622.shtml)
+- 2026-06-30 05:38 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/05791508.shtml)
+- 2026-06-30 05:49 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/368867732.shtml)
+- 2026-06-30 05:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/669738.shtml)
+- 2026-06-30 05:35 - [点菜也要教吗](https://www.blog.minike.top/Article/details/8958476.shtml)
+- 2026-06-30 05:41 - [恋与深空回应争议](https://www.share.minike.top/Article/details/9246982.shtml)
+- 2026-06-30 05:40 - [巴西绝杀](http://www.share.minike.top/Article/details/0044457.shtml)
+- 2026-06-30 05:37 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/603183.shtml)
+- 2026-06-30 05:32 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/113356.shtml)
+- 2026-06-30 05:33 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/34237.shtml)
+- 2026-06-30 05:39 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/58557.shtml)
+- 2026-06-30 05:30 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/1942425.shtml)
+- 2026-06-30 05:50 - [乔家的儿女](https://www.blog.minike.top/Article/details/8414266418.shtml)

@@ -1,60 +1,53 @@
-# AT&T推出精简光纤套餐：提速降价，捆绑用户每年最高省420美元
+# 台湾台东县海域发生5.1级地震 福建多地震感明显
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-AT&T于6月3日宣布，从6月7日起将对其家庭光纤宽带产品线进行重大调整，推出四档简化速率套餐，并为同时订阅无线和宽带服务的用户提供大幅捆绑折扣，以应对日益激烈的市场竞争。 此次调整将光纤套餐精简为300 Mbps、500 Mbps、1 GIG和5 GIG四个速率选项。其中，入门级300 Mbps套餐的速率是此前入门级的三倍，实现了“提速不加价”。选择捆绑AT&T无线与家庭宽带
+中新社福州5月12日电 (郑江洛)台湾台东县海域12日下午发生5.1级地震，福建沿海多地震感明显。 根据中国地震台网正式测定，5月12日14时53分在台湾台东县海域(北纬23.27度，东经121.49度)发生5.1级地震，震源深度20千米。 地震发生后，福建福州、厦门、漳州、泉州、莆田等多地民众在社交平台上留言称，“震感强烈”“吊灯摇晃”。福州市民林颖表示，在位于市区高层建筑的
 
 ## 正文
 
-AT&T于6月3日宣布，从6月7日起将对其家庭光纤宽带产品线进行重大调整，推出四档简化速率套餐，并为同时订阅无线和宽带服务的用户提供大幅捆绑折扣，以应对日益激烈的市场竞争。
+中新社福州5月12日电 (郑江洛)台湾台东县海域12日下午发生5.1级地震，福建沿海多地震感明显。
 
-此次调整将光纤套餐精简为300 Mbps、500 Mbps、1 GIG和5 GIG四个速率选项。
+根据中国地震台网正式测定，5月12日14时53分在台湾台东县海域(北纬23.27度，东经121.49度)发生5.1级地震，震源深度20千米。
 
-其中，入门级300 Mbps套餐的速率是此前入门级的三倍，实现了“提速不加价”。
+地震发生后，福建福州、厦门、漳州、泉州、莆田等多地民众在社交平台上留言称，“震感强烈”“吊灯摇晃”。
 
-选择捆绑AT&T无线与家庭宽带服务的用户，每月光纤费用最低可至35美元起。
+福州市民林颖表示，在位于市区高层建筑的办公室中，她感受到明显晃动。
 
-AT&T表示，符合资格的用户通过捆绑服务每年最高可节省420美元，节省依据为5 GIG套餐用户每月可享25美元折扣，叠加自动付款及无纸化账单可再享10美元折扣，但该优惠仅在部分地区提供。
+根据中国地震台网速报目录，震中周边200公里内近5年来发生4级以上地震共392次，最大地震是2024年4月3日在台湾花莲县海域发生的7.3级地震。
 
-在服务保障方面，捆绑用户将免费获得“网络备份”功能。
-
-当AT&T光纤网络出现故障且用户智能手机靠近网关设备时，系统将自动切换至无线网络维持连接，待光纤服务恢复后再自动切回。
-
-AT&T宣称其光纤网络可靠性高达99.9%以上。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:31 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 05:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 05:44 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 05:47 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 05:49 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 05:36 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 05:35 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 05:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 05:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 05:27 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 05:39 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 05:49 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 05:26 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 05:40 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 05:57 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 05:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 05:49 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 05:43 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 05:49 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 05:54 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 05:36 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 05:30 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 05:37 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 05:47 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 05:41 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/28528.shtml)
-- 2026-06-30 05:33 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/22156003.shtml)
-- 2026-06-30 05:45 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/366417321025.shtml)
-- 2026-06-30 05:48 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/74427144388.shtml)
-- 2026-06-30 05:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/3421987.shtml)
-- 2026-06-30 05:52 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/864586507142.shtml)
-- 2026-06-30 05:39 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/391016.shtml)
-- 2026-06-30 05:36 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/9399079259.shtml)
-- 2026-06-30 05:42 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/94377086.shtml)
-- 2026-06-30 05:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/804258.shtml)
-- 2026-06-30 05:50 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/31292665540.shtml)
-- 2026-06-30 05:36 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/48797.shtml)
-- 2026-06-30 05:46 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/338519.shtml)
-- 2026-06-30 05:24 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/5428003189.shtml)
-- 2026-06-30 05:44 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/59576.shtml)
+- 2026-06-30 05:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/905955887882.shtml)
+- 2026-06-30 05:45 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/43296191.shtml)
+- 2026-06-30 05:52 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/3455121002.shtml)
+- 2026-06-30 05:35 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/818949237995.shtml)
+- 2026-06-30 05:59 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/7549142960.shtml)
+- 2026-06-30 05:49 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/22497.shtml)
+- 2026-06-30 05:55 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/7479470.shtml)
+- 2026-06-30 05:41 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/92403526731.shtml)
+- 2026-06-30 05:44 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/10692879010.shtml)
+- 2026-06-30 05:51 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/283883322.shtml)
+- 2026-06-30 05:56 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/258925249.shtml)
+- 2026-06-30 05:53 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/2326076794.shtml)
+- 2026-06-30 05:53 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/073882547.shtml)
+- 2026-06-30 05:32 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/172631021.shtml)
+- 2026-06-30 05:46 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/6441628509.shtml)

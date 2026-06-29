@@ -1,56 +1,53 @@
-# 中外旅行商海南“一对一”洽谈达成226项合作意向
+# 神舟二十三号载人飞行任务标识发布
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新网海口6月3日电 (汪雅雅)作为2026海外旅行商海南行活动的重要环节，“全域对接”——中外旅行商一对一洽谈活动2日在海口举行。来自全球多地的境外旅行商代表与海南18个市县的旅文企业、旅行社、酒店及综合体代表展开精准对接。据统计，现场达成合作意向226项。 此次洽谈活动以“全域对接”为核心，设立市县组团、旅行社组团、酒店及综合体组团三大主题分区展位，为中外旅行商搭建起高效联
+中国载人航天工程办公室正式发布神舟二十三号载人飞行任务标识。 设计理念 标识采用圆形设计，展现了神舟二十三号载人飞船即将与中国空间站对接的场景，彰显了中国载人航天的硬核科技实力。 标识中三颗五角星对应执行任务的三位航天员；左侧以长征二号F运载火箭发射为视觉主体，搭配金色祥云、如意纹样，将传统吉祥元素与现代航天科技相融，寄托任务圆满成功的美好祝愿，彰显传统文化与航天事业的深度融合
 
 ## 正文
 
-中新网海口6月3日电 (汪雅雅)作为2026海外旅行商海南行活动的重要环节，“全域对接”——中外旅行商一对一洽谈活动2日在海口举行。
+中国载人航天工程办公室正式发布神舟二十三号载人飞行任务标识。
 
-来自全球多地的境外旅行商代表与海南18个市县的旅文企业、旅行社、酒店及综合体代表展开精准对接。
+设计理念 标识采用圆形设计，展现了神舟二十三号载人飞船即将与中国空间站对接的场景，彰显了中国载人航天的硬核科技实力。
 
-据统计，现场达成合作意向226项。
+标识中三颗五角星对应执行任务的三位航天员；左侧以长征二号F运载火箭发射为视觉主体，搭配金色祥云、如意纹样，将传统吉祥元素与现代航天科技相融，寄托任务圆满成功的美好祝愿，彰显传统文化与航天事业的深度融合；右侧融合“飞天”形象与灵动飘带，线条昂扬向上，与圆形轮廓相得益彰，以经典文化符号承载中华民族千年飞天梦想与探索苍穹的坚定信念。
 
-此次洽谈活动以“全域对接”为核心，设立市县组团、旅行社组团、酒店及综合体组团三大主题分区展位，为中外旅行商搭建起高效联动的合作桥梁。
+标识色彩以科技蓝为主色调，象征着太空探索与科技突破；以中国红点缀，既传承神舟系列标识视觉基因，也寓意着任务顺利、一往无前。
 
-在海南省18市县旅游资源集中展示区，各市县推出热带雨林、滨海度假、火山溶洞、湿地红树林等自然生态类资源，以及民族文化、东坡文化等文化体验产品。
-
-康养休闲、免税购物、游艇帆船、低空飞行、高尔夫等时尚消费类资源，会奖旅游、研学旅行、婚庆旅拍、体育赛事等专项旅游产品也悉数亮相，吸引众多境外旅行商驻足咨询。
-
-在旅行社组团展位和酒店及综合体组团展位，海南康泰旅游股份有限公司、海南赛奥飞国际旅行社有限公司等入境旅行社代表，万宁中旅逐浪度假区、海口观澜湖度假酒店、三亚天丽湾凯悦酒店等高端度假酒店代表，与境外旅行商就联合设计跨区域旅游线路、开拓入境游渠道等展开深入交流。
-
-来自意大利的旅行商Gian Paolo Vairo在洽谈后表示，海南既有国际化的滨海度假设施，又有独特的雨林文化和黎苗风情，这正是欧洲客人向往的旅游目的地。
+(总台央视记者 王刚）
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 05:53 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 05:43 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 05:24 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 05:36 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 05:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 05:52 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 05:28 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 05:31 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 05:50 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 05:36 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 05:47 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 05:45 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 05:51 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 05:57 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 05:35 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 05:37 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 05:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 05:55 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 05:38 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 05:41 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 05:57 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 05:34 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [天道](https://www.share.kurohicncr.top/Article/details/33391334.shtml)
-- 2026-06-30 05:43 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/0626963.shtml)
-- 2026-06-30 05:35 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/63743010.shtml)
-- 2026-06-30 05:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/5011760.shtml)
-- 2026-06-30 05:41 - [日本16强魔咒](https://www.blog.minike.top/Article/details/726824153.shtml)
-- 2026-06-30 05:30 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/897940962.shtml)
-- 2026-06-30 05:26 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/0481324704.shtml)
-- 2026-06-30 05:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/0985437.shtml)
-- 2026-06-30 05:51 - [世界杯](http://www.share.kurohicncr.top/Article/details/872983242.shtml)
-- 2026-06-30 05:47 - [我们的少年时代2](http://www.blog.minike.top/Article/details/66142738179.shtml)
-- 2026-06-30 05:52 - [一见倾心](http://www.blog.minike.top/Article/details/592609.shtml)
-- 2026-06-30 05:43 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/132918452.shtml)
-- 2026-06-30 05:31 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/253420.shtml)
-- 2026-06-30 05:46 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/43322781.shtml)
-- 2026-06-30 05:42 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/02252023684.shtml)
+- 2026-06-30 05:55 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/0897585926.shtml)
+- 2026-06-30 05:44 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/38400439.shtml)
+- 2026-06-30 05:36 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/80035.shtml)
+- 2026-06-30 05:43 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/86599.shtml)
+- 2026-06-30 05:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/477796889993.shtml)
+- 2026-06-30 05:31 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/89467.shtml)
+- 2026-06-30 05:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/1945183.shtml)
+- 2026-06-30 05:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/094206207985.shtml)
+- 2026-06-30 05:44 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/643840973.shtml)
+- 2026-06-30 05:51 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/8774175728.shtml)
+- 2026-06-30 05:43 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/25883311.shtml)
+- 2026-06-30 05:44 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/8518465119.shtml)
+- 2026-06-30 05:52 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/50773.shtml)
+- 2026-06-30 05:31 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/722182449377.shtml)
+- 2026-06-30 05:53 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/3991304.shtml)

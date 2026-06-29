@@ -1,61 +1,56 @@
-# 超音速发射平台Starfighters Space公司获1750万美元融资背书
+# 关于汉坦病毒，张文宏最新判断
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-在太空投资热潮持续升温之际，一家采用独特技术路线的发射公司刚刚获得了机构投资者的有力支持。Starfighters Space， Inc．宣布完成约1750万美元的战略股权投资，本轮融资由多家全球机构投资者共同参与。 与当前主流的垂直火箭发射方式不同，Starfighters Space选择了一条差异化的技术路径。公司运营着全球唯一一支商业化的、具备飞行状态且速度可达2马赫以上
+21世纪经济报道记者 季媛媛 近日，大西洋上“洪迪厄斯”号极地探险邮轮暴发汉坦病毒（安第斯病毒）聚集性感染，致多人患病及死亡，其可能的有限人际传播特性与严重致病性引发全球关注。 世卫组织于5月9日发布的数据显示，该邮轮自4月11日以来累计报告8例病例（6例确诊感染安第斯病毒），其中3人死亡，病死率达38%。船上人员计划于5月11日前全部撤离。 该病毒后续走势如何？ 对此，国家传
 
 ## 正文
 
-在太空投资热潮持续升温之际，一家采用独特技术路线的发射公司刚刚获得了机构投资者的有力支持。
+21世纪经济报道记者 季媛媛 近日，大西洋上“洪迪厄斯”号极地探险邮轮暴发汉坦病毒（安第斯病毒）聚集性感染，致多人患病及死亡，其可能的有限人际传播特性与严重致病性引发全球关注。
 
-Starfighters Space， Inc．宣布完成约1750万美元的战略股权投资，本轮融资由多家全球机构投资者共同参与。
+世卫组织于5月9日发布的数据显示，该邮轮自4月11日以来累计报告8例病例（6例确诊感染安第斯病毒），其中3人死亡，病死率达38%。
 
-与当前主流的垂直火箭发射方式不同，Starfighters Space选择了一条差异化的技术路径。
+船上人员计划于5月11日前全部撤离。
 
-公司运营着全球唯一一支商业化的、具备飞行状态且速度可达2马赫以上的超音速飞机机队，基地设在佛罗里达州的NASA肯尼迪航天中心。
+该病毒后续走势如何？
 
-其核心的STARLAUNCH平台利用F-104超音速飞机作为可重复使用的空中载机，将火箭携带至高空高速状态后释放，目标瞄准小型、快速响应的发射市场，涵盖微重力研究、卫星部署、高超音速测试及国防应用等领域。
+对此，国家传染病医学中心主任、复旦大学附属华山医院感染科主任张文宏教授最新指出，邮轮汉坦病毒传播事件还没结束，但需从流行病学调查角度理性看待这一古老病毒在新场景的传播风险。
 
-公司首席执行官Tim Franta表示：“这笔融资是对我们平台和长期战略的有力背书。
+MV Honduras事件不是一个简单的“邮轮疫情”，而是一条仍在调查中的风险链：一名可能在南美自然疫源地暴露后感染的旅行者登船，在远洋探险旅行这一相对封闭环境中发病并死亡；随后，与其存在密切接触或共同船上暴露的乘客、船员、向导及已离船人员陆续发病，形成跨国追踪和管理需求。
 
-这将使我们能够加速执行计划，扩大运营能力，并满足市场对快速空间进入方案日益增长的需求。
+“从目前证据看，这次事件是一个古老病毒从栖息地外泄事件，并非这个病毒的第一次外泄，只是换了场景。
 
-” 根据规划，资金将用于运营扩张、基础设施建设以及STARLAUNCH平台的持续开发。
+”张文宏指出，该次事件是否会在近期结束，有待于邮轮返程人员在后续6周居家隔离期内是否会有发病，以及是否有二代病例出现。
 
 ## 相关推荐
 
-- 2026-06-30 05:39 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-30 05:52 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 05:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 05:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 05:34 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 05:44 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 05:34 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 05:43 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 05:33 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 05:27 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 05:44 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 05:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 05:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 05:29 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 05:52 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 05:43 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 05:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 05:34 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 05:57 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 05:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 05:40 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 05:41 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 05:49 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 05:36 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 05:35 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:42 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/919449.shtml)
-- 2026-06-30 05:45 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/0726252.shtml)
-- 2026-06-30 05:38 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/463489.shtml)
-- 2026-06-30 05:47 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/5500590.shtml)
-- 2026-06-30 05:25 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/8587174.shtml)
-- 2026-06-30 05:35 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/891425571132.shtml)
-- 2026-06-30 05:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/25469228602.shtml)
-- 2026-06-30 05:35 - [天道](https://www.share.minike.top/Article/details/168069364455.shtml)
-- 2026-06-30 05:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/053157.shtml)
-- 2026-06-30 05:45 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/55607083.shtml)
-- 2026-06-30 05:27 - [TOP Prada](https://www.blog.minike.top/Article/details/491295.shtml)
-- 2026-06-30 05:28 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/1001585.shtml)
-- 2026-06-30 05:25 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/69341075044.shtml)
-- 2026-06-30 05:31 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/677990924079.shtml)
-- 2026-06-30 05:33 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/02960572867.shtml)
+- 2026-06-30 05:53 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/118935296072.shtml)
+- 2026-06-30 05:50 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/2880859148.shtml)
+- 2026-06-30 05:50 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/596907.shtml)
+- 2026-06-30 05:51 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/50725517.shtml)
+- 2026-06-30 05:44 - [扬名立万](https://www.share.minike.top/Article/details/4234101093.shtml)
+- 2026-06-30 05:54 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/21506667.shtml)
+- 2026-06-30 05:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/09807953.shtml)
+- 2026-06-30 05:43 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/57359125.shtml)
+- 2026-06-30 05:30 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/47473.shtml)
+- 2026-06-30 05:53 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/81553427176.shtml)
+- 2026-06-30 05:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/3383347230.shtml)
+- 2026-06-30 05:39 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/36940388.shtml)
+- 2026-06-30 05:43 - [我和我的家乡](https://www.share.minike.top/Article/details/01521.shtml)
+- 2026-06-30 05:49 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/1937616.shtml)
+- 2026-06-30 05:47 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/988203.shtml)

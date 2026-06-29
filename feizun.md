@@ -1,59 +1,58 @@
-# 中证协召开证券行业文化建设与廉洁从业专业委员会主任委员（扩大）会议
+# 专家：系统性红斑狼疮治疗有多个突破性进展
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电 (记者 陈康亮)据中国证券业协会(下称中证协)2日消息，中证协证券行业文化建设与廉洁从业专业委员会近日召开主任委员(扩大)会议。会议深入学习领会全国两会和“十五五”规划纲要精神，《国有企业领导人员廉洁从业规定》和《关于办理贪污贿赂刑事案件适用法律若干问题的解释(二)》有关规定，并就2026年委员会工作计划进展及重点工作情况进行研讨交流。会议指出，“十五五”
+中新网上海5月12日电 (记者 陈静)在中国，系统性红斑狼疮患者数量庞大。这种慢性自身免疫性疾病常累及肾脏、血液及神经系统等，患者面部的红斑如蝶翼，因而被称为“蝶友”。 中华医学会风湿病学分会候任主任委员、北京大学第一医院风湿免疫科主任张卓莉教授12日在沪接受采访时表示，经过几十年的发展，系统性红斑狼疮的治疗有突破性的进展。首先，从激素到免疫抑制剂，如今有了生物制剂。 “其次，
 
 ## 正文
 
-中新网北京6月2日电 (记者 陈康亮)据中国证券业协会(下称中证协)2日消息，中证协证券行业文化建设与廉洁从业专业委员会近日召开主任委员(扩大)会议。
+中新网上海5月12日电 (记者 陈静)在中国，系统性红斑狼疮患者数量庞大。
 
-会议深入学习领会全国两会和“十五五”规划纲要精神，《国有企业领导人员廉洁从业规定》和《关于办理贪污贿赂刑事案件适用法律若干问题的解释(二)》有关规定，并就2026年委员会工作计划进展及重点工作情况进行研讨交流。
+这种慢性自身免疫性疾病常累及肾脏、血液及神经系统等，患者面部的红斑如蝶翼，因而被称为“蝶友”。
 
-会议指出，“十五五”时期是加快建设金融强国的关键时期，对证券行业文化建设提出了更高要求。
+中华医学会风湿病学分会候任主任委员、北京大学第一医院风湿免疫科主任张卓莉教授12日在沪接受采访时表示，经过几十年的发展，系统性红斑狼疮的治疗有突破性的进展。
 
-践行资本市场政治性、人民性，加强党的建设，培育廉洁文化，增强行业文化建设内在驱动力，以文化“软实力”更好支撑专业“硬实力”是未来一段时期的重要任务。
+首先，从激素到免疫抑制剂，如今有了生物制剂。
 
-行业机构和从业人员要深刻把握新形势下文化建设特别是廉洁文化建设的极端重要性，加大文化建设和廉洁从业管理力度；要坚持党建引领，将文化建设融入公司发展战略、规章制度、日常经营等各环节，将廉洁从业风险防范做到全面覆盖、突出重点，共同营造风清气正的行业发展环境，塑造良好行业声誉。
+“其次，治疗理念有了进步。
 
-会议就制定行业文化建设指导性文件、加强行业廉洁文化建设、评估修订文化建设自律规则、编制典型示范案例、加强行业培训教育、促进行业交流等六项重点工作开展研讨交流，提出明确指导性文件定位并优化其结构与内容、细化廉洁从业实施细则有关要求提升指导性及可操作性、增强实践评估指标的适用性并扩大加分范围等意见建议。
+”张卓莉教授指出，“过去我们只是改善病人的症状，根本谈不到未来。
 
-下一步，委员会表示，将深入贯彻落实树立和践行正确政绩观学习教育要求，以更高更严标准履职尽责，提升委员会工作质效，引导行业机构和从业人员积极践行中国特色金融文化，持续健全廉洁从业管理制度机制，强化廉洁文化建设，扎实推进行业文化建设取得更多成效。
+但现在，系统性红斑狼疮的病人可以和正常人一样长期生活。
 
-(完)
+我们不仅要把疾病控制到令人满意的程度，同时激素用量要大幅减少，甚至停掉。
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 05:27 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 05:36 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 05:53 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 05:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 05:41 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 05:53 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 05:39 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 05:39 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 05:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 05:43 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 05:52 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 05:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 05:46 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 05:49 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 05:40 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 05:44 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 05:56 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 05:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 05:53 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 05:51 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 05:32 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 05:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 05:43 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 05:31 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:28 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/4335860.shtml)
-- 2026-06-30 05:29 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/7303441930.shtml)
-- 2026-06-30 05:31 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/5806720066.shtml)
-- 2026-06-30 05:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/422595.shtml)
-- 2026-06-30 05:37 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/14754765.shtml)
-- 2026-06-30 05:30 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/90402677.shtml)
-- 2026-06-30 05:25 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/7699220.shtml)
-- 2026-06-30 05:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/87769859721.shtml)
-- 2026-06-30 05:26 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/03479520075.shtml)
-- 2026-06-30 05:38 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/801125853159.shtml)
-- 2026-06-30 05:24 - [毒液2](https://www.blog.minike.top/Article/details/013630530936.shtml)
-- 2026-06-30 05:44 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/203523980.shtml)
-- 2026-06-30 05:32 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/8090776.shtml)
-- 2026-06-30 05:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/2261957913.shtml)
-- 2026-06-30 05:42 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/0460143163.shtml)
+- 2026-06-30 05:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/2921940645.shtml)
+- 2026-06-30 05:38 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/23827333.shtml)
+- 2026-06-30 05:35 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/5745125.shtml)
+- 2026-06-30 05:55 - [一生一世](https://www.share.kurohicncr.top/Article/details/03541.shtml)
+- 2026-06-30 05:57 - [请回答王牌2019](http://www.share.minike.top/Article/details/867913.shtml)
+- 2026-06-30 05:37 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/36141366.shtml)
+- 2026-06-30 05:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/43827.shtml)
+- 2026-06-30 05:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/2214142392.shtml)
+- 2026-06-30 05:48 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/6199934.shtml)
+- 2026-06-30 05:39 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/3198688252.shtml)
+- 2026-06-30 05:43 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/833013009791.shtml)
+- 2026-06-30 05:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/5685482140.shtml)
+- 2026-06-30 05:37 - [啊啊啊](http://www.share.minike.top/Article/details/92615.shtml)
+- 2026-06-30 05:55 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/60420963405.shtml)
+- 2026-06-30 05:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/19280162.shtml)

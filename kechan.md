@@ -1,56 +1,44 @@
-# 中信证券：“关税交易”再起，铜价有望再创新高
+# 欧盟拟制裁以色列极端定居者
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信证券研究 文|涂耀廷 拜俊飞 敖翀 美铜关税评估的最终时点临近，“关税交易”与库存囤积重回铜市场主线。我们认为，海外“备货性”库存囤积为铜基本面提供坚实支撑，而近期COMEX库存加速攀升所反映的“交易性”库存囤积，有望激化铜价和铜板块走强，年内铜价高点有望冲击15000美元/吨。重点推荐铜板块盈利弹性与
+发布时间：2026年05月12日 13:16 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-中信证券研究 文|涂耀廷 拜俊飞 敖翀 美铜关税评估的最终时点临近，“关税交易”与库存囤积重回铜市场主线。
-
-我们认为，海外“备货性”库存囤积为铜基本面提供坚实支撑，而近期COMEX库存加速攀升所反映的“交易性”库存囤积，有望激化铜价和铜板块走强，年内铜价高点有望冲击15000美元/吨。
-
-重点推荐铜板块盈利弹性与估值弹性共振的配置机遇。
-
-▍“关税交易”与美铜库存囤积再起重燃市场情绪。
-
-2026年6月1日，LME铜和COMEX铜日度涨幅分别达到2.0%和2.8%，分别收于13897美元/吨和14485美元/吨。
-
-根据彭博社，美国商务部需在6月30日前向特朗普提交一份最新的铜市场评估报告，并对美国是否对精炼铜征收进口关税给出建议。
-
-此前美国从2025年8月1日起执行的关税方案未对精炼铜征收费用，计划从2027年起分阶段征收关税，起始税率为15%。
+发布时间：2026年05月12日 13:16 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 05:29 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 05:50 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 05:37 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 05:43 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 05:53 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 05:41 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 05:47 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 05:47 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 05:28 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 05:31 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 05:39 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 05:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 05:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 05:36 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 05:53 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 05:47 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 05:59 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 05:31 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 05:59 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 05:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 05:40 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 05:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/908904653.shtml)
-- 2026-06-30 05:27 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/185672317968.shtml)
-- 2026-06-30 05:47 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/470690667.shtml)
-- 2026-06-30 05:39 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/37893190.shtml)
-- 2026-06-30 05:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/738724138913.shtml)
-- 2026-06-30 05:48 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/70704261.shtml)
-- 2026-06-30 05:40 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/67391093.shtml)
-- 2026-06-30 05:53 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/737487073678.shtml)
-- 2026-06-30 05:48 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/99678932738.shtml)
-- 2026-06-30 05:39 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/677913.shtml)
-- 2026-06-30 05:46 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/70843.shtml)
-- 2026-06-30 05:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/5800906.shtml)
-- 2026-06-30 05:31 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/6493430.shtml)
-- 2026-06-30 05:28 - [我们的少年时代2](https://www.blog.minike.top/Article/details/5901524.shtml)
-- 2026-06-30 05:50 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/54556295421.shtml)
+- 2026-06-30 05:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/445591805535.shtml)
+- 2026-06-30 05:58 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/569224406269.shtml)
+- 2026-06-30 05:47 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/6683293779.shtml)
+- 2026-06-30 05:50 - [点菜也要教吗](https://www.blog.minike.top/Article/details/177826.shtml)
+- 2026-06-30 05:31 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/3426357.shtml)
+- 2026-06-30 05:42 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/155546.shtml)
+- 2026-06-30 05:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/25878.shtml)
+- 2026-06-30 06:00 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/3566201032.shtml)
+- 2026-06-30 05:39 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/249044.shtml)
+- 2026-06-30 05:59 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/5605800009.shtml)
+- 2026-06-30 05:56 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/22670466130.shtml)
+- 2026-06-30 05:44 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/331377217.shtml)
+- 2026-06-30 05:42 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/71223142.shtml)
+- 2026-06-30 05:58 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/07127446997.shtml)
+- 2026-06-30 05:34 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/615875331448.shtml)

@@ -1,55 +1,59 @@
-# 美国计划对60个经济体加征关税，中方回应
+# 香港劳工及福利局局长：截至去年底1.36万名长者受益于软餐服务
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-6月3日，外交部发言人毛宁主持例行记者会。 据新华社报道，美国贸易代表办公室2日晚些时候发布公告，根据301调查结果，美国贸易代表计划以“未禁止进口强迫劳动产品”为由对60个经济体加征10%或12.5%的关税。会上，路透社记者提问，中方对此有何回应？ 毛宁表示，中方一贯反对各种形式的单边关税措施，关税战、贸易战不符合任何一方的利益，经贸问题应该在平等、尊重、互惠的基础上通过对话
+中新网香港5月12日电 (记者 赵静怡) 当91岁的香港长者赵秋霖12日再次品尝到记忆中鲍鱼的鲜美滋味时，笑容在脸上浮现。这得益于一种能复刻食物形态，又方便老年人吞咽的软餐。香港特区政府劳工及福利局局长孙玉菡当天介绍，特区政府从2020年起投入相关资源，截至2025年底，共有1.36万名香港长者受益于软餐服务。 在目前65岁以上人口占比达到约25%的香港，软餐服务正被重视。当天
 
 ## 正文
 
-6月3日，外交部发言人毛宁主持例行记者会。
+中新网香港5月12日电 (记者 赵静怡) 当91岁的香港长者赵秋霖12日再次品尝到记忆中鲍鱼的鲜美滋味时，笑容在脸上浮现。
 
-据新华社报道，美国贸易代表办公室2日晚些时候发布公告，根据301调查结果，美国贸易代表计划以“未禁止进口强迫劳动产品”为由对60个经济体加征10%或12.5%的关税。
+这得益于一种能复刻食物形态，又方便老年人吞咽的软餐。
 
-会上，路透社记者提问，中方对此有何回应？
+香港特区政府劳工及福利局局长孙玉菡当天介绍，特区政府从2020年起投入相关资源，截至2025年底，共有1.36万名香港长者受益于软餐服务。
 
-毛宁表示，中方一贯反对各种形式的单边关税措施，关税战、贸易战不符合任何一方的利益，经贸问题应该在平等、尊重、互惠的基础上通过对话协商解决。
+在目前65岁以上人口占比达到约25%的香港，软餐服务正被重视。
 
-责任编辑：刘万里 SF014
+当天，“软心膳万岁饮茶暨照护食社区关爱站启动礼”在香港举办，超过100位老人共聚一堂，品尝包括“鲍鱼海参盆菜”“双喜寿桃包”两款新研发产品在内的软餐。
+
+孙玉菡出席活动并致辞。
+
+他回忆，自己在照顾长者时，感受到他们的生活乐趣之一在于品味美食——若能进食，便会感到十分开心。
+
+他说，软餐的出现，为长者带来欢乐，有助凝聚家庭关系。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 05:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 05:30 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 05:25 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 05:31 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 05:33 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 05:49 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 05:53 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 05:47 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 05:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 05:32 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 05:42 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 05:28 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 05:44 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 05:40 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 05:37 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 05:34 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 05:31 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 05:35 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 05:59 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 05:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 05:38 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 05:53 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 05:40 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 05:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 05:47 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 05:42 - [巴西绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 05:41 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/64085380.shtml)
-- 2026-06-30 05:46 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/015245830.shtml)
-- 2026-06-30 05:34 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/19673157988.shtml)
-- 2026-06-30 05:28 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/2763561.shtml)
-- 2026-06-30 05:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/890406804684.shtml)
-- 2026-06-30 05:26 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/73623608.shtml)
-- 2026-06-30 05:43 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/805187.shtml)
-- 2026-06-30 05:48 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/696773278.shtml)
-- 2026-06-30 05:49 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/478531.shtml)
-- 2026-06-30 05:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/33824.shtml)
-- 2026-06-30 05:29 - [周生如故](https://www.share.minike.top/Article/details/1342778517.shtml)
-- 2026-06-30 05:52 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/118263226136.shtml)
-- 2026-06-30 05:44 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/78691.shtml)
-- 2026-06-30 05:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/777300934540.shtml)
-- 2026-06-30 05:53 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/947113752052.shtml)
+- 2026-06-30 05:34 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/73277.shtml)
+- 2026-06-30 05:32 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/057355351034.shtml)
+- 2026-06-30 05:36 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/43577.shtml)
+- 2026-06-30 05:51 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/54949.shtml)
+- 2026-06-30 05:58 - [逃狱兄弟](http://www.share.minike.top/Article/details/6400645.shtml)
+- 2026-06-30 05:53 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/86973663484.shtml)
+- 2026-06-30 05:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/987052.shtml)
+- 2026-06-30 05:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/1442182.shtml)
+- 2026-06-30 05:53 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/091331149595.shtml)
+- 2026-06-30 05:52 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/690510.shtml)
+- 2026-06-30 05:47 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/2899044515.shtml)
+- 2026-06-30 05:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/243275564989.shtml)
+- 2026-06-30 05:55 - [房价什么时候能涨](http://www.share.minike.top/Article/details/43431768.shtml)
+- 2026-06-30 05:49 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/946214881865.shtml)
+- 2026-06-30 05:36 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/1767218.shtml)

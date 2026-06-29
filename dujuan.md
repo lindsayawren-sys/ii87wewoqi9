@@ -1,57 +1,58 @@
-# 黄金超美债成全球官方储备第一大资产
+# 俄罗斯新接收LNG运输船完成受制裁项目货物装载
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-欧洲中央银行6月2日发布报告称，截至2025年年底，黄金在全球官方储备资产总额中的占比已升至27%，超越美国国债，成为全球官方储备第一大资产。 报告指出，美国国债在全球官方储备资产中占比降至22%，其他以美元计价的储备资产占比为20%，欧元储备资产占比为15%。 近年来，黄金价格上演了历史罕见的牛市行情。Wind数据显示，2024年至2025年，现货黄金价格累计上涨超过109%
+据伦敦证券交易所集团（LSEG）监测数据显示，俄罗斯近期纳入其能源运输编队的液化天然气（LNG）运输船“默库里”号（Merkuriy）已完成货物装载。该船货物提自受美方制裁的“北极LNG 2”项目（Arctic LNG 2），目前正由俄北极港口摩尔曼斯克附近海域向西航行。 监测信息显示，“默库里”号于5月9日在摩尔曼斯克附近的“萨姆”（Saam）浮式仓储装置完成装载，该装置主要
 
 ## 正文
 
-欧洲中央银行6月2日发布报告称，截至2025年年底，黄金在全球官方储备资产总额中的占比已升至27%，超越美国国债，成为全球官方储备第一大资产。
+据伦敦证券交易所集团（LSEG）监测数据显示，俄罗斯近期纳入其能源运输编队的液化天然气（LNG）运输船“默库里”号（Merkuriy）已完成货物装载。
 
-报告指出，美国国债在全球官方储备资产中占比降至22%，其他以美元计价的储备资产占比为20%，欧元储备资产占比为15%。
+该船货物提自受美方制裁的“北极LNG 2”项目（Arctic LNG 2），目前正由俄北极港口摩尔曼斯克附近海域向西航行。
 
-近年来，黄金价格上演了历史罕见的牛市行情。
+监测信息显示，“默库里”号于5月9日在摩尔曼斯克附近的“萨姆”（Saam）浮式仓储装置完成装载，该装置主要用于“北极LNG 2”项目的液化天然气转运作业。
 
-Wind数据显示，2024年至2025年，现货黄金价格累计上涨超过109%。
+为应对外部制裁压力、保障能源出口安全，俄罗斯近几个月内已先后将“奥赖恩”号（Orion）、“鲁奇”号（Luch）、“默库里”号及“科斯莫斯”号（Kosmos）四艘LNG运输船纳入其运输船队。
 
-进入2026年，金价震荡涨势，并在1月一度冲高至近5600美元/盎司的历史峰值。
+上述船只均建造于2005年至2006年间，近期通过变更所有权及重新注册等方式，全部转入俄罗斯旗帜下运行。
 
-随后，受地缘冲突、油价波动等因素影响，金价经历剧烈回调，近一个月在4500美元/盎司附近呈现偏弱震荡态势。
+目前，“默库里”号的最终航行目的地尚未公开。
 
-报告认为，黄金储备占比的大幅提升首先归因于估值效应。
+有消息人士指出，尽管中东局势动荡导致全球能源供应趋紧，但由于担忧美方制裁影响，印度方面已拒绝了俄方关于购买“北极LNG 2”项目产品的提议。
 
-得益于国际金价在2024年、2025年连续井喷式上涨，黄金资产价值水涨船高，从而在全球官方储备中取得更大份额。
+莫斯科方面正加速推动液化天然气供应的多元化布局，以应对欧洲市场的政策转向。
 
 ## 相关推荐
 
-- 2026-06-30 05:28 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 05:27 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 05:27 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 05:38 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 05:43 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 05:36 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 05:43 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 05:45 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 05:35 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 05:26 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 05:49 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 05:34 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 05:43 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 05:42 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 05:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 05:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 05:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 05:36 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 05:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 05:57 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 05:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 05:40 - [点菜也要教吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 05:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:50 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/22419506.shtml)
-- 2026-06-30 05:35 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/122791118.shtml)
-- 2026-06-30 05:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/447355859.shtml)
-- 2026-06-30 05:44 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/60463.shtml)
-- 2026-06-30 05:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/845790110.shtml)
-- 2026-06-30 05:51 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/58059.shtml)
-- 2026-06-30 05:51 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/123534799.shtml)
-- 2026-06-30 05:49 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/3539120750.shtml)
-- 2026-06-30 05:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/3056477120.shtml)
-- 2026-06-30 05:49 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/67808618862.shtml)
-- 2026-06-30 05:53 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/829313167.shtml)
-- 2026-06-30 05:40 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/788364197.shtml)
-- 2026-06-30 05:38 - [恋与深空回应争议](https://www.share.minike.top/Article/details/61644.shtml)
-- 2026-06-30 05:35 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/823127663.shtml)
-- 2026-06-30 05:36 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/6542221.shtml)
+- 2026-06-30 05:53 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/3619560.shtml)
+- 2026-06-30 05:59 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/6726069.shtml)
+- 2026-06-30 05:34 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/11033750.shtml)
+- 2026-06-30 05:36 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/95340252002.shtml)
+- 2026-06-30 05:32 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/029356.shtml)
+- 2026-06-30 05:38 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/10900489.shtml)
+- 2026-06-30 05:40 - [斛珠夫人](https://www.blog.minike.top/Article/details/02745036810.shtml)
+- 2026-06-30 05:44 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/167162.shtml)
+- 2026-06-30 05:55 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/14048624.shtml)
+- 2026-06-30 05:54 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/39410103270.shtml)
+- 2026-06-30 05:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/000554.shtml)
+- 2026-06-30 05:32 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/15006.shtml)
+- 2026-06-30 05:52 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/04005267.shtml)
+- 2026-06-30 05:44 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/9672056099.shtml)
+- 2026-06-30 05:38 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/59136.shtml)

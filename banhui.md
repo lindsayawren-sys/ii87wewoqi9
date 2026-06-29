@@ -1,56 +1,58 @@
-# 高考在即做好身心调适 专家支招助力从容赴考
+# 强降雨持续影响云南 多地连发暴雨预警
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新网西安6月3日电 (记者 党田野)高考将至，考生进入考前调整期。高强度备考、紧凑作息叠加盛夏高温，令一些考生出现睡眠波动、肠胃不适、体虚燥热等状况。近日，西安市红会医院心身医学科主任、副主任医师王莹在接受记者采访时表示，近期前来咨询身心调理的考生有所增多，考前各类身心状态问题较为典型，通过科学调理均可有效改善。 王莹介绍，高强度备考状态下，考生容易出现入睡困难、睡眠偏浅等情
+中新网昆明5月11日电(李嘉娴)5月11日至14日，江南、华南等地新一轮较强降水过程来袭，其中云南将自西向东迎来中到大雨天气，部分地区有暴雨，并伴有短时强降水等强对流天气，防汛防灾形势严峻。 截至5月11日20时10分，云南多地密集发布、更新各类气象灾害预警。本轮降雨过程中，红河、丽江、普洱等多地气象部门陆续发布暴雨黄色、橙色预警，部分区域监测到明显短时强降水，预判未来时段雨势
 
 ## 正文
 
-中新网西安6月3日电 (记者 党田野)高考将至，考生进入考前调整期。
+中新网昆明5月11日电(李嘉娴)5月11日至14日，江南、华南等地新一轮较强降水过程来袭，其中云南将自西向东迎来中到大雨天气，部分地区有暴雨，并伴有短时强降水等强对流天气，防汛防灾形势严峻。
 
-高强度备考、紧凑作息叠加盛夏高温，令一些考生出现睡眠波动、肠胃不适、体虚燥热等状况。
+截至5月11日20时10分，云南多地密集发布、更新各类气象灾害预警。
 
-近日，西安市红会医院心身医学科主任、副主任医师王莹在接受记者采访时表示，近期前来咨询身心调理的考生有所增多，考前各类身心状态问题较为典型，通过科学调理均可有效改善。
+本轮降雨过程中，红河、丽江、普洱等多地气象部门陆续发布暴雨黄色、橙色预警，部分区域监测到明显短时强降水，预判未来时段雨势持续，辖区内多个乡镇暴雨灾害风险较高。
 
-王莹介绍，高强度备考状态下，考生容易出现入睡困难、睡眠偏浅等情况，部分考生还会伴随食欲起伏、肠胃不适、心慌紧张等躯体表现，这都是考前阶段的正常生理波动，考生和家长无需过度担忧。
+同时，部分区域发布雷电黄色预警，预计将出现持续雷电天气，存在一定雷击安全隐患，大范围强对流天气风险突出。
 
-“考前不要刻意早睡，过度调整反而会让孩子更加紧张，影响睡眠效果。
+结合最新气象监测，云南省发布地质灾害气象风险预警，5月11日20时至12日20时，红河州元阳、绿春、金平三县滑坡、泥石流灾害风险高；红河州南部、文山州西南部、普洱市东西部、丽江市中部、临沧市西南部地质灾害风险较高，需重点防范。
 
-”王莹称，考前作息调整切忌急于求成，需要循序渐进适配考试节律。
+云南省最新天气预报显示，11日白天云南多个州市被降雨覆盖，丽江、昆明、红河、文山、普洱、临沧等地多区域出现小到中雨，局部大雨、暴雨。
 
-考前一周可较日常作息每晚提前半小时入睡，稳步调整生物钟。
+11日夜间至12日，全省降水逐步减弱，12日夜间起，降雨范围大幅收缩，仅省内西部、南部边缘有零星阵雨，大部地区天气逐步转好。
 
-睡前可通过放松运动、温水泡脚、调暗灯光辅助入眠，同时减少刷手机、看视频的行为，避免大脑持续兴奋，稳定考前睡眠状态。
+气象部门特别提醒，本轮降雨暖区对流特征明显，突发性强、变化快、局地性显著，强降水极易诱发城市内涝、山洪、滑坡、泥石流等地质灾害。
 
 ## 相关推荐
 
-- 2026-06-30 05:47 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 05:29 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 05:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 05:40 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 05:38 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 05:36 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 05:26 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 05:46 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 05:31 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 05:35 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 05:34 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 05:50 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 05:32 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 05:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 05:31 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 05:33 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 05:49 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 05:57 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 05:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 05:51 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 05:34 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 05:59 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:36 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/272699229.shtml)
-- 2026-06-30 05:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/56008.shtml)
-- 2026-06-30 05:36 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/97174945.shtml)
-- 2026-06-30 05:29 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/031036279766.shtml)
-- 2026-06-30 05:32 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/27479.shtml)
-- 2026-06-30 05:31 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/3876655.shtml)
-- 2026-06-30 05:29 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/139751271.shtml)
-- 2026-06-30 05:50 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/92687543.shtml)
-- 2026-06-30 05:51 - [起风了](https://www.blog.minike.top/Article/details/986746.shtml)
-- 2026-06-30 05:53 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/67714.shtml)
-- 2026-06-30 05:45 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/01151.shtml)
-- 2026-06-30 05:32 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/04027.shtml)
-- 2026-06-30 05:28 - [送你一朵小红花](https://www.blog.minike.top/Article/details/22272.shtml)
-- 2026-06-30 05:47 - [急先锋](http://www.blog.minike.top/Article/details/84129265167.shtml)
-- 2026-06-30 05:33 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/065086659165.shtml)
+- 2026-06-30 05:58 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/87965514.shtml)
+- 2026-06-30 05:48 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/92240.shtml)
+- 2026-06-30 05:44 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/33256142594.shtml)
+- 2026-06-30 05:32 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/76524841090.shtml)
+- 2026-06-30 05:53 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/1742838.shtml)
+- 2026-06-30 05:47 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/00464.shtml)
+- 2026-06-30 05:48 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/4715947295.shtml)
+- 2026-06-30 05:52 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/4172293626.shtml)
+- 2026-06-30 05:46 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/82113003702.shtml)
+- 2026-06-30 05:38 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/5214588.shtml)
+- 2026-06-30 05:47 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/24004868.shtml)
+- 2026-06-30 05:43 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/218379.shtml)
+- 2026-06-30 05:48 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/9433130973.shtml)
+- 2026-06-30 05:45 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/214646753426.shtml)
+- 2026-06-30 05:42 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/763566360.shtml)

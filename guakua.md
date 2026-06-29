@@ -1,58 +1,60 @@
-# 年纪轻轻浑身疼还容易崴脚？别让“浓茶咖啡熬大夜”掏空你的骨骼
+# 原油：震荡承压
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-年纪轻轻就经常腰酸背痛、晨起浑身僵硬，甚至稍微磕碰就容易崴脚、骨痛，很多人都觉得是劳累、缺钙导致的，但其实你可能忽略了日常看似解压的三个习惯——喝浓茶、猛喝咖啡和长期熬夜，它们正在一点点“掏空”你的骨骼。江苏省第二中医院骨伤科主任医师滕家松提醒，骨头不是一成不变的硬组织，年轻时骨骼合成速度大于流失速度，骨骼强健，而长期不良习惯会打破这种平衡，让骨质流失大于新生，慢慢出现骨量减少
+油市小蓝莓 观点小结 核心观点：中性 地缘局势上，美以伊三方仍然处于谈判阶段，虽有信息干扰，但在具体谈判落地之前，市场方向仍然不够明朗。通航表现和替代管道上来看，霍尔木兹经过的油轮仍然仅在一成左右，而延布和富查伊拉港的出口最高增量达到530万桶/日，存在一定的供应改善。库存表现上，海上制裁油库存大幅抢购之后，主要国家的陆地库存仍然持稳，暂无大幅下降的危险，因此虽然各地区存在结构
 
 ## 正文
 
-年纪轻轻就经常腰酸背痛、晨起浑身僵硬，甚至稍微磕碰就容易崴脚、骨痛，很多人都觉得是劳累、缺钙导致的，但其实你可能忽略了日常看似解压的三个习惯——喝浓茶、猛喝咖啡和长期熬夜，它们正在一点点“掏空”你的骨骼。
+油市小蓝莓 观点小结 核心观点：中性 地缘局势上，美以伊三方仍然处于谈判阶段，虽有信息干扰，但在具体谈判落地之前，市场方向仍然不够明朗。
 
-江苏省第二中医院骨伤科主任医师滕家松提醒，骨头不是一成不变的硬组织，年轻时骨骼合成速度大于流失速度，骨骼强健，而长期不良习惯会打破这种平衡，让骨质流失大于新生，慢慢出现骨量减少、骨质疏松，这也是如今年轻人提前出现骨骼问题的核心原因。
+通航表现和替代管道上来看，霍尔木兹经过的油轮仍然仅在一成左右，而延布和富查伊拉港的出口最高增量达到530万桶/日，存在一定的供应改善。
 
-浓茶看似解渴解压，实则加速钙流失 茶叶富含鞣酸(单宁酸)，浓茶中鞣酸含量极高。
+库存表现上，海上制裁油库存大幅抢购之后，主要国家的陆地库存仍然持稳，暂无大幅下降的危险，因此虽然各地区存在结构性的贸易紧张问题，但是总体对绝对价格的推动作用有限。
 
-这种物质进入人体后，会与肠道内的钙离子结合，形成无法被人体吸收的鞣酸钙，直接阻碍饮食中钙的吸收。
+相较于原油端，炼厂端的降负幅度也比较明显，部分国家已经倡议减少出行、线上办公等等，但是基于终端需求负反馈还未达到大量级，对裂解价差仍有强支撑。
 
-长期大量喝浓茶，相当于一边补钙、一边持续流失钙质，骨骼得不到充足的营养补给。
+总结来看，目前处于停战谈判的真空期，且主要国家的陆地库存尚能维持，阶段性油价预计以震荡降波为主，库存矛盾的积累需要时间，谈判需要时间，需要等待博弈落地再确定油价走向。
 
-同时，浓茶中的过量茶碱会刺激肾脏，加快尿液排泄，加速尿液中钙、磷的流失，进一步打破骨骼的钙磷代谢平衡。
+地缘：中性 美以伊三方仍然处于谈判阶段，虽有信息干扰，但在具体谈判落地之前，市场方向仍然不够明朗。
 
-长期下来，骨密度悄悄下降，骨骼韧性、硬度变差。
+供给：偏多 霍尔木兹经过的油轮仍然仅在一成左右，而延布和富查伊拉港的出口最高增量达到530万桶/日，存在一定的供应改善。
 
-过量饮用咖啡，悄悄透支骨骼储备 适量饮用咖啡无伤身体，但长期、过量饮用，会直接损伤骨骼健康。
+地缘风险溢价虽随谈判预期降温有所回落，但供应中断的实质性扰动仍未消除，仍是支撑油价与近端结构的关键变量。
 
 ## 相关推荐
 
-- 2026-06-30 05:40 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 05:49 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 05:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 05:50 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 05:41 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 05:36 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 05:31 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 05:34 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 05:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 05:52 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 05:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 05:50 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 05:56 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 05:34 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 05:33 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 05:59 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 05:56 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 05:53 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 05:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 05:35 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 05:44 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 06:00 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 05:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 05:33 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 05:50 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 05:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:37 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/21639.shtml)
-- 2026-06-30 05:26 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/81161896.shtml)
-- 2026-06-30 05:30 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/74814.shtml)
-- 2026-06-30 05:53 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/14353963.shtml)
-- 2026-06-30 05:27 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/6675578.shtml)
-- 2026-06-30 05:43 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/781530.shtml)
-- 2026-06-30 05:46 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/94990135.shtml)
-- 2026-06-30 05:31 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/29309.shtml)
-- 2026-06-30 05:35 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/084348.shtml)
-- 2026-06-30 05:32 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/619521604.shtml)
-- 2026-06-30 05:35 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/60836048132.shtml)
-- 2026-06-30 05:49 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/780339047.shtml)
-- 2026-06-30 05:24 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/896412373.shtml)
-- 2026-06-30 05:32 - [千与千寻](http://www.share.minike.top/Article/details/782667.shtml)
-- 2026-06-30 05:36 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/49763.shtml)
+- 2026-06-30 05:34 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/206011663757.shtml)
+- 2026-06-30 05:44 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/05749921.shtml)
+- 2026-06-30 05:54 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/2398100.shtml)
+- 2026-06-30 05:38 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/238621.shtml)
+- 2026-06-30 05:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/19310.shtml)
+- 2026-06-30 05:37 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/4048643726.shtml)
+- 2026-06-30 05:45 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/007750287.shtml)
+- 2026-06-30 05:55 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/80978010350.shtml)
+- 2026-06-30 05:40 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/93226.shtml)
+- 2026-06-30 05:54 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/088226085.shtml)
+- 2026-06-30 05:34 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/09203104938.shtml)
+- 2026-06-30 05:55 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/93555149057.shtml)
+- 2026-06-30 05:34 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/02666.shtml)
+- 2026-06-30 05:43 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/3264453.shtml)
+- 2026-06-30 05:30 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/95500315.shtml)

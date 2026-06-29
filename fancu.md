@@ -1,60 +1,57 @@
-# 特朗普支持万斯与卢比奥搭档竞选2028年美国总统
+# 油市波动而非价格飙升将主导石油巨头战略
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普在3日播出的一档播客采访节目中公开表示，现任副总统JD·万斯与国务卿马尔科·卢比奥若在2028年联合搭档参加美国总统选举，将成为“不可战胜”的组合。此番表态再度推高了外界对共和党下一届总统候选人梯队的关注度。 当前，万斯与卢比奥均被视为2028年共和党总统候选人提名的有力竞争者。尽管两人近期在公开场合对各自的政治野心进行了低调处理，但特朗普近期频繁释放有关
+石油巨头们正准备迎接能源市场的长期动荡，这应会抑制它们在伊朗战争后增加支出的任何冲动。如今最大的担忧不是错过下一轮上涨，而是站在必然到来的回落的反面。 中东冲突以及霍尔木兹海峡自2月28日以来近乎完全关闭，引发了一场前所未有的油气供应危机，将原油价格推高至每桶100美元以上，并引发全球范围内对替代供应的争夺。 即使美伊和平协议很快达成，损害也已经造成。全球超过13%的石油供应和
 
 ## 正文
 
-美国总统唐纳德·特朗普在3日播出的一档播客采访节目中公开表示，现任副总统JD·万斯与国务卿马尔科·卢比奥若在2028年联合搭档参加美国总统选举，将成为“不可战胜”的组合。
+石油巨头们正准备迎接能源市场的长期动荡，这应会抑制它们在伊朗战争后增加支出的任何冲动。
 
-此番表态再度推高了外界对共和党下一届总统候选人梯队的关注度。
+如今最大的担忧不是错过下一轮上涨，而是站在必然到来的回落的反面。
 
-当前，万斯与卢比奥均被视为2028年共和党总统候选人提名的有力竞争者。
+中东冲突以及霍尔木兹海峡自2月28日以来近乎完全关闭，引发了一场前所未有的油气供应危机，将原油价格推高至每桶100美元以上，并引发全球范围内对替代供应的争夺。
 
-尽管两人近期在公开场合对各自的政治野心进行了低调处理，但特朗普近期频繁释放有关接班人计划的信号。
+即使美伊和平协议很快达成，损害也已经造成。
 
-特朗普在采访中强调，他注意到万斯与卢比奥在一起时相处融洽，并明确指出两人的组合将很难被击败。
+全球超过13%的石油供应和约五分之一的液化天然气流量的损失，加上海湾地区能源基础设施的大面积破坏，可能会产生长期后果，为未来几年的价格奠定底部。
 
-近期，万斯与卢比奥轮流在白宫新闻发布会上亮相，为现届政府的一系列政策进行辩护，其中包括应对公众支持率不断下滑的对外军事行动。
+从表面上看，这应是英国石油、雪佛龙、埃克森美孚、壳牌和道达尔能源等能源巨头增加支出、扩大生产和抢占市场份额的理想背景。
 
-有舆论指出，卢比奥近日在白宫简报台上的表现赢得了共和党内部以及部分民主党人的关注。
+这五大巨头第一季度盈利均超出预期。
 
-目前，距离2028年11月举行的美国总统大选尚有时日，尚未有人正式宣布参选。
+然而，迄今为止该行业的反应却异常克制。
 
 ## 相关推荐
 
-- 2026-06-30 05:27 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 05:29 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 05:34 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 05:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 05:36 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 05:49 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 05:50 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 05:34 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 05:37 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 05:52 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 05:39 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 05:49 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 05:28 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 05:30 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 05:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 05:59 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 05:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 05:47 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 05:32 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 05:58 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 05:50 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 05:34 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 05:59 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 05:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-30 05:52 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:50 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/18742.shtml)
-- 2026-06-30 05:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/3061472.shtml)
-- 2026-06-30 05:27 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/1083983.shtml)
-- 2026-06-30 05:38 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/34131558371.shtml)
-- 2026-06-30 05:40 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/9779137.shtml)
-- 2026-06-30 05:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/240855.shtml)
-- 2026-06-30 05:26 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/5045123.shtml)
-- 2026-06-30 05:36 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/154447878.shtml)
-- 2026-06-30 05:32 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/8412469.shtml)
-- 2026-06-30 05:36 - [千香](https://www.blog.kurohicncr.top/Article/details/27661523385.shtml)
-- 2026-06-30 05:35 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/813976452880.shtml)
-- 2026-06-30 05:39 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/9253031662.shtml)
-- 2026-06-30 05:49 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/2406130296.shtml)
-- 2026-06-30 05:51 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/3255172.shtml)
-- 2026-06-30 05:39 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/77112217565.shtml)
+- 2026-06-30 05:34 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/761919.shtml)
+- 2026-06-30 05:56 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/31595796.shtml)
+- 2026-06-30 05:33 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/80003760132.shtml)
+- 2026-06-30 05:54 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/593321861.shtml)
+- 2026-06-30 05:33 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/684047600.shtml)
+- 2026-06-30 05:45 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/2763122022.shtml)
+- 2026-06-30 05:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/302218096998.shtml)
+- 2026-06-30 05:54 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/96789.shtml)
+- 2026-06-30 05:48 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/801310.shtml)
+- 2026-06-30 05:47 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/8346520.shtml)
+- 2026-06-30 05:34 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/641212928.shtml)
+- 2026-06-30 05:50 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/75527464295.shtml)
+- 2026-06-30 05:50 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/692276178057.shtml)
+- 2026-06-30 05:50 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/68666781411.shtml)
+- 2026-06-30 05:36 - [千与千寻](https://www.blog.minike.top/Article/details/9466457617.shtml)

@@ -1,55 +1,58 @@
-# 美伊再次互袭 中方：战事再起不符合任何一方利益
+# 虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月3日电 (记者 郭超凯)中国外交部发言人毛宁6月3日主持例行记者会。 有记者提问：美军空袭了伊朗格什姆岛。作为回应，伊朗称袭击位于中东的美军基地。多个海湾国家响起防空警报，中东局势再次升级，请问中方有何评论？ 毛宁：中方对当前局势深表关切，战事再起不符合任何一方的利益，希望相关各方珍惜和平机会，履行停火承诺，保持谈判势头，坚持通过政治外交途径化解争端，尽早实现全面
+5月12日，虎牙公司(NYSE:HUYA)公布了2026年第一季度财报。财报显示，2026年第一季度，虎牙总收入同比增长14.6%至17.3亿元，连续第五个季度实现同比增长。非美国通用会计准则下，归属于虎牙公司的净利润为2110万元。其中，游戏相关服务、广告及其他收入同比大增69.4%至6.3亿元，毛利润和毛利率也均实现同比、环比提升。 《鹅鸭杀》验证商业化潜力 高毛利业务占比
 
 ## 正文
 
-中新网北京6月3日电 (记者 郭超凯)中国外交部发言人毛宁6月3日主持例行记者会。
+5月12日，虎牙公司(NYSE:HUYA)公布了2026年第一季度财报。
 
-有记者提问：美军空袭了伊朗格什姆岛。
+财报显示，2026年第一季度，虎牙总收入同比增长14.6%至17.3亿元，连续第五个季度实现同比增长。
 
-作为回应，伊朗称袭击位于中东的美军基地。
+非美国通用会计准则下，归属于虎牙公司的净利润为2110万元。
 
-多个海湾国家响起防空警报，中东局势再次升级，请问中方有何评论？
+其中，游戏相关服务、广告及其他收入同比大增69.4%至6.3亿元，毛利润和毛利率也均实现同比、环比提升。
 
-毛宁：中方对当前局势深表关切，战事再起不符合任何一方的利益，希望相关各方珍惜和平机会，履行停火承诺，保持谈判势头，坚持通过政治外交途径化解争端，尽早实现全面持久停火，为恢复中东海湾地区的和平安宁创造必要条件。
+《鹅鸭杀》验证商业化潜力 高毛利业务占比持续扩大 虎牙公司CEO黄俊洪表示：“得益于战略转型的持续深化，虎牙2026年第一季度业绩保持稳健。
 
-(完）
+值得关注的是，本季度游戏相关服务、广告及其他业务在总收入中的占比再创新高，达到36.3%。
+
+” 今年第一季度，虎牙继续重点推进全网游戏内容生态布局，为道具售卖、游戏发行、广告等多元业务提供丰沛的增长动能。
+
+“以游戏发行业务为例，《鹅鸭杀》在国内市场‘不负众望’，自1月7日上线以来，在一季度的大部分时间位居App Store免费游戏排行榜第一。
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 05:35 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 05:26 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 05:29 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 05:52 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 05:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 05:38 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 05:46 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 05:46 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 05:35 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 05:31 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 05:29 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 05:38 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 05:49 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 05:31 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 05:41 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 05:49 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 05:40 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 05:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 05:49 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 05:45 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 05:37 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 05:44 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 05:39 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 05:31 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:34 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/921113556.shtml)
-- 2026-06-30 05:40 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/101387070.shtml)
-- 2026-06-30 05:34 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/623019650106.shtml)
-- 2026-06-30 05:38 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.kurohicncr.top/Article/details/047188365.shtml)
-- 2026-06-30 05:35 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/821067549.shtml)
-- 2026-06-30 05:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/01932831226.shtml)
-- 2026-06-30 05:44 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/4254263.shtml)
-- 2026-06-30 05:34 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/8183349.shtml)
-- 2026-06-30 05:41 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/425551.shtml)
-- 2026-06-30 05:36 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/359498.shtml)
-- 2026-06-30 05:36 - [点菜也要教吗](https://www.blog.minike.top/Article/details/36559113582.shtml)
-- 2026-06-30 05:53 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/54886615925.shtml)
-- 2026-06-30 05:40 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/07879531449.shtml)
-- 2026-06-30 05:47 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/05160.shtml)
-- 2026-06-30 05:29 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/38396.shtml)
+- 2026-06-30 05:33 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/5740433.shtml)
+- 2026-06-30 05:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/15481.shtml)
+- 2026-06-30 05:52 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/679784789.shtml)
+- 2026-06-30 05:39 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/38921.shtml)
+- 2026-06-30 05:30 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/408627.shtml)
+- 2026-06-30 05:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/287949.shtml)
+- 2026-06-30 05:45 - [点菜也要教吗](http://www.blog.minike.top/Article/details/03523750504.shtml)
+- 2026-06-30 05:39 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/7947921489.shtml)
+- 2026-06-30 05:32 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/167544411.shtml)
+- 2026-06-30 05:36 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/86313.shtml)
+- 2026-06-30 05:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/6099644.shtml)
+- 2026-06-30 05:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/54711099.shtml)
+- 2026-06-30 05:58 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/908853.shtml)
+- 2026-06-30 05:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/37511.shtml)
+- 2026-06-30 05:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/413018734892.shtml)

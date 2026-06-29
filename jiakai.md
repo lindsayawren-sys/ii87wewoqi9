@@ -1,59 +1,58 @@
-# 跨越山海赴边疆 台州援疆干部以专业实干赋能受援地发展
+# 中际旭创登顶A股吸金榜+成交榜！光模块+半导体全都要，华宝基金双创50ETF逆市上探1.9%续创历史新高！
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐6月3日电 (卿朋)从东海之滨的温岭到塔克拉玛干沙漠北缘的新疆生产建设兵团第一师阿拉尔市，第十一批台州援疆干部陈清荣，带着20余年技术研发与行政管理的复合从业积淀，助力阿拉尔发展。 身为台州市援疆指挥部产业发展与就业促进组组长、第一师阿拉尔市工信局工业科副科长，他以精准产业赋能、科创技术落地、民族温情帮扶为抓手，在边疆走出一条务实长效的援疆之路。 携技赴疆：复合型
+受AI热潮持续推动，隔夜美股存储、光通信延续逼空行情，或由于海外映射，今日（5月12日）百分百布局新质生产力的硬科技宽基——双创50ETF华宝（588330）场内涨幅最高上探1.91%，收涨1.33%，强势斩获日线7连阳，续创历史新高！ 成份股方面，光模块龙头中际旭创领涨超8%刷新上市高点，获主力资金净流入32.58亿元，全天成交额344.43亿元，霸居A股吸金榜和成交榜“双榜
 
 ## 正文
 
-中新网乌鲁木齐6月3日电 (卿朋)从东海之滨的温岭到塔克拉玛干沙漠北缘的新疆生产建设兵团第一师阿拉尔市，第十一批台州援疆干部陈清荣，带着20余年技术研发与行政管理的复合从业积淀，助力阿拉尔发展。
+受AI热潮持续推动，隔夜美股存储、光通信延续逼空行情，或由于海外映射，今日（5月12日）百分百布局新质生产力的硬科技宽基——双创50ETF华宝（588330）场内涨幅最高上探1.91%，收涨1.33%，强势斩获日线7连阳，续创历史新高！
 
-身为台州市援疆指挥部产业发展与就业促进组组长、第一师阿拉尔市工信局工业科副科长，他以精准产业赋能、科创技术落地、民族温情帮扶为抓手，在边疆走出一条务实长效的援疆之路。
+成份股方面，光模块龙头中际旭创领涨超8%刷新上市高点，获主力资金净流入32.58亿元，全天成交额344.43亿元，霸居A股吸金榜和成交榜“双榜首”；半导体龙头寒武纪涨逾6%，成交额261.79亿元，高居A股成交榜第三位。
 
-携技赴疆：复合型履历夯实援疆底气 援疆之行，于陈清荣而言，是深思熟虑的使命奔赴，亦是专业能力的跨域践行。
+光模块方面，A股光模块龙头中际旭创盘中股价突破1000元，成为继爱美客之后，创业板史上第二只千元股，也是A股史上第十只千元股，该股今年累计上涨67.08%，近一年累计攀升980.52%。
 
-大学工业自动化的专业积淀，让他以电子工程师身份深耕研发一线；后续读研深造、入职外企的经历，锤炼了他成熟的项目管理能力与国际化视野。
+国金证券表示，目前800G光模块已成为市场主流方案，进入放量期；伴随算力网络对传输效率需求的持续提升，1.6T、3.2T等超高速率光模块市场需求有望逐步崛起，2028年有望开启大规模部署。
 
-2011年，陈清荣返乡投身温岭开发区建设，八年深耕完成从技术研发人才到政务管理干部的精准转型，成为兼具技术素养与行政能力的复合型干部。
+* 半导体方面，截至5月11日美股收盘，费城半导体指数在短短五个月内飙升70%，同比更大涨170%，远超标普500指数和纳斯达克指数的涨幅。
 
-2023年，依托突出的综合素养与产业工作经验，陈清荣被选定为产业援疆核心人选。
+韩国综合指数今年以美元计涨幅更是超80%领涨全球。
 
-抵达阿拉尔后的所见所感，让他深刻共情兵团艰苦奋斗的精神内核，与台州垦荒精神同频共振，为后续援疆工作打牢了精神根基。
+著名经济学家洪灝认为，半导体行情还没有走完。
 
-精准赋能：以产业科创激活边疆动能 立足“师市所需、台州所能”，陈清荣聚焦产业提质、科创赋能、就业富民三大核心，精准落地援疆举措。
+今年AI Agent开始改变物理世界，对存储半导体产生爆炸性需求。
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 05:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 05:29 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 05:25 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 05:27 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 05:27 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 05:31 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 05:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 05:26 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 05:34 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 05:42 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 05:25 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 05:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 05:47 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 05:30 - [人类...完蛋了...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 05:56 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 05:45 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 05:33 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 05:50 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 05:50 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 05:39 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 05:34 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 05:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 05:39 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 05:55 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/50540.shtml)
-- 2026-06-30 05:30 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/469566.shtml)
-- 2026-06-30 05:48 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/353180932427.shtml)
-- 2026-06-30 05:52 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/617401.shtml)
-- 2026-06-30 05:46 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/5838002993.shtml)
-- 2026-06-30 05:34 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/405849119.shtml)
-- 2026-06-30 05:49 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/70224166.shtml)
-- 2026-06-30 05:29 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/662745985684.shtml)
-- 2026-06-30 05:27 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/42666239.shtml)
-- 2026-06-30 05:32 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/518183113.shtml)
-- 2026-06-30 05:24 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/476479.shtml)
-- 2026-06-30 05:37 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/476623449.shtml)
-- 2026-06-30 05:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/4784839248.shtml)
-- 2026-06-30 05:39 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/57897116705.shtml)
-- 2026-06-30 05:35 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/65593965.shtml)
+- 2026-06-30 05:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/71272434054.shtml)
+- 2026-06-30 05:47 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/1476018.shtml)
+- 2026-06-30 05:49 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/490863.shtml)
+- 2026-06-30 05:35 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/187331932.shtml)
+- 2026-06-30 05:37 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/2487787.shtml)
+- 2026-06-30 05:35 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/930807.shtml)
+- 2026-06-30 05:44 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/230531087.shtml)
+- 2026-06-30 05:57 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/464030083009.shtml)
+- 2026-06-30 05:31 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/75972279964.shtml)
+- 2026-06-30 05:32 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/2900711.shtml)
+- 2026-06-30 05:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/41261440745.shtml)
+- 2026-06-30 05:39 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/6496437857.shtml)
+- 2026-06-30 05:33 - [日本 高位逼抢](https://www.share.minike.top/Article/details/0162726.shtml)
+- 2026-06-30 05:55 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/78665556.shtml)
+- 2026-06-30 05:48 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/104666889775.shtml)

@@ -1,59 +1,61 @@
-# 5月新开户同比大增78%，东吴+东海合并草案出炉！券商低调4连阳，资金大手笔潜伏顶流券商ETF
+# 逊克口岸正式开启2026年明水期通航
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月3日，低位券商窄幅震荡，个股走势分化，华安证券涨超5%，华泰证券涨超3%，广发证券、招商证券、国泰海通涨超1%。规模358亿元+的顶流券商ETF华宝（512000）早盘低开后震荡翻红，场内价格现涨0.61%，日线低调4连阳。 上交所数据显示，2026年5月A股新开户276.53万户，同比2025年5月的155.56万户增长7
+中新网黑龙江逊克5月12日电 (刘锡菊 王勇)12日7时，随着中方“德晟推555”船队从中国逊克口岸启航，前往俄罗斯波亚尔科沃口岸开展进口粮食运输作业，标志着逊克口岸2026年明水期正式开关通航。 中国逊克与俄罗斯阿穆尔州的别洛戈尔斯克市、扎维京斯克市、赖奇欣斯克市以及阿尔哈拉区、坦包夫卡区、康斯坦丁诺夫卡区、十月区、米哈伊洛夫区，即“三市五区”隔江相望。逊克口岸位于中俄界江黑
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月3日，低位券商窄幅震荡，个股走势分化，华安证券涨超5%，华泰证券涨超3%，广发证券、招商证券、国泰海通涨超1%。
+中新网黑龙江逊克5月12日电 (刘锡菊 王勇)12日7时，随着中方“德晟推555”船队从中国逊克口岸启航，前往俄罗斯波亚尔科沃口岸开展进口粮食运输作业，标志着逊克口岸2026年明水期正式开关通航。
 
-规模358亿元+的顶流券商ETF华宝（512000）早盘低开后震荡翻红，场内价格现涨0.61%，日线低调4连阳。
+中国逊克与俄罗斯阿穆尔州的别洛戈尔斯克市、扎维京斯克市、赖奇欣斯克市以及阿尔哈拉区、坦包夫卡区、康斯坦丁诺夫卡区、十月区、米哈伊洛夫区，即“三市五区”隔江相望。
 
-上交所数据显示，2026年5月A股新开户276.53万户，同比2025年5月的155.56万户增长77.76%。
+逊克口岸位于中俄界江黑龙江右岸，与俄罗斯波亚尔科沃口岸隔江相望，水路距离约为19公里。
 
-2026年累计新开1729.68万户，同比增长57.94%，按此速度推算，2026全年A股新开户有望突破3000万户大关。
+随着明水期到来，逊克口岸跨境粮食、冰鲜水产品等水上运输业务逐步回暖。
 
-与此同时，5月杠杆资金入市明显加快，两融余额2.8万亿再创历史新高。
+为保障口岸安全平稳有序开关，黑河逊克海事处提前部署、主动作为，扎实做好通航保障各项工作。
 
-市场热度维持高位，支撑券商板块基本面延续高景气。
+开关前，对拟出境客货运船舶开展全方位安全检查，重点核查船舶适航状况、消防救生设备配备、船员履职资质等关键内容，坚决杜绝船舶“带病”航行。
 
-此外，6月2日东吴证券正式披露收购东海证券草案，较3月13日披露的预案在交易方案、标的定价、交易对方、风险提示、信息披露等多个方面完成细化与更新，标志着这起江苏本土券商整合事项进入实质性推进阶段。
+同步强化界江水域巡航巡查，精准发布水文、气象及通航安全预警信息，持续优化口岸联检协同机制，联合相关部门压缩通关查验时限，提升船舶通关效率。
 
-分析认为，并购重组是券商实现外延式发展的有效手段，对提升行业整体竞争力、形成规模效应具有积极作用。
+据悉，黑河逊克海事处将持续强化通航期间动态监管，严格落实恶劣天气预警叫应机制，运用信息化手段加强船舶全程跟踪管控，从严压实安全主体责任，全力保障中俄界河水上运输安全畅通，助力地方跨境经贸高质量发展。
 
 ## 相关推荐
 
-- 2026-06-30 05:52 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 05:42 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 05:48 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 05:51 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 05:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 05:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 05:50 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 05:39 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 05:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 05:28 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 05:32 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 05:38 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 05:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 05:58 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 05:34 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 05:44 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 05:57 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 05:45 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 05:32 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 05:36 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 05:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 05:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 05:46 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 05:57 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 05:55 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 05:39 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 05:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 05:34 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:29 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/595878949.shtml)
-- 2026-06-30 05:45 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/38131957647.shtml)
-- 2026-06-30 05:35 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/389552553239.shtml)
-- 2026-06-30 05:48 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/27252503.shtml)
-- 2026-06-30 05:50 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/00271889769.shtml)
-- 2026-06-30 05:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/37313439.shtml)
-- 2026-06-30 05:27 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/40420064.shtml)
-- 2026-06-30 05:42 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/49792342.shtml)
-- 2026-06-30 05:53 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/495575111069.shtml)
-- 2026-06-30 05:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/177985.shtml)
-- 2026-06-30 05:33 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/317336374801.shtml)
-- 2026-06-30 05:34 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/294726.shtml)
-- 2026-06-30 05:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/75120144.shtml)
-- 2026-06-30 05:40 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/79873556331.shtml)
-- 2026-06-30 05:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/64093383334.shtml)
+- 2026-06-30 05:56 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/296221739.shtml)
+- 2026-06-30 05:36 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/8038175.shtml)
+- 2026-06-30 05:50 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/865499220.shtml)
+- 2026-06-30 05:43 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/0573466100.shtml)
+- 2026-06-30 05:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/34833447.shtml)
+- 2026-06-30 05:49 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/84453.shtml)
+- 2026-06-30 05:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/5040859847.shtml)
+- 2026-06-30 05:35 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/00076536.shtml)
+- 2026-06-30 05:31 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/064651263849.shtml)
+- 2026-06-30 05:54 - [美股](http://www.share.minike.top/Article/details/62623321258.shtml)
+- 2026-06-30 05:51 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/340032.shtml)
+- 2026-06-30 05:59 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/65141326310.shtml)
+- 2026-06-30 05:42 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/27931.shtml)
+- 2026-06-30 05:34 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/811561673.shtml)
+- 2026-06-30 05:46 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/015896367.shtml)

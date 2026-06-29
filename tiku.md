@@ -1,61 +1,61 @@
-# 全球富豪“向东看”！2.95万亿美元背后：香港跨境财富管理规模为何能超越瑞士？
+# 2026上海国际花卉节落幕 8座“共创花园”将“漂流”至市民身边
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-近日，波士顿咨询公司(BCG)发布《2026全球财富报告》显示，香港跨境财富管理规模达到2.95万亿美元，同比增长10.7%，首次超过瑞士成为全球最大的跨境财富管理中心。 在众多学者看来，这一变化背后，是中国经济发展、金融开放以及人民币国际化进程，对全球财富管理格局产生的深远影响。 为何是香港？ 香港能够承接全球新增财富的核心原因，在于其独特的制度优势和市场定位。BCG数据显示
+中新网上海5月11日电 (陈少颖 许婧)为期23天的2026上海国际花卉节10日落下帷幕。江风裹着花香，在徐汇滨江，8座由13个辖区街道居民设计搭建的“共创花园”沿江绽放，吸睛无数。 此次“社区花园共创计划”由同济大学社区花园与社区营造实验中心和徐汇区共同发起，让市民从“赏花人”变成“种花人”，让花卉美景真正融入日常城市生活。 该项目自今年3月启动，经过筛选和辅导，最终8组方案
 
 ## 正文
 
-近日，波士顿咨询公司(BCG)发布《2026全球财富报告》显示，香港跨境财富管理规模达到2.95万亿美元，同比增长10.7%，首次超过瑞士成为全球最大的跨境财富管理中心。
+中新网上海5月11日电 (陈少颖 许婧)为期23天的2026上海国际花卉节10日落下帷幕。
 
-在众多学者看来，这一变化背后，是中国经济发展、金融开放以及人民币国际化进程，对全球财富管理格局产生的深远影响。
+江风裹着花香，在徐汇滨江，8座由13个辖区街道居民设计搭建的“共创花园”沿江绽放，吸睛无数。
 
-为何是香港？
+此次“社区花园共创计划”由同济大学社区花园与社区营造实验中心和徐汇区共同发起，让市民从“赏花人”变成“种花人”，让花卉美景真正融入日常城市生活。
 
-香港能够承接全球新增财富的核心原因，在于其独特的制度优势和市场定位。
+该项目自今年3月启动，经过筛选和辅导，最终8组方案落地实施。
 
-BCG数据显示，目前内地资金约占香港资产管理规模的60%。
+从绘制设计图、挑选花种到亲手栽植布置，怀揣花园梦想，各行各业市民相聚滨江，在同济大学专业团队指导下，一步步将创意构想变为实景。
 
-北京大学光华管理学院院长、北京大学博雅特聘教授田轩对中新经纬表示，本轮香港财富管理规模增长最核心的驱动力，是内地资金流入；而金融互联互通机制，则起到了决定性作用。
+参与者自发组队，或依托社群集体参与，全程集思广益、协作共建。
 
-近年来，从沪港通、深港通到债券通、跨境理财通，再到粤港澳大湾区金融市场互联互通持续推进，香港与内地之间的金融联系不断深化。
+在徐汇滨江约3公里公共空间内，8座“共创花园”主题各异、特色鲜明，涵盖AI共生、代际交流、宠物友好、可食花园等多元创意，尽显市民的巧思与想象力。
 
-特别是“跨境理财通2.0”落地后，投资者准入门槛进一步优化，产品范围持续扩容，资金双向流动更加便利。
+部分团队还配套设计互动环节，提升作品体验感与参与度。
 
 ## 相关推荐
 
-- 2026-06-30 05:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 05:29 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 05:30 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 05:34 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 05:42 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 05:50 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 05:44 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 05:30 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 05:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 05:44 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 05:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 05:26 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 05:42 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 05:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 05:29 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 05:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 05:59 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 05:52 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 05:43 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 05:36 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 05:45 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 05:38 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 05:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 05:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 05:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 05:35 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 05:55 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 05:59 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 05:57 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 05:47 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:25 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/684967191778.shtml)
-- 2026-06-30 05:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/5916279961.shtml)
-- 2026-06-30 05:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/4929273414.shtml)
-- 2026-06-30 05:39 - [急先锋](https://www.share.minike.top/Article/details/66967.shtml)
-- 2026-06-30 05:44 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/308466.shtml)
-- 2026-06-30 05:51 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/8283828901.shtml)
-- 2026-06-30 05:36 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/11090836269.shtml)
-- 2026-06-30 05:39 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/9770473.shtml)
-- 2026-06-30 05:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/594914411877.shtml)
-- 2026-06-30 05:25 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/82217072.shtml)
-- 2026-06-30 05:28 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/320800369.shtml)
-- 2026-06-30 05:43 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/63171994918.shtml)
-- 2026-06-30 05:36 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/82462812861.shtml)
-- 2026-06-30 05:46 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/181598775.shtml)
-- 2026-06-30 05:49 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/447273535.shtml)
+- 2026-06-30 05:58 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/71776.shtml)
+- 2026-06-30 05:57 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/9435270512.shtml)
+- 2026-06-30 05:56 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/320265157.shtml)
+- 2026-06-30 05:48 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/96996451794.shtml)
+- 2026-06-30 05:31 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/31335566.shtml)
+- 2026-06-30 05:57 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/75186.shtml)
+- 2026-06-30 05:57 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/7551381.shtml)
+- 2026-06-30 05:35 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/6643151907.shtml)
+- 2026-06-30 05:38 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/177825445.shtml)
+- 2026-06-30 05:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/015928718615.shtml)
+- 2026-06-30 05:54 - [日本16强魔咒](http://www.blog.minike.top/Article/details/3320170125.shtml)
+- 2026-06-30 05:37 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/315829672.shtml)
+- 2026-06-30 05:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/926970.shtml)
+- 2026-06-30 05:59 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/70680419.shtml)
+- 2026-06-30 05:49 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/67662817.shtml)

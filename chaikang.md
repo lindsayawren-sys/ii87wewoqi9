@@ -1,58 +1,59 @@
-# 美国务卿鲁比奥淡化战争经济影响 称伊朗拥核威胁更严重
+# 一年多来，中美元首五次通话都谈了啥？
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-美国国务卿马尔科·鲁比奥表示，特朗普政府知悉伊朗战争可能带来的全球经济影响，但认为伊朗最终获得核武器的风险更为严重。 “总统和整个政府团队都清楚，行动会带来后果，但伊朗拥有核武器的后果更严重，”鲁比奥周三在华盛顿出席众议院外交事务委员会听证会时表示。“我们已经为任何回应做好准备。” 鲁比奥是在回应纽约州民主党众议员Gregory Meeks的质询。作为该委员会首席民主党议员，M
+应中国国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。时隔九年，中美元首将再次在北京互动。 元首外交始终是中美关系的“定盘星”。一年多来，习近平主席同特朗普总统多次通话会晤，在关键时刻校准两国关系方向。梳理中美元首去年以来的五次通话，其中有三个关键词受到关注。 ——愿景 中美关系是世界上最重要的双边关系之一，两国是合作还是对抗，事关两国人民福祉和人类
 
 ## 正文
 
-美国国务卿马尔科·鲁比奥表示，特朗普政府知悉伊朗战争可能带来的全球经济影响，但认为伊朗最终获得核武器的风险更为严重。
+应中国国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。
 
-“总统和整个政府团队都清楚，行动会带来后果，但伊朗拥有核武器的后果更严重，”鲁比奥周三在华盛顿出席众议院外交事务委员会听证会时表示。
+时隔九年，中美元首将再次在北京互动。
 
-“我们已经为任何回应做好准备。
+元首外交始终是中美关系的“定盘星”。
 
-” 鲁比奥是在回应纽约州民主党众议员Gregory Meeks的质询。
+一年多来，习近平主席同特朗普总统多次通话会晤，在关键时刻校准两国关系方向。
 
-作为该委员会首席民主党议员，Meeks反复质问鲁比奥是否曾向美国总统唐纳德·特朗普警告战争可能带来的经济影响，包括推高美国汽油价格和加剧全球通胀。
+梳理中美元首去年以来的五次通话，其中有三个关键词受到关注。
 
-Meeks表示，特朗普及政府中的富裕成员正从伊朗战争中获利，而普通美国民众却在承受后果。
+——愿景 中美关系是世界上最重要的双边关系之一，两国是合作还是对抗，事关两国人民福祉和人类前途命运。
 
-他还就特朗普的股票交易提出质疑。
+习近平多次以大船、巨轮比喻中美关系，表示两国拥有广泛共同利益和广阔合作空间，可以成为伙伴和朋友。
 
-财务披露文件显示，特朗普本人或其投资顾问第一季度进行了超过3700笔交易，涉及金额达数千万美元，且涵盖与特朗普政府有交集的大型企业。
+去年9月，中方举行纪念中国人民抗日战争暨世界反法西斯战争胜利80周年活动。
 
 ## 相关推荐
 
-- 2026-06-30 05:26 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 05:24 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 05:28 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 05:38 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 05:48 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 05:28 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 05:43 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 05:51 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 05:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 05:42 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 05:35 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 05:29 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 05:52 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 05:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 05:38 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 05:57 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 05:44 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 05:56 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 05:44 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 05:57 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 05:40 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 05:47 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 05:53 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 05:48 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 05:59 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:35 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/840911661603.shtml)
-- 2026-06-30 05:53 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/696045544495.shtml)
-- 2026-06-30 05:40 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/9562970.shtml)
-- 2026-06-30 05:38 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/46575584715.shtml)
-- 2026-06-30 05:40 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/94494583686.shtml)
-- 2026-06-30 05:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/25858156.shtml)
-- 2026-06-30 05:38 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/474336.shtml)
-- 2026-06-30 05:44 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/88865578.shtml)
-- 2026-06-30 05:27 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/834877102.shtml)
-- 2026-06-30 05:27 - [巴西扳平比分](https://www.blog.minike.top/Article/details/4210510.shtml)
-- 2026-06-30 05:42 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/1093831.shtml)
-- 2026-06-30 05:24 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/99422031.shtml)
-- 2026-06-30 05:31 - [月亮](https://www.share.kurohicncr.top/Article/details/49894241.shtml)
-- 2026-06-30 05:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/214895558832.shtml)
-- 2026-06-30 05:53 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/276156251489.shtml)
+- 2026-06-30 05:53 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/24214090673.shtml)
+- 2026-06-30 05:55 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/5485377527.shtml)
+- 2026-06-30 05:35 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/821405054688.shtml)
+- 2026-06-30 05:37 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/323055.shtml)
+- 2026-06-30 05:57 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/0499004.shtml)
+- 2026-06-30 05:36 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/10324155.shtml)
+- 2026-06-30 05:56 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/81497617137.shtml)
+- 2026-06-30 05:42 - [日本进球](https://www.share.minike.top/Article/details/09913547905.shtml)
+- 2026-06-30 05:45 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/538764544181.shtml)
+- 2026-06-30 05:34 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/455470.shtml)
+- 2026-06-30 05:37 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/055161.shtml)
+- 2026-06-30 05:37 - [起风了](http://www.share.kurohicncr.top/Article/details/58003932.shtml)
+- 2026-06-30 05:56 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/45474808972.shtml)
+- 2026-06-30 05:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/645187897.shtml)
+- 2026-06-30 05:34 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/850321922770.shtml)

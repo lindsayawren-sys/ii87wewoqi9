@@ -1,56 +1,61 @@
-# 当我们长胖了，电梯的载人标准还“标准”吗
+# 存储风暴席卷全球，海外六巨头飙升，澜起科技逼近20CM涨停！华宝基金科创芯片ETF（589190）再创历史新高！
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-2026年欧洲肥胖大会上，一位研究者不谈血糖、不看腰围，而盯上了电梯铭牌。 这项研究的主要作者、曾任英国伦敦大学学院临床医学教授的Nick Finer想弄清楚，电梯到底按多重来计算一个乘客。 在2000年至2024年间，他收集了来自欧洲多国的112部电梯铭牌数据，用最大载重除以限乘人数，发现了一个“标准人”。 这个“人”通常重75公斤。Nick Finer的研究披露，在20世纪
+“海外存储六巨头”集体飙升，SK海力士、三星电子、美光科技、闪迪、希捷科技集体创下历史新高，提振A股存储概念股表现。5月11日，国产芯片涨势如虹，存储方向领涨居前，澜起科技逼近20CM涨停，佰维存储涨超10%，东芯股份涨近9%。此外，中船特气、天岳先进、杰华特等涨幅居前。 全“芯”布局芯片产业的科创芯片ETF华宝（589190）高开高走，场内价格现涨超6%，再创上市以来的历史新
 
 ## 正文
 
-2026年欧洲肥胖大会上，一位研究者不谈血糖、不看腰围，而盯上了电梯铭牌。
+“海外存储六巨头”集体飙升，SK海力士、三星电子、美光科技、闪迪、希捷科技集体创下历史新高，提振A股存储概念股表现。
 
-这项研究的主要作者、曾任英国伦敦大学学院临床医学教授的Nick Finer想弄清楚，电梯到底按多重来计算一个乘客。
+5月11日，国产芯片涨势如虹，存储方向领涨居前，澜起科技逼近20CM涨停，佰维存储涨超10%，东芯股份涨近9%。
 
-在2000年至2024年间，他收集了来自欧洲多国的112部电梯铭牌数据，用最大载重除以限乘人数，发现了一个“标准人”。
+此外，中船特气、天岳先进、杰华特等涨幅居前。
 
-这个“人”通常重75公斤。
+全“芯”布局芯片产业的科创芯片ETF华宝（589190）高开高走，场内价格现涨超6%，再创上市以来的历史新高。
 
-Nick Finer的研究披露，在20世纪70年代，英国男性的平均体重约75公斤，女性的平均体重为65公斤，但现在，这个数字已经分别膨胀到86公斤和73公斤。
+其跟踪的上证科创板芯片指数自4月以来累计涨幅超41%，攻势猛烈。
 
-2022年世界卫生组织欧洲区域的报告显示，该区域接近六成成年人超重或肥胖。
+在业内看来，当前全球存储器市场正处于历史级别的供需失衡状态，且缺口有望持续扩大。
 
-Nick Finer认为，这么多年来，这套规则里的“人”可能没有跟着现实一起变化。
+高盛今年2月研报显示，市场正处于过去15年来最严重的存储芯片供应短缺前夜。
 
-现实生活中，人会变重，会变老，会怀孕，会受伤，会带着孩子和行李，也会拥有不同的体型。
+2026年全球DRAM市场供需缺口达4.9%，NAND Flash缺口达4.2%，AI核心配件HBM（高带宽内存）缺口更是高达5.1%，均为2011年以来最高水平。
 
 ## 相关推荐
 
-- 2026-06-30 05:27 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 05:48 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 05:52 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 05:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 05:51 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 05:31 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 05:32 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 05:25 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 05:43 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 05:36 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 05:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 05:33 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 05:59 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 05:39 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 05:53 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 05:51 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 05:48 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 05:40 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 05:32 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 05:32 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 05:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 05:55 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 05:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 05:58 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 05:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/621520926346.shtml)
-- 2026-06-30 05:52 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/74291915.shtml)
-- 2026-06-30 05:32 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/19223.shtml)
-- 2026-06-30 05:37 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/01796904.shtml)
-- 2026-06-30 05:38 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/2915964541.shtml)
-- 2026-06-30 05:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/016429.shtml)
-- 2026-06-30 05:36 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/03083.shtml)
-- 2026-06-30 05:46 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/742062253.shtml)
-- 2026-06-30 05:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/55752091680.shtml)
-- 2026-06-30 05:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/53564170.shtml)
-- 2026-06-30 05:50 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/6218319.shtml)
-- 2026-06-30 05:47 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/117365005298.shtml)
-- 2026-06-30 05:52 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/99353725926.shtml)
-- 2026-06-30 05:52 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/3463634.shtml)
-- 2026-06-30 05:32 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/4661785.shtml)
+- 2026-06-30 05:34 - [天道](https://www.share.kurohicncr.top/Article/details/61457313.shtml)
+- 2026-06-30 05:42 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/80439864426.shtml)
+- 2026-06-30 05:40 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/46315.shtml)
+- 2026-06-30 05:31 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/5455844.shtml)
+- 2026-06-30 05:52 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/90696397.shtml)
+- 2026-06-30 05:58 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/631018312.shtml)
+- 2026-06-30 05:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/748597882.shtml)
+- 2026-06-30 05:59 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/3693742168.shtml)
+- 2026-06-30 05:31 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/618604595188.shtml)
+- 2026-06-30 05:37 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/028692734.shtml)
+- 2026-06-30 05:47 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/358494462483.shtml)
+- 2026-06-30 05:57 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/6960873.shtml)
+- 2026-06-30 05:32 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/485695.shtml)
+- 2026-06-30 05:33 - [逃狱兄弟](https://www.share.minike.top/Article/details/92824.shtml)
+- 2026-06-30 05:51 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/1472206757.shtml)

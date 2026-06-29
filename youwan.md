@@ -1,58 +1,57 @@
-# 黑芝麻因信披违法违规面临证监会罚款，适格股民可索赔损失！
+# 高速公路夜间追尾事故多发 公安部交管局发布提示
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月30日，南方黑芝麻（维权）集团股份有限公司发布《关于收到 的公告》，因黑芝麻未按规定披露关联方非经营性资金占用行为，广西证监局决定对黑芝麻及相关责任人给予行政处罚。 陈宇霞律师在此提醒，凡在2023年01月01日至2026年04月24日之间买入黑芝麻股票，且在2026年04月25日之后继续持有或卖出亏损的投资者，均
+中新网5月12日电 据公安部交通管理局微信公众号12日消息，近期，河北、北京、安徽等地接连发生高速公路夜间多人死伤道路交通事故，需要广大驾驶人警醒警示。 5月7日0时5分许，一辆重型半挂车沿京哈高速由东向西行驶至河北秦皇岛附近时，追尾前方一辆刚从应急车道驶入行车道低速行驶的小客车，造成3人死亡、2人受伤。 5月7日0时25分许，一辆小客车沿大广高速由南向北行驶至北京大兴永定河大
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月30日，南方黑芝麻（维权）集团股份有限公司发布《关于收到 的公告》，因黑芝麻未按规定披露关联方非经营性资金占用行为，广西证监局决定对黑芝麻及相关责任人给予行政处罚。
+中新网5月12日电 据公安部交通管理局微信公众号12日消息，近期，河北、北京、安徽等地接连发生高速公路夜间多人死伤道路交通事故，需要广大驾驶人警醒警示。
 
-陈宇霞律师在此提醒，凡在2023年01月01日至2026年04月24日之间买入黑芝麻股票，且在2026年04月25日之后继续持有或卖出亏损的投资者，均有权向黑芝麻索赔相关损失。
+5月7日0时5分许，一辆重型半挂车沿京哈高速由东向西行驶至河北秦皇岛附近时，追尾前方一辆刚从应急车道驶入行车道低速行驶的小客车，造成3人死亡、2人受伤。
 
-（具体索赔条件以法院认定的为准）。
+5月7日0时25分许，一辆小客车沿大广高速由南向北行驶至北京大兴永定河大桥附近时，追尾前方排队停驶的重型半挂车，造成4人死亡、1人受伤。
 
-（黑芝麻维权入口） 违法事实 广西证监局经调查认定，黑芝麻存在如下违法事实： 2023 年，黑芝麻的子公司广西南方食养工厂有限公司（2023年12月更名为南方黑芝麻（广西）健康粮仓工厂有限公司）通过预付第三方公司账款等方式转出资金，部分款项最终被黑芝麻关联方非经营性占用，非经营性资金占用累计发生18，592.64 万元，占最近一期经审计净资产的 7.51%。
+5月8日21时33分许，一辆重型半挂车沿五亳高速由西向东行驶至安徽省亳州市谯城区附近路段时，追尾前方因接打电话停在行车道的小客车，造成4人死亡、3人受伤。
 
-黑芝麻未及时履行信息披露义务，也未在 2023年年度报告中披露上述事项，构成重大遗漏。
+夜间高速公路行车驾驶人容易疲劳，反应时间延长，加之视线受限，事故易发多发。
 
-黑芝麻未及时披露关联方非经营性资金占用行为，涉嫌违反《证券法》第七十八条第一款、第八十条第一款及第二款第三项的规定，构成《证券法》第一百九十七条第一款所述违法行为。
+公安部交通管理局提示—— 夜间高速行车要集中精力，时刻注意前后方车辆，做到“控制车速、保持车距、合理用灯、谨慎变道”，切勿疲劳驾驶、分心驾驶、低速行驶。
 
-黑芝麻2023年年度报告存在重大遗漏的行为，涉嫌违反《证券法》第七十八条第二款的规定，构成《证券法》第一百九十七条第二款所述违法行为。
+从匝道、服务区以及应急车道、紧急停车带驶入高速公路行车道时，要提前观察后视镜，打开转向灯，在不妨碍行车道车辆正常行驶的情况下加速驶入。
 
-索赔相关 按照相关法律法规的规定，上市公司证券虚假陈述，给投资人造成的投资损失，应当负赔偿责任。
+驶出高速公路时，要提前并入最右侧车道，打开转向灯，减速驶出；若错过出口，要继续前行至下一个出口再掉头返回，切勿急刹、倒车或逆行。
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 05:47 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 05:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 05:34 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 05:46 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 05:40 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 05:46 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 05:39 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 05:32 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 05:26 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 05:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 05:29 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 05:34 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 05:36 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 05:46 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 05:56 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 05:44 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 05:55 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 05:45 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 05:53 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 05:36 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 05:59 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 05:56 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:26 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/24885861722.shtml)
-- 2026-06-30 05:25 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/77585819071.shtml)
-- 2026-06-30 05:42 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/678295967.shtml)
-- 2026-06-30 05:36 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/83513559.shtml)
-- 2026-06-30 05:34 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/092992308.shtml)
-- 2026-06-30 05:47 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/011087.shtml)
-- 2026-06-30 05:35 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/900607713.shtml)
-- 2026-06-30 05:27 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/899878.shtml)
-- 2026-06-30 05:39 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/7404104542.shtml)
-- 2026-06-30 05:27 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/2343096189.shtml)
-- 2026-06-30 05:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/941031057493.shtml)
-- 2026-06-30 05:39 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/1791825.shtml)
-- 2026-06-30 05:24 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/92753223.shtml)
-- 2026-06-30 05:52 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/3542076758.shtml)
-- 2026-06-30 05:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/90972807808.shtml)
+- 2026-06-30 05:59 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/5137263.shtml)
+- 2026-06-30 05:41 - [女心理师](http://www.blog.minike.top/Article/details/236737.shtml)
+- 2026-06-30 05:59 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/66742195567.shtml)
+- 2026-06-30 05:41 - [沉睡花园](http://www.blog.minike.top/Article/details/265120.shtml)
+- 2026-06-30 05:38 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/878373575.shtml)
+- 2026-06-30 05:40 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/334860820.shtml)
+- 2026-06-30 05:56 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/03227856813.shtml)
+- 2026-06-30 05:34 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/212174805982.shtml)
+- 2026-06-30 05:58 - [绘画区你赢了](http://www.blog.minike.top/Article/details/516718.shtml)
+- 2026-06-30 05:56 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/196626904902.shtml)
+- 2026-06-30 05:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/70117855.shtml)
+- 2026-06-30 05:53 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/572956707807.shtml)
+- 2026-06-30 05:44 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/839352.shtml)
+- 2026-06-30 05:39 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/6527169.shtml)
+- 2026-06-30 05:44 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/119404.shtml)

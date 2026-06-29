@@ -1,60 +1,58 @@
-# 长江有色：美ADP创16个月新高美指上涨 4日镍价或下跌
+# 受伊朗冲突担忧再度升温影响，日经指数从历史高位回落
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 镍期货市场：美ADP创16个月新高美指上涨，隔夜伦镍收跌2.06%；伦镍最新收盘报18820美元/吨，下跌395美元，跌幅为2.06%，成交量7471手，国内市场，夜盘沪镍最新收报141360元/吨，下跌2790元，跌幅为1.94%。 伦敦金属交易所（LME）6月3日伦镍库存报274236吨，较前一日减少1104吨。 长江镍业网讯：今日沪镍期货全线低开为主；主力
+周一早盘，日本日经平均股指一度触及历史高位，但随后收低。中东危机的影响超过了企业盈利与科技投资乐观情绪的支撑。 美国总统唐纳德・特朗普拒绝了伊朗对和平谈判提议的回应，令结束冲突的希望变得渺茫；这场冲突已推高了全球能源成本。 基准日经 225 指数下跌 0.5%，收于 62，417.88 点，回吐了盘中早些时候创下 63，385.04 点的涨幅。覆盖面更广的东证指数受地缘政治因素
 
 ## 正文
 
-长江有色金属网 镍期货市场：美ADP创16个月新高美指上涨，隔夜伦镍收跌2.06%；伦镍最新收盘报18820美元/吨，下跌395美元，跌幅为2.06%，成交量7471手，国内市场，夜盘沪镍最新收报141360元/吨，下跌2790元，跌幅为1.94%。
+周一早盘，日本日经平均股指一度触及历史高位，但随后收低。
 
-伦敦金属交易所（LME）6月3日伦镍库存报274236吨，较前一日减少1104吨。
+中东危机的影响超过了企业盈利与科技投资乐观情绪的支撑。
 
-长江镍业网讯：今日沪镍期货全线低开为主；主力月2607合约开盘报142440元/吨较此前收盘下跌1710元/吨，9：15分沪镍主力2607合约报140730元/吨，下跌3420元，沪期镍低开低走，盘面维持弱势震荡；宏观面：隔夜美元指数走出 V 型反弹走势，美联储加息预期持续升温，对以美元计价的工业金属形成估值压制。
+美国总统唐纳德・特朗普拒绝了伊朗对和平谈判提议的回应，令结束冲突的希望变得渺茫；这场冲突已推高了全球能源成本。
 
-美股市场呈现极端分化格局，半导体板块表现亮眼，但头部科技巨头集体走弱，引发市场对 AI 产业链需求放缓的普遍担忧。
+基准日经 225 指数下跌 0.5%，收于 62，417.88 点，回吐了盘中早些时候创下 63，385.04 点的涨幅。
 
-叠加前期镍市多头集中获利了结，资金加速从镍市场流出转向避险资产，多重因素共振推动隔夜伦镍价格出现明显回落。
+覆盖面更广的东证指数受地缘政治因素影响较小，上涨 0.3%，报 3，840.93 点。
 
-全品类镍原料供需格局分化 当前镍产业链各环节市场表现分化明显。
+上周五，华尔街股市在英伟达、闪迪等人工智能相关个股带动下攀升至历史高位。
 
-上游镍矿端，红土镍矿方面，菲律宾发运离港货源持续增多，产地货源紧俏度有所松动，矿价整体稳中偏弱，印尼 HPM 现货市场则成交拉锯持续；硫化镍矿方面，下游冶炼行业步入传统淡季，原料采购节奏放缓，现货成交表现平淡。
+这股乐观情绪延续至日本市场：芯片制造商铠侠在上周大涨 22% 后，周一再涨 3.26%。
 
-中间品环节，高冰镍因镍铁转产产业链盈利稳定、原料回流通道顺畅，成本支撑稳固，MHP（氢氧化镍钴）则受益于新能源三元材料的刚需托底，叠加湿法冶炼成本居高不下，现货报价保持坚挺。
+游戏制造商科乐美集团与日本烟草位列日经指数涨幅前列，分别大涨 10.25% 与 6.85%。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 05:41 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 05:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 05:32 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 05:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 05:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 05:29 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 05:52 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 05:34 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 05:44 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 05:51 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 05:32 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 05:30 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 05:49 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 05:54 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 05:56 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 05:54 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 05:54 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 05:58 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 05:44 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 05:45 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 05:58 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 05:44 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 05:45 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 05:52 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 05:54 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:26 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/2168399.shtml)
-- 2026-06-30 05:32 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/4879901.shtml)
-- 2026-06-30 05:53 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/12445974.shtml)
-- 2026-06-30 05:24 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/710001698.shtml)
-- 2026-06-30 05:27 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/75895717648.shtml)
-- 2026-06-30 05:41 - [巴西绝杀日本](http://www.share.minike.top/Article/details/6935917.shtml)
-- 2026-06-30 05:46 - [日本进球](https://www.share.kurohicncr.top/Article/details/13248887892.shtml)
-- 2026-06-30 05:39 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/2712256.shtml)
-- 2026-06-30 05:25 - [请回答王牌2019](https://www.share.minike.top/Article/details/794501.shtml)
-- 2026-06-30 05:45 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/58617.shtml)
-- 2026-06-30 05:27 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/6739084299.shtml)
-- 2026-06-30 05:39 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/87829390.shtml)
-- 2026-06-30 05:45 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/483138.shtml)
-- 2026-06-30 05:50 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/03155394.shtml)
-- 2026-06-30 05:43 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/199780.shtml)
+- 2026-06-30 05:37 - [爱很美味](https://www.share.kurohicncr.top/Article/details/1756111.shtml)
+- 2026-06-30 05:33 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/6499404585.shtml)
+- 2026-06-30 05:30 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/67184.shtml)
+- 2026-06-30 05:55 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/59488223521.shtml)
+- 2026-06-30 05:51 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/72303600891.shtml)
+- 2026-06-30 05:34 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/57644555.shtml)
+- 2026-06-30 05:49 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/15214498554.shtml)
+- 2026-06-30 05:38 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/92420187450.shtml)
+- 2026-06-30 05:58 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/75578721049.shtml)
+- 2026-06-30 05:30 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/763707729579.shtml)
+- 2026-06-30 05:46 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/397139.shtml)
+- 2026-06-30 05:37 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/54036588337.shtml)
+- 2026-06-30 05:45 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/041717262.shtml)
+- 2026-06-30 05:56 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/60033961365.shtml)
+- 2026-06-30 05:49 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/32985526953.shtml)

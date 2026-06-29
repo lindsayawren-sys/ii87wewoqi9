@@ -1,51 +1,61 @@
-# 从“束手无策”到“精准根治”：西藏医者扎西云旦亲历高原“抗包”20年
+# 第三十四届广州国际旅展将扩容 引入香港赛马会参与
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月04日 11:30 来源：中国新闻网 2026年是西藏和平解放75周年。曾多发于高原农牧区的包虫病，如今在筛查、诊疗、防控各环节实现根本性转变。拉萨市人民医院普外科副主任、包虫病诊疗专家扎西云旦，正是这场地方病防治变革的亲历者与践行者。目前，扎西云旦和团队持续深化科研攻关，联动国内优质医疗资源、借力AI智能技术，深耕精准诊疗研究，全力补齐基层医疗短板。
+中新网广州5月12日电 (记者 程景伟)第三十四届广州国际旅游展览会(GITF2026)新闻发布会11日在广州举行。记者从会上获悉，本届广州国际旅展将于5月21日至23日在广州广交会展馆C区举行，现场新增一个展馆，相比上届展览总面积增加25%，实现提质扩容。 广州国际旅游展览会创办于1993年，是国内创办历史最早、举办时间最长的大型国际旅游展览。 在当前出入境游市场加速复苏，“
 
 ## 正文
 
-发布时间：2026年06月04日 11:30 来源：中国新闻网 2026年是西藏和平解放75周年。
+中新网广州5月12日电 (记者 程景伟)第三十四届广州国际旅游展览会(GITF2026)新闻发布会11日在广州举行。
 
-曾多发于高原农牧区的包虫病，如今在筛查、诊疗、防控各环节实现根本性转变。
+记者从会上获悉，本届广州国际旅展将于5月21日至23日在广州广交会展馆C区举行，现场新增一个展馆，相比上届展览总面积增加25%，实现提质扩容。
 
-拉萨市人民医院普外科副主任、包虫病诊疗专家扎西云旦，正是这场地方病防治变革的亲历者与践行者。
+广州国际旅游展览会创办于1993年，是国内创办历史最早、举办时间最长的大型国际旅游展览。
 
-目前，扎西云旦和团队持续深化科研攻关，联动国内优质医疗资源、借力AI智能技术，深耕精准诊疗研究，全力补齐基层医疗短板。
+在当前出入境游市场加速复苏，“China Travel”带动入境游订单增长的大背景下，本届广州国际旅展境外展商参与度进一步提升，预计吸引斯里兰卡、俄罗斯、哈萨克斯坦、越南、柬埔寨、泰国等50多个国家和地区超1000个旅游目的地及机构参加。
 
-(贡桑拉姆 贡确 西藏报道） 责任编辑：【罗攀】
+香港赛马会担任本届广州国际旅展首席文体旅合作伙伴。
+
+据介绍，本届广州国际旅展希望通过香港赛马会的参与，进一步发挥穗港“两地三马场”优势，推广马匹运动相关的独特文旅体验，助力广州打造成世界级马匹主题文体旅目的地，带动赛事经济、体育消费和“文商体旅农”融合发展。
+
+海南省、山西省、重庆市、成都市、杭州市、广州市、佛山市等国内多地文旅主管部门，以及广之旅、广东中旅、康辉、携程、广东铁青、南方航空等大批企业将参展。
+
+本届广州国际旅展将举办中国出境游主题论坛、第四届入境游主题论坛、第三届研学游学主题论坛、第五届“让文物活起来LIVE”分享会以及首届康养主题论坛，涵盖出入境游、研学、银发经济等话题，展现旅游产业转型升级的多样性与新探索。
 
 ## 相关推荐
 
-- 2026-06-30 05:40 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 05:38 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 05:30 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 05:43 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 05:28 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 05:34 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 05:43 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 05:27 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 05:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 05:51 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 05:53 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 05:46 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 05:48 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 05:43 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 05:37 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 05:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 05:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 05:55 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 05:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 05:58 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 05:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 05:43 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 05:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 05:32 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 05:49 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 05:32 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:44 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/433097970.shtml)
-- 2026-06-30 05:45 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/828919782.shtml)
-- 2026-06-30 05:51 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/62606428.shtml)
-- 2026-06-30 05:39 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/550174479.shtml)
-- 2026-06-30 05:50 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/36355966655.shtml)
-- 2026-06-30 05:28 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/08498491.shtml)
-- 2026-06-30 05:33 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/6131177698.shtml)
-- 2026-06-30 05:35 - [千香](http://www.share.kurohicncr.top/Article/details/889435660874.shtml)
-- 2026-06-30 05:48 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/37336.shtml)
-- 2026-06-30 05:49 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/5854369825.shtml)
-- 2026-06-30 05:31 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/42417308458.shtml)
-- 2026-06-30 05:26 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/9545946973.shtml)
-- 2026-06-30 05:33 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/7425658671.shtml)
-- 2026-06-30 05:26 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/3745370.shtml)
-- 2026-06-30 05:54 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/8261097.shtml)
+- 2026-06-30 05:35 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/011422936889.shtml)
+- 2026-06-30 05:47 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/03719387.shtml)
+- 2026-06-30 05:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/04592447295.shtml)
+- 2026-06-30 05:37 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/7330024050.shtml)
+- 2026-06-30 05:47 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/11408674.shtml)
+- 2026-06-30 05:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/0483063.shtml)
+- 2026-06-30 05:58 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/494297.shtml)
+- 2026-06-30 05:58 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/06457256.shtml)
+- 2026-06-30 05:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/448387.shtml)
+- 2026-06-30 05:47 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/116176383904.shtml)
+- 2026-06-30 05:30 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/699419.shtml)
+- 2026-06-30 05:37 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/864720430006.shtml)
+- 2026-06-30 05:41 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/43589.shtml)
+- 2026-06-30 05:42 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/473874.shtml)
+- 2026-06-30 05:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/832807963.shtml)

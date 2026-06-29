@@ -1,56 +1,59 @@
-# 我国牵头修订的通用模件熔断体国际标准发布
+# “有濒死感……”王暖暖控诉无忧传媒PUA及霸凌，3年合同终解约！网友称“能逃也非一般人”
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-记者今天(6月3日)从国家标准委了解到，由我国牵头修订的国际标准《小型熔断器—第4部分：通用模件熔断体(UMF)—穿孔式和表面贴装式》近日获批发布。 通用模件熔断体(UMF)是一种关键的电路安全保护元件，通过表面贴装或穿孔技术直接焊接于印制电路板(PCB)及其他基板系统，具备微型化、可便捷安装特性。近年来，熔断器行业的产品向微型化、轻量化、薄型化方向发展，原有国际标准中的技术要
+文 | 《BUG》栏目 徐苑蕾 孕妇泰国坠崖案当事人、电影《消失的她》原型王暖暖，与头部MCN机构无忧传媒的合作，在历经近三年后以一场公开控诉收场。 日前，王暖暖发文称自己在拍摄过程中突发惊厥、剧烈抽搐，“有濒死感”，并指责无忧传媒长期对其PUA、职场霸凌及软控制。今日午间，《BUG》栏目发现，王暖暖抖音账号主页已取消无忧传媒的MCN标识，但其账号售后工作人员仍表示“属于无忧集
 
 ## 正文
 
-记者今天(6月3日)从国家标准委了解到，由我国牵头修订的国际标准《小型熔断器—第4部分：通用模件熔断体(UMF)—穿孔式和表面贴装式》近日获批发布。
+文 | 《BUG》栏目 徐苑蕾 孕妇泰国坠崖案当事人、电影《消失的她》原型王暖暖，与头部MCN机构无忧传媒的合作，在历经近三年后以一场公开控诉收场。
 
-通用模件熔断体(UMF)是一种关键的电路安全保护元件，通过表面贴装或穿孔技术直接焊接于印制电路板(PCB)及其他基板系统，具备微型化、可便捷安装特性。
+日前，王暖暖发文称自己在拍摄过程中突发惊厥、剧烈抽搐，“有濒死感”，并指责无忧传媒长期对其PUA、职场霸凌及软控制。
 
-近年来，熔断器行业的产品向微型化、轻量化、薄型化方向发展，原有国际标准中的技术要求与试验方法已难以满足当前产业快速迭代的技术需求。
+今日午间，《BUG》栏目发现，王暖暖抖音账号主页已取消无忧传媒的MCN标识，但其账号售后工作人员仍表示“属于无忧集团暖暖团队，尚未接到准确消息”。
 
-该标准规定了通用模件熔断体的标准规格单、尺寸和结构、电气性能等技术要求，适用于印制电路板(PCB)或其他基板系统上的通用模件熔断体(UMF)。
+今日下午，无忧传媒再次发声，表示同意王暖暖提出的解约请求，即日起正式解约。
 
-该熔断体被用于保护通常在户内使用的电气装置、电子设备及其部件。
+这也是继去年刘畊宏转签周杰伦关联公司后，无忧传媒再次因解约问题陷入舆论风波。
 
-该标准在试验方法、性能验证等方面进行了系统完善，更好地反映(契合)了当前及未来小型熔断器在微型化、大电流、高分断能力等方向的技术发展需求。
+无忧传媒旗下部分头部艺人接连出走，去年初的“张大大事件”更是暴露出公司管理问题。
 
-此项国际标准的成功发布，是我国在电子电器领域国际标准化工作中取得的又一项重要成果，为全球电路保护技术的创新发展贡献了中国智慧。
+与此同时，有中小主播反映，无忧传媒资源分配两极分化严重，签约后“无人管、无人带”。
 
-(总台央视记者 李晶晶)
+有直播行业人士则提醒，签约MCN时需警惕“自动续约”等隐性条款。
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 05:41 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 05:33 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 05:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 05:41 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 05:53 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 05:24 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 05:40 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 05:34 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 05:38 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 05:31 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 05:31 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 05:47 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 05:31 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 05:33 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 05:32 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 05:33 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 05:41 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 05:52 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 05:38 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 05:57 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 05:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 05:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:40 - [月亮](https://www.blog.minike.top/Article/details/34313.shtml)
-- 2026-06-30 05:47 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/40100329926.shtml)
-- 2026-06-30 05:25 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/262680652366.shtml)
-- 2026-06-30 05:52 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/118531.shtml)
-- 2026-06-30 05:29 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/154052998.shtml)
-- 2026-06-30 05:24 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/0282061.shtml)
-- 2026-06-30 05:30 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/101267439.shtml)
-- 2026-06-30 05:41 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/634488620.shtml)
-- 2026-06-30 05:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/99904.shtml)
-- 2026-06-30 05:27 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/09124.shtml)
-- 2026-06-30 05:35 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/906269935324.shtml)
-- 2026-06-30 05:40 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/753274121.shtml)
-- 2026-06-30 05:40 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/978705626.shtml)
-- 2026-06-30 05:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/2479831.shtml)
-- 2026-06-30 05:43 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/045400506.shtml)
+- 2026-06-30 05:36 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/78334.shtml)
+- 2026-06-30 05:58 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/596716415338.shtml)
+- 2026-06-30 05:40 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/689353159204.shtml)
+- 2026-06-30 05:32 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/60162.shtml)
+- 2026-06-30 05:42 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/86914552.shtml)
+- 2026-06-30 05:43 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/9768689765.shtml)
+- 2026-06-30 05:44 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/9850375.shtml)
+- 2026-06-30 05:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/197897271566.shtml)
+- 2026-06-30 05:33 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/301834.shtml)
+- 2026-06-30 05:33 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/91813.shtml)
+- 2026-06-30 05:43 - [女心理师](http://www.share.kurohicncr.top/Article/details/9291295.shtml)
+- 2026-06-30 05:33 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/414581473788.shtml)
+- 2026-06-30 05:49 - [森保一 保守](http://www.blog.minike.top/Article/details/89738198007.shtml)
+- 2026-06-30 05:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/363448387805.shtml)
+- 2026-06-30 05:38 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/416481764.shtml)

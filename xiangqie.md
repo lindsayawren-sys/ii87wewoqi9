@@ -1,61 +1,58 @@
-# 比特币跌破70,000美元，Strategy公司股价延续跌势
+# 知名牛散举牌！603052，“一字”涨停
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-由于市场情绪恶化，比特币周二自4月以来首次跌破70，000美元。 根据Coin Metrics的数据，比特币最新价格下跌逾5%，报67，692.76美元。 这一跌势始于周一，此前比特币资金储备先驱Strategy公司报告称，其出售了所持有的一小部分比特币——这是自2022年以来的首次出售。尽管该公司已提前发出信号，但董事长兼创始人迈克尔·塞勒“永不卖出你的比特币”信条的逆转仍然
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月12日开盘，可川科技（603052）“一字”涨停。 5月11日晚间，可川科技公告称，屠文斌、屠施恩、施玉庆通过集中竞价交易合计增持公司股份940.41万股，持股比例达到5%，触及举牌线。 屠施恩为屠文斌之子，施玉庆为屠文斌的配偶，三人为一致行动人。 公告显示，此次增持区间为2026年4月13日至5月11日。其中，屠文斌增持2
 
 ## 正文
 
-由于市场情绪恶化，比特币周二自4月以来首次跌破70，000美元。
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月12日开盘，可川科技（603052）“一字”涨停。
 
-根据Coin Metrics的数据，比特币最新价格下跌逾5%，报67，692.76美元。
+5月11日晚间，可川科技公告称，屠文斌、屠施恩、施玉庆通过集中竞价交易合计增持公司股份940.41万股，持股比例达到5%，触及举牌线。
 
-这一跌势始于周一，此前比特币资金储备先驱Strategy公司报告称，其出售了所持有的一小部分比特币——这是自2022年以来的首次出售。
+屠施恩为屠文斌之子，施玉庆为屠文斌的配偶，三人为一致行动人。
 
-尽管该公司已提前发出信号，但董事长兼创始人迈克尔·塞勒“永不卖出你的比特币”信条的逆转仍然吓坏了投资者。
+公告显示，此次增持区间为2026年4月13日至5月11日。
 
-这引发了多单连环爆仓，加剧了下行压力。
+其中，屠文斌增持287万股，占总股本的比例为1.53%；屠施恩增持376.41万股，占比2%；施玉庆增持277万股，占比1.47%。
 
-当押注价格上涨的杠杆交易者被迫平仓时，交易所会自动卖出他们持有的头寸以弥补亏损。
+三人此前均未持有可川科技股份。
 
-根据CoinGlass的数据，过去24小时内，加密货币交易所的多头爆仓金额已达5.94亿美元。
+权益变动报告书称，本次增持后公司控股股东、实际控制人未发生变化，三人所持股份均为无限售流通股，无质押或冻结情况。
 
-责任编辑：张俊 SF065
+信息披露义务人表示，未来12个月内不排除根据市场情况进一步增减持的可能。
 
 ## 相关推荐
 
-- 2026-06-30 05:53 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 05:45 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 05:38 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 05:37 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 05:29 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 05:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 05:34 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 05:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 05:32 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 05:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 05:24 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 05:31 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 05:36 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 05:53 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 05:48 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 05:47 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 05:37 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 05:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 05:43 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 05:32 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 05:36 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 05:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 05:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 05:33 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 05:51 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 05:50 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 05:34 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/1471964405.shtml)
-- 2026-06-30 05:41 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/98996726.shtml)
-- 2026-06-30 05:36 - [毒液2](https://www.share.kurohicncr.top/Article/details/02795407.shtml)
-- 2026-06-30 05:37 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/622682400047.shtml)
-- 2026-06-30 05:43 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/449146893.shtml)
-- 2026-06-30 05:42 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/672777.shtml)
-- 2026-06-30 05:39 - [毒液2](http://www.blog.kurohicncr.top/Article/details/09426918.shtml)
-- 2026-06-30 05:25 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/944556182.shtml)
-- 2026-06-30 05:26 - [蔚来车主罚站](https://www.share.minike.top/Article/details/223659869.shtml)
-- 2026-06-30 05:24 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/236232536542.shtml)
-- 2026-06-30 05:35 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/15627474309.shtml)
-- 2026-06-30 05:36 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/26746612.shtml)
-- 2026-06-30 05:30 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/21584749603.shtml)
-- 2026-06-30 05:27 - [周生如故](https://www.blog.minike.top/Article/details/82966290.shtml)
-- 2026-06-30 05:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/8685594.shtml)
+- 2026-06-30 05:30 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/0063809.shtml)
+- 2026-06-30 05:30 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/58334528053.shtml)
+- 2026-06-30 05:54 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/08271615456.shtml)
+- 2026-06-30 05:59 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/96683257985.shtml)
+- 2026-06-30 05:54 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/92007133.shtml)
+- 2026-06-30 05:34 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/550704954914.shtml)
+- 2026-06-30 05:45 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/563580309832.shtml)
+- 2026-06-30 05:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/0976543.shtml)
+- 2026-06-30 05:32 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/499579.shtml)
+- 2026-06-30 05:40 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/458445.shtml)
+- 2026-06-30 05:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/39803880.shtml)
+- 2026-06-30 05:36 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/09064916.shtml)
+- 2026-06-30 05:34 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/186154042799.shtml)
+- 2026-06-30 05:48 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/2610171188.shtml)
+- 2026-06-30 05:36 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/30853159.shtml)

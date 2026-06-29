@@ -1,57 +1,42 @@
-# 辽宁严打“上头电子烟” 家庭宣教覆盖49万人
+# 【早盘三分钟】5月11日华宝基金ETF早知道
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-中新网沈阳6月3日电(记者王景巍)6月3日，在辽宁省政府新闻办举行的发布会上，辽宁省禁毒委副主任、省公安厅反恐专员朱朝键，省禁毒委委员、省药监局副局长王嘉仡，省禁毒委委员、辽宁省妇联副主席吴文彩，辽宁省公安厅禁毒总队总队长陈旭出席并答记者问，从打击整治、药品监管、家庭宣教三个维度回应社会关切。针对“上头电子烟”“笑气”等未列管成瘾性物质滥用蔓延态势，辽宁公安禁毒部门已连续两年发
+责任编辑：周守来
 
 ## 正文
 
-中新网沈阳6月3日电(记者王景巍)6月3日，在辽宁省政府新闻办举行的发布会上，辽宁省禁毒委副主任、省公安厅反恐专员朱朝键，省禁毒委委员、省药监局副局长王嘉仡，省禁毒委委员、辽宁省妇联副主席吴文彩，辽宁省公安厅禁毒总队总队长陈旭出席并答记者问，从打击整治、药品监管、家庭宣教三个维度回应社会关切。
-
-针对“上头电子烟”“笑气”等未列管成瘾性物质滥用蔓延态势，辽宁公安禁毒部门已连续两年发起专项打击。
-
-朱朝键介绍，辽宁省形成禁毒部门牵头、全警参战的"研、查、打"一体化打击模式，今年以来共抓获涉未列管物质犯罪嫌疑人391人，查处滥用人员5164人。
-
-防范青少年药物滥用，管好麻精药品是关键一环。
-
-据王嘉仡介绍，辽宁省药监局坚持“管得住、用得上”原则，以安全管理零缺陷为标准，严格购用审批和计划核定。
-
-在日常监管方面，2026年已完成麻精药品定点生产经营企业监督检查67家次、零售药店飞行检查112家次。
-
-同时建立购销异常处置制度，重点关注乡村诊所、学校及娱乐场所周边医疗机构购用情况，今年已筛查预警信息85条，全力让“监管跑在风险前面”。
-
-家庭是禁毒工作的最小单元，也是第一道防线。
+责任编辑：周守来
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 05:37 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 05:41 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 05:42 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 05:25 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 05:35 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 05:51 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 05:27 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 05:42 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 05:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 05:43 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 05:38 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 05:38 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 05:50 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 05:57 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 05:57 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 05:50 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 05:41 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 05:38 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 05:49 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 05:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/53788.shtml)
-- 2026-06-30 05:33 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/147764.shtml)
-- 2026-06-30 05:34 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/51812554666.shtml)
-- 2026-06-30 05:38 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/55326176085.shtml)
-- 2026-06-30 05:34 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/34050026.shtml)
-- 2026-06-30 05:41 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/187777206.shtml)
-- 2026-06-30 05:34 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/32718.shtml)
-- 2026-06-30 05:47 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/07390937.shtml)
-- 2026-06-30 05:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/040806.shtml)
-- 2026-06-30 05:49 - [人类...完蛋了...](http://www.share.minike.top/Article/details/102828.shtml)
-- 2026-06-30 05:46 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/11164927.shtml)
-- 2026-06-30 05:26 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/43186771590.shtml)
-- 2026-06-30 05:38 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/873973845904.shtml)
-- 2026-06-30 05:50 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/03192024.shtml)
-- 2026-06-30 05:39 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/07469611750.shtml)
+- 2026-06-30 05:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/29638.shtml)
+- 2026-06-30 05:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/41993.shtml)
+- 2026-06-30 05:31 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/73756378.shtml)
+- 2026-06-30 05:35 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/273970.shtml)
+- 2026-06-30 05:46 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/7360842.shtml)
+- 2026-06-30 05:53 - [沉睡花园](http://www.blog.minike.top/Article/details/9829016.shtml)
+- 2026-06-30 05:58 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/127729.shtml)
+- 2026-06-30 05:45 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/77249077.shtml)
+- 2026-06-30 05:31 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/3707686.shtml)
+- 2026-06-30 05:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/36020.shtml)
+- 2026-06-30 05:37 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/6896883.shtml)
+- 2026-06-30 05:47 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/0436864077.shtml)
+- 2026-06-30 05:55 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/9641475.shtml)
+- 2026-06-30 05:55 - [日本 高位逼抢](https://www.share.minike.top/Article/details/10540897766.shtml)
+- 2026-06-30 05:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/348395817.shtml)

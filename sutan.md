@@ -1,56 +1,57 @@
-# 生猪政策再收紧！农牧渔板块大面积回调，华宝基金农牧渔ETF（159275）跌超1%！机构坚定看好
+# M4Markets:金价获利重返四千七百
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-农牧渔板块今日（6月4日）延续回调态势，全市场首只农牧渔ETF（159275）开盘短暂拉升后迅速走弱，截至发稿，场内价格跌1.2%。 成份股方面，畜牧养殖、种植等板块部分个股表现不佳。截至发稿，立华股份跌超6%，安迪苏、益生股份、海南橡胶等跌幅居前，拖累板块走势。 消息面上，近日，农业农村部印发《生猪产能综合调控实施方案（2026修订）》，综合考虑猪肉市场供应、生猪生产效率提升
+5月11日，国际黄金市场近期展现出企稳回升的迹象，现货金价在经历两周回调后重新站上每盎司4700美元上方，周五金价上涨0.65%至4716美元附近，白银亦同步走强超过2%。市场普遍认为，黄金重返4700关口反映出多头力量阶段性回归，市场对前期回调的恐慌情绪逐步消化。多家市场分析人士分析称，本轮反弹的支撑来自宏观因素与机构配置需求的共振，贵金属作为跨周期资产的中长期投资逻辑依然完
 
 ## 正文
 
-农牧渔板块今日（6月4日）延续回调态势，全市场首只农牧渔ETF（159275）开盘短暂拉升后迅速走弱，截至发稿，场内价格跌1.2%。
+5月11日，国际黄金市场近期展现出企稳回升的迹象，现货金价在经历两周回调后重新站上每盎司4700美元上方，周五金价上涨0.65%至4716美元附近，白银亦同步走强超过2%。
 
-成份股方面，畜牧养殖、种植等板块部分个股表现不佳。
+市场普遍认为，黄金重返4700关口反映出多头力量阶段性回归，市场对前期回调的恐慌情绪逐步消化。
 
-截至发稿，立华股份跌超6%，安迪苏、益生股份、海南橡胶等跌幅居前，拖累板块走势。
+多家市场分析人士分析称，本轮反弹的支撑来自宏观因素与机构配置需求的共振，贵金属作为跨周期资产的中长期投资逻辑依然完整。
 
-消息面上，近日，农业农村部印发《生猪产能综合调控实施方案（2026修订）》，综合考虑猪肉市场供应、生猪生产效率提升等因素，将全国能繁母猪正常保有量从3900万头下调至3750万头。
+宏观环境方面，美联储基准利率在3.5%至3.75%区间维持稳定，中东冲突推升的能源价格使得通胀压力难以快速回落，市场对年内降息的预期明显降温。
 
-是自2024年2月以来再次下调正常保有量目标。
+市场分析认为，分化的联储与不确定的政策路径使得降息时点尚难确认，但实际利率长期回落趋势并未改变。
 
-国海证券指出，根据农业农村部的数据，截至2026年一季度末全国能繁母猪存栏3904万头，再考虑到繁殖效率的提升，未来生猪产能调减还有较大的空间，坚定看好本轮周期产能去化的持续性和确定性。
+机构判断，央行储备多元化、美元体系演化与避险需求构成金价中枢上移的核心逻辑，机构客户在调整后的区间下沿配置力度有所抬升。
 
-从估值方面来看，当前农牧渔板块估值水平仍处相对低位，当前或为板块较好配置时机。
+技术层面看，黄金日线突破短期均线压制后多头排列重新形成，MACD动能转正，KDJ自超卖区域明显上行，显示空头力量阶段性释放完毕。
 
-数据显示，截至昨日（6月3日）收盘，全市场首只农牧渔ETF（159275）标的指数中证全指农牧渔指数市净率为2.18倍，位于近5年来0.78%分位点的低位，中长期配置性价比凸显。
+机构层面亦关注到，全球央行的购金节奏并未中断，亚洲实物金需求保持稳健，ETF持仓数据的边际变化、印度与中东婚庆季实物需求以及COMEX期金交割比率，亦是观察资金面真实态度的关键观察窗口。
 
 ## 相关推荐
 
-- 2026-06-30 05:28 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 05:26 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 05:32 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 05:40 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 05:38 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 05:38 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 05:53 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 05:34 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 05:52 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 05:33 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 05:58 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 05:57 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 05:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 05:44 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 05:31 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 05:58 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 05:56 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 05:56 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 05:34 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 05:57 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 05:43 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/44955531.shtml)
-- 2026-06-30 05:27 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/59478.shtml)
-- 2026-06-30 05:50 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/87019859296.shtml)
-- 2026-06-30 05:41 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/670337761437.shtml)
-- 2026-06-30 05:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/2284929.shtml)
-- 2026-06-30 05:39 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/64811.shtml)
-- 2026-06-30 05:35 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/499948175.shtml)
-- 2026-06-30 05:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/3573401124.shtml)
-- 2026-06-30 05:49 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/6296676.shtml)
-- 2026-06-30 05:40 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/84910404.shtml)
-- 2026-06-30 05:49 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/125105193236.shtml)
-- 2026-06-30 05:36 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/8183558227.shtml)
-- 2026-06-30 05:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/69244805592.shtml)
-- 2026-06-30 05:35 - [一见倾心](http://www.share.kurohicncr.top/Article/details/6128875268.shtml)
-- 2026-06-30 05:27 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/58916923268.shtml)
+- 2026-06-30 05:57 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/1943713.shtml)
+- 2026-06-30 05:30 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/6441803528.shtml)
+- 2026-06-30 05:59 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/661152811981.shtml)
+- 2026-06-30 05:32 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/31674782987.shtml)
+- 2026-06-30 05:36 - [女心理师](http://www.share.minike.top/Article/details/4877181524.shtml)
+- 2026-06-30 05:59 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/485229.shtml)
+- 2026-06-30 05:43 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/6279816829.shtml)
+- 2026-06-30 05:40 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/916685556.shtml)
+- 2026-06-30 05:51 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/111112657382.shtml)
+- 2026-06-30 05:42 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/018087862507.shtml)
+- 2026-06-30 05:32 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/6825182.shtml)
+- 2026-06-30 05:32 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/78024.shtml)
+- 2026-06-30 05:37 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/72197392073.shtml)
+- 2026-06-30 05:51 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/775464005675.shtml)
+- 2026-06-30 05:51 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/018960.shtml)

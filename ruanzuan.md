@@ -1,52 +1,54 @@
-# 天津港加快特色细分航线布局 打造“港航贸产”供应链体系
+# 鸡东县委统战部召开2026年度重点课题调研协商座谈会
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新网天津6月2日电 (记者 周亚强)第五届世界一流港口多式联运大会2日在天津举行，天津港集团总裁王洪海在会上透露，天津港加快特色细分航线布局，目前已开通东南亚热带水果冷链快线、东北亚商品车外贸滚装专线，持续提升航运资源配置能力。王洪海表示，今年以来，天津港先后开通以星地中海线、地中海南非线、正利德翔东南亚线等多条国际干线，加密欧美、日韩主力航线，填补了南美东海岸直航、西非件杂
+近日，鸡东县委统战部召开民主党派成员、工商联和无党派人士2026年度重点课题调研协商座谈会，鸡东县委常委、统战部部长张伟春出席会议并讲话，各民主党派成员、工商联分管负责同志和无党派人士代表，各乡镇(社区)、县直有关部门主管同志参加会议。会议传达学习了习近平总书记关于坚持好、发展好、完善好中国新型政党制度的重要论述，通报了2025年度重点课题调研成果转化情况，听取了各民主党派成员
 
 ## 正文
 
-中新网天津6月2日电 (记者 周亚强)第五届世界一流港口多式联运大会2日在天津举行，天津港集团总裁王洪海在会上透露，天津港加快特色细分航线布局，目前已开通东南亚热带水果冷链快线、东北亚商品车外贸滚装专线，持续提升航运资源配置能力。
+近日，鸡东县委统战部召开民主党派成员、工商联和无党派人士2026年度重点课题调研协商座谈会，鸡东县委常委、统战部部长张伟春出席会议并讲话，各民主党派成员、工商联分管负责同志和无党派人士代表，各乡镇(社区)、县直有关部门主管同志参加会议。
 
-王洪海表示，今年以来，天津港先后开通以星地中海线、地中海南非线、正利德翔东南亚线等多条国际干线，加密欧美、日韩主力航线，填补了南美东海岸直航、西非件杂货快线的市场空白。
+会议传达学习了习近平总书记关于坚持好、发展好、完善好中国新型政党制度的重要论述，通报了2025年度重点课题调研成果转化情况，听取了各民主党派成员、工商联分管负责同志及无党派人士代表的选题汇报，进一步明确了调研思路、确定了调研方向。
 
-他分享的最新数据显示，天津港物流服务网络覆盖15个省市，今年1至5月铁水联运完成68.1万标箱；多式联运“一单制”服务已覆盖10省市15家船公司，较年初新增2个省市、3家船公司。
+会议强调，要持续深化思想政治引领，牢牢把握政党协商的正确政治方向。
 
-王洪海表示，天津港还推动港口与临港产业、城市深度融合，精准对接制造业与外贸需求，打造“港、航、贸、产”供应链服务体系，依托多式联运培育大宗商品贸易、期货交割、保税混矿、跨境电商等新业态，做强危化、冷链、汽车等特色物流。
+要聚焦中心大局开展精准调研，紧扣鸡东发展关键问题与民生关切，深入一线掌握实情，充分论证完善意见，形成高质量调研成果，切实为县委、县政府科学决策提供有力参考。
 
-(完)
+要强化调研成果转化运用，加快推动成熟举措落地实施、总结推广，真正让调研成果发挥实效、惠及群众，为鸡东经济社会高质量发展贡献更多智慧和力量。
+
+来源：鸡东县委统战部
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 05:26 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 05:50 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 05:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 05:31 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 05:47 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 05:36 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 05:32 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 05:51 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 05:54 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 05:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 05:39 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 05:36 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 05:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 05:30 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 05:53 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 05:52 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 05:55 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 05:54 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 05:55 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 05:47 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 05:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 05:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 05:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:36 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/11527948.shtml)
-- 2026-06-30 05:36 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/01422971191.shtml)
-- 2026-06-30 05:53 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/413699727280.shtml)
-- 2026-06-30 05:39 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/03951.shtml)
-- 2026-06-30 05:27 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/951054471410.shtml)
-- 2026-06-30 05:46 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/71232675059.shtml)
-- 2026-06-30 05:38 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/0820224.shtml)
-- 2026-06-30 05:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/61983351.shtml)
-- 2026-06-30 05:30 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/272758.shtml)
-- 2026-06-30 05:50 - [《贺子珍》](http://www.share.minike.top/Article/details/7262489.shtml)
-- 2026-06-30 05:54 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/711131814473.shtml)
-- 2026-06-30 05:32 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/013672685.shtml)
-- 2026-06-30 05:43 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/08332.shtml)
-- 2026-06-30 05:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/26384974216.shtml)
-- 2026-06-30 05:53 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/635501537372.shtml)
+- 2026-06-30 05:56 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/77835205222.shtml)
+- 2026-06-30 05:46 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/61403736.shtml)
+- 2026-06-30 05:46 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/41054753.shtml)
+- 2026-06-30 05:58 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/035132.shtml)
+- 2026-06-30 05:36 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/294537550.shtml)
+- 2026-06-30 05:33 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/235804819865.shtml)
+- 2026-06-30 05:56 - [小娘惹](http://www.blog.minike.top/Article/details/483409.shtml)
+- 2026-06-30 05:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/751076418535.shtml)
+- 2026-06-30 05:56 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/907752489.shtml)
+- 2026-06-30 05:36 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/75475712.shtml)
+- 2026-06-30 05:36 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/958928.shtml)
+- 2026-06-30 05:32 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/860700730.shtml)
+- 2026-06-30 05:54 - [TOP Prada](http://www.blog.minike.top/Article/details/798700976.shtml)
+- 2026-06-30 05:42 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/903395502643.shtml)
+- 2026-06-30 05:49 - [巴西扳平比分](https://www.blog.minike.top/Article/details/2870586.shtml)

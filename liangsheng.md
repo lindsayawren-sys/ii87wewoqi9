@@ -1,46 +1,49 @@
-# 伊朗公开已故最高领袖哈梅内伊安葬地点
+# 暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-伊朗方面2日消息称，根据伊朗已故最高领袖阿里·哈梅内伊生前遗愿及其亲属建议，其遗体将安葬在马什哈德的伊玛目礼萨圣陵。
+发布时间：2026年05月12日 15:39 来源：中国新闻网 暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了 责任编辑：【李光伟】
 
 ## 正文
 
-伊朗方面2日消息称，根据伊朗已故最高领袖阿里·哈梅内伊生前遗愿及其亲属建议，其遗体将安葬在马什哈德的伊玛目礼萨圣陵。
+发布时间：2026年05月12日 15:39 来源：中国新闻网 暖心！
+
+为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了 责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-30 05:46 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 05:35 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 05:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 05:46 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 05:42 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 05:31 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 05:29 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 05:24 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 05:25 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 05:38 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 05:27 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 05:46 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 05:28 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 05:37 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 05:48 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 05:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 05:43 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 05:46 - [点菜也要教吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 05:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 05:30 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 05:59 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 05:34 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 05:45 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 05:31 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 05:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 05:46 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 05:58 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 05:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 05:49 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:26 - [《贺子珍》](http://www.share.minike.top/Article/details/5914683562.shtml)
-- 2026-06-30 05:38 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/52134698467.shtml)
-- 2026-06-30 05:27 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/4983749539.shtml)
-- 2026-06-30 05:36 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/4145195438.shtml)
-- 2026-06-30 05:38 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/98454564137.shtml)
-- 2026-06-30 05:38 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/3643656953.shtml)
-- 2026-06-30 05:40 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/3137649.shtml)
-- 2026-06-30 05:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/788330.shtml)
-- 2026-06-30 05:42 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/4913833.shtml)
-- 2026-06-30 05:42 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/04056530036.shtml)
-- 2026-06-30 05:40 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/332072.shtml)
-- 2026-06-30 05:43 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/97785.shtml)
-- 2026-06-30 05:25 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/473803039498.shtml)
-- 2026-06-30 05:28 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/01446.shtml)
-- 2026-06-30 05:30 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/07771.shtml)
+- 2026-06-30 05:39 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/701527011.shtml)
+- 2026-06-30 05:45 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/0187003558.shtml)
+- 2026-06-30 05:42 - [85花告别古偶](http://www.blog.minike.top/Article/details/05989283380.shtml)
+- 2026-06-30 05:46 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/076319.shtml)
+- 2026-06-30 05:41 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/7586295152.shtml)
+- 2026-06-30 05:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/807569068486.shtml)
+- 2026-06-30 05:51 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/25663.shtml)
+- 2026-06-30 05:43 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/39080026532.shtml)
+- 2026-06-30 05:31 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/6874897.shtml)
+- 2026-06-30 05:46 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/14364.shtml)
+- 2026-06-30 05:53 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/721291604.shtml)
+- 2026-06-30 05:33 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/244584312527.shtml)
+- 2026-06-30 05:31 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/41080424.shtml)
+- 2026-06-30 05:35 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/060453.shtml)
+- 2026-06-30 05:58 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/636021.shtml)

@@ -1,52 +1,57 @@
-# 陆家嘴国泰人寿注册资本由30亿元增至50亿元
+# 微视频｜总书记引领美丽中国建设迈出新步伐
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-6月3日金融一线消息，上海陆家嘴金融贸易区开发股份有限公司日前发布公告称，陆家嘴国泰人寿保险有限责任公司（以下简称“陆家嘴国泰人寿”）现有股东以自有资金对其同比例增资20亿元，其中，公司全资子公司上海陆家嘴金融发展有限公司（以下简称“陆金发”）以自有资金出资10亿元。本次增资后，陆家嘴国泰人寿注册资本由30亿元增至50亿元。 公告指出，本次对陆家嘴国泰人寿增资，是公司主动应对寿
+视频：微视频｜总书记引领美丽中国建设迈出新步伐来源：新华社 美丽中国，江山如画，是习近平总书记的情之所系，也是亿万中国人民的共同心愿。党的十八大以来，总书记走遍大江南北，为美丽中国建设指明方向。 习近平总书记强调，要统筹山水林田湖草沙系统治理，实施好生态保护修复工程，加大生态系统保护力度，提升生态系统稳定性和可持续性。 坚持山水林田湖草沙一体化保护和系统治理，让美丽中国呈现多元
 
 ## 正文
 
-6月3日金融一线消息，上海陆家嘴金融贸易区开发股份有限公司日前发布公告称，陆家嘴国泰人寿保险有限责任公司（以下简称“陆家嘴国泰人寿”）现有股东以自有资金对其同比例增资20亿元，其中，公司全资子公司上海陆家嘴金融发展有限公司（以下简称“陆金发”）以自有资金出资10亿元。
+视频：微视频｜总书记引领美丽中国建设迈出新步伐来源：新华社 美丽中国，江山如画，是习近平总书记的情之所系，也是亿万中国人民的共同心愿。
 
-本次增资后，陆家嘴国泰人寿注册资本由30亿元增至50亿元。
+党的十八大以来，总书记走遍大江南北，为美丽中国建设指明方向。
 
-公告指出，本次对陆家嘴国泰人寿增资，是公司主动应对寿险行业转型变局、保障战略规划有效落地、全面满足监管合规要求、持续实现股东价值最大化的必要举措。
+习近平总书记强调，要统筹山水林田湖草沙系统治理，实施好生态保护修复工程，加大生态系统保护力度，提升生态系统稳定性和可持续性。
 
-结合对陆家嘴国泰人寿当前经营状况及未来发展预期的审慎研判，本次增资将进一步夯实陆家嘴国泰人寿高质量发展的基础，符合公司长远利益与全体股东权益。
+坚持山水林田湖草沙一体化保护和系统治理，让美丽中国呈现多元之美，是践行“绿水青山就是金山银山”理念的重要举措。
 
-责任编辑：曹睿潼
+生态文明建设既是发展课题，也是改革命题。
+
+今年3月，我国颁布生态环境法典，进一步筑牢了美丽中国建设的法治基石。
+
+为全局计，为长远谋。
+
+习近平总书记心系人民福祉、瞩望民族未来，推动人与自然和谐共生的中国式现代化行稳致远。
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 05:35 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 05:48 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 05:53 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 05:46 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 05:48 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 05:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 05:26 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 05:52 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 05:38 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 05:31 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 05:32 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 05:39 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 05:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 05:43 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 05:53 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 05:35 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 05:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 05:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 05:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 05:44 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 05:36 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 05:48 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/68219.shtml)
-- 2026-06-30 05:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/9779537.shtml)
-- 2026-06-30 05:51 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/916699.shtml)
-- 2026-06-30 05:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/53569287.shtml)
-- 2026-06-30 05:50 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/685657045.shtml)
-- 2026-06-30 05:40 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/68172338.shtml)
-- 2026-06-30 05:42 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/760070639.shtml)
-- 2026-06-30 05:42 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/7191365.shtml)
-- 2026-06-30 05:39 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/809941707106.shtml)
-- 2026-06-30 05:45 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/60690402.shtml)
-- 2026-06-30 05:43 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/4297900.shtml)
-- 2026-06-30 05:48 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/4705547.shtml)
-- 2026-06-30 05:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/1360648922.shtml)
-- 2026-06-30 05:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/936674.shtml)
-- 2026-06-30 05:26 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/7055999393.shtml)
+- 2026-06-30 05:49 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/52014635438.shtml)
+- 2026-06-30 05:32 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/995272321.shtml)
+- 2026-06-30 05:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/71853512856.shtml)
+- 2026-06-30 05:30 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/8590606.shtml)
+- 2026-06-30 05:36 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/4020679.shtml)
+- 2026-06-30 05:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/55757751953.shtml)
+- 2026-06-30 05:47 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/188217895.shtml)
+- 2026-06-30 05:40 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/79402674.shtml)
+- 2026-06-30 05:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/6575454348.shtml)
+- 2026-06-30 05:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/76597461.shtml)
+- 2026-06-30 05:38 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/656269088406.shtml)
+- 2026-06-30 05:46 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/78015676330.shtml)
+- 2026-06-30 05:32 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/76400509413.shtml)
+- 2026-06-30 05:46 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/790638178.shtml)
+- 2026-06-30 05:30 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/0437298513.shtml)

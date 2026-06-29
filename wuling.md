@@ -1,48 +1,54 @@
-# 伊朗媒体发布穆杰塔巴和哈梅内伊“罕见”合照
+# 委内瑞拉代总统否认该国将成为美国“第51州”
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-中新网6月4日电 伊朗《德黑兰时报》3日在社交媒体发布了一张已故伊朗最高领袖阿里·哈梅内伊和他的儿子、新任伊朗最高领袖穆杰塔巴·哈梅内伊的合照。 据报道，在这张“罕见”照片中，两人并肩而行，似乎正在交谈。 帖文中没说明这张照片于何时何地拍摄。
+委内瑞拉代总统德尔西·罗德里格斯11日接受媒体采访时否认这一南美国家将成为美国“第51个州”。 罗德里格斯当天在荷兰海牙出席联合国国际法院有关埃塞奎博地区领土争端的活动后，接受委内瑞拉媒体采访时说：“这根本不在考虑之中，也永远不会成为现实，因为委内瑞拉人民始终珍视国家独立。” 她说，委内瑞拉将继续捍卫国家完整、主权和独立，并且，美国总统特朗普“知道我们一直在推进外交合作，这才是
 
 ## 正文
 
-中新网6月4日电 伊朗《德黑兰时报》3日在社交媒体发布了一张已故伊朗最高领袖阿里·哈梅内伊和他的儿子、新任伊朗最高领袖穆杰塔巴·哈梅内伊的合照。
+委内瑞拉代总统德尔西·罗德里格斯11日接受媒体采访时否认这一南美国家将成为美国“第51个州”。
 
-据报道，在这张“罕见”照片中，两人并肩而行，似乎正在交谈。
+罗德里格斯当天在荷兰海牙出席联合国国际法院有关埃塞奎博地区领土争端的活动后，接受委内瑞拉媒体采访时说：“这根本不在考虑之中，也永远不会成为现实，因为委内瑞拉人民始终珍视国家独立。
 
-帖文中没说明这张照片于何时何地拍摄。
+” 她说，委内瑞拉将继续捍卫国家完整、主权和独立，并且，美国总统特朗普“知道我们一直在推进外交合作，这才是正确道路”。
+
+埃塞奎博地区油气、矿产等自然资源丰富，目前由圭亚那实际控制。
+
+委内瑞拉和圭亚那围绕这一地区主权归属的争端是欧洲国家殖民时期遗留的问题。
+
+(总台记者 马天静)
 
 ## 相关推荐
 
-- 2026-06-30 05:31 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 05:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 05:27 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 05:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 05:39 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 05:50 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 05:40 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 05:34 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 05:45 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 05:43 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 05:43 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 05:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 05:31 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 05:59 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 05:50 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 05:55 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 05:38 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 05:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 05:38 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 05:32 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 05:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 05:52 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 05:58 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 05:47 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/798694871793.shtml)
-- 2026-06-30 05:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/594734090312.shtml)
-- 2026-06-30 05:34 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/642401.shtml)
-- 2026-06-30 05:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/0197667.shtml)
-- 2026-06-30 05:40 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/6927529.shtml)
-- 2026-06-30 05:38 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/6625496532.shtml)
-- 2026-06-30 05:35 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/38731218911.shtml)
-- 2026-06-30 05:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/123973055268.shtml)
-- 2026-06-30 05:46 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/2864894.shtml)
-- 2026-06-30 05:30 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/7324648628.shtml)
-- 2026-06-30 05:24 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/1243174.shtml)
-- 2026-06-30 05:45 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/03065548.shtml)
-- 2026-06-30 05:45 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/364501111244.shtml)
-- 2026-06-30 05:36 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/851973139.shtml)
-- 2026-06-30 05:53 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/062932.shtml)
+- 2026-06-30 05:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/3112054273.shtml)
+- 2026-06-30 05:52 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/09467955.shtml)
+- 2026-06-30 05:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/484734.shtml)
+- 2026-06-30 05:31 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/683049014.shtml)
+- 2026-06-30 05:41 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/5802185.shtml)
+- 2026-06-30 05:51 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/510390.shtml)
+- 2026-06-30 05:54 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/442920940.shtml)
+- 2026-06-30 05:30 - [扫黑风暴](http://www.share.minike.top/Article/details/081963627.shtml)
+- 2026-06-30 05:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/08411950735.shtml)
+- 2026-06-30 05:51 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/384512772170.shtml)
+- 2026-06-30 05:33 - [85花告别古偶](https://www.blog.minike.top/Article/details/168902095823.shtml)
+- 2026-06-30 05:40 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/910158263.shtml)
+- 2026-06-30 05:33 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/17836391435.shtml)
+- 2026-06-30 05:55 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/99930654.shtml)
+- 2026-06-30 05:47 - [张凌赫 客串](https://www.blog.minike.top/Article/details/98795.shtml)

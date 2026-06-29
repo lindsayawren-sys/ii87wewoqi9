@@ -1,56 +1,55 @@
-# QXO启动30亿美元优先票据发行 为收购TopBuild融资
+# 台湾学者郭冠英：大陆越强大，“台独”越害怕
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-QXO， Inc．周二宣布，其全资子公司QXO Building Products， Inc．计划发行30亿美元优先票据，以协助为收购TopBuild Corp．提供融资。本次发行由两部分组成：15亿美元2031年到期优先票据及15亿美元2034年到期优先票据，最终发行情况视市场及其他条件而定。 若票据在TopBuild收购交易完成前发行，所得款项将存入独立托管账户，票据在收购
+发布时间：2026年05月12日 19:43 来源：中国新闻网 12日，第七届两岸媒体人峰会在北京举行。受邀出席的台湾学者郭冠英接受中新网“燕新台”工作室专访，在谈到大陆帮助台湾同胞从中东地区撤离时表示，两岸本来就是一家，大陆帮助台湾同胞天经地义。可是“台独”势力很难过，因为他们不愿意看到大陆对台湾人的善意。大陆变强大了，对于“台独”势力来讲，他们反而越怕、越恨。 责任编辑：【
 
 ## 正文
 
-QXO， Inc．周二宣布，其全资子公司QXO Building Products， Inc．计划发行30亿美元优先票据，以协助为收购TopBuild Corp．提供融资。
+发布时间：2026年05月12日 19:43 来源：中国新闻网 12日，第七届两岸媒体人峰会在北京举行。
 
-本次发行由两部分组成：15亿美元2031年到期优先票据及15亿美元2034年到期优先票据，最终发行情况视市场及其他条件而定。
+受邀出席的台湾学者郭冠英接受中新网“燕新台”工作室专访，在谈到大陆帮助台湾同胞从中东地区撤离时表示，两岸本来就是一家，大陆帮助台湾同胞天经地义。
 
-若票据在TopBuild收购交易完成前发行，所得款项将存入独立托管账户，票据在收购完成前将以该托管账户作为优先担保。
+可是“台独”势力很难过，因为他们不愿意看到大陆对台湾人的善意。
 
-TopBuild收购交易尚需获得两家公司股东的批准。
+大陆变强大了，对于“台独”势力来讲，他们反而越怕、越恨。
 
-收购完成后，上述票据将转变为无担保债务，并由发行方的全资境内受限子公司提供担保。
-
-QXO计划利用本次票据发行所得款项，结合新定期贷款融资、C系列可转换永续优先股所得款项以及两家公司的可用现金，共同为收购TopBuild提供资金。
-
-上述资金还将用于偿还或回购TopBuild的债务及相关费用。
-
-此次170亿美元收购交易于4月宣布，是QXO打造北美第二大上市建材分销巨头战略的核心一步。
+责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-30 05:36 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 05:33 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 05:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 05:26 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 05:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 05:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 05:43 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 05:27 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 05:48 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 05:25 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 05:39 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 05:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 05:53 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 05:55 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 05:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 05:47 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 05:47 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 05:43 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 05:36 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 05:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 05:38 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 05:53 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 05:40 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 05:46 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 05:35 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:45 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/404819014328.shtml)
-- 2026-06-30 05:43 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/28032989.shtml)
-- 2026-06-30 05:46 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/774994.shtml)
-- 2026-06-30 05:40 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/869681580689.shtml)
-- 2026-06-30 05:28 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/23643477258.shtml)
-- 2026-06-30 05:49 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/63889790.shtml)
-- 2026-06-30 05:38 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/36361.shtml)
-- 2026-06-30 05:31 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/01862078.shtml)
-- 2026-06-30 05:36 - [天道](https://www.blog.minike.top/Article/details/0228093.shtml)
-- 2026-06-30 05:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/27912629.shtml)
-- 2026-06-30 05:43 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/736218.shtml)
-- 2026-06-30 05:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/16951.shtml)
-- 2026-06-30 05:46 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/3307683492.shtml)
-- 2026-06-30 05:25 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/47082117634.shtml)
-- 2026-06-30 05:43 - [巴西绝杀](http://www.share.minike.top/Article/details/940483245.shtml)
+- 2026-06-30 05:47 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/4800679093.shtml)
+- 2026-06-30 05:38 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/92069415125.shtml)
+- 2026-06-30 05:58 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/542273810.shtml)
+- 2026-06-30 05:38 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/3178320204.shtml)
+- 2026-06-30 05:59 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/45977374.shtml)
+- 2026-06-30 05:32 - [刘念回应](https://www.share.kurohicncr.top/Article/details/399739070.shtml)
+- 2026-06-30 05:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/7674806.shtml)
+- 2026-06-30 05:46 - [巴西2比1日本](http://www.share.minike.top/Article/details/1194709.shtml)
+- 2026-06-30 05:30 - [内马尔替补](http://www.blog.minike.top/Article/details/70819781028.shtml)
+- 2026-06-30 05:48 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/277341.shtml)
+- 2026-06-30 05:54 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/9757580715.shtml)
+- 2026-06-30 05:55 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/31696667.shtml)
+- 2026-06-30 05:30 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/44458872006.shtml)
+- 2026-06-30 05:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/22482964.shtml)
+- 2026-06-30 05:49 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/5795865.shtml)

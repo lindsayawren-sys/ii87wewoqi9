@@ -1,57 +1,60 @@
-# 2026穗港澳青少年文化交流季正式启动
+# 午后突发！华宝基金药ETF异动拉涨1%！港股通创新药翻红，520880放量溢价，成交逾4.2亿元大超上日全天
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-中新网广州6月3日电 (记者 程景伟)2026穗港澳青少年文化交流季3日在广州购书中心正式启动。 当天，来自广州市中黄港澳子弟学校的100余名学生率先踏上“城脉”主题研学之旅，前往广州艺博院品味艺术珍品。在随后的交流季启动仪式上，他们以精品舞蹈《梦回花旦》惊艳亮相，将传统粤剧身段与现代表达巧妙融合，生动诠释港澳新生代对岭南文化的传承与创新。 现场同步点亮“文化之扇”主题装置，象
+11日午后，AH创新药突然发力。场内唯一药ETF华宝（562050）*快速拉升逾1%，创新药概念股君实生物-U领涨逾8%，普洛药业、百济神州A股大涨6.74%。 港股通创新药亦活跃，100%创新药研发标的——港股通创新药ETF华宝（520880）成功翻红，场内放量溢价，成交逾4.2亿元大超上日全天。权重股中国生物制药涨超3%，翰森制药、荣昌生物超1%。 据财联社5月11日最新消
 
 ## 正文
 
-中新网广州6月3日电 (记者 程景伟)2026穗港澳青少年文化交流季3日在广州购书中心正式启动。
+11日午后，AH创新药突然发力。
 
-当天，来自广州市中黄港澳子弟学校的100余名学生率先踏上“城脉”主题研学之旅，前往广州艺博院品味艺术珍品。
+场内唯一药ETF华宝（562050）*快速拉升逾1%，创新药概念股君实生物-U领涨逾8%，普洛药业、百济神州A股大涨6.74%。
 
-在随后的交流季启动仪式上，他们以精品舞蹈《梦回花旦》惊艳亮相，将传统粤剧身段与现代表达巧妙融合，生动诠释港澳新生代对岭南文化的传承与创新。
+港股通创新药亦活跃，100%创新药研发标的——港股通创新药ETF华宝（520880）成功翻红，场内放量溢价，成交逾4.2亿元大超上日全天。
 
-现场同步点亮“文化之扇”主题装置，象征三地文化同源、心意相连，并正式发布“城脉、商脉、文脉、山脉、水脉”五条主题研学路线。
+权重股中国生物制药涨超3%，翰森制药、荣昌生物超1%。
 
-“城脉”路线当天率先启动，其余四条路线则将于6月至10月陆续组织实施，每条路线均配备专业讲解及非遗手作体验活动。
+据财联社5月11日最新消息，香港特区行政长官李家超出席亚洲医疗健康高峰论坛2026。
 
-系列城市主题手绘图书《老广新游》主创王大欣带来“图解广府文化”专题讲座，从多元视角帮助港澳青少年深入理解岭南历史与广府文脉。
+李家超在致辞时提到，国家“十五五”规划提出优化创新药与临床急需药品审评审批，并支持其临床应用。
 
-据介绍，本届交流季以名家讲座与主题研学活动为两大核心板块，面向穗港澳三地青少年系统展开。
+香港在推动医疗创新方面与国家“十五五”规划所制定的策略相辅相成，目标是将香港发展成国际医疗创新枢纽。
 
-其中，名家讲座围绕“文学共鸣·文化认同”主线，内容涵盖岭南历史、饮食文化、城市记忆、非遗传承及儿童文学等多元领域，助力穗港澳学子在倾听中读懂岭南。
+政策面，国家医保局9日发布《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》等相关文件，并向社会公开征求意见。
 
 ## 相关推荐
 
-- 2026-06-30 05:35 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 05:53 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 05:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 05:37 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 05:46 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 05:51 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 05:49 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 05:25 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 05:29 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 05:34 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 05:53 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 05:51 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 05:52 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 05:47 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 05:59 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 05:51 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 05:44 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 05:58 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 05:30 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 05:40 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 05:42 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 05:56 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 05:58 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 05:48 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 05:41 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:44 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/26535161626.shtml)
-- 2026-06-30 05:49 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/778359561.shtml)
-- 2026-06-30 05:37 - [金刚川](http://www.blog.minike.top/Article/details/15922.shtml)
-- 2026-06-30 05:24 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/71682.shtml)
-- 2026-06-30 05:48 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/5966102.shtml)
-- 2026-06-30 05:24 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/832120225.shtml)
-- 2026-06-30 05:35 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/155999884184.shtml)
-- 2026-06-30 05:53 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/41910.shtml)
-- 2026-06-30 05:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/7209035598.shtml)
-- 2026-06-30 05:35 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/60931.shtml)
-- 2026-06-30 05:51 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/073979508.shtml)
-- 2026-06-30 05:24 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/73631.shtml)
-- 2026-06-30 05:43 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/86379764.shtml)
-- 2026-06-30 05:49 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/714623965.shtml)
-- 2026-06-30 05:47 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/3013086050.shtml)
+- 2026-06-30 05:34 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/84567120362.shtml)
+- 2026-06-30 05:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/24801.shtml)
+- 2026-06-30 05:33 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/96067.shtml)
+- 2026-06-30 05:47 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/599867275.shtml)
+- 2026-06-30 05:41 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/861979.shtml)
+- 2026-06-30 05:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/09250131.shtml)
+- 2026-06-30 05:40 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/0676011.shtml)
+- 2026-06-30 05:55 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/422456476.shtml)
+- 2026-06-30 05:40 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/34068.shtml)
+- 2026-06-30 05:55 - [世界杯](https://www.blog.minike.top/Article/details/31721496.shtml)
+- 2026-06-30 05:35 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/0817152608.shtml)
+- 2026-06-30 05:40 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/4296615303.shtml)
+- 2026-06-30 05:43 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/154185114.shtml)
+- 2026-06-30 05:34 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/34924572.shtml)
+- 2026-06-30 05:42 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/60032.shtml)

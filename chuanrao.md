@@ -1,59 +1,59 @@
-# （乡村行·看振兴）桂东北小镇的“国际生意”：婚纱销欧美 玩具卖日韩
+# 中国驻泰国使馆提醒在泰中国公民自觉抵制任何形式赌博活动
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新网广西贺州6月3日电 题：桂东北小镇的“国际生意”：婚纱销欧美 玩具卖日韩 作者 张广权 初夏时节，在广西贺州市平桂区公会镇，一群本地缝纫工正在赶制即将发往欧美市场的婚纱。她们所在的公会镇乡村振兴产业融合园(以下简称“园区”)，正悄然成为桂东北山区连接全球产业链的一个重要节点。 园区规划总面积854亩，目前已吸引19家企业签约入驻，其中9家已正式投产。园区生产的产品远销欧美
+中新网5月11日电 据中国驻泰国大使馆微信公众号消息，近年来，不少中国公民在海外参赌涉赌并深受其害，不仅蒙受巨额财产损失，甚至引发绑架、勒索、非法拘禁等恶性刑事案件，严重威胁人身安全。 为保障广大旅泰同胞的合法权益，中国驻泰国使馆郑重提醒：赌博害人害己，一次沉迷，终生悔恨！请务必认清跨境赌博陷阱，自觉抵制任何形式赌博活动，切勿以身试法。 一、跨境赌博已入刑，法律红线不可碰 泰国
 
 ## 正文
 
-中新网广西贺州6月3日电 题：桂东北小镇的“国际生意”：婚纱销欧美 玩具卖日韩 作者 张广权 初夏时节，在广西贺州市平桂区公会镇，一群本地缝纫工正在赶制即将发往欧美市场的婚纱。
+中新网5月11日电 据中国驻泰国大使馆微信公众号消息，近年来，不少中国公民在海外参赌涉赌并深受其害，不仅蒙受巨额财产损失，甚至引发绑架、勒索、非法拘禁等恶性刑事案件，严重威胁人身安全。
 
-她们所在的公会镇乡村振兴产业融合园(以下简称“园区”)，正悄然成为桂东北山区连接全球产业链的一个重要节点。
+为保障广大旅泰同胞的合法权益，中国驻泰国使馆郑重提醒：赌博害人害己，一次沉迷，终生悔恨！
 
-园区规划总面积854亩，目前已吸引19家企业签约入驻，其中9家已正式投产。
+请务必认清跨境赌博陷阱，自觉抵制任何形式赌博活动，切勿以身试法。
 
-园区生产的产品远销欧美、日韩和中东市场。
+一、跨境赌博已入刑，法律红线不可碰 泰国法律严格禁止非法赌博及网络博彩活动。
 
-“我们的婚纱通过粤港澳大湾区的贸易商中转，最终出现在欧美客户的婚礼上。
+我国刑法修正案已明确将跨境赌博入刑，即使境外赌场合法开设，中国公民跨境赌博也涉嫌触犯我国法律，特别是对于组织赌博、开设赌场、招揽中国公民参赌等行为，我国司法机关将依法追究刑事责任。
 
-”广西爱天婚纱有限公司创始人李大冰说。
+二、认清赌博骗局，拒绝诱惑 警惕“杀猪盘”：跨境赌博常与电信诈骗、非法洗钱交织，所谓的“赢钱秘籍”和“高额回报”全是骗局。
 
-这位返乡创业的本地企业家介绍，虽然目前团队仅14人，但她希望未来能形成从设计、生产到销售的完整婚纱产业链。
+警惕关联陷阱：切勿轻信“高薪招聘”、“包机票食宿”等虚假诱惑，防范陷入非法劳务或被限制人身自由。
 
-与广西爱天婚纱有限公司依靠贸易商出海的模式不同，园区内规模最大的泽立鑫玩具厂与迪士尼、万代、三丽鸥等品牌深度合作，该厂工人生产的玩具，直接出口日本、韩国和欧美市场。
+三、共同打击犯罪，欢迎积极举报 中国公安部已开通打击治理跨境赌博综合举报平台。
 
 ## 相关推荐
 
-- 2026-06-30 05:35 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 05:37 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 05:53 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 05:28 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 05:52 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 05:37 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 05:51 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 05:34 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 05:26 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 05:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 05:46 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 05:28 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 05:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 05:44 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 05:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 05:35 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 05:49 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 05:57 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 05:49 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 05:41 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 05:39 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 05:57 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 05:39 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 05:56 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 05:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 05:49 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/97918812054.shtml)
-- 2026-06-30 05:53 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/22135723822.shtml)
-- 2026-06-30 05:34 - [恋与深空 巧合](https://www.share.minike.top/Article/details/0336710.shtml)
-- 2026-06-30 05:31 - [啊啊啊](http://www.blog.minike.top/Article/details/38142944840.shtml)
-- 2026-06-30 05:35 - [斗破苍穹](http://www.share.minike.top/Article/details/0951043204.shtml)
-- 2026-06-30 05:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/024819306162.shtml)
-- 2026-06-30 05:31 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/3173594.shtml)
-- 2026-06-30 05:40 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/235984582591.shtml)
-- 2026-06-30 05:43 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/353964.shtml)
-- 2026-06-30 05:34 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/0750951.shtml)
-- 2026-06-30 05:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/2493936680.shtml)
-- 2026-06-30 05:24 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/13582076.shtml)
-- 2026-06-30 05:51 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/53215459.shtml)
-- 2026-06-30 05:43 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/94332792.shtml)
-- 2026-06-30 05:44 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/56887.shtml)
+- 2026-06-30 05:57 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/838940025393.shtml)
+- 2026-06-30 05:33 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/336508393890.shtml)
+- 2026-06-30 05:49 - [女心理师](https://www.share.kurohicncr.top/Article/details/5676896419.shtml)
+- 2026-06-30 05:59 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/65172.shtml)
+- 2026-06-30 05:30 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/502313.shtml)
+- 2026-06-30 05:34 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/4060320078.shtml)
+- 2026-06-30 05:46 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/339063041.shtml)
+- 2026-06-30 05:50 - [美人鱼](http://www.share.kurohicncr.top/Article/details/242577622266.shtml)
+- 2026-06-30 05:36 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/8487161.shtml)
+- 2026-06-30 05:36 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/2831559700.shtml)
+- 2026-06-30 05:38 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/65122304.shtml)
+- 2026-06-30 05:31 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/593379.shtml)
+- 2026-06-30 05:43 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/893206935.shtml)
+- 2026-06-30 05:57 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/437896.shtml)
+- 2026-06-30 05:48 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/3569633077.shtml)

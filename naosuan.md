@@ -1,59 +1,59 @@
-# SpaceX最快6月12日上市，A股供应商名单曝光
+# 富国银行逆势上调CoreWeave目标价 看好公司手握千亿美元订单储备
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-专题：地缘风险叠加AI叙事重构 机构热议下半年资产配置主线 据财联社报道，美东时间周二，据知情人士透露，埃隆·马斯克旗下的火箭与卫星公司 SpaceX计划在公开募股中设定每股135美元的定价目标，计划通过首次公开募股（IPO）发售5.556亿股股票，有望筹集750亿美元资金；将目标估值定为1.75万亿美元（约合人民币11.84万亿元），此次IPO将完全由新发行的股票构成。 这一
+富国银行分析师迈克尔・图林将CoreWeave目标价从135美元上调至155美元，维持增持评级。此前，CoreWeave发布2026年一季报：营收超出市场预期，但二季度业绩指引不及预期，导致股价大幅下挫。 图林在研报中直白点出当前矛盾：“一季度业绩表现稳健，但公司二季度营收指引及全年修正后指引低于预期，令股权回报率逻辑承压，业绩兑现高度依赖下半年表现。不过CoreWeave业务
 
 ## 正文
 
-专题：地缘风险叠加AI叙事重构 机构热议下半年资产配置主线 据财联社报道，美东时间周二，据知情人士透露，埃隆·马斯克旗下的火箭与卫星公司 SpaceX计划在公开募股中设定每股135美元的定价目标，计划通过首次公开募股（IPO）发售5.556亿股股票，有望筹集750亿美元资金；将目标估值定为1.75万亿美元（约合人民币11.84万亿元），此次IPO将完全由新发行的股票构成。
+富国银行分析师迈克尔・图林将CoreWeave目标价从135美元上调至155美元，维持增持评级。
 
-这一举动标志着SpaceX在与早期投资者会面后首次向银行明确提出了具体的融资和估值目标。
+此前，CoreWeave发布2026年一季报：营收超出市场预期，但二季度业绩指引不及预期，导致股价大幅下挫。
 
-此外，此前已有报道称，SpaceX计划以“SPCX”为股票代码在纳斯达克上市，该公司已加快了首次公开募股的时间表，预计最早将于下周五（6月12日）上市。
+图林在研报中直白点出当前矛盾：“一季度业绩表现稳健，但公司二季度营收指引及全年修正后指引低于预期，令股权回报率逻辑承压，业绩兑现高度依赖下半年表现。
 
-据招股书，SpaceX营业收入增长稳健，2023至2025年复合增速达34%，2025年营收达187亿美元。
+不过CoreWeave业务推进依旧稳健，目前手握1000亿美元订单储备，在用算力容量超1吉瓦。
 
-不过2026年一季度公司净利润承压，主要受并表后集中清偿xAI体系历史债务所产生的一次性损失拖累。
+” 据报道，财报发布前一周，富国银行已将其目标价从125美元上调至135美元。
 
-2026年一季度，公司净利润为-42.8亿美元，去年同期为-5.3亿美元。
+当时图林认为，公司一季度达成639亿美元订单签约、以及与OpenAI算力交付时间线的更新，将是后续核心催化因素。
 
-业务方面，2026年一季度，SpaceX太空业务、连接业务、AI业务营收分别为6.2亿美元、32.6亿美元、8.2亿美元，占比分别为13%、69%、17%。
+CoreWeave一季报亮眼、二季度指引不及预期引发市场震荡 CoreWeave公布2026年一季度营收20.78亿美元，高于路孚特市场共识预期的20.13亿美元。
 
-这些A股公司已向SpaceX供货 随着SpaceX上市，万亿市场规模有望带动该公司产业链相关企业受益。
+但盈利端不及预期：经调整每股亏损1.11美元，高于市场预期的每股亏损0.87美元。
 
 ## 相关推荐
 
-- 2026-06-30 05:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 05:46 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 05:52 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 05:34 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 05:40 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 05:24 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 05:53 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 05:42 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 05:44 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 05:30 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 05:38 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 05:26 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 05:32 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 05:54 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 05:51 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 05:36 - [日本领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 05:35 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 05:32 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 05:47 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 05:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 05:45 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 05:35 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 05:30 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 05:50 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 05:41 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 05:36 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/00320036.shtml)
-- 2026-06-30 05:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/630506963.shtml)
-- 2026-06-30 05:41 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/930974504.shtml)
-- 2026-06-30 05:27 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/558708410629.shtml)
-- 2026-06-30 05:24 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/130799.shtml)
-- 2026-06-30 05:50 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/299061.shtml)
-- 2026-06-30 05:24 - [第一炉香](http://www.share.kurohicncr.top/Article/details/85963717.shtml)
-- 2026-06-30 05:24 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/2317820.shtml)
-- 2026-06-30 05:46 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/163444472.shtml)
-- 2026-06-30 05:32 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/8955285.shtml)
-- 2026-06-30 05:38 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/19556.shtml)
-- 2026-06-30 05:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/712555177.shtml)
-- 2026-06-30 05:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/36697124934.shtml)
-- 2026-06-30 05:42 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/979299635.shtml)
-- 2026-06-30 05:37 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/157521946.shtml)
+- 2026-06-30 05:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/11501767006.shtml)
+- 2026-06-30 05:58 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/111810.shtml)
+- 2026-06-30 05:55 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/796743.shtml)
+- 2026-06-30 05:34 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/429620395523.shtml)
+- 2026-06-30 05:41 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/1969269031.shtml)
+- 2026-06-30 05:33 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/813082207993.shtml)
+- 2026-06-30 05:38 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/5015404692.shtml)
+- 2026-06-30 05:31 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/338962.shtml)
+- 2026-06-30 05:34 - [恋与深空 日服](https://www.share.minike.top/Article/details/141078075.shtml)
+- 2026-06-30 05:52 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/1852708618.shtml)
+- 2026-06-30 05:59 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/67978.shtml)
+- 2026-06-30 05:36 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/200058.shtml)
+- 2026-06-30 05:40 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/23430.shtml)
+- 2026-06-30 05:52 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/684336.shtml)
+- 2026-06-30 05:30 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/31786.shtml)

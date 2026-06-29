@@ -1,48 +1,59 @@
-# 猪事邦|| 6月3日猪价汇总（北弱南稳，趋稳情绪增强！）
+# 被抖音“刷”下行业前三：网易云音乐跌出在线音乐月活第一梯队，汽水音乐月活1.56亿首度反超
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-（来源：猪事邦） 来源：猪事邦 全国猪价 据猪事邦平台汇总的数据，6月3日全国生猪均价为9.57元/公斤，较昨日下跌0.21%，同比下跌33.26%（去年同期全国生猪均价14.34元/公斤）。 责任编辑：戴明 SF006
+2026年4月29日，QuestMobile发布的在线音乐App行业报告在中国互联网圈与资本圈迅速发酵。酷狗音乐以2.05亿月活稳居第一、QQ音乐以2.01亿紧随其后，而在历来由网易云音乐长期把守的行业第三名的位置上，首次出现了异主：抖音旗下汽水音乐以15605万的月活跃用户规模，超过了网易云音乐的14682万，终结了后者“行业老三”的局面。 这一场“月活排名易主”，并非网易云
 
 ## 正文
 
-（来源：猪事邦） 来源：猪事邦 全国猪价 据猪事邦平台汇总的数据，6月3日全国生猪均价为9.57元/公斤，较昨日下跌0.21%，同比下跌33.26%（去年同期全国生猪均价14.34元/公斤）。
+2026年4月29日，QuestMobile发布的在线音乐App行业报告在中国互联网圈与资本圈迅速发酵。
 
-责任编辑：戴明 SF006
+酷狗音乐以2.05亿月活稳居第一、QQ音乐以2.01亿紧随其后，而在历来由网易云音乐长期把守的行业第三名的位置上，首次出现了异主：抖音旗下汽水音乐以15605万的月活跃用户规模，超过了网易云音乐的14682万，终结了后者“行业老三”的局面。
+
+这一场“月活排名易主”，并非网易云音乐的短期失速，而是在线音乐行业竞争逻辑的根本性迁移——从“社区内容”转向“生态协同”，从“用户的主动选择”转向“刷出来的被动消费”。
+
+数字背后的两种“增长” 从数据看，这是一场完败。
+
+据QuestMobile披露，2026年3月，汽水音乐月活同比暴涨78%，月活达到1.56亿；同期，酷狗音乐同比下滑6.3%，QQ音乐同比增长6.1%，酷我音乐同比大跌15.4%。
+
+传统在线音乐平台的用户增长基本停滞，而抖音系的破局者正在改写格局。
+
+汽水音乐的上位绝非偶然。
+
+回溯QuestMobile的2025年12月数据，彼时汽水音乐月活约为1.398亿，与网易云音乐的差距已肉眼可见。
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 05:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 05:51 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 05:53 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 05:37 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 05:41 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 05:29 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 05:35 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 05:30 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 05:37 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 05:46 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 05:45 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 05:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 05:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 05:41 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 05:51 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 05:37 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 05:42 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 05:38 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 05:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 05:42 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 05:32 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 05:59 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 05:49 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 05:53 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 05:34 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 05:37 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:31 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/1822710409.shtml)
-- 2026-06-30 05:50 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/769993524.shtml)
-- 2026-06-30 05:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/71517.shtml)
-- 2026-06-30 05:26 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/8827582.shtml)
-- 2026-06-30 05:51 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/8836392367.shtml)
-- 2026-06-30 05:30 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/02092859.shtml)
-- 2026-06-30 05:42 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/449165596049.shtml)
-- 2026-06-30 05:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/9263642260.shtml)
-- 2026-06-30 05:36 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/0632427.shtml)
-- 2026-06-30 05:28 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/0913454.shtml)
-- 2026-06-30 05:36 - [请回答王牌2019](http://www.share.minike.top/Article/details/03838.shtml)
-- 2026-06-30 05:37 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/681073694.shtml)
-- 2026-06-30 05:32 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/310270.shtml)
-- 2026-06-30 05:44 - [一生一世](https://www.blog.kurohicncr.top/Article/details/221600138.shtml)
-- 2026-06-30 05:41 - [沙丘](https://www.blog.minike.top/Article/details/4122618.shtml)
+- 2026-06-30 05:40 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/3394729301.shtml)
+- 2026-06-30 05:58 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/594164648457.shtml)
+- 2026-06-30 05:38 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/303520711735.shtml)
+- 2026-06-30 05:37 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/35253.shtml)
+- 2026-06-30 05:35 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/904717164.shtml)
+- 2026-06-30 05:30 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/97269027.shtml)
+- 2026-06-30 05:56 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/24072108844.shtml)
+- 2026-06-30 05:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/22243606.shtml)
+- 2026-06-30 05:38 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/56522.shtml)
+- 2026-06-30 05:54 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/274232.shtml)
+- 2026-06-30 05:42 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/977691359069.shtml)
+- 2026-06-30 05:30 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/4284090.shtml)
+- 2026-06-30 05:53 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/41837683.shtml)
+- 2026-06-30 05:43 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/3741625.shtml)
+- 2026-06-30 05:35 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/7051922357.shtml)

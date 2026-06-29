@@ -1,59 +1,57 @@
-# 长三角铁路或创端午假期单日客发量新高
+# 罗克韦尔自动化携手Actemium部署AI制冷系统，助力食品生产节能17%
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新社上海6月3日电 (谢梦圆)记者3日从中国铁路上海局集团有限公司(上铁集团)获悉，今年端午节当天(6月19日)，长三角铁路预计发送旅客420万人次，有望创下端午假期运输单日旅客发送量新高。 长三角铁路2026年端午假期旅客运输方案近日出台。今年铁路端午假期运输期限为6月18日至6月22日，合计5天。假期期间，上铁集团预计发送旅客1745万人次，日均发送旅客349万人次，客流
+工业自动化巨头罗克韦尔自动化周一宣布，与合作伙伴Actemium联合部署了一套由AI驱动的制冷系统优化方案，旨在显著降低食品生产过程中高能耗制冷环节的电力消耗。 该解决方案名为“实时性能系数”，运行于罗克韦尔自动化的PlantPAx分布式控制系统之上。它像一个永不停歇的虚拟操作员，能够实时分析压缩机、冷凝器和蒸发器等设备的运行状态及环境条件，自主选择并执行最高效的配置组合。 该
 
 ## 正文
 
-中新社上海6月3日电 (谢梦圆)记者3日从中国铁路上海局集团有限公司(上铁集团)获悉，今年端午节当天(6月19日)，长三角铁路预计发送旅客420万人次，有望创下端午假期运输单日旅客发送量新高。
+工业自动化巨头罗克韦尔自动化周一宣布，与合作伙伴Actemium联合部署了一套由AI驱动的制冷系统优化方案，旨在显著降低食品生产过程中高能耗制冷环节的电力消耗。
 
-长三角铁路2026年端午假期旅客运输方案近日出台。
+该解决方案名为“实时性能系数”，运行于罗克韦尔自动化的PlantPAx分布式控制系统之上。
 
-今年铁路端午假期运输期限为6月18日至6月22日，合计5天。
+它像一个永不停歇的虚拟操作员，能够实时分析压缩机、冷凝器和蒸发器等设备的运行状态及环境条件，自主选择并执行最高效的配置组合。
 
-假期期间，上铁集团预计发送旅客1745万人次，日均发送旅客349万人次，客流同比增长8%。
+该系统已在一家大型冷冻薯条生产商的实际应用中验证了效果，成功将制冷系统的能源效率提升了17%，预计每年可为单个生产基地节省约13万美元的能源成本。
 
-据上铁集团客运部相关工作人员介绍，此次端午假期运输期间，长三角铁路客流将呈现三大显著特点。
+同时，该方案还有效减少了设备的运行负荷，有助于延长制冷资产的使用寿命。
 
-一是由于今年端午假期运输较去年推迟19天，恰逢全国高考结束后，受客群出行时间调整、市场需求叠加、出游气温适宜等多重利好因素推动，长三角区域旅客出行需求旺盛，学生流、旅游流有望成为拉动本次假期客流增长的核心增长点。
+Actemium大西洋加拿大区总经理Jim Gillis指出，对设备进行持续、稳定的能效排序，是人工操作员根本无法实时完成的工作。
 
-二是杭衢高铁、合新高铁合泗段、金建高铁兰建段等高铁新线引流作用明显，新线、新站、新车等新增资源进一步带来客流增量。
+在食品制造工厂中，工业制冷系统的用电量可占全厂总用电量的70%，是该行业能源优化的最大突破口。
 
-三是受国际燃油价格波动影响，其他交通工具票价上浮，预计部分中长途客流回流至铁路。
+罗克韦尔自动化表示，随着食品生产商面临技能短缺和降本增效压力，此类AI驱动的自主应用需求日益增长。
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 05:38 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 05:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 05:52 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 05:53 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 05:37 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 05:49 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 05:52 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 05:35 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 05:52 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 05:31 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 05:52 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 05:48 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 05:34 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 05:59 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-30 05:45 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 05:30 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 05:48 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 05:37 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 05:43 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 05:45 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 05:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 05:56 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 05:52 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/39787187.shtml)
-- 2026-06-30 05:42 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/2319174078.shtml)
-- 2026-06-30 05:51 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/637328675644.shtml)
-- 2026-06-30 05:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/4089196751.shtml)
-- 2026-06-30 05:33 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/22479.shtml)
-- 2026-06-30 05:47 - [请回答王牌2019](http://www.blog.minike.top/Article/details/2889548.shtml)
-- 2026-06-30 05:51 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/2298119044.shtml)
-- 2026-06-30 05:40 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/99802357.shtml)
-- 2026-06-30 05:40 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/573433.shtml)
-- 2026-06-30 05:28 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/608427933.shtml)
-- 2026-06-30 05:38 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/496742515.shtml)
-- 2026-06-30 05:46 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/278579438035.shtml)
-- 2026-06-30 05:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/91949147.shtml)
-- 2026-06-30 05:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/63610.shtml)
-- 2026-06-30 05:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/80833199466.shtml)
+- 2026-06-30 05:35 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/0806065548.shtml)
+- 2026-06-30 05:57 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/3142843.shtml)
+- 2026-06-30 05:40 - [青春环游记第三季](http://www.blog.minike.top/Article/details/69253.shtml)
+- 2026-06-30 05:35 - [金牌调解](http://www.share.minike.top/Article/details/33345373.shtml)
+- 2026-06-30 05:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/030049953.shtml)
+- 2026-06-30 05:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/168436624.shtml)
+- 2026-06-30 05:44 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/76764667.shtml)
+- 2026-06-30 05:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/12849849.shtml)
+- 2026-06-30 05:47 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/30056.shtml)
+- 2026-06-30 05:39 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/0687142.shtml)
+- 2026-06-30 05:43 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/12069030.shtml)
+- 2026-06-30 05:32 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/607303263185.shtml)
+- 2026-06-30 05:42 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/71693332.shtml)
+- 2026-06-30 05:30 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/4906389772.shtml)
+- 2026-06-30 05:55 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/6255332.shtml)

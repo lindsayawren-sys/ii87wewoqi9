@@ -1,60 +1,60 @@
-# Meta平台全球升级青少年内容管控，Instagram上线新工具优化推送内容多样性
+# 外资集体加仓中国资产，A股重仓股名单曝光
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-Meta周二宣布，将在全球范围内升级Instagram、脸书（Facebook）及聊天软件Messenger的青少年账号内容管控设置，保障未成年用户浏览适配其年龄段的内容体验。当下各大社交媒体平台因未成年人身心健康与使用安全问题，正受到监管层面愈发严苛的审查。 该管控项目于去年10月率先在部分国家落地，初衷是阻拦未成年人接触不良不适内容。与此同时，Meta官宣将在Instagr
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨叶麦穗 编辑丨包芳鸣 全球资本目光齐聚中国，高盛、摩根士丹利（以下简称“大摩”）、摩根大通（以下简称“小摩”）、瑞银等全球知名外资正以“真金白银”的姿态，掀起加仓A股的狂潮。同花顺最新统计数据显示，截至2026年一季度末，共有1549家A股上市公司的前十大流通股东中出现外资身影，合计持有143亿股，持
 
 ## 正文
 
-Meta周二宣布，将在全球范围内升级Instagram、脸书（Facebook）及聊天软件Messenger的青少年账号内容管控设置，保障未成年用户浏览适配其年龄段的内容体验。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当下各大社交媒体平台因未成年人身心健康与使用安全问题，正受到监管层面愈发严苛的审查。
+记者丨叶麦穗 编辑丨包芳鸣 全球资本目光齐聚中国，高盛、摩根士丹利（以下简称“大摩”）、摩根大通（以下简称“小摩”）、瑞银等全球知名外资正以“真金白银”的姿态，掀起加仓A股的狂潮。
 
-该管控项目于去年10月率先在部分国家落地，初衷是阻拦未成年人接触不良不适内容。
+同花顺最新统计数据显示，截至2026年一季度末，共有1549家A股上市公司的前十大流通股东中出现外资身影，合计持有143亿股，持股市值高达2370.8亿元。
 
-与此同时，Meta官宣将在Instagram内测一项新功能，丰富青少年首页推送内容品类，避免其反复刷到同类主题内容。
+与去年末相比，外资增持幅度堪称惊人——持股数量增加46.8亿股，持股市值更是暴增697.6亿元，这一规模不仅创下近年同期新高，更释放出外资对中国资产的强烈看好信号，成为A股市场极具冲击力的增量资金来源。
 
-今年4月，Meta曾向投资者预警：欧美两地针对社交媒体侵害青少年相关问题出台的法律法规与监管整治，或对公司经营业绩与财务表现造成重大负面影响。
+知名投行扎堆AI、科技赛道 高盛对A股资产的热情最高，高盛一季度共进入A股894家上市公司的十大流通股东，整体调仓换股动作十分明显，其中新进525家、加仓219家，减仓150家上市公司，合计持有市值约为250亿元。
 
-在一项具有里程碑意义的诉讼判决中，洛杉矶陪审团于3月25日裁定，Meta与Alphabet存在过失，两家企业打造的社交媒体产品会对青少年身心健康造成损害；一名现年20岁的女性用户自述幼年沉迷社交媒体成瘾，陪审团裁定两家公司合计向其赔付600万美元。
+高盛持股市值在1亿元以上的个股有20只，持股市值位居前三的分别是豪威集团、兴业银锡、永鼎股份。
 
-Meta表示，针对13周岁以上用户、可过滤青少年不适内容的分级管控现已设为青少年账号系统默认配置。
+其中，第一大重仓股依旧是豪威集团，最新持股数量为812.45万股，位列公司十大流通股东第7位，持有的流通市值约为7.72亿元。
 
-官方补充，一款管控力度更强的‘受限内容模式’将于今年晚些时候登陆脸书与Messenger，进一步收紧内容浏览权限。
+此外，高盛在一季度加仓了恒申新材、华纺股份、特发信息（维权）、丰元股份等。
 
 ## 相关推荐
 
-- 2026-06-30 05:24 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 05:25 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 05:44 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 05:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 05:46 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 05:41 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 05:49 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 05:40 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 05:30 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 05:48 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 05:30 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 05:36 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 05:44 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 05:40 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 05:30 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 05:37 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 05:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 05:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 05:38 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 05:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 05:48 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 05:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 05:49 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 05:54 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 05:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 05:39 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 05:37 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 05:47 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/58210.shtml)
-- 2026-06-30 05:47 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/1551203.shtml)
-- 2026-06-30 05:28 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/081074413.shtml)
-- 2026-06-30 05:28 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/057805519.shtml)
-- 2026-06-30 05:45 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/2393468.shtml)
-- 2026-06-30 05:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/95867093630.shtml)
-- 2026-06-30 05:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/7743093.shtml)
-- 2026-06-30 05:43 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/0437780729.shtml)
-- 2026-06-30 05:31 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/33153758.shtml)
-- 2026-06-30 05:25 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/819432.shtml)
-- 2026-06-30 05:45 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/55300895078.shtml)
-- 2026-06-30 05:30 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/719808054.shtml)
-- 2026-06-30 05:47 - [美股](https://www.share.minike.top/Article/details/79998833.shtml)
-- 2026-06-30 05:30 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/993433.shtml)
-- 2026-06-30 05:31 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/88896039.shtml)
+- 2026-06-30 05:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/995614.shtml)
+- 2026-06-30 05:43 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/972466.shtml)
+- 2026-06-30 05:52 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/541469.shtml)
+- 2026-06-30 05:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/9417122.shtml)
+- 2026-06-30 05:45 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/4031922063.shtml)
+- 2026-06-30 05:55 - [森保一 保守](http://www.blog.minike.top/Article/details/83275.shtml)
+- 2026-06-30 05:39 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/3242277273.shtml)
+- 2026-06-30 05:49 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/65150.shtml)
+- 2026-06-30 05:30 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/34856.shtml)
+- 2026-06-30 05:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/43309678282.shtml)
+- 2026-06-30 05:56 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/17418503.shtml)
+- 2026-06-30 05:56 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/930885304109.shtml)
+- 2026-06-30 05:46 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/0433420.shtml)
+- 2026-06-30 05:47 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/4850454.shtml)
+- 2026-06-30 05:49 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/61832000684.shtml)

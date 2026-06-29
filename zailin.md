@@ -1,59 +1,55 @@
-# 骗取贷款890余万元！潜逃境外十余年的犯罪嫌疑人被押解回国
+# 摩洛哥驻华大使：中国经济实力雄厚 希望进一步深化双边关系
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-在公安部统筹指挥下，辽宁公安机关成功将潜逃境外十余年的涉嫌骗取贷款犯罪的嫌疑人高某某押解回国，6月3日抵达沈阳桃仙机场。这是今年以来，辽宁公安机关成功劝返、缉捕的第6名潜逃境外犯罪嫌疑人。 经查，2013年至2014年，犯罪嫌疑人高某某通过伪造商品房买卖合同、收款收据、虚假购销合同等手段，骗取银行贷款890余万元。2015年，高某某潜逃并长期藏匿境外，妄图逃避法律制裁。 高某某
+发布时间：2026年05月11日 15:28 来源：中国新闻网 为纪念摩洛哥国王穆罕默德六世访华十周年，摩洛哥驻华大使馆于5月10日晚举办了“摩洛哥-中国体育与文化节”活动，活动邀请了来自经济、文化、学术和艺术界的300多名嘉宾参与。活动间隙，摩洛哥驻华大使阿卜杜勒卡德尔·安萨里在接受中新社记者采访时表示，我们对摩中双边关系抱有很高的期许，在经贸层面、合作投资方面皆是如此。中国
 
 ## 正文
 
-在公安部统筹指挥下，辽宁公安机关成功将潜逃境外十余年的涉嫌骗取贷款犯罪的嫌疑人高某某押解回国，6月3日抵达沈阳桃仙机场。
+发布时间：2026年05月11日 15:28 来源：中国新闻网 为纪念摩洛哥国王穆罕默德六世访华十周年，摩洛哥驻华大使馆于5月10日晚举办了“摩洛哥-中国体育与文化节”活动，活动邀请了来自经济、文化、学术和艺术界的300多名嘉宾参与。
 
-这是今年以来，辽宁公安机关成功劝返、缉捕的第6名潜逃境外犯罪嫌疑人。
+活动间隙，摩洛哥驻华大使阿卜杜勒卡德尔·安萨里在接受中新社记者采访时表示，我们对摩中双边关系抱有很高的期许，在经贸层面、合作投资方面皆是如此。
 
-经查，2013年至2014年，犯罪嫌疑人高某某通过伪造商品房买卖合同、收款收据、虚假购销合同等手段，骗取银行贷款890余万元。
+中国是摩洛哥全球第三大贸易伙伴，也是摩洛哥在亚洲的第一大经济合作伙伴。
 
-2015年，高某某潜逃并长期藏匿境外，妄图逃避法律制裁。
+希望继续把摩中关系提升到更高水平，中国经济实力雄厚，是全球第二大经济体，我们也期待进一步深化两国关系。
 
-高某某外逃期间，辽宁公安机关持续加大案件侦办力度，并提请公安部协调开展境外追逃工作。
+阿卜杜勒卡德尔·安萨里介绍，摩洛哥自身具备诸多优势和引资优惠政策，完全有条件成为中国企业的投资目的地，比如摩洛哥地理位置优越、互联互通体系完善、劳动力人才储备充足，且紧邻终端消费市场。
 
-2026年5月23日，高某某被境外执法部门抓获。
+凭借这些得天独厚的条件，摩洛哥的目标是让中国成为摩方的重要合作伙伴，在当前基础上更上一层楼。
 
-6月2日，境外执法部门将其移交给中国公安机关，终结了其十余年外逃之路。
-
-（总台记者 王亚男 禹强）责任编辑：曹睿潼
+(记者 谢龙飞 实习生 林倬安 制作 乐小敏） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 05:37 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 05:38 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 05:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 05:24 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 05:44 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 05:29 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 05:37 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 05:44 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 05:25 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 05:25 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 05:24 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 05:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 05:33 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 05:46 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 05:38 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 05:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 05:33 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 05:55 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 05:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 05:57 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 05:31 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 05:50 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 05:38 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 05:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:32 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/9861787.shtml)
-- 2026-06-30 05:42 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/744612.shtml)
-- 2026-06-30 05:50 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/6526875579.shtml)
-- 2026-06-30 05:53 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/418707828.shtml)
-- 2026-06-30 05:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/5696052.shtml)
-- 2026-06-30 05:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/75134.shtml)
-- 2026-06-30 05:47 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/50487.shtml)
-- 2026-06-30 05:29 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/12002.shtml)
-- 2026-06-30 05:24 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/48371393.shtml)
-- 2026-06-30 05:39 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/379335.shtml)
-- 2026-06-30 05:29 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/53313.shtml)
-- 2026-06-30 05:46 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/817723014.shtml)
-- 2026-06-30 05:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/438205584.shtml)
-- 2026-06-30 05:36 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/68879252.shtml)
-- 2026-06-30 05:31 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/29673.shtml)
+- 2026-06-30 05:59 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/470322.shtml)
+- 2026-06-30 05:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/09458851709.shtml)
+- 2026-06-30 05:57 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/03402146.shtml)
+- 2026-06-30 05:37 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/62347483246.shtml)
+- 2026-06-30 05:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/439860698482.shtml)
+- 2026-06-30 05:37 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/6116749.shtml)
+- 2026-06-30 05:48 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/939881643.shtml)
+- 2026-06-30 05:57 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/730376338195.shtml)
+- 2026-06-30 05:47 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/727421042.shtml)
+- 2026-06-30 05:53 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/46710691.shtml)
+- 2026-06-30 05:34 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/571301416900.shtml)
+- 2026-06-30 05:57 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/70218208360.shtml)
+- 2026-06-30 05:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/632286.shtml)
+- 2026-06-30 05:48 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/93999836799.shtml)
+- 2026-06-30 05:36 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/31215.shtml)

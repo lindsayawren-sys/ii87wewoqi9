@@ -1,48 +1,58 @@
-# 玻利维亚总统任命新防长
+# 美国经济韧性与高通胀预期削弱降息预期，美联储年内转向难度上升
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-当地时间3日，玻利维亚总统帕斯在该国行政首都拉巴斯举行仪式，任命埃内斯托·胡斯蒂尼亚诺为新任国防部长，接替2日辞职的马塞洛·萨利纳斯。 帕斯在任命仪式上说，毒品犯罪是玻利维亚必须根除的“毒瘤”，并称赞胡斯蒂尼亚诺在打击毒品犯罪方面经验丰富。 胡斯蒂尼亚诺生于1969年，曾任社会防务副部长、众议员等职，长期从事公共管理和禁毒相关工作。(总台记者 马天静)
+文章来源：汇通财经 随着美国经济数据持续展现韧性，以及中东局势导致全球能源价格维持高位，市场对于美联储年内降息的预期正在明显降温。纽约梅隆银行（BNY）策略师约翰·维利斯与戴维·谭最新表示，过去两周公布的美国宏观经济数据，显示美国经济尚未明显受到中东局势以及能源冲击的严重拖累。 尤其是近期公布的美国就业数据，整体依旧表现稳健。数据显示，美国4月非农就业人数增加11.5万人，虽然
 
 ## 正文
 
-当地时间3日，玻利维亚总统帕斯在该国行政首都拉巴斯举行仪式，任命埃内斯托·胡斯蒂尼亚诺为新任国防部长，接替2日辞职的马塞洛·萨利纳斯。
+文章来源：汇通财经 随着美国经济数据持续展现韧性，以及中东局势导致全球能源价格维持高位，市场对于美联储年内降息的预期正在明显降温。
 
-帕斯在任命仪式上说，毒品犯罪是玻利维亚必须根除的“毒瘤”，并称赞胡斯蒂尼亚诺在打击毒品犯罪方面经验丰富。
+纽约梅隆银行（BNY）策略师约翰·维利斯与戴维·谭最新表示，过去两周公布的美国宏观经济数据，显示美国经济尚未明显受到中东局势以及能源冲击的严重拖累。
 
-胡斯蒂尼亚诺生于1969年，曾任社会防务副部长、众议员等职，长期从事公共管理和禁毒相关工作。
+尤其是近期公布的美国就业数据，整体依旧表现稳健。
 
-(总台记者 马天静)
+数据显示，美国4月非农就业人数增加11.5万人，虽然较此前有所放缓，但整体仍显示美国劳动力市场具备一定韧性。
+
+不过，家庭调查数据显示，美国失业人数增加13.4万人，而就业人数则减少22.6万人。
+
+这意味着，美国劳动力市场内部已经开始出现一定分化迹象。
+
+市场目前最大的矛盾，在于“经济韧性”与“潜在放缓风险”正在同时存在。
+
+一方面，美国就业市场尚未明显恶化，消费者支出与整体经济活动依旧保持稳定；另一方面，高能源价格与持续偏高的利率环境，也正在逐步增加经济下行风险。
 
 ## 相关推荐
 
-- 2026-06-30 05:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 05:27 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 05:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 05:25 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 05:53 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 05:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 05:46 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 05:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 05:52 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 05:42 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 05:54 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 05:57 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 05:49 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 05:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 05:30 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 05:34 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 05:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 05:36 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 05:38 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 05:53 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 05:43 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 05:49 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/2659813243.shtml)
-- 2026-06-30 05:27 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/3529009.shtml)
-- 2026-06-30 05:32 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/000235841679.shtml)
-- 2026-06-30 05:51 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/574850.shtml)
-- 2026-06-30 05:28 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/3498410059.shtml)
-- 2026-06-30 05:52 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/60942.shtml)
-- 2026-06-30 05:44 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/03732.shtml)
-- 2026-06-30 05:49 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/987184467717.shtml)
-- 2026-06-30 05:50 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/9268720.shtml)
-- 2026-06-30 05:52 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/494759.shtml)
-- 2026-06-30 05:44 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/763921200141.shtml)
-- 2026-06-30 05:44 - [点菜也要教吗](http://www.share.minike.top/Article/details/59392920231.shtml)
-- 2026-06-30 05:49 - [一生一世](https://www.share.minike.top/Article/details/52719847884.shtml)
-- 2026-06-30 05:39 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/152474442373.shtml)
-- 2026-06-30 05:27 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/070818.shtml)
+- 2026-06-30 05:32 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/493569398.shtml)
+- 2026-06-30 05:55 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/6571481.shtml)
+- 2026-06-30 05:37 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/16337.shtml)
+- 2026-06-30 05:36 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/0336224285.shtml)
+- 2026-06-30 05:44 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/101671.shtml)
+- 2026-06-30 05:45 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/42010824845.shtml)
+- 2026-06-30 05:46 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/06858262.shtml)
+- 2026-06-30 05:48 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/34903113.shtml)
+- 2026-06-30 05:35 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/28761.shtml)
+- 2026-06-30 05:51 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/699016972.shtml)
+- 2026-06-30 05:46 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/23733529134.shtml)
+- 2026-06-30 05:48 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/28858280.shtml)
+- 2026-06-30 05:32 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/539603267.shtml)
+- 2026-06-30 05:44 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/65132328.shtml)
+- 2026-06-30 05:32 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/267613550.shtml)

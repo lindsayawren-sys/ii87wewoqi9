@@ -1,54 +1,56 @@
-# 甘肃省新阶层人士赴积石山开展“六一”儿童节关爱助学活动
+# 张薇薇：以绳结为桥，铺就残障群体就业路
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-新善甘肃 爱心帮扶——我省新阶层人士赴积石山开展“六一”儿童节关爱助学活动 在“六一”国际儿童节之际，甘肃省新的社会阶层人士响应中央统战部“新善中国·阅见文明”号召，积极开展“新善甘肃”主题实践活动，走进积石山县银川镇张家村小学，为在校留守儿童开展爱心助学物资捐赠。 张家村小学现有在读学生5名、在岗教师7名，在校学生均为留守儿童，学校办学条件受限、教学保障存在实际困难。本次活动
+中新网沈阳5月11日电(姜月恒)指尖绕线，绳结生韵。作为省级非物质文化遗产辽西绳结技艺第五代传承人、锦州市残疾人非遗文创项目负责人，张薇薇多年来深耕绳结文创设计与推广，携手残障手艺人潜心创作，让平凡指尖凝结的匠心之作走出辽宁、亮相北京故宫。在传承非遗文脉的同时，为残障群体撑起一片就业增收、实现自我价值的天地。 非遗传承与助残同行的路上，藏着太多暖心动容的瞬间。工作室里，灯光常年
 
 ## 正文
 
-新善甘肃 爱心帮扶——我省新阶层人士赴积石山开展“六一”儿童节关爱助学活动 在“六一”国际儿童节之际，甘肃省新的社会阶层人士响应中央统战部“新善中国·阅见文明”号召，积极开展“新善甘肃”主题实践活动，走进积石山县银川镇张家村小学，为在校留守儿童开展爱心助学物资捐赠。
+中新网沈阳5月11日电(姜月恒)指尖绕线，绳结生韵。
 
-张家村小学现有在读学生5名、在岗教师7名，在校学生均为留守儿童，学校办学条件受限、教学保障存在实际困难。
+作为省级非物质文化遗产辽西绳结技艺第五代传承人、锦州市残疾人非遗文创项目负责人，张薇薇多年来深耕绳结文创设计与推广，携手残障手艺人潜心创作，让平凡指尖凝结的匠心之作走出辽宁、亮相北京故宫。
 
-本次活动立足乡村留守儿童成长所需，新阶层爱心人士现场捐赠少儿图书、课业文具、各类体育用品，依托书香滋养孩童心灵，用贴心陪伴守护缤纷童年。
+在传承非遗文脉的同时，为残障群体撑起一片就业增收、实现自我价值的天地。
 
-参加此次活动的新阶层人士代表表示，后续将持续发挥新阶层资源优势，坚守社会责任，持续聚焦乡村教育帮扶与留守儿童关爱工作，把“新善甘肃”公益项目做深做实，聚力乡村振兴、助推基础教育提质发展。
+非遗传承与助残同行的路上，藏着太多暖心动容的瞬间。
 
-学校负责人对新阶层人士的爱心帮扶深表谢意，表示将妥善管护各类捐赠物资，立足课堂悉心施教，引领孩子们心怀善意、勤学成才，在温暖呵护中茁壮成长。
+工作室里，灯光常年柔和明亮，既有肢体残疾的手艺人端坐桌前，指尖缓慢却专注地编织着绳结；也有听障手艺人围坐在一起，手中握着纸笔，一笔一画交流技艺、敲定配色纹样。
 
-(来源：六处) (“甘肃统战”微信公众号)
+起初，沟通的不便让学习进度格外缓慢，但没有一人轻言放弃。
+
+“我印象最深刻的是残疾人苏世昆，他因先天条件导致手部受限、手指短小僵硬。
+
+初学精细编绳时，线都难以攥稳，常常刚编好的绳结又松散开来。
 
 ## 相关推荐
 
-- 2026-06-30 05:45 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 05:38 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 05:50 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 05:49 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 05:34 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 05:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 05:42 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 05:33 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 05:27 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 05:38 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 05:49 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 05:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 05:45 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 05:55 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 05:38 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 05:54 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 05:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 05:56 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 05:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 05:55 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 05:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 05:42 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/369493935.shtml)
-- 2026-06-30 05:42 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/016250666.shtml)
-- 2026-06-30 05:44 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/404550.shtml)
-- 2026-06-30 05:47 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/573488.shtml)
-- 2026-06-30 05:44 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/0993219374.shtml)
-- 2026-06-30 05:49 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/7516646624.shtml)
-- 2026-06-30 05:32 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/3418180159.shtml)
-- 2026-06-30 05:31 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/98755.shtml)
-- 2026-06-30 05:42 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/64558514767.shtml)
-- 2026-06-30 05:39 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/171266836197.shtml)
-- 2026-06-30 05:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/31915153.shtml)
-- 2026-06-30 05:39 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/668636019.shtml)
-- 2026-06-30 05:50 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/2707235.shtml)
-- 2026-06-30 05:44 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/112275847922.shtml)
-- 2026-06-30 05:34 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/0447289517.shtml)
+- 2026-06-30 05:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/66431.shtml)
+- 2026-06-30 05:49 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/871271404.shtml)
+- 2026-06-30 05:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/59845606713.shtml)
+- 2026-06-30 05:57 - [千与千寻](http://www.share.minike.top/Article/details/894439200.shtml)
+- 2026-06-30 05:48 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/8262228.shtml)
+- 2026-06-30 05:36 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/30426803.shtml)
+- 2026-06-30 05:31 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/0464448.shtml)
+- 2026-06-30 05:39 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/9313221757.shtml)
+- 2026-06-30 05:59 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/33286430.shtml)
+- 2026-06-30 05:42 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/45276.shtml)
+- 2026-06-30 05:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/9706673.shtml)
+- 2026-06-30 05:34 - [月亮](https://www.blog.kurohicncr.top/Article/details/8263650.shtml)
+- 2026-06-30 05:53 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/362174292549.shtml)
+- 2026-06-30 05:44 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/9605635886.shtml)
+- 2026-06-30 05:48 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/31917733512.shtml)

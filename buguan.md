@@ -1,56 +1,56 @@
-# 英媒：美国考虑在更多北约欧洲国家部署核武器
+# 宁波银行三名副行长的任职资格获监管核准
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社伦敦6月2日电据英国《金融时报》2日报道，美国正在考虑是否在更多北约欧洲国家部署核武器，以此向盟友表明其不会削弱对欧洲的安全保障。 报道援引多名知情人士的话报道说，美国有意在现有6个部署了可携带核武器的“双重能力”战机的国家基础上增加部署地点，相关讨论正在北约内部进行。包括波罗的海国家在内的北约东翼国
+5月12日金融一线消息，宁波金融监管局发布批复，核准胡海东、陆海英、俞罡宁波银行股份有限公司副行长的任职资格。 公开资料显示，胡海东1988年1月出生，硕士研究生学历。现任宁波银行总行财务会计部总经理。胡海东先生2011年7月加入宁波银行，历任北仑支行行长助理、副行长、行长，嘉兴分行行长，总行财务会计部副总经理（主持工作）、总经理。 陆海英1982年9月出生，硕士研究生学历。现
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月12日金融一线消息，宁波金融监管局发布批复，核准胡海东、陆海英、俞罡宁波银行股份有限公司副行长的任职资格。
 
-新华社伦敦6月2日电据英国《金融时报》2日报道，美国正在考虑是否在更多北约欧洲国家部署核武器，以此向盟友表明其不会削弱对欧洲的安全保障。
+公开资料显示，胡海东1988年1月出生，硕士研究生学历。
 
-报道援引多名知情人士的话报道说，美国有意在现有6个部署了可携带核武器的“双重能力”战机的国家基础上增加部署地点，相关讨论正在北约内部进行。
+现任宁波银行总行财务会计部总经理。
 
-包括波罗的海国家在内的北约东翼国家有意让美国在这些国家境内部署“双重能力”战机基地。
+胡海东先生2011年7月加入宁波银行，历任北仑支行行长助理、副行长、行长，嘉兴分行行长，总行财务会计部副总经理（主持工作）、总经理。
 
-报道说，欧洲盟友对美国总统特朗普从欧洲大陆撤出美军和关键武器系统的举措感到担忧。
+陆海英1982年9月出生，硕士研究生学历。
 
-而美方讨论扩大核武器部署范围，表明美国虽然要求盟友承担更多防务负担，但也会履行其提供核保护伞的承诺。
+现任宁波银行总行公司银行总部总经理、机构业务部总经理。
 
-报道说，其中一位知情人士表示，短期内美国不会与北约欧洲国家达成扩大核武器部署的协议。
+陆海英女士2005年7月加入宁波银行，历任总行公司银行部综合管理部高级经理、市场营销部高级经理、部门总经理助理、副总经理，总行机构业务部副总经理（主持工作）、总经理，总行公司平台经营部总经理。
 
-报道说，目前参与北约核共享计划的有英国、德国、意大利、荷兰、比利时和土耳其，这些国家获准部署美国“双重能力”战机和核弹。
+俞罡1977年2月出生，硕士研究生学历，高级经济师。
 
 ## 相关推荐
 
-- 2026-06-30 05:37 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 05:44 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 05:43 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 05:32 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 05:37 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 05:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 05:30 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 05:45 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 05:30 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 05:38 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 05:35 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 05:40 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 05:31 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 05:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 05:58 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 05:53 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 05:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 05:50 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 05:39 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 05:49 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/647233195850.shtml)
-- 2026-06-30 05:24 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/99036.shtml)
-- 2026-06-30 05:36 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/555546.shtml)
-- 2026-06-30 05:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/21830450.shtml)
-- 2026-06-30 05:48 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/08815893.shtml)
-- 2026-06-30 05:28 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/88876725.shtml)
-- 2026-06-30 05:27 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/4963310332.shtml)
-- 2026-06-30 05:36 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/616596.shtml)
-- 2026-06-30 05:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/71263.shtml)
-- 2026-06-30 05:31 - [刘念回应](http://www.share.kurohicncr.top/Article/details/45291.shtml)
-- 2026-06-30 05:34 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/345616.shtml)
-- 2026-06-30 05:40 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/872034376.shtml)
-- 2026-06-30 05:34 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/2945179.shtml)
-- 2026-06-30 05:49 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/655708173.shtml)
-- 2026-06-30 05:37 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/88143018628.shtml)
+- 2026-06-30 05:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/1284492598.shtml)
+- 2026-06-30 05:56 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/158282145655.shtml)
+- 2026-06-30 05:53 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/60609622.shtml)
+- 2026-06-30 05:36 - [起风了](http://www.blog.kurohicncr.top/Article/details/032791.shtml)
+- 2026-06-30 05:34 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/53906900748.shtml)
+- 2026-06-30 05:49 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/69624.shtml)
+- 2026-06-30 05:55 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/0619386492.shtml)
+- 2026-06-30 05:46 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/98731130.shtml)
+- 2026-06-30 05:38 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/8836526423.shtml)
+- 2026-06-30 05:46 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/566208.shtml)
+- 2026-06-30 05:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/34896118121.shtml)
+- 2026-06-30 05:45 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/92692957.shtml)
+- 2026-06-30 05:39 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/04358.shtml)
+- 2026-06-30 05:45 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/1231756.shtml)
+- 2026-06-30 05:51 - [小娘惹](http://www.share.kurohicncr.top/Article/details/45009432091.shtml)

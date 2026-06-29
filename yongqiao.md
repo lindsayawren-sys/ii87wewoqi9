@@ -1,57 +1,61 @@
-# 欧盟提出“欧洲制造”新规，欲降低对美国科技巨头的依赖
+# 营收高增长却连续跌停：ST豆神陷内控与盈利双重困局
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-欧盟执委会周三提出新法律，旨在提振本土云计算、人工智能（AI）和半导体产业，以减少对美国科技巨头的依赖，此举可能加剧跨大西洋紧张局势。 《云与AI发展法案》和《芯片法案2.0》是欧洲推动技术主权、努力缩小与美国等竞争对手差距的努力的一部分。欧盟执委会希望到2030年将欧盟在全球半导体市场的份额提高一倍，达到20%。 欧盟执委会主席冯德莱恩在声明中表示：“我们不能在维持医院运转、
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 五一假期刚结束，ST豆神（维权）的股东就遭遇当头一棒。5月6日和7日，公司股票连续约20%的跌停，两天市值跌去三分之一。5月12日，公司股价跌3.32%，总市值从假期前的超百亿跌剩66.13亿元。 值得注意的是，就在连续跌停前，ST豆神还交出一份营收高增长的
 
 ## 正文
 
-欧盟执委会周三提出新法律，旨在提振本土云计算、人工智能（AI）和半导体产业，以减少对美国科技巨头的依赖，此举可能加剧跨大西洋紧张局势。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-《云与AI发展法案》和《芯片法案2.0》是欧洲推动技术主权、努力缩小与美国等竞争对手差距的努力的一部分。
+来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 五一假期刚结束，ST豆神（维权）的股东就遭遇当头一棒。
 
-欧盟执委会希望到2030年将欧盟在全球半导体市场的份额提高一倍，达到20%。
+5月6日和7日，公司股票连续约20%的跌停，两天市值跌去三分之一。
 
-欧盟执委会主席冯德莱恩在声明中表示：“我们不能在维持医院运转、保障能源网络稳定以及确保服务安全所需的技术上依赖他人。
+5月12日，公司股价跌3.32%，总市值从假期前的超百亿跌剩66.13亿元。
 
-” 欧盟科技事务负责人维尔库宁警告称，潜在的“终止开关”可能导致服务瘫痪或中断。
+值得注意的是，就在连续跌停前，ST豆神还交出一份营收高增长的财报。
 
-“我们希望确保在关键领域，我们始终能够掌控欧洲境内的服务和数据，”她对记者表示。
+4月29日，公司发布2025年报，年营收10.06亿元，同比增长32.96%，规模创下近三年新高。
 
-该提案针对银行业、能源和医疗保健等敏感领域的云服务提供商提出了主权要求，部分动因源于对美国《云法案》等法律的担忧——美国法案要求美国境内的服务提供商必须允许当局访问数据，即使这些数据存储在海外。
+然而，营收高增长并未转化为真实盈利：2025年公司扣除非经常性损益后的净利润亏损1.59亿元，经营性现金流净额为-1.88亿元，主营业务的“造血”能力明显承压。
 
-维尔库宁对记者表示，对于关键公共合同，供应商必须确保软硬件均在欧盟境内制造，从而排除非欧洲公司对数据和服务的控制。
+也正是这份营收高增长财报，成为公司股价连续跌停的导火索。
 
 ## 相关推荐
 
-- 2026-06-30 05:31 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 05:41 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 05:44 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 05:39 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 05:34 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 05:47 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 05:51 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 05:27 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 05:32 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 05:30 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 05:43 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 05:37 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 05:45 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 05:56 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 05:57 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 05:59 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 05:43 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 05:45 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 05:59 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 05:58 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 05:47 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 05:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 05:38 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 05:37 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 05:45 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 05:54 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/966293138.shtml)
-- 2026-06-30 05:33 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/250660.shtml)
-- 2026-06-30 05:40 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/2452461969.shtml)
-- 2026-06-30 05:29 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/684429142299.shtml)
-- 2026-06-30 05:33 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/57325987956.shtml)
-- 2026-06-30 05:31 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/2351456803.shtml)
-- 2026-06-30 05:26 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/232932830917.shtml)
-- 2026-06-30 05:50 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/90563304004.shtml)
-- 2026-06-30 05:35 - [美人鱼](https://www.share.minike.top/Article/details/109856528.shtml)
-- 2026-06-30 05:30 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/3186087410.shtml)
-- 2026-06-30 05:51 - [天道](https://www.share.kurohicncr.top/Article/details/0224144.shtml)
-- 2026-06-30 05:24 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/9807159.shtml)
-- 2026-06-30 05:46 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/3691088122.shtml)
-- 2026-06-30 05:44 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/940694962754.shtml)
-- 2026-06-30 05:52 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/46812040040.shtml)
+- 2026-06-30 05:48 - [世界杯](https://www.share.kurohicncr.top/Article/details/904401403572.shtml)
+- 2026-06-30 05:48 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/686489.shtml)
+- 2026-06-30 05:49 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/5483897.shtml)
+- 2026-06-30 05:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/2268316784.shtml)
+- 2026-06-30 05:51 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/661584291.shtml)
+- 2026-06-30 05:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/18987615633.shtml)
+- 2026-06-30 05:36 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/8721823275.shtml)
+- 2026-06-30 05:49 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/597113904170.shtml)
+- 2026-06-30 05:37 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/17765341.shtml)
+- 2026-06-30 05:36 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/37269545.shtml)
+- 2026-06-30 05:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/28189621004.shtml)
+- 2026-06-30 05:33 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/11615883723.shtml)
+- 2026-06-30 05:51 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/5319360.shtml)
+- 2026-06-30 05:35 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/4932626.shtml)
+- 2026-06-30 05:35 - [斗破苍穹](https://www.share.minike.top/Article/details/63930564436.shtml)

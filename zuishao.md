@@ -1,58 +1,55 @@
-# 报告：2025年中国海港城市港口经济增加值达7万亿元
+# 奢侈品板块依旧脆弱
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新社天津6月2日电 (记者 周亚强)第四届天津国际航运产业博览会2日在天津开幕，中国交通运输部规划研究院院长刘昕在会上发布的《2025年度中国港口经济发展报告》显示，2025年中国海港城市港口经济增加值达7万亿元人民币，占经济总量13.6%。 报告还指出，内河港口城市港口经济增加值达2.7万亿元人民币，占经济总量9.7%。战略性新兴产业成为港口经济增长重要动力，有力支撑长三角
+贝伦贝格银行分析师表示，奢侈品行业基本面疲软态势未有改观。 分析师在研报中写道：“即便剔除海湾地区冲突带来的影响，一季度核心数据的疲弱表现，也令人质疑奢侈品行业是否还能维持增长赛道属性。” 分析师称，各大企业管理层急于强调中东冲突造成的冲击，这也给了市场借口，下调行业 2026 年市场一致营收增长预期。 贝伦贝格银行补充表示：“然而即便剔除中东因素，我们认为行业内生营收走势仍将
 
 ## 正文
 
-中新社天津6月2日电 (记者 周亚强)第四届天津国际航运产业博览会2日在天津开幕，中国交通运输部规划研究院院长刘昕在会上发布的《2025年度中国港口经济发展报告》显示，2025年中国海港城市港口经济增加值达7万亿元人民币，占经济总量13.6%。
+贝伦贝格银行分析师表示，奢侈品行业基本面疲软态势未有改观。
 
-报告还指出，内河港口城市港口经济增加值达2.7万亿元人民币，占经济总量9.7%。
+分析师在研报中写道：“即便剔除海湾地区冲突带来的影响，一季度核心数据的疲弱表现，也令人质疑奢侈品行业是否还能维持增长赛道属性。
 
-战略性新兴产业成为港口经济增长重要动力，有力支撑长三角一体化、建设粤港澳大湾区、长江经济带发展等国家战略实施。
+” 分析师称，各大企业管理层急于强调中东冲突造成的冲击，这也给了市场借口，下调行业 2026 年市场一致营收增长预期。
 
-刘昕表示，港口经济是港航业高质量发展的重要引擎，也是港口城市转型发展的关键路径，对建设现代化产业体系意义重大。
+贝伦贝格银行补充表示：“然而即便剔除中东因素，我们认为行业内生营收走势仍将持续不及预期。
 
-今年是“十五五”规划开局之年，也是国家提出建设天津北方国际航运中心20周年，上述报告将为各地港口经济评价、规划编制、政策制定提供重要支撑。
+” 该行指出，所谓轻奢意向消费群体的表现，仍是行业疲软的核心诱因。
 
-在报告的高质量发展评价中，上海位居海港城市总指数第一，重庆位居内河港口城市总指数第一。
+布鲁奈罗・库奇内利与爱马仕仍是贝伦贝格银行的首选推荐标的，维持买入评级。
 
-深圳、广州、苏州、宁波、天津、青岛获评海港城市A级；武汉、无锡、佛山、杭州、嘉兴、合肥获评内河港口城市A级。
-
-(完)
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 05:49 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 05:43 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 05:33 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 05:49 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 05:53 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 05:34 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 05:28 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 05:50 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 05:24 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 05:24 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 05:45 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 05:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 05:47 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 05:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 05:38 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 05:58 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 06:00 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 05:51 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 05:59 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 05:51 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 05:56 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 05:51 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 05:34 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/90362317735.shtml)
-- 2026-06-30 05:25 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/842354797054.shtml)
-- 2026-06-30 05:31 - [天道](http://www.share.kurohicncr.top/Article/details/542639652.shtml)
-- 2026-06-30 05:39 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/83303142.shtml)
-- 2026-06-30 05:27 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/8245763.shtml)
-- 2026-06-30 05:46 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/579874.shtml)
-- 2026-06-30 05:40 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/1932974038.shtml)
-- 2026-06-30 05:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/85102933.shtml)
-- 2026-06-30 05:42 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/6645792107.shtml)
-- 2026-06-30 05:25 - [毒液2](http://www.share.minike.top/Article/details/95247885440.shtml)
-- 2026-06-30 05:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/769175881.shtml)
-- 2026-06-30 05:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/738864.shtml)
-- 2026-06-30 05:41 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/92730.shtml)
-- 2026-06-30 05:37 - [TOP Prada](http://www.blog.minike.top/Article/details/741327.shtml)
-- 2026-06-30 05:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/9857072.shtml)
+- 2026-06-30 05:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/7842244857.shtml)
+- 2026-06-30 05:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/385007.shtml)
+- 2026-06-30 05:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/1588440401.shtml)
+- 2026-06-30 05:40 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/729228896129.shtml)
+- 2026-06-30 05:59 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/34150.shtml)
+- 2026-06-30 05:48 - [绘画区你赢了](https://www.blog.minike.top/Article/details/785730593071.shtml)
+- 2026-06-30 05:48 - [速度与激情9](http://www.share.minike.top/Article/details/4559013.shtml)
+- 2026-06-30 05:32 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/1724531956.shtml)
+- 2026-06-30 05:31 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/0269284327.shtml)
+- 2026-06-30 05:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/1543725.shtml)
+- 2026-06-30 05:34 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/21978679423.shtml)
+- 2026-06-30 05:53 - [第一炉香](http://www.share.minike.top/Article/details/633779581120.shtml)
+- 2026-06-30 05:51 - [千与千寻](http://www.share.kurohicncr.top/Article/details/61914.shtml)
+- 2026-06-30 05:30 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/8946809864.shtml)
+- 2026-06-30 05:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/735668783.shtml)

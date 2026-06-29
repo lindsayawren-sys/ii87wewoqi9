@@ -1,59 +1,52 @@
-# 130亿美团龙珠，王兴的风口捕手
+# 特朗普驳回伊朗对和平提议的回应，美国国债收益率走高
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-消费底色，重仓头部。 记者丨赵娜 编辑丨谭璐 美团，已成风口上的投资猎手。 6月1日，管理层披露，单单一笔智谱，当季就带来76亿公允价值变动收益；当天，其重仓的宇树又成功过会。 在王兴的运筹下，美团龙珠已和战投部一道，成为其产业投资的两驾马车之一。 5月上旬，美团龙珠领投月之暗面的新一轮融资，总额规模高达约20亿美元。 其在2023年领投过一轮。彼时，月之暗面估值约6亿美元，最
+亚洲交易时段，受油价上涨提振，美债收益率走高；新一周开局之际，霍尔木兹海峡仍处于关闭状态。 国债短端收益率涨幅大于长端，延续上周五非农就业数据向好后的上行走势。此外，特朗普总统拒绝接受伊朗对美国和平提案的回应，称其“完全不可接受”，也对美债收益率构成上行压力。 布伦特原油价格上涨4.3%，报每桶105.66美元，进一步推高美债收益率。据全球交易经纪商Tradeweb数据，2年期
 
 ## 正文
 
-消费底色，重仓头部。
+亚洲交易时段，受油价上涨提振，美债收益率走高；新一周开局之际，霍尔木兹海峡仍处于关闭状态。
 
-记者丨赵娜 编辑丨谭璐 美团，已成风口上的投资猎手。
+国债短端收益率涨幅大于长端，延续上周五非农就业数据向好后的上行走势。
 
-6月1日，管理层披露，单单一笔智谱，当季就带来76亿公允价值变动收益；当天，其重仓的宇树又成功过会。
+此外，特朗普总统拒绝接受伊朗对美国和平提案的回应，称其“完全不可接受”，也对美债收益率构成上行压力。
 
-在王兴的运筹下，美团龙珠已和战投部一道，成为其产业投资的两驾马车之一。
+布伦特原油价格上涨4.3%，报每桶105.66美元，进一步推高美债收益率。
 
-5月上旬，美团龙珠领投月之暗面的新一轮融资，总额规模高达约20亿美元。
+据全球交易经纪商Tradeweb数据，2年期美债收益率上行3.3个基点，报3.925%；10年期美债收益率走高3个基点，报4.393%。
 
-其在2023年领投过一轮。
-
-彼时，月之暗面估值约6亿美元，最新一轮估值则高达200亿美元。
-
-押注月之暗面，是美团龙珠“时代品类”方法论，在AI周期中的一次重仓落子，从中也能管窥王兴个人投资逻辑的迭代。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 05:53 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 05:31 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 05:35 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 05:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 05:47 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 05:48 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 05:28 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 05:34 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 05:41 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 05:27 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 05:28 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 05:27 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 05:58 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 05:36 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 05:45 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 05:35 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 05:48 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 05:47 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 05:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 05:43 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 05:42 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 05:32 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:42 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/45585.shtml)
-- 2026-06-30 05:52 - [天道](https://www.share.minike.top/Article/details/92770291.shtml)
-- 2026-06-30 05:39 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/165142546.shtml)
-- 2026-06-30 05:43 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/023206472021.shtml)
-- 2026-06-30 05:44 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/5455313.shtml)
-- 2026-06-30 05:48 - [美人鱼](http://www.share.minike.top/Article/details/860009158.shtml)
-- 2026-06-30 05:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/28028391.shtml)
-- 2026-06-30 05:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/2775826137.shtml)
-- 2026-06-30 05:44 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/53067287.shtml)
-- 2026-06-30 05:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/34196.shtml)
-- 2026-06-30 05:48 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/18911.shtml)
-- 2026-06-30 05:47 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/90106.shtml)
-- 2026-06-30 05:35 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/1896616.shtml)
-- 2026-06-30 05:32 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/501583022.shtml)
-- 2026-06-30 05:40 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/071696369.shtml)
+- 2026-06-30 05:40 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/92432635.shtml)
+- 2026-06-30 05:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/527378.shtml)
+- 2026-06-30 05:47 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/928235363.shtml)
+- 2026-06-30 05:40 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/012568.shtml)
+- 2026-06-30 05:47 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/95728.shtml)
+- 2026-06-30 05:56 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/900782252.shtml)
+- 2026-06-30 05:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/5164516.shtml)
+- 2026-06-30 05:34 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/70990.shtml)
+- 2026-06-30 05:53 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/306686602100.shtml)
+- 2026-06-30 05:45 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/019389.shtml)
+- 2026-06-30 05:58 - [日本 高位逼抢](https://www.share.minike.top/Article/details/832767.shtml)
+- 2026-06-30 05:33 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/612972094.shtml)
+- 2026-06-30 05:53 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/751786031.shtml)
+- 2026-06-30 05:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/188261138.shtml)
+- 2026-06-30 05:43 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/94572233.shtml)

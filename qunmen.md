@@ -1,56 +1,49 @@
-# 中信建投期货：6月4日能化早报
+# A股周一开盘：超3200只个股飘红，沪指突破4200点，三大指数集体高开
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-橡胶：波动剧烈 周三，国产全乳胶 18200/吨，环比上日持平；泰国 20 号混合胶 17830 元/吨，环比上日持平。 原料端：昨日泰国皇后诞辰节假日，原料市场休市；云南胶水报收 16.7 元/公斤，环比上日持平；海南胶水报收 16.6 元/公斤，环比上日上涨 0.1 元/公斤。 截至 2026 年 5 月 31 日，中国天然橡胶社会库存 126.92 万吨，环比下降 2.5
+11日，A股三大指数集体高开。Wind数据显示，上证指数高开0.51%，突破4200点，深证成指高开0.86%，创业板指高开0.88%。超3200只个股飘红。 板块方面，存储器概念股大涨，电脑硬件、半导体、通信设备、航天军工板块领涨；贵金属、海运、石油化工跌幅居前。
 
 ## 正文
 
-橡胶：波动剧烈 周三，国产全乳胶 18200/吨，环比上日持平；泰国 20 号混合胶 17830 元/吨，环比上日持平。
+11日，A股三大指数集体高开。
 
-原料端：昨日泰国皇后诞辰节假日，原料市场休市；云南胶水报收 16.7 元/公斤，环比上日持平；海南胶水报收 16.6 元/公斤，环比上日上涨 0.1 元/公斤。
+Wind数据显示，上证指数高开0.51%，突破4200点，深证成指高开0.86%，创业板指高开0.88%。
 
-截至 2026 年 5 月 31 日，中国天然橡胶社会库存 126.92 万吨，环比下降 2.56 万吨，降幅 1.97%。
+超3200只个股飘红。
 
-中国深色胶社会总库存为 86.93 万吨，环比降 2.7%。
-
-其中青岛现货库存降2.61%；云南降 1.38%；越南 10 降 1.61%；NR 库存小计降 10.51%。
-
-中国浅色胶社会总库存为 39.99 万吨，环比降 0.35%。
-
-其中老全乳胶环比降 0.5%，3L 环比降 11.85%，RU 库存小计增加 3.16%。
-
-观点：近期，泰国等东南亚主产区迎来较为持续的降水，预计前期高温少雨对胶树的影响逐步缓解，随着科特迪瓦的主雨季结束，预计全球产量上量的时间点不会出现超预期的延后。
+板块方面，存储器概念股大涨，电脑硬件、半导体、通信设备、航天军工板块领涨；贵金属、海运、石油化工跌幅居前。
 
 ## 相关推荐
 
-- 2026-06-30 05:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 05:41 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 05:42 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 05:29 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 05:36 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 05:41 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 05:28 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 05:32 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 05:35 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 05:51 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 05:49 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 05:48 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 05:52 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 05:38 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 05:54 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 05:34 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 05:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 05:44 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 05:59 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 05:50 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 05:43 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/85017777.shtml)
-- 2026-06-30 05:42 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/437256311392.shtml)
-- 2026-06-30 05:52 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/268213776.shtml)
-- 2026-06-30 05:51 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/25581491079.shtml)
-- 2026-06-30 05:29 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/551306894279.shtml)
-- 2026-06-30 05:31 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/22501886803.shtml)
-- 2026-06-30 05:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/5809408.shtml)
-- 2026-06-30 05:28 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/7347903763.shtml)
-- 2026-06-30 05:32 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/012807.shtml)
-- 2026-06-30 05:29 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/268722.shtml)
-- 2026-06-30 05:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/885849192.shtml)
-- 2026-06-30 05:27 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/62618141.shtml)
-- 2026-06-30 05:24 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/313580625060.shtml)
-- 2026-06-30 05:45 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/35154.shtml)
-- 2026-06-30 05:31 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/254923765762.shtml)
+- 2026-06-30 05:50 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/76691.shtml)
+- 2026-06-30 05:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/615192.shtml)
+- 2026-06-30 05:55 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/8702010.shtml)
+- 2026-06-30 05:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/5626794479.shtml)
+- 2026-06-30 05:56 - [小娘惹](http://www.share.kurohicncr.top/Article/details/2482100.shtml)
+- 2026-06-30 05:58 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/388804171.shtml)
+- 2026-06-30 05:55 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/9452911728.shtml)
+- 2026-06-30 05:53 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/567064.shtml)
+- 2026-06-30 05:45 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/33817.shtml)
+- 2026-06-30 05:33 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/90565.shtml)
+- 2026-06-30 05:31 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/51007606754.shtml)
+- 2026-06-30 05:35 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/883306475483.shtml)
+- 2026-06-30 05:53 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/5914312.shtml)
+- 2026-06-30 05:57 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/33826363391.shtml)
+- 2026-06-30 05:36 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/785516369.shtml)

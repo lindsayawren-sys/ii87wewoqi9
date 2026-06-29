@@ -1,59 +1,61 @@
-# 太空计算工作委员会成立 业界呼吁加快形成太空计算生态
+# 002726，突发！实控人被刑拘，股价已五连跌停！
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-中新网北京6月3日电 (记者 刘亮)中国计算机行业协会太空计算工作委员会(以下简称“工委会”)成立大会暨第一次全体成员大会3日在北京召开。 工业和信息化部电子信息司副司长史惠康在致辞中指出，2026年是“十五五”规划开局之年，也是我国太空计算产业布局的关键之年。当前，我国太空计算产业正在加速起步，建议从强化统筹布局、促进融合创新、完善生态建设等方面推动产业发展。 “太空计算是国
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月11日晚间，ST龙大（维权）（002726）发布公告，公司实控人戴学斌因涉嫌刑事犯罪，已被达州市公安局刑事拘留。公司表示，戴学斌未在上市公司担任任何职务，不参与日常经营决策。目前公司董事会及高级管理人员均正常履职，董事会运作正常，公司生产经营正常。 近期
 
 ## 正文
 
-中新网北京6月3日电 (记者 刘亮)中国计算机行业协会太空计算工作委员会(以下简称“工委会”)成立大会暨第一次全体成员大会3日在北京召开。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-工业和信息化部电子信息司副司长史惠康在致辞中指出，2026年是“十五五”规划开局之年，也是我国太空计算产业布局的关键之年。
+5月11日晚间，ST龙大（维权）（002726）发布公告，公司实控人戴学斌因涉嫌刑事犯罪，已被达州市公安局刑事拘留。
 
-当前，我国太空计算产业正在加速起步，建议从强化统筹布局、促进融合创新、完善生态建设等方面推动产业发展。
+公司表示，戴学斌未在上市公司担任任何职务，不参与日常经营决策。
 
-“太空计算是国家战略布局的关键点，也是航天强国建设的必然要求和重要基石。
+目前公司董事会及高级管理人员均正常履职，董事会运作正常，公司生产经营正常。
 
-”中国科学院院士、西北工业大学常务副校长张艳宁指出，计算未来将向空天地海一体化方向发展，工委会的成立响应国家战略号召，为产业协同发展提供了里程碑式的平台。
+近期，ST龙大负面事件频发，公司已被实施其他风险警示。
 
-中国科学院院士、中国科学院大学杭州高等研究院院长王建宇在发言中分析太空计算发展的迫切需求与问题挑战，建议产业界抓住市场扩容、成本下降与供应链构建的窗口期，加快形成健康的太空计算生态。
+业绩层面，2025年公司实现营收100.19亿元，同比下降8.83%；归母净利润亏损7.36亿元，连续三年陷入亏损。
 
-中国电子信息产业发展研究院总工程师、工委会筹备组组长李宏伟介绍，在工业和信息化部电子信息司指导下，组建工作专班，系统调研了太空计算战略布局与技术进展，明确了工委会的平台定位和组织架构，已收到100余家单位的入会申请，覆盖抗辐照芯片、太空计算整机设备、供电散热系统、数据传输系统、星座设施、航天发射等领域。
+2026年一季度，公司营收20.58亿元，同比下降19.25%；归母净利润亏损99.35万元，扣非净利润亏损5192.75万元，最新资产负债率84.79%。
 
-中国计算机行业协会副秘书长相春雷当天宣读太空计算工委会成立的批复意见。
+内控与信披层面，ST龙大因财务报告内部控制重大缺陷，被审计机构出具了否定意见的内控审计报告。
 
 ## 相关推荐
 
-- 2026-06-30 05:46 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 05:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 05:49 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 05:53 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 05:46 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 05:33 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 05:28 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 05:38 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 05:35 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 05:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 05:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 05:45 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 05:50 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 05:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 05:32 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 05:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 05:44 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 05:39 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 05:42 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 05:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 05:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 05:41 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 05:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 05:57 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 05:54 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 05:50 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 05:56 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 05:48 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/12628157.shtml)
-- 2026-06-30 05:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/765769720.shtml)
-- 2026-06-30 05:38 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/77065538.shtml)
-- 2026-06-30 05:53 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/88692.shtml)
-- 2026-06-30 05:46 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/98084427756.shtml)
-- 2026-06-30 05:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/525904882553.shtml)
-- 2026-06-30 05:46 - [日本进球](https://www.blog.minike.top/Article/details/44448.shtml)
-- 2026-06-30 05:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/798905.shtml)
-- 2026-06-30 05:50 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/6665925.shtml)
-- 2026-06-30 05:48 - [女心理师](https://www.blog.minike.top/Article/details/865471823195.shtml)
-- 2026-06-30 05:46 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/26576.shtml)
-- 2026-06-30 05:52 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/280076.shtml)
-- 2026-06-30 05:27 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/8155092548.shtml)
-- 2026-06-30 05:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/6742019693.shtml)
-- 2026-06-30 05:24 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/734195144813.shtml)
+- 2026-06-30 05:35 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/15983702114.shtml)
+- 2026-06-30 05:44 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/031484594376.shtml)
+- 2026-06-30 05:56 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/6032688.shtml)
+- 2026-06-30 05:45 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/2700941021.shtml)
+- 2026-06-30 05:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/29815.shtml)
+- 2026-06-30 05:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/724288.shtml)
+- 2026-06-30 05:38 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/08788026.shtml)
+- 2026-06-30 05:35 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/5708861.shtml)
+- 2026-06-30 05:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/1822849927.shtml)
+- 2026-06-30 05:54 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/1285700.shtml)
+- 2026-06-30 05:52 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/33257.shtml)
+- 2026-06-30 05:31 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/594148.shtml)
+- 2026-06-30 05:40 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/471457341462.shtml)
+- 2026-06-30 05:32 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/77523075.shtml)
+- 2026-06-30 05:52 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/414257609.shtml)

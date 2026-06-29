@@ -1,57 +1,47 @@
-# 明晚，成品油价或迎2026年来第二次下调
+# 中天策略:5月11日市场分析
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-6月4日（周四）24时，国内成品油调价窗口将再度开启。机构跟踪的最新国际原油价格变动状况预测数据显示，本轮成品油零售限价下调幅度超过50元/吨的调整红线要求，因此本轮成品油零售限价大概率迎下调，这也将是2026年以来第二次下调。 国内成品油本轮计价周期（5月21日24时至6月4日24时）以来，国际原油价格先跌后涨，但均价环比下滑，导致国内参考的原油变化率持续处于负值范围运行。卓
+责任编辑：陈平
 
 ## 正文
 
-6月4日（周四）24时，国内成品油调价窗口将再度开启。
-
-机构跟踪的最新国际原油价格变动状况预测数据显示，本轮成品油零售限价下调幅度超过50元/吨的调整红线要求，因此本轮成品油零售限价大概率迎下调，这也将是2026年以来第二次下调。
-
-国内成品油本轮计价周期（5月21日24时至6月4日24时）以来，国际原油价格先跌后涨，但均价环比下滑，导致国内参考的原油变化率持续处于负值范围运行。
-
-卓创资讯成品油分析师曹莹莹表示，国内成品油本轮计价周期以来，美伊和谈取得进展，一度接近达成和平协议，国际原油价格高位震荡后下跌。
-
-后期局势稍有反复，市场担忧情绪再生，原油价格反弹。
-
-但整体来看，本轮计价周期，国际原油价格均值环比下跌，国内参考的原油变化率持续处于负值范围运行。
-
-卓创资讯监测模型测算显示，截至当地时间6月2日收盘，即国内成品油本轮计价周期的第九个工作日，参考原油变化率为-12.08%，按照当前幅度计算，预计汽柴油价格将下调535元/吨。
-
-隆众资讯成品油分析师刘婷表示，本轮国内成品油零售限价大概率将迎下调，这也将是2026年以来第二次下调 目前距离本轮成品油调价窗口开启还有1个工作日。
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 05:32 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 05:29 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 05:33 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 05:44 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 05:29 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 05:52 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 05:30 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 05:32 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 05:46 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 05:25 - [人类...完蛋了...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-30 05:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 05:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 05:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 05:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 05:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 05:41 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 05:51 - [巴西绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 05:35 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 05:36 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 05:37 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 05:45 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 05:47 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 05:40 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 05:37 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 05:45 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:31 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/81880668.shtml)
-- 2026-06-30 05:41 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/2172896372.shtml)
-- 2026-06-30 05:41 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/10628.shtml)
-- 2026-06-30 05:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/426572346377.shtml)
-- 2026-06-30 05:47 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/459570244699.shtml)
-- 2026-06-30 05:43 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/462702.shtml)
-- 2026-06-30 05:31 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/8977259429.shtml)
-- 2026-06-30 05:32 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/5111266635.shtml)
-- 2026-06-30 05:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/39809721.shtml)
-- 2026-06-30 05:24 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/417654.shtml)
-- 2026-06-30 05:38 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/23334924.shtml)
-- 2026-06-30 05:30 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/4457065.shtml)
-- 2026-06-30 05:24 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/870012117147.shtml)
-- 2026-06-30 05:52 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/42283.shtml)
-- 2026-06-30 05:52 - [日本 高位逼抢](http://www.share.minike.top/Article/details/53645.shtml)
+- 2026-06-30 05:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/442749.shtml)
+- 2026-06-30 05:52 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/081034.shtml)
+- 2026-06-30 05:52 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/125524809129.shtml)
+- 2026-06-30 05:53 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/50704.shtml)
+- 2026-06-30 05:39 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/897476.shtml)
+- 2026-06-30 05:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/8683845005.shtml)
+- 2026-06-30 05:50 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/738965582733.shtml)
+- 2026-06-30 05:55 - [毒液2](http://www.share.kurohicncr.top/Article/details/76029.shtml)
+- 2026-06-30 05:57 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/138965518888.shtml)
+- 2026-06-30 05:50 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/530085456.shtml)
+- 2026-06-30 05:34 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/771223282702.shtml)
+- 2026-06-30 05:42 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/1396232.shtml)
+- 2026-06-30 05:42 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/66007940.shtml)
+- 2026-06-30 05:46 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/127832938496.shtml)
+- 2026-06-30 05:37 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/16096.shtml)

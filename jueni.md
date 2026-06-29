@@ -1,42 +1,61 @@
-# 私域直播设陷阱“拼单赌石”藏骗局深陷赌石骗局 多名老年人上当
+# 广东PPI连续下降38个月后首次上涨
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月04日 09:09 来源：央视新闻 责任编辑：【李骏】
+中新社广州5月12日电 (记者 许青青)据国家统计局广东调查总队12日发布的数据，4月份广东工业生产者出厂价格指数(PPI)同比由上月下降0.3%转为上涨1.4%，为连续下降38个月后首次上涨；环比上涨1.3%，涨幅明显。从同比看，生产资料价格由上月下降0.5%转为上涨1.9%，生活资料价格由持平转为上涨0.4%。行业上涨面为36.8%，比上月扩大10.5个百分点。主要行业中，
 
 ## 正文
 
-发布时间：2026年06月04日 09:09 来源：央视新闻 责任编辑：【李骏】
+中新社广州5月12日电 (记者 许青青)据国家统计局广东调查总队12日发布的数据，4月份广东工业生产者出厂价格指数(PPI)同比由上月下降0.3%转为上涨1.4%，为连续下降38个月后首次上涨；环比上涨1.3%，涨幅明显。
+
+从同比看，生产资料价格由上月下降0.5%转为上涨1.9%，生活资料价格由持平转为上涨0.4%。
+
+行业上涨面为36.8%，比上月扩大10.5个百分点。
+
+主要行业中，石油和天然气开采业价格上涨32.8%，文教、工美、体育和娱乐用品制造业上涨29.9%，石油、煤炭及其他燃料加工业上涨20.8%，有色金属冶炼和压延加工业上涨15.4%。
+
+从环比看，生产资料价格上涨1.9%，涨幅比上月扩大0.6个百分点；生活资料价格上涨0.2%，涨幅扩大0.1个百分点。
+
+行业上涨面为42.1%。
+
+受国际原油、天然气等能源价格大幅上涨影响，石油化工相关行业价格快速上行。
+
+4月份，广东居民消费价格指数(CPI)同比上涨1.0%，涨幅比上月扩大0.3个百分点；环比由上月下降1.5%转为上涨0.5%。
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 05:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 05:35 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 05:46 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 05:48 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 05:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 05:46 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 05:42 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 05:53 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 05:34 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 05:46 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 05:34 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 05:49 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 05:44 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 05:33 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 05:54 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 05:31 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 05:42 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 05:32 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 05:39 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 05:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 05:34 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 05:40 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 05:42 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 05:37 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:42 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/76977901.shtml)
-- 2026-06-30 05:50 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/272308802.shtml)
-- 2026-06-30 05:32 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/62074030.shtml)
-- 2026-06-30 05:26 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/754264.shtml)
-- 2026-06-30 05:42 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/1801610.shtml)
-- 2026-06-30 05:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/4372850.shtml)
-- 2026-06-30 05:29 - [起风了](http://www.share.kurohicncr.top/Article/details/143327.shtml)
-- 2026-06-30 05:49 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/027207.shtml)
-- 2026-06-30 05:34 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/1680787.shtml)
-- 2026-06-30 05:24 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/0667459094.shtml)
-- 2026-06-30 05:31 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/11357.shtml)
-- 2026-06-30 05:38 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/6274907.shtml)
-- 2026-06-30 05:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/028121.shtml)
-- 2026-06-30 05:27 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/171432723.shtml)
-- 2026-06-30 05:35 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/114699215885.shtml)
+- 2026-06-30 05:35 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/892261.shtml)
+- 2026-06-30 05:37 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/15283.shtml)
+- 2026-06-30 05:51 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/762516368456.shtml)
+- 2026-06-30 05:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/5479893.shtml)
+- 2026-06-30 05:46 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/655930.shtml)
+- 2026-06-30 05:39 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/5489676528.shtml)
+- 2026-06-30 05:31 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/28292779.shtml)
+- 2026-06-30 05:53 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/66640764063.shtml)
+- 2026-06-30 05:57 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/4496641867.shtml)
+- 2026-06-30 05:36 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/35508.shtml)
+- 2026-06-30 05:59 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/11189.shtml)
+- 2026-06-30 05:50 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/6651059200.shtml)
+- 2026-06-30 05:34 - [逃狱兄弟](https://www.share.minike.top/Article/details/46550919.shtml)
+- 2026-06-30 05:32 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/456131952653.shtml)
+- 2026-06-30 05:58 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/084942935.shtml)

@@ -1,58 +1,59 @@
-# 波士顿咨询报告显示人工智能技术转化面临“效率瓶颈”
+# 溯源南岛语族 共续海洋文脉：2026两岸海洋文化交流平台走进平潭
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-波士顿咨询集团（BCG）最新发布的《工作场所人工智能》报告指出，尽管当前企业员工正在加速普及使用人工智能（AI）工具，但该技术对提升生产率和企业效益的实际影响仍存在不均衡与不确定性。全球各行业面临如何将AI带来的时间红利转化为实质性价值的瓶颈。 报告数据显示，在不承担管理职责的白领员工中，常规使用AI工具的比例已达74%，较去年同期大幅上升23个百分点。在这一群体中，超过40%
+中新网福建平潭5月12日电 (李百加)2026两岸海洋文化交流平台主场活动12日在福建省平潭综合实验区举行。活动以“越山向海 潮汇一脉”为主题，吸引岛内政党、社会团体代表，阿美、泰雅等10余个族群代表以及在陆台商台青等近300人参与。 全国政协副主席、台盟中央主席苏辉致辞指出，福建平潭是南岛语族的“起锚之地”。2026年两岸海洋文化交流平台主场活动落地平潭，围绕南岛语族溯源、中
 
 ## 正文
 
-波士顿咨询集团（BCG）最新发布的《工作场所人工智能》报告指出，尽管当前企业员工正在加速普及使用人工智能（AI）工具，但该技术对提升生产率和企业效益的实际影响仍存在不均衡与不确定性。
+中新网福建平潭5月12日电 (李百加)2026两岸海洋文化交流平台主场活动12日在福建省平潭综合实验区举行。
 
-全球各行业面临如何将AI带来的时间红利转化为实质性价值的瓶颈。
+活动以“越山向海 潮汇一脉”为主题，吸引岛内政党、社会团体代表，阿美、泰雅等10余个族群代表以及在陆台商台青等近300人参与。
 
-报告数据显示，在不承担管理职责的白领员工中，常规使用AI工具的比例已达74%，较去年同期大幅上升23个百分点。
+全国政协副主席、台盟中央主席苏辉致辞指出，福建平潭是南岛语族的“起锚之地”。
 
-在这一群体中，超过40%的受访者表示，AI工具的应用每周可为其节省至少一整天的工作时间。
+2026年两岸海洋文化交流平台主场活动落地平潭，围绕南岛语族溯源、中华海洋文化传承等议题开展交流，有助于两岸同胞把握潮流大势、坚守民族大义、厚植历史自信。
 
-然而，报告强调，企业管理层普遍未能对这些节省出的时间实施有效价值开发，导致AI带来的效率提升难以转化为可衡量的企业实际红利。
+台盟坚持继承和弘扬台湾同胞爱国爱乡光荣传统，矢志推动两岸关系和平发展、推进祖国统一大业，通过搭建海洋文化交流平台等举措，促进两岸交流交往交融。
 
-这一发现直接挑战了“引入AI即可自动提升生产率”的市场普遍假设，也引发了国际金融市场对全球范围内数千亿美元AI投资回报率的关注与质疑。
+她期盼本次活动助力平潭建设两岸共同市场先行区域，加快建成经济发展、社会和谐、环境优美、独具特色的两岸同胞共同家园。
 
-报告同时揭示了AI技术推广对工作性质带来的负面影响。
+全国政协常委、港澳台侨委员会主任刘赐贵表示，全国政协港澳台侨委员会始终把深化两岸各领域交流合作、促进两岸同胞心灵契合作为重要履职方向。
 
-统计显示，近半数受访者表示，其投入在管理和指导AI运行上的时间，已经超过了实际完成业务本身的时间。
+委员会坚定支持台盟等民主党派发挥特色优势，开展形式多样的对台交流活动，为两岸同胞交流交往交融搭建更多平台、创造更好条件。
 
 ## 相关推荐
 
-- 2026-06-30 05:42 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 05:29 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 05:28 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 05:48 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 05:42 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 05:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 05:47 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 05:26 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 05:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 05:31 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 05:37 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 05:35 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 05:46 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 05:39 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 05:41 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 05:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 05:37 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 05:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 05:31 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 05:36 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 05:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 05:30 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 05:48 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 05:53 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 05:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/184053909188.shtml)
-- 2026-06-30 05:46 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/824610500795.shtml)
-- 2026-06-30 05:26 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/5884381255.shtml)
-- 2026-06-30 05:29 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/2070134.shtml)
-- 2026-06-30 05:29 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/408700715376.shtml)
-- 2026-06-30 05:42 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/379157744.shtml)
-- 2026-06-30 05:47 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/587698160850.shtml)
-- 2026-06-30 05:32 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/18151.shtml)
-- 2026-06-30 05:50 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/130992613662.shtml)
-- 2026-06-30 05:46 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/620078756.shtml)
-- 2026-06-30 05:47 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/972756137.shtml)
-- 2026-06-30 05:43 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/85407.shtml)
-- 2026-06-30 05:32 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/232693.shtml)
-- 2026-06-30 05:29 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/258462670986.shtml)
-- 2026-06-30 05:37 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/933264821077.shtml)
+- 2026-06-30 05:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/07257541.shtml)
+- 2026-06-30 05:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/5283456.shtml)
+- 2026-06-30 05:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/03641924.shtml)
+- 2026-06-30 05:33 - [月亮](https://www.share.kurohicncr.top/Article/details/58709.shtml)
+- 2026-06-30 05:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/57156295993.shtml)
+- 2026-06-30 05:47 - [女心理师](http://www.blog.kurohicncr.top/Article/details/684672046955.shtml)
+- 2026-06-30 05:44 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/1563170.shtml)
+- 2026-06-30 05:52 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/552859.shtml)
+- 2026-06-30 05:43 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/6076630.shtml)
+- 2026-06-30 05:59 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/859072.shtml)
+- 2026-06-30 05:40 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/91705412.shtml)
+- 2026-06-30 05:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/713266894.shtml)
+- 2026-06-30 05:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/70444545916.shtml)
+- 2026-06-30 05:40 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/60321327529.shtml)
+- 2026-06-30 05:46 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/629038.shtml)

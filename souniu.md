@@ -1,56 +1,57 @@
-# 社区投票复盘：黄金、原油、美伊和平、纳指与中期选举，谁的判断最准？
+# 俄罗斯下调2026至2029年石油和天然气产量及出口预测
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-5月最后一周，我们围绕黄金、原油、纳斯达克、中东局势以及美国中期选举等热点话题发起了多场投票，十张京东卡奖励已经全部发放完毕。如今结果已经揭晓，让我们一起看看网友们的判断与市场实际走势是否一致。 一、纳斯达克：多数人坚定看多 在“纳斯达克100在5月底的收盘价？”投票中：30000点以上获得5271票，占总票数75%。最终纳指成功站上30000点，网友们再次展现出对AI牛市的强
+俄罗斯经济部周一在其基本情景预测中表示，已下调了未来三年多项石油和天然气预测，包括原油和天然气产量以及出口量预估。 此前有报道称，俄罗斯的石油和天然气行业面临诸多挑战，包括西方制裁以及乌克兰无人机对俄能源基础设施的袭击，这些因素导致4月初原油产量下降。 石油和天然气税收收入约占俄罗斯联邦预算收入的四分之一，而俄罗斯征税的对象是石油产量，而非石油出口。 在高额军事支出、高利率以及
 
 ## 正文
 
-5月最后一周，我们围绕黄金、原油、纳斯达克、中东局势以及美国中期选举等热点话题发起了多场投票，十张京东卡奖励已经全部发放完毕。
+俄罗斯经济部周一在其基本情景预测中表示，已下调了未来三年多项石油和天然气预测，包括原油和天然气产量以及出口量预估。
 
-如今结果已经揭晓，让我们一起看看网友们的判断与市场实际走势是否一致。
+此前有报道称，俄罗斯的石油和天然气行业面临诸多挑战，包括西方制裁以及乌克兰无人机对俄能源基础设施的袭击，这些因素导致4月初原油产量下降。
 
-一、纳斯达克：多数人坚定看多 在“纳斯达克100在5月底的收盘价？
+石油和天然气税收收入约占俄罗斯联邦预算收入的四分之一，而俄罗斯征税的对象是石油产量，而非石油出口。
 
-”投票中：30000点以上获得5271票，占总票数75%。
+在高额军事支出、高利率以及因乌克兰问题遭受西方制裁的背景下，更广泛的经济前景被下调，石油和天然气领域的前景下调也反映其中。
 
-最终纳指成功站上30000点，网友们再次展现出对AI牛市的强大信心。
+在基准情景下，今年的石油和天然气凝析油产量预测已从此前的5.252亿吨下调至5.11亿吨，约合每日1022万桶，基本与俄罗斯2025年产量5.114亿吨持平。
 
-从结果来看，市场对于AI、半导体和科技龙头的乐观情绪明显强于全球视角参考值，最终多头获得胜利。
+对后续几年的产量展望也一并下调。
 
-二、纽约原油：市场高估了地缘风险 在“纽约原油会在5月涨超110吗？
+在基准情景中，今年原油出口量预计将较此前预测减少450万吨，降至2.372亿吨；明年则下调1650万吨，至2.274亿吨。
 
-”投票中：看多网友一度超过40%，明显高于全球视角。
+在假设大宗商品价格走低的负面情景下，今年石油产量预计将下降至4.972亿吨，明年预计为5.022亿吨。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 05:53 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 05:49 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 05:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 05:33 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 05:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 05:26 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 05:51 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 05:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 05:36 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 05:57 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 05:41 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 05:50 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 05:33 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 05:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 05:59 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 05:42 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 05:55 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 05:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 05:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 05:35 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/974434.shtml)
-- 2026-06-30 05:53 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/41168.shtml)
-- 2026-06-30 05:38 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/974203103752.shtml)
-- 2026-06-30 05:28 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/439790.shtml)
-- 2026-06-30 05:49 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/060440179.shtml)
-- 2026-06-30 05:31 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/061297.shtml)
-- 2026-06-30 05:48 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/63765614.shtml)
-- 2026-06-30 05:31 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/46141046559.shtml)
-- 2026-06-30 05:39 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/521494621.shtml)
-- 2026-06-30 05:34 - [乔家的儿女](https://www.share.minike.top/Article/details/421801131958.shtml)
-- 2026-06-30 05:31 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/7065003.shtml)
-- 2026-06-30 05:45 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/186569838.shtml)
-- 2026-06-30 05:34 - [起风了](http://www.blog.minike.top/Article/details/0352763.shtml)
-- 2026-06-30 05:35 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/025920.shtml)
-- 2026-06-30 05:24 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/059219370937.shtml)
+- 2026-06-30 05:36 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/2288461.shtml)
+- 2026-06-30 05:33 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/0713838330.shtml)
+- 2026-06-30 05:32 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/0392689.shtml)
+- 2026-06-30 05:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/0789650.shtml)
+- 2026-06-30 05:49 - [起风了](https://www.blog.minike.top/Article/details/77269483.shtml)
+- 2026-06-30 05:59 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/4423048021.shtml)
+- 2026-06-30 05:32 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/13542.shtml)
+- 2026-06-30 05:32 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/357119904367.shtml)
+- 2026-06-30 05:35 - [沙丘](https://www.share.minike.top/Article/details/18258778744.shtml)
+- 2026-06-30 05:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/83626.shtml)
+- 2026-06-30 05:36 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/06568819.shtml)
+- 2026-06-30 05:58 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/11046.shtml)
+- 2026-06-30 05:40 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/96112689160.shtml)
+- 2026-06-30 05:46 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/032223435733.shtml)
+- 2026-06-30 05:31 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/7531329.shtml)

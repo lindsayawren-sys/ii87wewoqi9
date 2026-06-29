@@ -1,59 +1,61 @@
-# 福建省孤儿基本生活保障标准提高
+# 海湾危机背景下 印度总理莫迪呼吁印度民众勒紧裤腰带
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新网福州6月3日电 (郑江洛)福建省民政厅3日披露，自今年7月1日起，福建再度上调孤儿及事实无人抚养儿童基本生活保障标准，调整后，集中养育孤儿、社会散居孤儿基本生活最低养育标准将分别达到每人每月2454元、1987元，事实无人抚养儿童按照孤儿标准发放，较2020年初分别增长64%和121%。截至2026年5月，福建已有1.85万名孤儿、事实无人抚养儿童纳入基本生活保障，保障人
+印度总理莫迪呼吁民众居家办公、选择公共交通出行以节约燃油。印度作为全球第三大石油进口国，正试图遏制能源价格飙升给本国经济带来的冲击。 自美国对伊朗发起军事行动以来，印度这个全球人口第一大国的领导人首次呼吁民众勒紧裤腰带、节约开支。就在此次呼吁发布的几天前，势头回升的印度人民党在地方选举中击败实力削弱的反对党，斩获多场胜利。 印度政府目前最大的担忧之一，是能源价格上涨给印度卢比及
 
 ## 正文
 
-中新网福州6月3日电 (郑江洛)福建省民政厅3日披露，自今年7月1日起，福建再度上调孤儿及事实无人抚养儿童基本生活保障标准，调整后，集中养育孤儿、社会散居孤儿基本生活最低养育标准将分别达到每人每月2454元、1987元，事实无人抚养儿童按照孤儿标准发放，较2020年初分别增长64%和121%。
+印度总理莫迪呼吁民众居家办公、选择公共交通出行以节约燃油。
 
-截至2026年5月，福建已有1.85万名孤儿、事实无人抚养儿童纳入基本生活保障，保障人数较2020年增长53%，2020年至今，全省累计发放保障金15.82亿元。
+印度作为全球第三大石油进口国，正试图遏制能源价格飙升给本国经济带来的冲击。
 
-据了解，在此次提标前，2020年以来福建省已4次提高孤儿、事实无人抚养儿童基本生活保障标准，并建立自然增长机制。
+自美国对伊朗发起军事行动以来，印度这个全球人口第一大国的领导人首次呼吁民众勒紧裤腰带、节约开支。
 
-在助学帮扶层面，福建民政部门实施“福彩圆梦·孤儿助学工程”项目，为年满18周岁后仍在校就读的孤儿，提供每人每学年1万元助学金，2021年以来累计资助2625名孤儿，共发放助学金2151万元；同时联动青山慈善基金会推出“青山陪伴助学工程”，将考上大学的成年事实无人抚养儿童纳入资助范围，大专生每人每年3000元、本科生和硕博士研究生每人每年5000元至毕业，2024至2025年累计资助1383人次，发放助学金467.1万元。
+就在此次呼吁发布的几天前，势头回升的印度人民党在地方选举中击败实力削弱的反对党，斩获多场胜利。
 
-在日常关爱服务领域，福建民政部门推进“福蕾行动计划”，引入专业社工组织面向困境、留守儿童开展假期关爱、结对帮扶、亲情陪护、心理疏导等服务。
+印度政府目前最大的担忧之一，是能源价格上涨给印度卢比及外汇储备带来的承压压力。
 
-“十四五”期间，全省开展心理健康关爱、亲情陪伴等各类关爱服务活动逾3万场次。
+莫迪周日晚间在南部城市塞康德拉巴德发表讲话称：“我们必须减少汽油和柴油的消耗。
 
-2020年以来累计投入资金逾2亿元，惠及24.5万名留守、困境儿童。
+” “在开通地铁的城市，我们应当优先选择地铁出行……当前国际汽柴油价格高企，我们还必须高度重视节约外汇储备。
 
-(完)
+” 恩凯环球金融服务首席经济学家表示：“地方选举落幕之后，莫迪得以直面伊朗局势引发的各类经济问题。
 
 ## 相关推荐
 
-- 2026-06-30 05:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 05:28 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 05:42 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 05:32 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 05:50 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 05:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 05:47 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 05:34 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 05:40 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 05:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 05:28 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 05:53 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 05:34 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 05:47 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 05:35 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 05:41 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 05:41 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 05:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 05:49 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 05:31 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 05:31 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 05:46 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 05:41 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 05:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 05:45 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 05:52 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 05:30 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 05:54 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/79155.shtml)
-- 2026-06-30 05:47 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/9509198905.shtml)
-- 2026-06-30 05:38 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/09947858334.shtml)
-- 2026-06-30 05:33 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/80099297678.shtml)
-- 2026-06-30 05:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/56074.shtml)
-- 2026-06-30 05:27 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/8106721697.shtml)
-- 2026-06-30 05:34 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/766827337.shtml)
-- 2026-06-30 05:41 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/7053479.shtml)
-- 2026-06-30 05:39 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/057452.shtml)
-- 2026-06-30 05:25 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/86535070543.shtml)
-- 2026-06-30 05:27 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/71027.shtml)
-- 2026-06-30 05:30 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/79304.shtml)
-- 2026-06-30 05:43 - [刘念回应](https://www.share.kurohicncr.top/Article/details/37860790.shtml)
-- 2026-06-30 05:35 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/692468532.shtml)
-- 2026-06-30 05:34 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/62512653545.shtml)
+- 2026-06-30 05:43 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/348324597273.shtml)
+- 2026-06-30 05:36 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/53317.shtml)
+- 2026-06-30 05:48 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/66309.shtml)
+- 2026-06-30 05:59 - [人类...完蛋了...](http://www.share.minike.top/Article/details/49436566.shtml)
+- 2026-06-30 05:38 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/5097924266.shtml)
+- 2026-06-30 05:33 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/33728485295.shtml)
+- 2026-06-30 05:56 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/7634199465.shtml)
+- 2026-06-30 05:31 - [日本16强魔咒](https://www.share.minike.top/Article/details/314720121.shtml)
+- 2026-06-30 05:32 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/36360.shtml)
+- 2026-06-30 05:44 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/86371468685.shtml)
+- 2026-06-30 05:41 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/81496.shtml)
+- 2026-06-30 05:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/122648.shtml)
+- 2026-06-30 05:54 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/457427.shtml)
+- 2026-06-30 05:38 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/7310349.shtml)
+- 2026-06-30 05:56 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/51513286291.shtml)

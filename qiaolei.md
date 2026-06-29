@@ -1,47 +1,59 @@
-# 美术特长生专业考试有非监考老师进入考场？湖南湘乡通报
+# 毛利率跌至上市以来低点，来伊份遭遇“增收不增利”困局
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:03 UTC+8
 
 ## 摘要
 
-中新网6月3日电 据“湘乡教育”微信公众号消息，湖南省湘乡市教育局发布情况通报，近日，“湘乡一中美术特长生专业考试有非监考老师进入考场”的相关信息引发网民关注。对此，湘乡市教育局高度重视，已成立工作专班，开展深入核查，将依法依规处理，保障学生合法权益。下一步将切实加强管理，坚决维护教育公平公正。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 “国内主板零食第一股”来伊份（603777.SH）的转型阵痛，正以一份“割裂”的成绩单呈现在投资者面前。公司近期披露的2025年年报显示，实现营收38.19亿元，营收规模虽未重回峰值，但增速却达到13.31%，创下自2012年以来的新高，同时扭转了此前连续两年的下滑态势。 然而硬币的另一面却
 
 ## 正文
 
-中新网6月3日电 据“湘乡教育”微信公众号消息，湖南省湘乡市教育局发布情况通报，近日，“湘乡一中美术特长生专业考试有非监考老师进入考场”的相关信息引发网民关注。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-对此，湘乡市教育局高度重视，已成立工作专班，开展深入核查，将依法依规处理，保障学生合法权益。
+来源：证券之星 “国内主板零食第一股”来伊份（603777.SH）的转型阵痛，正以一份“割裂”的成绩单呈现在投资者面前。
 
-下一步将切实加强管理，坚决维护教育公平公正。
+公司近期披露的2025年年报显示，实现营收38.19亿元，营收规模虽未重回峰值，但增速却达到13.31%，创下自2012年以来的新高，同时扭转了此前连续两年的下滑态势。
+
+然而硬币的另一面却是公司毛利率已降至上市以来的最低水平，这是导致其出现1.6亿元亏损的一个核心原因。
+
+而在今年一季度这个零食行业的传统销售旺季，来伊份当季营收同比下滑1.12%，归母净利润更是亏损1403.94万元，这是公司自上市以来首次在一季度出现亏损。
+
+相比之下，同行业上市公司如三只松鼠、良品铺子、有友食品、好想你等企业，一季度归母净利润均实现了不同程度的增长。
+
+01． 加盟店增长，门店总数跌破3000家 对于营收增速的回暖，来伊份解释称，主要系公司拓展新业务渠道及新模式业务收入增加所致。
+
+其中，在“新业务渠道”中，加盟渠道成为了公司营收增长的主要引擎。
 
 ## 相关推荐
 
-- 2026-06-30 05:48 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 05:50 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 05:38 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 05:44 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 05:26 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 05:36 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 05:47 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 05:39 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 05:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 05:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 05:25 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 05:49 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 05:52 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 05:40 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 05:39 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 05:35 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 05:50 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 05:37 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 05:39 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 05:48 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 05:59 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 05:52 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 05:49 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 05:39 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/61099531592.shtml)
-- 2026-06-30 05:30 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/697208.shtml)
-- 2026-06-30 05:49 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/33982666.shtml)
-- 2026-06-30 05:46 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/852524658616.shtml)
-- 2026-06-30 05:41 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/81300.shtml)
-- 2026-06-30 05:54 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/65165266789.shtml)
-- 2026-06-30 05:51 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/0056317.shtml)
-- 2026-06-30 05:25 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/866188429079.shtml)
-- 2026-06-30 05:53 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/06640520.shtml)
-- 2026-06-30 05:43 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/4722489.shtml)
-- 2026-06-30 05:53 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/866379.shtml)
-- 2026-06-30 05:27 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/756923.shtml)
-- 2026-06-30 05:53 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/38280116.shtml)
-- 2026-06-30 05:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/419632.shtml)
-- 2026-06-30 05:40 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/938085224600.shtml)
+- 2026-06-30 05:48 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/53865257.shtml)
+- 2026-06-30 05:43 - [月亮](https://www.blog.kurohicncr.top/Article/details/060215120.shtml)
+- 2026-06-30 05:33 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/315570775963.shtml)
+- 2026-06-30 05:52 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/03506561034.shtml)
+- 2026-06-30 05:54 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/6234581.shtml)
+- 2026-06-30 05:31 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/4112666.shtml)
+- 2026-06-30 05:53 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/07225.shtml)
+- 2026-06-30 05:59 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/9637709403.shtml)
+- 2026-06-30 05:31 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/11441388615.shtml)
+- 2026-06-30 05:37 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/9768835457.shtml)
+- 2026-06-30 05:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/8765760074.shtml)
+- 2026-06-30 05:51 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/662457.shtml)
+- 2026-06-30 05:30 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/902331526.shtml)
+- 2026-06-30 05:52 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/82881855.shtml)
+- 2026-06-30 05:49 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/89479692.shtml)

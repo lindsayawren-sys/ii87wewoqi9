@@ -1,57 +1,53 @@
-# 上海累计认定外资研发中心656家
+# 原芜湖职业技术学院党委书记汪斌严重违纪违法被开除党籍
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新社上海6月3日电 (记者 姜煜)上海市商务委副主任周岚3日透露，“十四五”时期，上海技术进出口合同金额从173.2亿美元增长到211亿美元，年均增速超过6%，截至今年4月，上海累计认定外资研发中心656家。 当天，上海市政府新闻办公室举行新闻发布会，周岚在会上介绍了第十二届中国(上海)国际技术进出口交易会(上交会)的筹备情况。 上交会是中国首个集技术展示与交易服务于一体的国
+中新网5月11日电 据安徽省纪委监委消息：日前，经中共安徽省委批准，安徽省纪委监委对原芜湖职业技术学院党委书记汪斌严重违纪违法问题进行了立案审查调查。 经查，汪斌丧失理想信念，背弃初心使命，处心积虑对抗组织审查；违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡，违规接受旅游活动安排和车辆服务；违背组织原则，违规为他人谋取人事利益，不按规定报告个人有关事项；廉洁
 
 ## 正文
 
-中新社上海6月3日电 (记者 姜煜)上海市商务委副主任周岚3日透露，“十四五”时期，上海技术进出口合同金额从173.2亿美元增长到211亿美元，年均增速超过6%，截至今年4月，上海累计认定外资研发中心656家。
+中新网5月11日电 据安徽省纪委监委消息：日前，经中共安徽省委批准，安徽省纪委监委对原芜湖职业技术学院党委书记汪斌严重违纪违法问题进行了立案审查调查。
 
-当天，上海市政府新闻办公室举行新闻发布会，周岚在会上介绍了第十二届中国(上海)国际技术进出口交易会(上交会)的筹备情况。
+经查，汪斌丧失理想信念，背弃初心使命，处心积虑对抗组织审查；违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡，违规接受旅游活动安排和车辆服务；违背组织原则，违规为他人谋取人事利益，不按规定报告个人有关事项；廉洁底线失守，利用职权为亲属在业务承揽方面谋取利益，违规拥有非上市公司股份，违规挂证取酬；利用职务便利为他人在项目审批、融资贷款等方面谋利，并非法收受巨额财物。
 
-上交会是中国首个集技术展示与交易服务于一体的国际性、专业性、服务型展会。
+汪斌严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-本届上交会由上海市政府主办，以“打造技术贸易新生态 共绘全球合作新篇章”为主题，将于6月11日至13日在上海举办。
-
-据周岚介绍，本届上交会设置数智科技展区、绿色科技展区等4大专业技术展区，以及1个创新及交易服务区，展览总面积3.8万平方米。
-
-展会汇聚全球22个国家和地区、全国24个省区市创新成果，参展企业首次突破千家，达1006家。
-
-本届上交会首次采用境内外双主宾城机制，由瑞士洛桑市、英国苏格兰城市群(格拉斯哥、斯特灵、因弗内斯、邓迪、爱丁堡)担任境外主宾城，大连市、南京市担任境内主宾城。
-
-展会设立国际展区，来自德国、法国等国家和地区的26家境外贸易促进机构、商协会，组织了74家企业参展，将展示机器人、精密制造、数字化解决方案等创新成果，并发布80余项技术合作需求。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经安徽省纪委常委会会议研究并报省委批准，决定给予汪斌开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-30 05:44 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 05:34 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 05:43 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 05:44 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 05:37 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 05:48 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 05:29 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 05:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 05:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 05:49 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 05:32 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 05:47 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 05:58 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 05:31 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 05:40 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 05:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 05:31 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 05:45 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 05:58 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 05:47 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 05:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 05:43 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 05:31 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 05:49 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 05:45 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 05:50 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/3625137.shtml)
-- 2026-06-30 05:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/48405241534.shtml)
-- 2026-06-30 05:30 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/296268.shtml)
-- 2026-06-30 05:30 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/501678.shtml)
-- 2026-06-30 05:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/369909.shtml)
-- 2026-06-30 05:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/34763191.shtml)
-- 2026-06-30 05:45 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/140294.shtml)
-- 2026-06-30 05:40 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/98279835.shtml)
-- 2026-06-30 05:29 - [沙丘](http://www.blog.kurohicncr.top/Article/details/968072485253.shtml)
-- 2026-06-30 05:36 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/75849988356.shtml)
-- 2026-06-30 05:51 - [千香](http://www.share.kurohicncr.top/Article/details/345274177.shtml)
-- 2026-06-30 05:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/00288.shtml)
-- 2026-06-30 05:47 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/6528454692.shtml)
-- 2026-06-30 05:32 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/09898.shtml)
-- 2026-06-30 05:40 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/1740315130.shtml)
+- 2026-06-30 05:59 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/212179165347.shtml)
+- 2026-06-30 05:44 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/87118343.shtml)
+- 2026-06-30 05:58 - [美人鱼](https://www.blog.minike.top/Article/details/02353.shtml)
+- 2026-06-30 05:37 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/3403005.shtml)
+- 2026-06-30 05:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/04660.shtml)
+- 2026-06-30 05:51 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/3647730.shtml)
+- 2026-06-30 05:48 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/67855.shtml)
+- 2026-06-30 05:40 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/73881466.shtml)
+- 2026-06-30 05:43 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/59626.shtml)
+- 2026-06-30 05:48 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/7911191.shtml)
+- 2026-06-30 05:51 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/4546566.shtml)
+- 2026-06-30 05:34 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/7939386.shtml)
+- 2026-06-30 05:30 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/52086014352.shtml)
+- 2026-06-30 05:31 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/78851244.shtml)
+- 2026-06-30 05:48 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/11246725.shtml)

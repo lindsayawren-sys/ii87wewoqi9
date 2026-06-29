@@ -1,59 +1,59 @@
-# 韩国举行第九届地方选举
+# 阿布扎比国家石油天然气公司预计霍尔木兹海峡封航将冲击全年利润
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新社首尔6月3日电 (记者 金旭)韩国第九届地方选举和国会议员补选于当地时间3日6时开启正式投票。 本届选举投票时间为6时至18时。选民将投票选出全国道、市、郡、区等各级政府负责人，以及教育监和地方议员等。同时将补选14名国会议员。 据韩国中央选举管理委员会初步统计显示，全国共有约4465万选民可参与此次投票。选举结果预计于4日凌晨揭晓。 韩联社分析称，本届选举是李在明政府成
+专题：聚焦美股2026年第一季度财报 公司预计全年净利润介于 35 亿至 40 亿美元之间，低于去年创纪录的 52 亿美元 阿布扎比国家石油天然气公司表示，霍尔木兹海峡封航将拖累其全年净利润；即便后续航道重开、油价走高能够部分弥补销量损失，也难以完全对冲冲击。 这家阿布扎比国有天然气企业于周二表示，受海峡封锁影响，第二季度净利润预计将遭受 4 亿至 6 亿美元损失。该预测基于一
 
 ## 正文
 
-中新社首尔6月3日电 (记者 金旭)韩国第九届地方选举和国会议员补选于当地时间3日6时开启正式投票。
+专题：聚焦美股2026年第一季度财报 公司预计全年净利润介于 35 亿至 40 亿美元之间，低于去年创纪录的 52 亿美元 阿布扎比国家石油天然气公司表示，霍尔木兹海峡封航将拖累其全年净利润；即便后续航道重开、油价走高能够部分弥补销量损失，也难以完全对冲冲击。
 
-本届选举投票时间为6时至18时。
+这家阿布扎比国有天然气企业于周二表示，受海峡封锁影响，第二季度净利润预计将遭受 4 亿至 6 亿美元损失。
 
-选民将投票选出全国道、市、郡、区等各级政府负责人，以及教育监和地方议员等。
+该预测基于一个前提：航运能在本季度结束前恢复正常。
 
-同时将补选14名国会议员。
+自 2 月末冲突爆发以来，霍尔木兹海峡基本陷入通航瘫痪。
 
-据韩国中央选举管理委员会初步统计显示，全国共有约4465万选民可参与此次投票。
+伊朗扬言袭击过往船只，加之美国随后实施海上封锁，引发剧烈能源供应冲击。
 
-选举结果预计于4日凌晨揭晓。
+有望促成海峡重开的和平谈判仍在进行，但局势十分脆弱。
 
-韩联社分析称，本届选举是李在明政府成立以来首次在全国范围内举行的选举，被视为2年后进行的国会议员选举等今后政治走向的重要风向标。
+特朗普总统周一坦言，目前与伊朗的停火协议已命悬一线。
 
-“事前投票”已于5月29日至30日进行。
+即便海峡重新开放，货运恢复也依赖船舶就位调度，这项物流调配工作可能耗时数周。
 
 ## 相关推荐
 
-- 2026-06-30 05:44 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 05:42 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 05:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 05:45 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 05:51 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 05:33 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 05:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 05:50 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 05:38 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 05:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 05:51 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 05:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 05:48 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 05:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 05:43 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 05:36 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 05:32 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 05:44 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 05:45 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 05:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 05:46 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 05:56 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 05:58 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 05:43 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 05:35 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 05:50 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/98214523539.shtml)
-- 2026-06-30 05:41 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/21521.shtml)
-- 2026-06-30 05:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/787848702379.shtml)
-- 2026-06-30 05:28 - [我和我的家乡](https://www.share.minike.top/Article/details/0563365.shtml)
-- 2026-06-30 05:43 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/63917.shtml)
-- 2026-06-30 05:39 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/3405828207.shtml)
-- 2026-06-30 05:29 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/037133770091.shtml)
-- 2026-06-30 05:25 - [扬名立万](https://www.blog.minike.top/Article/details/12731080883.shtml)
-- 2026-06-30 05:53 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/365352.shtml)
-- 2026-06-30 05:50 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/83551178955.shtml)
-- 2026-06-30 05:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/324470827.shtml)
-- 2026-06-30 05:37 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/331214.shtml)
-- 2026-06-30 05:43 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/162085047929.shtml)
-- 2026-06-30 05:29 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/1442802.shtml)
-- 2026-06-30 05:32 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/2386898.shtml)
+- 2026-06-30 05:51 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/56260609754.shtml)
+- 2026-06-30 05:45 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/94126583.shtml)
+- 2026-06-30 05:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/97072203472.shtml)
+- 2026-06-30 05:30 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/47713.shtml)
+- 2026-06-30 05:48 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/5390365577.shtml)
+- 2026-06-30 05:34 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/513963728753.shtml)
+- 2026-06-30 05:39 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/6156235133.shtml)
+- 2026-06-30 05:42 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/62957281.shtml)
+- 2026-06-30 05:47 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/142871.shtml)
+- 2026-06-30 05:35 - [金牌调解](http://www.blog.minike.top/Article/details/32556636760.shtml)
+- 2026-06-30 05:52 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/3259551097.shtml)
+- 2026-06-30 05:52 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/6563466.shtml)
+- 2026-06-30 05:32 - [一生一世](https://www.share.kurohicncr.top/Article/details/8219505.shtml)
+- 2026-06-30 05:37 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/933038549710.shtml)
+- 2026-06-30 05:36 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/95467129.shtml)

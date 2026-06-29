@@ -1,61 +1,59 @@
-# 吃粉遇王祖蓝进店被清场？广西玉林：举措不当引起误解
+# 道达尔能源等多家国际能源巨头与叙利亚签署近海油气勘探协议
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新网6月4日电 据“玉州发布”微信公众号消息，就网民反映“吃粉遇王祖蓝进店被清场”一事，广西玉林市玉州区文化体育和旅游局6月3日晚发布情况通报。具体内容如下： 6月2日，演员王祖蓝受邀到玉州区宣传推广本地特色美食文化。为取得更好的宣传效果，拍摄前工作组已与店家充分沟通，征得完全同意后进场筹备。因门店空间较小，拍摄实行分区管理，明确划分拍摄区与正常就餐区，确保食客能正常用餐，并
+5月12日，法国能源巨头道达尔能源（TotalEnergies）发布声明宣布，已与叙利亚石油公司（SPC）达成协议，将联合卡塔尔能源公司（QatarEnergy）及美国康菲石油（ConocoPhillips），共同对叙利亚拉塔基亚市附近的近海“3号区块”进行油气勘探。 道达尔能源表示，此次签署的谅解备忘录明确了合作各方对相关区块进行技术审查的要求，并为后续勘探活动的技术及商业讨
 
 ## 正文
 
-中新网6月4日电 据“玉州发布”微信公众号消息，就网民反映“吃粉遇王祖蓝进店被清场”一事，广西玉林市玉州区文化体育和旅游局6月3日晚发布情况通报。
+5月12日，法国能源巨头道达尔能源（TotalEnergies）发布声明宣布，已与叙利亚石油公司（SPC）达成协议，将联合卡塔尔能源公司（QatarEnergy）及美国康菲石油（ConocoPhillips），共同对叙利亚拉塔基亚市附近的近海“3号区块”进行油气勘探。
 
-具体内容如下： 6月2日，演员王祖蓝受邀到玉州区宣传推广本地特色美食文化。
+道达尔能源表示，此次签署的谅解备忘录明确了合作各方对相关区块进行技术审查的要求，并为后续勘探活动的技术及商业讨论建立了框架。
 
-为取得更好的宣传效果，拍摄前工作组已与店家充分沟通，征得完全同意后进场筹备。
+资料显示，受欧盟对叙相关制裁影响，道达尔能源曾于2011年宣布暂停其在叙利亚的全部业务。
 
-因门店空间较小，拍摄实行分区管理，明确划分拍摄区与正常就餐区，确保食客能正常用餐，并未作清场安排。
+此次签署合作协议，被视为国际大型能源企业在中断多年后重新参与叙利亚能源开发的信号。
 
-拍摄过程中，由于围观市民较多，我局一工作人员出于安全和便于拍摄的考虑，请求食客配合。
+与此同时，叙利亚石油公司于周一表示，已确定首个深海油气勘探项目的具体地点。
 
-但因沟通方式简单、举措不当，引起误解。
+据悉，该项目将由叙方与美国雪佛龙公司（Chevron）及卡塔尔UCC控股公司合作开展。
 
-对此，我局深表歉意，并对该工作人员进行了严肃的批评教育。
-
-此次事件，暴露出我局工作中还存在沟通不细致、方式方法简单等问题，我局将以此为戒、举一反三，努力提升公共服务的温度和精细化水平。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 05:24 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 05:49 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 05:48 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 05:44 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 05:42 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 05:27 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 05:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 05:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 05:41 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 05:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 05:28 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 05:42 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 05:36 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 05:27 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 05:26 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 05:46 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 05:39 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 05:44 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 05:58 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 05:32 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 05:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 05:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 05:45 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 05:55 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 05:51 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 05:57 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 05:59 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 05:43 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 05:54 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 05:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/65680812.shtml)
-- 2026-06-30 05:36 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/76760154165.shtml)
-- 2026-06-30 05:51 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/974437.shtml)
-- 2026-06-30 05:28 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/9385334342.shtml)
-- 2026-06-30 05:45 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/023296656.shtml)
-- 2026-06-30 05:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/784395560.shtml)
-- 2026-06-30 05:34 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/497332666.shtml)
-- 2026-06-30 05:53 - [周生如故](http://www.blog.minike.top/Article/details/05378.shtml)
-- 2026-06-30 05:44 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/566013262.shtml)
-- 2026-06-30 05:35 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/07988.shtml)
-- 2026-06-30 05:38 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/341648.shtml)
-- 2026-06-30 05:26 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/341506359.shtml)
-- 2026-06-30 05:44 - [急先锋](https://www.blog.minike.top/Article/details/24271453.shtml)
-- 2026-06-30 05:43 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/020450.shtml)
-- 2026-06-30 05:41 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/32842508969.shtml)
+- 2026-06-30 05:56 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/680764115256.shtml)
+- 2026-06-30 05:47 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/058685959084.shtml)
+- 2026-06-30 05:46 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/52060702.shtml)
+- 2026-06-30 05:45 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/68381168.shtml)
+- 2026-06-30 05:52 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/209532.shtml)
+- 2026-06-30 05:55 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/51789054814.shtml)
+- 2026-06-30 05:45 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/26368.shtml)
+- 2026-06-30 05:46 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/60524016.shtml)
+- 2026-06-30 05:39 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/6429136255.shtml)
+- 2026-06-30 05:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/57046015280.shtml)
+- 2026-06-30 05:39 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/7986717.shtml)
+- 2026-06-30 05:44 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/3720684.shtml)
+- 2026-06-30 05:33 - [恋与深空 巧合](http://www.share.minike.top/Article/details/109205671.shtml)
+- 2026-06-30 05:41 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/94877.shtml)
+- 2026-06-30 05:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/1626799.shtml)

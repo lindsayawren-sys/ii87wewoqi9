@@ -1,58 +1,56 @@
-# 2026年全国残疾人旱地冰壶比赛在宁夏吴忠开赛
+# 美国财长贝森特访日期间 日元突然走强又随即回落
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新网吴忠6月2日电 (记者 于晶)6月2日，2026年全国残疾人旱地冰壶比赛在宁夏吴忠正式开赛。本次比赛以“美丽吴忠 乐享健身”为主题，赛事将持续至6月7日，共有来自全国14个省(区、市)及港澳地区的15支运动队、135名运动员和教练员参赛。 本次比赛共设轮椅公开组、听力残疾组和智力公开组三个类别。作为一项兼具策略与协作的智慧型残疾人体育运动项目，旱地冰壶不仅考验运动员的控壶
+美国财政部长贝森特访问日本期间，日元兑美元汇率周二突然大幅走强后又随即回落。 东京午后交易时段，日元兑美元汇率一度升0.3%，至156.78。截至东京时间16：14，日元兑美元汇率下跌0.2%，至157.51。 日本上周长假期间疑似进行了一系列汇市干预。彭博基于日本央行账户的分析显示，当局在此期间可能动用了逾540亿美元来支撑日元。4月30日，当局首次出手干预汇市当天，日元一度
 
 ## 正文
 
-中新网吴忠6月2日电 (记者 于晶)6月2日，2026年全国残疾人旱地冰壶比赛在宁夏吴忠正式开赛。
+美国财政部长贝森特访问日本期间，日元兑美元汇率周二突然大幅走强后又随即回落。
 
-本次比赛以“美丽吴忠 乐享健身”为主题，赛事将持续至6月7日，共有来自全国14个省(区、市)及港澳地区的15支运动队、135名运动员和教练员参赛。
+东京午后交易时段，日元兑美元汇率一度升0.3%，至156.78。
 
-本次比赛共设轮椅公开组、听力残疾组和智力公开组三个类别。
+截至东京时间16：14，日元兑美元汇率下跌0.2%，至157.51。
 
-作为一项兼具策略与协作的智慧型残疾人体育运动项目，旱地冰壶不仅考验运动员的控壶技巧与战术配合，更充分展现了他们自强不息、奋勇争先的精神风貌。
+日本上周长假期间疑似进行了一系列汇市干预。
 
-陕西队听力组教练员胡涛表示：“这次代表陕西队参加全国比赛，全队上下都非常重视。
+彭博基于日本央行账户的分析显示，当局在此期间可能动用了逾540亿美元来支撑日元。
 
-前期我们进行了紧张的训练，重点围绕技战术配合反复打磨。
+4月30日，当局首次出手干预汇市当天，日元一度飙升多达3%。
 
-接下来的比赛，我们会继续稳扎稳打，力争打出最好的水平。
+日本财务大臣片山皋月周二稍早在东京与贝森特会晤后证实，美日两国在汇率政策方面保持着密切协调。
 
-” 为保障赛事顺利进行，比赛场馆及接待酒店全程开放无障碍坡道、电梯、卫生间及临时休憩专区，并提供轮椅借用、无障碍摆渡接送服务，全方位适配肢体残疾运动员的出行需求。
+Lombard Odier Singapore的策略师Homin Lee表示：“与4月30日以来出现的几次大幅波动相比，今日午后盘中的走势并不算特别剧烈，但我们认为这反映了与片山和贝森特东京会谈相关的最新消息，以及市场关于美日继续在日元汇率管理上默契协调的叙事。
 
 ## 相关推荐
 
-- 2026-06-30 05:50 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 05:52 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 05:24 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-30 05:42 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 05:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 05:47 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 05:38 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 05:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 05:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 05:24 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 05:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 05:48 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 05:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 05:35 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 05:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 05:33 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 05:40 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 05:53 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 05:59 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 05:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 05:43 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 05:38 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:27 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/657645.shtml)
-- 2026-06-30 05:48 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/3549255.shtml)
-- 2026-06-30 05:49 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/63138105547.shtml)
-- 2026-06-30 05:25 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/680062917280.shtml)
-- 2026-06-30 05:48 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/21296.shtml)
-- 2026-06-30 05:44 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/044526741.shtml)
-- 2026-06-30 05:39 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/31931674108.shtml)
-- 2026-06-30 05:24 - [千香](http://www.blog.kurohicncr.top/Article/details/47158583521.shtml)
-- 2026-06-30 05:27 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/5216849271.shtml)
-- 2026-06-30 05:27 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/34896632.shtml)
-- 2026-06-30 05:36 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/54867631465.shtml)
-- 2026-06-30 05:39 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/547445797273.shtml)
-- 2026-06-30 05:48 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/06713770932.shtml)
-- 2026-06-30 05:52 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/423551656592.shtml)
-- 2026-06-30 05:47 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/1222977.shtml)
+- 2026-06-30 05:57 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/2428440.shtml)
+- 2026-06-30 05:34 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/654154.shtml)
+- 2026-06-30 05:54 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/98044083.shtml)
+- 2026-06-30 05:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/607195485140.shtml)
+- 2026-06-30 05:38 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/63689.shtml)
+- 2026-06-30 05:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/4504944976.shtml)
+- 2026-06-30 05:53 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/494863.shtml)
+- 2026-06-30 05:34 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/7780093.shtml)
+- 2026-06-30 05:50 - [绘画区你赢了](http://www.share.minike.top/Article/details/0885410300.shtml)
+- 2026-06-30 05:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/758388.shtml)
+- 2026-06-30 05:32 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/7592470107.shtml)
+- 2026-06-30 05:43 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/51684.shtml)
+- 2026-06-30 05:48 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/11399341.shtml)
+- 2026-06-30 05:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/727284624.shtml)
+- 2026-06-30 05:45 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/299628296422.shtml)

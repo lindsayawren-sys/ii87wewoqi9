@@ -1,57 +1,51 @@
-# 伊利金领冠回应港版奶粉被召回：涉事产品未在内地销售
+# 微信转账，有新变化
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-6月3日，近日，香港食物环境卫生署食物安全中心发布通报，一批“金领冠珍护铂金阶段3”幼儿成长配方奶粉在抽检中被检出可能含有蜡样芽孢杆菌耐热毒素，相关产品已启动预防性召回。 据悉，本次涉事产品规格为750克，生产日期为2025年4月23日，保质期至2027年4月22日，原产地为内蒙古，由香港金泽商贸有限公司进口。公开资料显示，伊利金领冠是伊利集团旗下婴幼儿配方奶粉品牌。 对于该情
+新京报贝壳财经记者 韦英姿 编辑 岳彩周 校对 穆祥桐 5月11日，新京报贝壳财经记者自腾讯获悉，微信支付近期上线了“组合支付”功能，用户在进行转账时可在收银台任选“零钱、零钱通、经营账户、借记卡、分付”中的任意两种方式进行组合，完成支付。“组合支付”功能优先支持“转账”场景，其它场景将在后续逐步放开。 针对退款场景，据记者了解，如果使用组合支付完成的交易发生退款（例如对方未及
 
 ## 正文
 
-6月3日，近日，香港食物环境卫生署食物安全中心发布通报，一批“金领冠珍护铂金阶段3”幼儿成长配方奶粉在抽检中被检出可能含有蜡样芽孢杆菌耐热毒素，相关产品已启动预防性召回。
+新京报贝壳财经记者 韦英姿 编辑 岳彩周 校对 穆祥桐 5月11日，新京报贝壳财经记者自腾讯获悉，微信支付近期上线了“组合支付”功能，用户在进行转账时可在收银台任选“零钱、零钱通、经营账户、借记卡、分付”中的任意两种方式进行组合，完成支付。
 
-据悉，本次涉事产品规格为750克，生产日期为2025年4月23日，保质期至2027年4月22日，原产地为内蒙古，由香港金泽商贸有限公司进口。
+“组合支付”功能优先支持“转账”场景，其它场景将在后续逐步放开。
 
-公开资料显示，伊利金领冠是伊利集团旗下婴幼儿配方奶粉品牌。
+针对退款场景，据记者了解，如果使用组合支付完成的交易发生退款（例如对方未及时收款导致转账退回），资金会按照当初设定的支付金额，自动原路退回到当时使用的两个付款账户中（比如零钱和银行卡）。
 
-对于该情况，伊利金领冠官方客服向新浪财经表示：“本次召回涉及的是供应香港市场的单一批次产品，未在中国内地销售。
+腾讯表示，只要是完成了实名认证的微信支付用户（包含大陆身份证、回乡证、台胞证、护照及外国人永居证用户），都可以体验这项功能。
 
-您通过正规渠道购买的任何本公司产品，都经过严格质量检验，请您放心使用。
-
-”责任编辑：郭栩彤
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 05:47 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 05:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 05:37 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 05:47 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 05:34 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 05:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 05:48 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 05:41 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 05:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 05:40 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 05:44 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 05:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 05:53 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 05:40 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 05:46 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 05:30 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 05:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 05:30 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 05:37 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 05:59 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 05:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 05:43 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 05:40 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 05:37 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 05:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 05:49 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:36 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/491298030.shtml)
-- 2026-06-30 05:29 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/585264744.shtml)
-- 2026-06-30 05:25 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/495847.shtml)
-- 2026-06-30 05:39 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/792113779.shtml)
-- 2026-06-30 05:52 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/46496.shtml)
-- 2026-06-30 05:45 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/60701748354.shtml)
-- 2026-06-30 05:30 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/7727095099.shtml)
-- 2026-06-30 05:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/85305.shtml)
-- 2026-06-30 05:42 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/515432.shtml)
-- 2026-06-30 05:30 - [日本反击率先破门](https://www.share.minike.top/Article/details/45639098.shtml)
-- 2026-06-30 05:45 - [绘画区你赢了](https://www.blog.minike.top/Article/details/28711554.shtml)
-- 2026-06-30 05:40 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/6456963561.shtml)
-- 2026-06-30 05:24 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/79292.shtml)
-- 2026-06-30 05:46 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/545841.shtml)
-- 2026-06-30 05:41 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/25811202.shtml)
+- 2026-06-30 05:48 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/686836615949.shtml)
+- 2026-06-30 05:45 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/179915163.shtml)
+- 2026-06-30 05:54 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/056049117113.shtml)
+- 2026-06-30 05:52 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/2088785.shtml)
+- 2026-06-30 05:35 - [金刚川](http://www.blog.kurohicncr.top/Article/details/68738.shtml)
+- 2026-06-30 05:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/05013115.shtml)
+- 2026-06-30 05:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/045713.shtml)
+- 2026-06-30 05:57 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/2533134460.shtml)
+- 2026-06-30 05:46 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/710182837316.shtml)
+- 2026-06-30 05:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/7438721773.shtml)
+- 2026-06-30 05:37 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/38298873.shtml)
+- 2026-06-30 05:44 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/34240511050.shtml)
+- 2026-06-30 05:53 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/46274215687.shtml)
+- 2026-06-30 05:45 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/60600919.shtml)
+- 2026-06-30 05:45 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/069063.shtml)

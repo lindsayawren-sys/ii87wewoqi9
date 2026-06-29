@@ -1,61 +1,58 @@
-# 午后，生变！特朗普，关税又来了
+# 中国艺术家杨毅斌AI个展亮相威尼斯 8月将巡展至成都
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】市场冲高回落，特朗普关税又来了 中国基金报记者 泰勒 大家好啊，今天的市场，略微有些戏剧化。 盘中创业板指数跟科创50指数在光通信板块以及半导体板块的带领下，均大涨约4%，但在午后开盘不久，就开始持续跳水，一度几乎抹去了所有涨幅，但所幸尾盘“V”了回来，保住了一定的涨幅。 一起看看
+中新网北京5月11日电 (记者 高凯)中国青年艺术家杨毅斌个展“代际：100种愿景，100份礼物”日前亮相威尼斯。本次展览由威尼斯美术学院教授Paolo Fraternali策展，清华大学教授陈岸瑛担任学术主持。继威尼斯首展之后，该展览计划于2026年8月巡展至中国成都A4美术馆。 据介绍，本次展览打破传统的展陈模式，以“100件AI作品免费赠予观众”为核心互动环节，试图在智能
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京5月11日电 (记者 高凯)中国青年艺术家杨毅斌个展“代际：100种愿景，100份礼物”日前亮相威尼斯。
 
-来源：中国基金报 【导读】市场冲高回落，特朗普关税又来了 中国基金报记者 泰勒 大家好啊，今天的市场，略微有些戏剧化。
+本次展览由威尼斯美术学院教授Paolo Fraternali策展，清华大学教授陈岸瑛担任学术主持。
 
-盘中创业板指数跟科创50指数在光通信板块以及半导体板块的带领下，均大涨约4%，但在午后开盘不久，就开始持续跳水，一度几乎抹去了所有涨幅，但所幸尾盘“V”了回来，保住了一定的涨幅。
+继威尼斯首展之后，该展览计划于2026年8月巡展至中国成都A4美术馆。
 
-一起看看怎么回事。
+据介绍，本次展览打破传统的展陈模式，以“100件AI作品免费赠予观众”为核心互动环节，试图在智能时代的转折点上，借助AI这一媒介，回望并展望人类文明。
 
-午后生变 6月3日，市场全天冲高回落，创业板指一度站上4200点。
+展厅内的100件AI作品均带有专属编号与标签，所有到场观众无需登记信息或支付费用，只要对某件作品产生共鸣，即可当场将其免费摘下带走。
 
-截至收盘，沪指涨0.22%，深成指涨0.73%，创业板指涨1.65%。
+陈岸瑛表示，这种“零门槛”的赠予方式，让艺术的价值重新锚定在对文明的理解与对未来的责任之上。
 
-市场共1713只个股上涨，81只个股涨停，3727只个股下跌。
+对于“免费送画”的做法，杨毅斌表示，在人工智能时代，当图像生成的边际成本大幅降低、作品可以被无限复制时，艺术的真正价值已不再取决于它被封闭保存的稀缺程度，而在于它能被多少人看见、理解并分享。
 
-CPO、光纤概念股延续强势，天洋新材3连板，亨通光电2连板，中际旭创、新易盛、天孚通信股价均创新高。
+在展览现场，观众可以看到，结合柏拉图四美德重绘的《春》《夏》《秋》《冬》；致敬爱因斯坦、普朗克等科学家的《偶像》；探讨文明发展规律的《梯子》系列与《纪念碑》；以及反思当代消费文化的《拍卖空盒》与《当代美术屎》。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 05:51 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 05:24 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 05:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 05:35 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 05:31 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 05:41 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 05:39 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 05:47 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 05:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 05:51 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 05:28 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 05:45 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 05:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 05:36 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 05:49 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 05:54 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 05:49 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 05:54 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 05:45 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 05:36 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 05:50 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 05:39 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 05:34 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 05:50 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 05:54 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 05:38 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/637714029.shtml)
-- 2026-06-30 05:42 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/924414242.shtml)
-- 2026-06-30 05:49 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/014834249474.shtml)
-- 2026-06-30 05:37 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/31911903.shtml)
-- 2026-06-30 05:43 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/98255482085.shtml)
-- 2026-06-30 05:26 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/321971.shtml)
-- 2026-06-30 05:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/4131339.shtml)
-- 2026-06-30 05:27 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/188315751.shtml)
-- 2026-06-30 05:38 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/1819506.shtml)
-- 2026-06-30 05:38 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/508264.shtml)
-- 2026-06-30 05:25 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/3711181.shtml)
-- 2026-06-30 05:25 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/276386477.shtml)
-- 2026-06-30 05:42 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/20153997.shtml)
-- 2026-06-30 05:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/55066.shtml)
-- 2026-06-30 05:25 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/90213496.shtml)
+- 2026-06-30 05:46 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/17166320.shtml)
+- 2026-06-30 05:33 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/854564191379.shtml)
+- 2026-06-30 05:58 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/045097105480.shtml)
+- 2026-06-30 05:52 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/9276916.shtml)
+- 2026-06-30 05:51 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/310849706987.shtml)
+- 2026-06-30 05:54 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/7017981.shtml)
+- 2026-06-30 05:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/73394.shtml)
+- 2026-06-30 05:56 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/0002550.shtml)
+- 2026-06-30 05:32 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/749284282699.shtml)
+- 2026-06-30 05:36 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/013751767.shtml)
+- 2026-06-30 05:38 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/9505978.shtml)
+- 2026-06-30 05:57 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/4397401769.shtml)
+- 2026-06-30 05:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/1252357925.shtml)
+- 2026-06-30 05:34 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/402361532852.shtml)
+- 2026-06-30 05:57 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/16525.shtml)

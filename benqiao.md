@@ -1,56 +1,56 @@
-# 1500多项作品晋级第三届雄安未来之城场景汇系列大赛决赛
+# 日央行委员为加息做准备，贝森特东京会晤却默许干预，避谈加息
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-中新网雄安6月2日电 (赵丹媚 韩冰)6月2日，第三届雄安未来之城场景汇系列大赛决赛暨新场景展示体验月活动新闻发布会在雄安新区召开。据悉，1500多项作品晋级第三届雄安未来之城场景汇系列大赛决赛。 本届场景汇共有3400多家国内外企业团队、4500多项作品参赛，1500多项作品晋级决赛。活动期间还将召开雄安人工智能、低空经济、智慧医疗、智慧快递物流等产业生态大会或学术交流会，组
+来源：汇通网 汇通财经APP讯——美国财政部长斯科特·贝森特周二（5月12日）在东京与日本财务大臣片山皋月会晤后表示，美日在应对不良的、过度的汇率波动方面保持着“持续且强有力的”协调。这一表态暗示华盛顿基本默许日本近期为支撑疲软日元而进行的买入干预。日元贬值正通过推高进口成本对日本经济造成压力。 贝森特在社交媒体上发文称：“我很高兴重申美日之间牢固的经济伙伴关系。”他补充道：“
 
 ## 正文
 
-中新网雄安6月2日电 (赵丹媚 韩冰)6月2日，第三届雄安未来之城场景汇系列大赛决赛暨新场景展示体验月活动新闻发布会在雄安新区召开。
+来源：汇通网 汇通财经APP讯——美国财政部长斯科特·贝森特周二（5月12日）在东京与日本财务大臣片山皋月会晤后表示，美日在应对不良的、过度的汇率波动方面保持着“持续且强有力的”协调。
 
-据悉，1500多项作品晋级第三届雄安未来之城场景汇系列大赛决赛。
+这一表态暗示华盛顿基本默许日本近期为支撑疲软日元而进行的买入干预。
 
-本届场景汇共有3400多家国内外企业团队、4500多项作品参赛，1500多项作品晋级决赛。
+日元贬值正通过推高进口成本对日本经济造成压力。
 
-活动期间还将召开雄安人工智能、低空经济、智慧医疗、智慧快递物流等产业生态大会或学术交流会，组织系列场景、产业、资本对接活动。
+贝森特在社交媒体上发文称：“我很高兴重申美日之间牢固的经济伙伴关系。
 
-据介绍，本届场景汇系列大赛决赛，共有60多家行业龙头企业、230多家国家级专精特新企业、40多家科研院所、20多家知名高校入围。
+”他补充道：“我们团队在应对货币市场不良的、过度波动方面的沟通与协调水平，持续保持为‘持续且强有力的’。
 
-每项大赛都涌现出了一批颠覆性、原创性、引领性的创新成果，智能化无人化技术装备占比大幅提升，首发首创技术产品创下新高。
+” 市场反应：日元短暂跳涨后回落 贝森特发表上述言论后，美元兑日元一度升至约157.72日元，但随后突然跌至156.74日元。
 
-此外，本届场景汇将与决赛同步举办为期一个月的新场景展示体验活动，共安排常态化展示体验区3000平方米、临时展示体验区5000平方米，聚焦智能化、无人化、绿色化方向，以实物样品、沙盘模型、视频图文、元宇宙等方式，重点展示已经落地和正在落地的约700项高价值小切口和综合性重大场景，让人们在这里触摸未来技术、拥抱未来场景。
+美元兑日元的上涨是因为贝森特的表态未能满足市场对日元大幅下跌发出更强警告的预期，日元随后反弹。
 
-本届场景汇以“场景驱动创新、新质引领未来”为主题，将于6月10日至7月10日在雄安新区集中举办系列大赛决赛。
+目前尚不清楚这种上涨是否源于干预。
 
 ## 相关推荐
 
-- 2026-06-30 05:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 05:43 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 05:39 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 05:53 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 05:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 05:28 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 05:45 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 05:27 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 05:50 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 05:46 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 05:56 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 05:32 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 05:34 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 05:37 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 05:51 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 05:38 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 05:54 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 05:49 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 05:47 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 05:31 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:24 - [极限挑战第一季](https://www.share.minike.top/Article/details/765912870.shtml)
-- 2026-06-30 05:46 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/008184296273.shtml)
-- 2026-06-30 05:25 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/64325925.shtml)
-- 2026-06-30 05:47 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/2913260166.shtml)
-- 2026-06-30 05:50 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/058598064134.shtml)
-- 2026-06-30 05:42 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/816208754.shtml)
-- 2026-06-30 05:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/64842716.shtml)
-- 2026-06-30 05:42 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/64189.shtml)
-- 2026-06-30 05:43 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/557141074.shtml)
-- 2026-06-30 05:32 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/7288590457.shtml)
-- 2026-06-30 05:43 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/8220704.shtml)
-- 2026-06-30 05:31 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/838697.shtml)
-- 2026-06-30 05:41 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/248003354.shtml)
-- 2026-06-30 05:31 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/1588565841.shtml)
-- 2026-06-30 05:53 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/309438008.shtml)
+- 2026-06-30 05:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/395559999230.shtml)
+- 2026-06-30 05:57 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/19646.shtml)
+- 2026-06-30 05:44 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/5472611518.shtml)
+- 2026-06-30 05:59 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/145709430413.shtml)
+- 2026-06-30 05:32 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/806527613.shtml)
+- 2026-06-30 05:39 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/078608076.shtml)
+- 2026-06-30 05:50 - [日本反击率先破门](http://www.share.minike.top/Article/details/394597867014.shtml)
+- 2026-06-30 05:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/250101023.shtml)
+- 2026-06-30 05:56 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/866662070433.shtml)
+- 2026-06-30 05:39 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/48121124.shtml)
+- 2026-06-30 05:40 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/19236518.shtml)
+- 2026-06-30 05:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/2489880.shtml)
+- 2026-06-30 05:32 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/74319.shtml)
+- 2026-06-30 05:52 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/387660.shtml)
+- 2026-06-30 05:44 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/79430806148.shtml)

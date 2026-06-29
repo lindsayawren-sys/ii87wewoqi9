@@ -1,58 +1,57 @@
-# 大麻巨头Curaleaf官宣1比3反向拆股，备战转板纳斯达克
+# 谷歌母公司Alphabet拟首次发行日元债券以支持AI支出
 
-> 更新时间：2026-06-30 05:54:02 UTC+8
+> 更新时间：2026-06-30 06:00:02 UTC+8
 
 ## 摘要
 
-Curaleaf Holdings于6月3日宣布，此前披露的1比3反向股票分割将于2026年6月5日正式生效。此次合股是该公司为从场外市场转板至纳斯达克或纽交所上市所做的关键准备。 根据公告，目前流通在外的次级投票股约6.987亿股，按1比3比例合并后，将缩减至约2.329亿股。公司不会因本次拆股发行零碎股份，持股人应得的零碎股份将被四舍五入至最接近的整数股。反向拆股后，公司股
+一份销售文件显示，谷歌母公司Alphabet计划首次发行多档日元债券。多家科技巨头正日益通过发债为人工智能（AI）基础设施支出筹集资金。 销售文件未披露Alphabet债券发行的规模，但一位直接知情人士周一表示，此次发行总额预计将达数千亿日元。 一位知情人士周一表示，电商巨头亚马逊也正准备首次发行六部分组成的瑞郎债券。 这些海外债券发行凸显出AI支出激增正促使美国科技业者向海外
 
 ## 正文
 
-Curaleaf Holdings于6月3日宣布，此前披露的1比3反向股票分割将于2026年6月5日正式生效。
+一份销售文件显示，谷歌母公司Alphabet计划首次发行多档日元债券。
 
-此次合股是该公司为从场外市场转板至纳斯达克或纽交所上市所做的关键准备。
+多家科技巨头正日益通过发债为人工智能（AI）基础设施支出筹集资金。
 
-根据公告，目前流通在外的次级投票股约6.987亿股，按1比3比例合并后，将缩减至约2.329亿股。
+销售文件未披露Alphabet债券发行的规模，但一位直接知情人士周一表示，此次发行总额预计将达数千亿日元。
 
-公司不会因本次拆股发行零碎股份，持股人应得的零碎股份将被四舍五入至最接近的整数股。
+一位知情人士周一表示，电商巨头亚马逊也正准备首次发行六部分组成的瑞郎债券。
 
-反向拆股后，公司股票将继续在多伦多证券交易所交易，代码CURA不变，同时将启用新的CUSIP编号23126M300。
+这些海外债券发行凸显出AI支出激增正促使美国科技业者向海外投资者寻求资金。
 
-公司已向注册股东邮寄换股信函，通过经纪商持股的投资者无需自行操作。
+科技巨头今年AI基础设施支出料将超过7，000亿美元，较2025年的4，100亿美元大幅增长。
 
-Curaleaf董事长兼首席执行官Boris Jordan表示，医用大麻重新排期已为转板美国主要交易所创造了潜在路径，公司正与各大交易所磋商以确保满足其股价标准。
+这些公司不得不更多地依赖债务融资。
 
-他指出，随着7月大麻全面重新排期的听证会结束，以及美国财政部支持行业正常化的指引即将出台，监管和税收框架将很快更加清晰。
+销售文件显示，Alphabet发行的日元债券将包括三年、五年、七年、10年、15年、20年、30年和40年期，但根据需求和市场情况，可能取消其中一个或多个档次。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 05:30 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 05:32 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 05:48 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 05:25 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 05:28 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 05:24 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 05:37 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 05:51 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 05:25 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 05:35 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 05:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 05:30 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 05:42 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 05:40 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 05:47 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 05:46 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 05:41 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 05:54 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 05:54 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 05:48 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 05:57 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 05:51 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:52 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/062846538.shtml)
-- 2026-06-30 05:28 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/92265067.shtml)
-- 2026-06-30 05:51 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/187007971414.shtml)
-- 2026-06-30 05:50 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/720017588261.shtml)
-- 2026-06-30 05:32 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/586293.shtml)
-- 2026-06-30 05:48 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/3479784491.shtml)
-- 2026-06-30 05:51 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/4972886.shtml)
-- 2026-06-30 05:34 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/9741215311.shtml)
-- 2026-06-30 05:29 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/457164512237.shtml)
-- 2026-06-30 05:34 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/464700682539.shtml)
-- 2026-06-30 05:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/23794.shtml)
-- 2026-06-30 05:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/62621987.shtml)
-- 2026-06-30 05:24 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/437896262.shtml)
-- 2026-06-30 05:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/2255383.shtml)
-- 2026-06-30 05:43 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/60462.shtml)
+- 2026-06-30 05:57 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/00104.shtml)
+- 2026-06-30 05:57 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/88396847343.shtml)
+- 2026-06-30 05:54 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/356989128526.shtml)
+- 2026-06-30 05:41 - [啊啊啊](http://www.blog.minike.top/Article/details/227999963.shtml)
+- 2026-06-30 05:49 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/868911547.shtml)
+- 2026-06-30 05:36 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/10197.shtml)
+- 2026-06-30 05:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/3928722.shtml)
+- 2026-06-30 05:52 - [明星大侦探第一季](http://www.share.minike.top/Article/details/48733153.shtml)
+- 2026-06-30 05:52 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/35724891808.shtml)
+- 2026-06-30 05:57 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/5654193682.shtml)
+- 2026-06-30 05:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/54473.shtml)
+- 2026-06-30 05:51 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/3778742694.shtml)
+- 2026-06-30 05:53 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/8354178623.shtml)
+- 2026-06-30 05:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/80466939508.shtml)
+- 2026-06-30 05:49 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/06369356055.shtml)
