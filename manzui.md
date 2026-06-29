@@ -1,57 +1,52 @@
-# “六一”前雄安AI毛绒玩具走俏 商家瞄准成年人市场推“治愈系”玩偶
+# 乌克兰议会批准延长国家战时状态90天
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月29日 22:41 来源：中国新闻网 “六一”国际儿童节将至，今年的玩具流行趋势如何？近日，记者来到河北雄安新区容城县的中国(雄安新区)玩具总部基地实地走访，作为全国毛绒玩具主要集散中心，依托全国八成的市场份额、近120亿元的年销售产值，这里迎来产销旺季。 在一家大型毛绒玩具批发商的展厅内，门口醒目的位置摆放着AI智能玩偶。负责人介绍，相较于传统玩偶，
+新华社基辅4月28日电 据乌克兰国际文传电讯社报道，乌最高拉达(议会)28日投票批准将国家战时状态和军事动员延长90天。 27日，乌克兰总统泽连斯基向最高拉达递交了法令草案，提议将国家战时状态和军事动员从5月4日延长至8月2日，共90天。 据报道，关于延长国家战时状态和军事动员的法令草案分别获得315名、304名议员支持，均高于通过所需的226票。 这是自2022年2月俄乌冲突
 
 ## 正文
 
-发布时间：2026年05月29日 22:41 来源：中国新闻网 “六一”国际儿童节将至，今年的玩具流行趋势如何？
+新华社基辅4月28日电 据乌克兰国际文传电讯社报道，乌最高拉达(议会)28日投票批准将国家战时状态和军事动员延长90天。
 
-近日，记者来到河北雄安新区容城县的中国(雄安新区)玩具总部基地实地走访，作为全国毛绒玩具主要集散中心，依托全国八成的市场份额、近120亿元的年销售产值，这里迎来产销旺季。
+27日，乌克兰总统泽连斯基向最高拉达递交了法令草案，提议将国家战时状态和军事动员从5月4日延长至8月2日，共90天。
 
-在一家大型毛绒玩具批发商的展厅内，门口醒目的位置摆放着AI智能玩偶。
+据报道，关于延长国家战时状态和军事动员的法令草案分别获得315名、304名议员支持，均高于通过所需的226票。
 
-负责人介绍，相较于传统玩偶，搭载智能芯片的AI玩具可实现人机对话、指令互动、智能早教等多重功能，打破传统玩具单一观赏、陪伴的局限，产品附加值大幅提升。
-
-随着消费升级，智能化毛绒玩具开始成为市场新宠。
-
-今年“六一”前，该企业整体玩具订单同比增长30%，海外市场增长15%。
-
-其中，AI智能毛绒玩具订单占比显著提升，其不仅在国内市场受欢迎，也得到欧洲、日韩等海外客户青睐。
-
-瞄准当下年轻群体的情绪消费、解压需求，这家企业还开发推出专属成年人的AI情绪治愈系毛绒玩具，开拓全新消费赛道。
+这是自2022年2月俄乌冲突升级以来，乌最高拉达第19次批准延长相关法令。
 
 ## 相关推荐
 
-- 2026-06-30 01:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 02:01 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 01:52 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 01:43 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 01:50 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 01:49 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 02:04 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 01:42 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 02:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 01:50 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-30 01:45 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 02:16 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 01:55 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 02:13 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 02:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 02:05 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 02:04 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 02:12 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 02:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 02:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 02:15 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 02:13 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 02:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 02:01 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 02:14 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:06 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/16387484.shtml)
-- 2026-06-30 02:10 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/43563755.shtml)
-- 2026-06-30 01:54 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/1249258.shtml)
-- 2026-06-30 02:00 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/103467374742.shtml)
-- 2026-06-30 01:55 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/479411877160.shtml)
-- 2026-06-30 01:44 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/934615434676.shtml)
-- 2026-06-30 02:10 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/2950234328.shtml)
-- 2026-06-30 01:58 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/79481688210.shtml)
-- 2026-06-30 02:05 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/6041195964.shtml)
-- 2026-06-30 02:01 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/95135884464.shtml)
-- 2026-06-30 02:07 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/61030.shtml)
-- 2026-06-30 02:07 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/425116849.shtml)
-- 2026-06-30 02:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/72656575623.shtml)
-- 2026-06-30 02:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/031920429.shtml)
-- 2026-06-30 01:45 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/11863418893.shtml)
+- 2026-06-30 02:04 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/333329.shtml)
+- 2026-06-30 01:55 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/04526.shtml)
+- 2026-06-30 01:56 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/051442344.shtml)
+- 2026-06-30 01:58 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/494775939.shtml)
+- 2026-06-30 01:58 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/066631141.shtml)
+- 2026-06-30 02:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/990483.shtml)
+- 2026-06-30 02:08 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/400524.shtml)
+- 2026-06-30 02:01 - [第一炉香](https://www.share.kurohicncr.top/Article/details/970227268.shtml)
+- 2026-06-30 02:01 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/0474051117.shtml)
+- 2026-06-30 01:57 - [小娘惹](https://www.blog.minike.top/Article/details/01145110.shtml)
+- 2026-06-30 02:04 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/698985785.shtml)
+- 2026-06-30 02:17 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/104111.shtml)
+- 2026-06-30 01:59 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/02144142.shtml)
+- 2026-06-30 02:00 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/160786685.shtml)
+- 2026-06-30 01:55 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/862166057.shtml)

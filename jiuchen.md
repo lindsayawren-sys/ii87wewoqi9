@@ -1,61 +1,56 @@
-# 一纸警示函翻出11年前的旧案！脑机接口概念股创新医疗，监管追责+亏损扩大双重承压
+# 问界百万辆之后，豪华“标尺”已变
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：弃牛熊看K型 A股新杠铃结构勾勒配置方向 每经记者|许立波 每经编辑|黄胜 一纸来自浙江证监局的警示函，将创新医疗11年前的一桩旧案公之于众。 5月28日，创新医疗（002173.SZ，股价21.27元，市值93.86亿元）披露公告称，公司收到中国证券监督管理委员会浙江监管局出具的《关于对陈夏英、陈海军、浙商创投股份有限公
+导语：当爆款矩阵已经形成，问界如何继续放大平台能力的技术价值。2026北京车展上，问界最值得观察的部分，已超出新车本身。全新一代问界M9首次公开亮相，问界M6开启首批用户交付，魔方技术平台被放入“AI驱动、面向整车L4级具身智能演进”的新叙事中。三个动作同时出现，指向的是问界百万辆里程碑之后的下一层命题：当爆款矩阵已经形成，问界如何继续放大平台能力的技术价值。过去五年，问界完成
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：弃牛熊看K型 A股新杠铃结构勾勒配置方向 每经记者|许立波 每经编辑|黄胜 一纸来自浙江证监局的警示函，将创新医疗11年前的一桩旧案公之于众。
+导语：当爆款矩阵已经形成，问界如何继续放大平台能力的技术价值。
 
-5月28日，创新医疗（002173.SZ，股价21.27元，市值93.86亿元）披露公告称，公司收到中国证券监督管理委员会浙江监管局出具的《关于对陈夏英、陈海军、浙商创投股份有限公司采取出具警示函措施的决定》。
+2026北京车展上，问界最值得观察的部分，已超出新车本身。
 
-因涉及上市公司重大股权变动的《合作框架协议》及其相关配套协议未及时告知上市公司并履行信披义务，控股股东、实际控制人陈夏英、一致行动人陈海军以及浙商创投股份有限公司（以下简称浙商创投）等分别被监管机构采取出具警示函的监督管理措施，并记入证券期货市场诚信档案。
+全新一代问界M9首次公开亮相，问界M6开启首批用户交付，魔方技术平台被放入“AI驱动、面向整车L4级具身智能演进”的新叙事中。
 
-在监管压力之外，公司正面临严峻的业绩滑坡。
+三个动作同时出现，指向的是问界百万辆里程碑之后的下一层命题：当爆款矩阵已经形成，问界如何继续放大平台能力的技术价值。
 
-2026年第一季度，创新医疗扣非后归母净利润亏损达2528.74万元，同比下滑68.92%。
+过去五年，问界完成了从0到100万辆的关键跨越。
 
-这封警示函，源于一桩发生在2015年的旧事。
+更重要的是，它已经在不同价格段连续打出爆款：问界M9站稳高端豪华SUV市场，问界M8承接高端家庭用户，问界M7承担规模转化，问界M6切入年轻主流市场。
 
-最新公告称，根据浙江证监局现场检查，2015年3月26日，陈夏英、陈海军与浙商创投三方签署了涉及公司重大股权变动等内容的《合作框架协议》，后续与浙商创投指定主体陆续签署相关配套协议。
+在这个坐标下，M9和M6的意义更加清晰。
 
-值得注意的是，该《合作框架协议》以及相关配套协议签署情况未及时告知上市公司，未履行有关信息披露义务。
+M9继续把问界的智能豪华向上推，M6则把高阶安全、智能底盘和辅助驾驶能力带入更大的年轻用户盘。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 02:04 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 01:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 01:45 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 01:47 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 02:02 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 02:05 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 01:42 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 02:06 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 02:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 02:11 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 01:45 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 01:49 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 02:02 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 01:59 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 01:48 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 01:51 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 01:49 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 02:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 01:57 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 02:04 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 01:53 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 01:55 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 01:51 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 01:49 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/6653547.shtml)
-- 2026-06-30 01:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/129204.shtml)
-- 2026-06-30 01:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/91404202.shtml)
-- 2026-06-30 02:06 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/301628403.shtml)
-- 2026-06-30 01:58 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/213084.shtml)
-- 2026-06-30 01:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/233293536341.shtml)
-- 2026-06-30 01:47 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/144897192.shtml)
-- 2026-06-30 01:54 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/0840698551.shtml)
-- 2026-06-30 01:52 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/128989.shtml)
-- 2026-06-30 01:53 - [恋与深空 日服](https://www.blog.minike.top/Article/details/798001.shtml)
-- 2026-06-30 01:49 - [爱很美味](http://www.share.minike.top/Article/details/65388.shtml)
-- 2026-06-30 01:48 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/58156227457.shtml)
-- 2026-06-30 02:07 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/34764184.shtml)
-- 2026-06-30 02:04 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/375741223.shtml)
-- 2026-06-30 01:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/517002.shtml)
+- 2026-06-30 01:56 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/84960024.shtml)
+- 2026-06-30 01:52 - [千香](https://www.blog.kurohicncr.top/Article/details/77101860.shtml)
+- 2026-06-30 01:52 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/9590691289.shtml)
+- 2026-06-30 02:01 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/5067896598.shtml)
+- 2026-06-30 01:50 - [国常会听取人工智能发展情况汇报](https://www.blog.kurohicncr.top/Article/details/165649.shtml)
+- 2026-06-30 02:13 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/90496.shtml)
+- 2026-06-30 02:03 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/03037723941.shtml)
+- 2026-06-30 01:52 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/65700097.shtml)
+- 2026-06-30 02:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/6342486808.shtml)
+- 2026-06-30 02:09 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/96261061076.shtml)
+- 2026-06-30 01:51 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/849425635951.shtml)
+- 2026-06-30 02:07 - [《贺子珍》](http://www.blog.minike.top/Article/details/9941937880.shtml)
+- 2026-06-30 02:01 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/85830651.shtml)
+- 2026-06-30 01:57 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/0887683543.shtml)
+- 2026-06-30 01:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/6268545437.shtml)

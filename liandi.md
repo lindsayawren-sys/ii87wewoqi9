@@ -1,58 +1,60 @@
-# 保密形式递表，睿触机器人冲刺港股“穿刺机器人第一股”
+# 光大期货：4月30日矿钢煤焦日报
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-来源：IPO日报 2026 年 5 月，睿触机器人正式递交港交所 IPO 申请。作为国内经皮穿刺手术机器人赛道领军企业，其核心产品 RC120 已开始商业化，但公司面临商业化的早期困境，报告期内营收近乎空白、持续亏损、现金流流出明显，产能受限。 5月27日，港交所披露信息显示，上海睿触机器人股份有限公司（下称“睿触机器人”）正式向主板递交上市申请，光大证券国际担任独家保荐人。
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面有所反弹，截止日盘螺纹2610合约收盘价格为3195元/吨，较上一交易收盘价格上涨19元/吨，涨幅为0.6%，持仓增加5.25万手。现货价格小幅上涨，成交回升，唐山地区迁安普方坯价格上涨10元/吨至3030元/吨，杭州市场中天螺纹价格上涨10元/吨至3220元/ 吨，全国建材成交量
 
 ## 正文
 
-来源：IPO日报 2026 年 5 月，睿触机器人正式递交港交所 IPO 申请。
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面有所反弹，截止日盘螺纹2610合约收盘价格为3195元/吨，较上一交易收盘价格上涨19元/吨，涨幅为0.6%，持仓增加5.25万手。
 
-作为国内经皮穿刺手术机器人赛道领军企业，其核心产品 RC120 已开始商业化，但公司面临商业化的早期困境，报告期内营收近乎空白、持续亏损、现金流流出明显，产能受限。
+现货价格小幅上涨，成交回升，唐山地区迁安普方坯价格上涨10元/吨至3030元/吨，杭州市场中天螺纹价格上涨10元/吨至3220元/ 吨，全国建材成交量12.91万吨。
 
-5月27日，港交所披露信息显示，上海睿触机器人股份有限公司（下称“睿触机器人”）正式向主板递交上市申请，光大证券国际担任独家保荐人。
+中央政治局会议指出要纵深推进全国统一大市场建设，深入整治“内卷式”竞争，市场对于后期供给端政策仍有一定预期，提振市场信心。
 
-目前披露的招股书是睿触机器人于 2025 年 12 月 5 日以保密形式完成递表的，公司已于2026 年 5 月 22 日获得证监会境外发行上市及境内未上市股份 “全流通” 备案通知书。
+临近五一假期，部分终端用户仍有补库需求，市场成交有所好转，商家整体库存压力不大。
 
-一旦挂牌，睿触机器人有望成为港股“经皮穿刺手术机器人第一股”。
+预计短期螺纹盘面或窄幅震荡运行为主。
 
-张力制图 保密递表（俗称 “密交”），是港交所允许符合条件的企业在提交 IPO 申请至通过上市聆讯前，不对外公开招股书（申请版本），仅由港交所、证监会与保荐人等中介机构审阅，全程处于 “非公开状态”。
+铁矿石： （柳浠，从业资格号：F03087689；交易咨询资格号：Z0019538） 昨日铁矿石期货主力合约i2609价格有所上涨，收于787.5元/吨，较前一个交易日收盘价上涨7元/吨，涨幅为0.9%，成交17.79万手，增仓0.65万手。
 
-2025 年 5 月，港交所推出“科企专线”，首次允许18A 章生物科技公司（未盈利、医疗器械 / 创新药等）、18C 章特专科技公司（高端制造、机器人、AI 等）进行保密递表，以便保护技术秘密、减少舆情干扰、灵活选择上市窗口。
+港口现货主流品种市场价格，现60.8%PB粉772涨6，超特粉652涨7。
 
-2026 年 3 月：港交所建议全面放开至所有 IPO 企业，目前尚未正式生效。
+供应端，澳洲发运量有所回升，巴西发运量小幅下降。
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 01:45 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 01:51 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 01:51 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 01:54 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 01:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 01:59 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 01:54 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 02:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 02:06 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 02:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 01:50 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 02:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 02:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 01:54 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 02:03 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 02:04 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 01:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 02:15 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 01:57 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 02:10 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 01:58 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 01:58 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 02:14 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 02:11 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 01:50 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:00 - [日本反击率先破门](https://www.blog.minike.top/Article/details/642104012.shtml)
-- 2026-06-30 01:59 - [起风了](http://www.blog.kurohicncr.top/Article/details/058264321801.shtml)
-- 2026-06-30 01:55 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/34807906.shtml)
-- 2026-06-30 01:54 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/0908157687.shtml)
-- 2026-06-30 01:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/507187297282.shtml)
-- 2026-06-30 02:03 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/731815470088.shtml)
-- 2026-06-30 01:43 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/55028442.shtml)
-- 2026-06-30 01:42 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/727807.shtml)
-- 2026-06-30 02:10 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/4780415705.shtml)
-- 2026-06-30 02:11 - [啊啊啊](http://www.share.minike.top/Article/details/77813.shtml)
-- 2026-06-30 01:48 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/78615.shtml)
-- 2026-06-30 01:49 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/957059.shtml)
-- 2026-06-30 01:52 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/45197565495.shtml)
-- 2026-06-30 01:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/630976.shtml)
-- 2026-06-30 02:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/19669.shtml)
+- 2026-06-30 02:00 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/1387873.shtml)
+- 2026-06-30 02:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/39531.shtml)
+- 2026-06-30 02:13 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/90923545.shtml)
+- 2026-06-30 02:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/08481769596.shtml)
+- 2026-06-30 01:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/88674653.shtml)
+- 2026-06-30 01:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/69749054292.shtml)
+- 2026-06-30 02:06 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/4059057.shtml)
+- 2026-06-30 02:03 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/03935243.shtml)
+- 2026-06-30 02:17 - [恋与深空致歉](http://www.blog.minike.top/Article/details/31744455.shtml)
+- 2026-06-30 02:04 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/531006841.shtml)
+- 2026-06-30 02:10 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/618791415782.shtml)
+- 2026-06-30 01:49 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/6475189.shtml)
+- 2026-06-30 02:01 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/49207.shtml)
+- 2026-06-30 01:51 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/33957128.shtml)
+- 2026-06-30 02:01 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/3721637.shtml)

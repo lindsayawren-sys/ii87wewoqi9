@@ -1,58 +1,59 @@
-# 鸿富诚IPO：“补流+储备资金”募资额合计占比超45%是否合规？华源证券保荐“独苗”成色待考
+# 两个中部省份，打响“十强”卡位战
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 5月26日，深圳市鸿富诚新材料股份有限公司（以下简称“鸿富诚”）已披露了第二轮问询回复公告，继续推进创业板IPO进程，保荐券商为华源证券。 鸿富诚此次IPO拟募资12.2亿元，其中补充流动资金拟投入2.5亿元，发展与科技储备资金拟投入3亿元，二者合计
+每经记者|杨弃非 每经编辑|刘艳美 中部竞逐正日趋白热化。今年一季度，“赛点”在湖南与安徽之间展开。 湖南一季度GDP为13156.1亿元，继续位居全国前十，但同比增速仅3.0%，低于全国平均线2个百分点，在全国排名倒数第二、中部省份最低；紧随其后的安徽，GDP增速达5.8%，总量升至13014亿元，距离反超湖南仅差一个身位。 两省的差距主要体现在工业上。今年一季度，湖南规上工
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+每经记者|杨弃非 每经编辑|刘艳美 中部竞逐正日趋白热化。
 
-出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 5月26日，深圳市鸿富诚新材料股份有限公司（以下简称“鸿富诚”）已披露了第二轮问询回复公告，继续推进创业板IPO进程，保荐券商为华源证券。
+今年一季度，“赛点”在湖南与安徽之间展开。
 
-鸿富诚此次IPO拟募资12.2亿元，其中补充流动资金拟投入2.5亿元，发展与科技储备资金拟投入3亿元，二者合计5.5亿元，占总募资额的比例为45%，超过30%。
+湖南一季度GDP为13156.1亿元，继续位居全国前十，但同比增速仅3.0%，低于全国平均线2个百分点，在全国排名倒数第二、中部省份最低；紧随其后的安徽，GDP增速达5.8%，总量升至13014亿元，距离反超湖南仅差一个身位。
 
-问题是，发展与科技储备资金本质上是否属于补充流动资金？
+两省的差距主要体现在工业上。
 
-如果属于，鸿富诚IPO募资方案则触及“30%”的不成文的“红线”。
+今年一季度，湖南规上工业增速仅2.4%，排名全国倒数第三，仅高于云南和辽宁；而安徽规上工业增速高达11.0%，排名全国第三，仅次于西藏和青海。
 
-即便按照“轻资产、高研发投入”企业的认定条件评判，鸿富诚也不适用于突破“30%”限制的情况。
+尤其值得关注的是，湖南高技术制造业增加值增速仅3.7%，远低于安徽（38.9%）、湖北（29.1%）和河南（23.4%）。
 
-与同行可比公司相比，鸿富诚毛利率明显偏高。
+湖南和安徽恰似硬币的两面。
 
-高毛利率背后，公司部分供应商存在疑点，2022-2024年第一大供应商在2025年6月之前的注册地址，与鸿富诚重庆子公司相同。
+不同于安徽近年来新兴产业不断“出新”，湖南则困于传统强项工程机械产业发展遇阻、新兴产业又尚未成气候的尴尬局面。
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 01:55 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 01:51 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 01:53 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 01:42 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 02:04 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 01:49 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 01:50 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 02:02 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 01:51 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 01:50 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 02:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 01:49 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 02:07 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 02:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 02:02 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 02:14 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 02:16 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 02:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 01:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 02:00 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 01:51 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 01:55 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 01:48 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 02:09 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/12082.shtml)
-- 2026-06-30 02:04 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/86523325.shtml)
-- 2026-06-30 01:44 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/305726091166.shtml)
-- 2026-06-30 01:50 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/945281.shtml)
-- 2026-06-30 01:53 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/00748.shtml)
-- 2026-06-30 01:46 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/8418444.shtml)
-- 2026-06-30 01:54 - [金刚川](http://www.blog.minike.top/Article/details/8044110.shtml)
-- 2026-06-30 01:47 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/4299931526.shtml)
-- 2026-06-30 01:48 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/858053451116.shtml)
-- 2026-06-30 02:06 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/286342.shtml)
-- 2026-06-30 02:10 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/90769280.shtml)
-- 2026-06-30 02:06 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/56674.shtml)
-- 2026-06-30 01:53 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/82398.shtml)
-- 2026-06-30 01:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/73727382033.shtml)
-- 2026-06-30 01:44 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/26040935.shtml)
+- 2026-06-30 01:51 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/942025228181.shtml)
+- 2026-06-30 02:05 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/858143835.shtml)
+- 2026-06-30 01:56 - [刘念回应](http://www.blog.minike.top/Article/details/31660653505.shtml)
+- 2026-06-30 02:07 - [85花告别古偶](http://www.share.minike.top/Article/details/8748299300.shtml)
+- 2026-06-30 01:54 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/16360251114.shtml)
+- 2026-06-30 02:09 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/86076.shtml)
+- 2026-06-30 02:03 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/939388589.shtml)
+- 2026-06-30 02:10 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/223992803707.shtml)
+- 2026-06-30 02:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/5083641.shtml)
+- 2026-06-30 02:03 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/631575.shtml)
+- 2026-06-30 01:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/982764198.shtml)
+- 2026-06-30 02:10 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/09774159827.shtml)
+- 2026-06-30 02:16 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/26249444.shtml)
+- 2026-06-30 01:51 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/5412801.shtml)
+- 2026-06-30 02:01 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/02011.shtml)

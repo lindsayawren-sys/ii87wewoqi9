@@ -1,51 +1,51 @@
-# 香港公布印花税修订草案 巩固离岸人民币枢纽地位
+# 威海银行：周亮获批担任非执行董事
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新社香港5月29日电 香港特区政府29日于宪报刊登《2026年印花税(修订)(第2号)条例草案》(下称“条例草案”)，以订明双柜台证券人民币柜台交易的印花税以人民币计算和缴付。 香港特区政府发言人表示，2025年施政报告中宣布特区政府将落实以人民币支付人民币柜台股票印花税的安排，让投资者在人民币柜台同时以人民币结算交易及相关的印花税和其他征费。有关安排预期可增加人民币柜台的成
+4月29日金融一线消息，威海银行日前发布公告称，该行收到《山东金融监管局关于周亮威海银行董事任职资格的批复》（鲁金复\[2026\]150号），国家金融监督管理总局山东监管局已核准周亮担任非执行董事的任职资格。周亮担任该行非执行董事的任职已于2026年4月27日生效，康建不再担任该行非执行董事及董事会相关专门委员会职务。 责任编辑：曹睿潼
 
 ## 正文
 
-中新社香港5月29日电 香港特区政府29日于宪报刊登《2026年印花税(修订)(第2号)条例草案》(下称“条例草案”)，以订明双柜台证券人民币柜台交易的印花税以人民币计算和缴付。
+4月29日金融一线消息，威海银行日前发布公告称，该行收到《山东金融监管局关于周亮威海银行董事任职资格的批复》（鲁金复\[2026\]150号），国家金融监督管理总局山东监管局已核准周亮担任非执行董事的任职资格。
 
-香港特区政府发言人表示，2025年施政报告中宣布特区政府将落实以人民币支付人民币柜台股票印花税的安排，让投资者在人民币柜台同时以人民币结算交易及相关的印花税和其他征费。
+周亮担任该行非执行董事的任职已于2026年4月27日生效，康建不再担任该行非执行董事及董事会相关专门委员会职务。
 
-有关安排预期可增加人民币柜台的成交额及流动性，从而强化人民币作为国际投资货币的功能，进一步巩固香港作为领先离岸人民币业务枢纽的地位。
-
-该条例草案将于6月10日提交立法会进行首读。
-
-(完)
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 01:51 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 01:54 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 01:55 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 01:49 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 01:47 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 02:01 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 01:54 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 01:53 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 02:02 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 01:51 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 01:51 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 02:12 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 02:07 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 01:51 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 02:12 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 02:13 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 01:56 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 01:57 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 01:54 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 02:10 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 02:12 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 02:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 02:05 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 01:52 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 02:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 01:54 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/594270706506.shtml)
-- 2026-06-30 02:06 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/4507748069.shtml)
-- 2026-06-30 01:44 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/5067529628.shtml)
-- 2026-06-30 01:53 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/210947.shtml)
-- 2026-06-30 02:05 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/27569.shtml)
-- 2026-06-30 01:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/48188669023.shtml)
-- 2026-06-30 01:54 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/596464.shtml)
-- 2026-06-30 02:00 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/11833.shtml)
-- 2026-06-30 02:08 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/5481106341.shtml)
-- 2026-06-30 02:02 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/75224367323.shtml)
-- 2026-06-30 01:49 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/065349043576.shtml)
-- 2026-06-30 01:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/958450.shtml)
-- 2026-06-30 01:59 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/544483.shtml)
-- 2026-06-30 01:50 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/092661315.shtml)
-- 2026-06-30 02:07 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/158005776942.shtml)
+- 2026-06-30 01:58 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/377822.shtml)
+- 2026-06-30 02:10 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/463264.shtml)
+- 2026-06-30 01:56 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/2517198.shtml)
+- 2026-06-30 02:17 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/076761463361.shtml)
+- 2026-06-30 01:51 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/947196957821.shtml)
+- 2026-06-30 01:51 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/072086.shtml)
+- 2026-06-30 02:16 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/87615720.shtml)
+- 2026-06-30 02:05 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/32519124.shtml)
+- 2026-06-30 01:56 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/74392046.shtml)
+- 2026-06-30 01:51 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/10279.shtml)
+- 2026-06-30 01:57 - [毒液2](http://www.blog.minike.top/Article/details/378456.shtml)
+- 2026-06-30 01:52 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/52368.shtml)
+- 2026-06-30 01:58 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/06704661.shtml)
+- 2026-06-30 02:14 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/03635760528.shtml)
+- 2026-06-30 01:57 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/9452415721.shtml)

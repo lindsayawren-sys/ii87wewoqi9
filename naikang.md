@@ -1,58 +1,46 @@
-# 星巴克转型初见成效，午后到店客流持续攀升
+# 探访水库备汛现场：原来启闭闸门的机器长这样
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-核心要点 星巴克内部美国市场数据显示（统计区间：2 月 15 日至 5 月 16 日），下午 2 点后的到店客流增长显著，其中下午 3 点至 5 点增速最快。 焕新饮品系列成为增长主力，目前销量仅次于浓缩咖啡，位列星巴克第二大饮品品类。 首席执行官布莱恩・尼科尔将午后时段视为重要增长机遇，发力争夺当日复购顾客，应对同行竞争。 星巴克周四表示，午后客流正成为公司新的核心增长动力，
+发布时间：2026年04月30日 14:45 来源：中国新闻网 4月29日，中新网记者随水利部“防汛备汛行”采访团来到山东省临沂市岸堤水库，了解岸堤水库防汛备汛情况。(邵萌） 责任编辑：【袁秀月】
 
 ## 正文
 
-核心要点 星巴克内部美国市场数据显示（统计区间：2 月 15 日至 5 月 16 日），下午 2 点后的到店客流增长显著，其中下午 3 点至 5 点增速最快。
+发布时间：2026年04月30日 14:45 来源：中国新闻网 4月29日，中新网记者随水利部“防汛备汛行”采访团来到山东省临沂市岸堤水库，了解岸堤水库防汛备汛情况。
 
-焕新饮品系列成为增长主力，目前销量仅次于浓缩咖啡，位列星巴克第二大饮品品类。
-
-首席执行官布莱恩・尼科尔将午后时段视为重要增长机遇，发力争夺当日复购顾客，应对同行竞争。
-
-星巴克周四表示，午后客流正成为公司新的核心增长动力，这也是首席执行官布莱恩・尼科尔主导的转型战略取得阶段性进展的体现。
-
-星巴克 CNBC 独家分享了近 90 天（2 月 15 日至 5 月 16 日）的美国市场数据：门店下午 2 点后的到店客群明显增多，下午 3 点至 5 点为客流增长最强时段。
-
-星巴克一直试图摆脱过度依赖早高峰客流的现状，这一数据释放出积极信号。
-
-尼科尔正带领品牌重回稳定增长轨道，公司现阶段目标是提升全天复购率、延长顾客到店停留时长。
-
-星巴克全球营销及渠道发展高级副总裁艾琳・西尔沃伊表示：“越来越多消费者选择在午后进店，或是短暂休憩、饮用清爽饮品，或是在店内稍作停留。
+(邵萌） 责任编辑：【袁秀月】
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 02:09 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 02:11 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-30 01:43 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 02:09 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 02:01 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 02:08 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 01:47 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 01:45 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 01:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 02:05 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 01:49 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 02:06 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 02:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 02:09 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 01:48 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 02:06 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 01:53 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 02:03 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 02:05 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 02:06 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 02:16 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 01:50 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 01:58 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/05224622601.shtml)
-- 2026-06-30 01:46 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/518392800159.shtml)
-- 2026-06-30 02:00 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/9002573643.shtml)
-- 2026-06-30 01:49 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/5723487822.shtml)
-- 2026-06-30 01:52 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/331472184.shtml)
-- 2026-06-30 01:59 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/450746264.shtml)
-- 2026-06-30 01:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/4245832.shtml)
-- 2026-06-30 01:45 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/51614.shtml)
-- 2026-06-30 02:11 - [日本进球](https://www.share.minike.top/Article/details/90760.shtml)
-- 2026-06-30 02:02 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/61245.shtml)
-- 2026-06-30 01:52 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/9816068.shtml)
-- 2026-06-30 02:02 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/323339532.shtml)
-- 2026-06-30 02:07 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/961332394176.shtml)
-- 2026-06-30 02:00 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/51366.shtml)
-- 2026-06-30 02:01 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/627657329592.shtml)
+- 2026-06-30 02:14 - [点菜也要教吗](https://www.blog.minike.top/Article/details/742482187.shtml)
+- 2026-06-30 02:05 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/362338.shtml)
+- 2026-06-30 01:59 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/19966836.shtml)
+- 2026-06-30 02:02 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/849151.shtml)
+- 2026-06-30 02:04 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/45410425522.shtml)
+- 2026-06-30 01:58 - [千香](http://www.share.kurohicncr.top/Article/details/84774480.shtml)
+- 2026-06-30 01:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/23034071598.shtml)
+- 2026-06-30 02:13 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/8483000.shtml)
+- 2026-06-30 02:07 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/84339.shtml)
+- 2026-06-30 02:07 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/58133345.shtml)
+- 2026-06-30 02:11 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/23351427.shtml)
+- 2026-06-30 01:55 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/92397246.shtml)
+- 2026-06-30 02:01 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/4245471.shtml)
+- 2026-06-30 02:09 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/88362.shtml)
+- 2026-06-30 01:57 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/97689644.shtml)

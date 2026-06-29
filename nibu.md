@@ -1,58 +1,61 @@
-# 中国首个“亿级车企”诞生
+# 开盘：美股周二开盘涨跌不一 OpenAI疲软报告令科技股承压
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新社上海5月28日电 (谢梦圆)上汽集团于28日下午迎来全球第一亿位用户，并由此成为中国汽车史上首家累计产销量突破1亿辆的汽车集团。历经70余年发展，上汽与众多中国车企共同见证并推动了中国汽车工业从无到有、从弱到强、从“跟随学习”到“创新引领”的征程。上汽是“走出去”时间最早、规模最大的中国汽车企业，正加速全球化布局，从产品出海进阶到价值链输出。2001年上汽首次实现乘用车出
+北京时间4月28日晚，美股周二开盘涨跌不一，科技股跌幅领先。油价上涨以及OpenAI发布的疲软报告令科技股承压。阿联酋宣布退出OPEC。 道指涨136.26点，涨幅为0.28%，报49304.05点；纳指跌311.41点，跌幅为1.25%，报24575.69点；标普500指数跌41.69点，跌幅为0.58%，报7132.22点。 据报道，OpenAI近期营收和新用户增长均低于其
 
 ## 正文
 
-中新社上海5月28日电 (谢梦圆)上汽集团于28日下午迎来全球第一亿位用户，并由此成为中国汽车史上首家累计产销量突破1亿辆的汽车集团。
+北京时间4月28日晚，美股周二开盘涨跌不一，科技股跌幅领先。
 
-历经70余年发展，上汽与众多中国车企共同见证并推动了中国汽车工业从无到有、从弱到强、从“跟随学习”到“创新引领”的征程。
+油价上涨以及OpenAI发布的疲软报告令科技股承压。
 
-上汽是“走出去”时间最早、规模最大的中国汽车企业，正加速全球化布局，从产品出海进阶到价值链输出。
+阿联酋宣布退出OPEC。
 
-2001年上汽首次实现乘用车出口，如今产品和服务已遍布全球170多个国家和地区，海外累计交付超700万辆。
+道指涨136.26点，涨幅为0.28%，报49304.05点；纳指跌311.41点，跌幅为1.25%，报24575.69点；标普500指数跌41.69点，跌幅为0.58%，报7132.22点。
 
-在海外，上汽拥有超100个零部件生产基地、超3000个经销商网络，建成伦敦等三大研发创新中心，以及泰国、印尼、印度、巴基斯坦4个生产制造中心，并组建了中国第一、全球领先的整车物流自营船队。
+据报道，OpenAI近期营收和新用户增长均低于其内部目标。
 
-2025年，上汽发布海外“Glocal战略”——“全球+本土”组合战略，依托深厚的电动智能网联技术积累，上汽积极打造包括SUV、轿车、MPV、皮卡在内的全新海外车型，搭载全新HEV混合动力系统的车型将覆盖全球主流细分市场，固态电池等颠覆性技术也将逐步实现落地应用，进一步打造全球汽车品牌和本地化体系生态。
+报道称，首席财务官萨拉-弗里尔已向领导层表达担忧，若收入增长不够快，OpenAI未来可能无力支付算力合同。
 
-(完)
+这一消息拖累科技股走低。
+
+英伟达下跌逾2%，博通下跌逾4%，AMD和英特尔分别下跌近6%和4%，甲骨文下跌逾7%。
 
 ## 相关推荐
 
-- 2026-06-30 02:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 02:04 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 01:52 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 01:58 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 02:06 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 02:05 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 01:50 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 01:48 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 01:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 02:04 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 02:09 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 01:48 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 02:02 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 01:50 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 02:11 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 01:48 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 01:58 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 02:10 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 01:48 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 02:14 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 01:55 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 02:00 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 01:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 02:06 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 01:53 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 02:16 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 01:48 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 02:16 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 01:48 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:08 - [急先锋](http://www.blog.kurohicncr.top/Article/details/92437.shtml)
-- 2026-06-30 01:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/663708748752.shtml)
-- 2026-06-30 01:53 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/176386323.shtml)
-- 2026-06-30 01:56 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/957128.shtml)
-- 2026-06-30 01:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/145556.shtml)
-- 2026-06-30 01:57 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/270074.shtml)
-- 2026-06-30 02:07 - [点菜也要教吗](http://www.blog.minike.top/Article/details/6656473068.shtml)
-- 2026-06-30 02:01 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/422941795.shtml)
-- 2026-06-30 01:57 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/13292611163.shtml)
-- 2026-06-30 02:11 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/60954386.shtml)
-- 2026-06-30 01:52 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/622770659434.shtml)
-- 2026-06-30 02:10 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/236756.shtml)
-- 2026-06-30 01:56 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/299448.shtml)
-- 2026-06-30 01:45 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/5229272.shtml)
-- 2026-06-30 01:54 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/25668002871.shtml)
+- 2026-06-30 01:51 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/305806.shtml)
+- 2026-06-30 02:03 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/744514550084.shtml)
+- 2026-06-30 01:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/91261976.shtml)
+- 2026-06-30 02:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/880282.shtml)
+- 2026-06-30 01:53 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/0871048.shtml)
+- 2026-06-30 02:13 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/468262.shtml)
+- 2026-06-30 02:14 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/07147.shtml)
+- 2026-06-30 01:55 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/666164.shtml)
+- 2026-06-30 02:11 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/396361322120.shtml)
+- 2026-06-30 02:10 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/986719837828.shtml)
+- 2026-06-30 02:02 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/17563915.shtml)
+- 2026-06-30 02:02 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/44624043735.shtml)
+- 2026-06-30 01:59 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/5422944.shtml)
+- 2026-06-30 01:54 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/771455859.shtml)
+- 2026-06-30 02:06 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/165170792.shtml)

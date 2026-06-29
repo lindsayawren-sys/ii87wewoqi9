@@ -1,59 +1,56 @@
-# 花旗：小米集团-W重申“买入”评级 维持目标价37港元
+# 胖东来回应“249元奢侈品毛巾” 将进行严谨的落实和完善
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-花旗发布研报称，小米集团-W（01810）永久下调其“MiMo-V2.5”系列大语言模型（LLM）的API价格高达99%发表看法此项激进的降价举措于5月27日生效并在全球范围内实施，目的是与竞争对手保持一致。该行重申对其“买入”评级，维持目标价37港元。 此前，DeepSeek已于四天前永久下调其V4 Pro API价格达75%。小米管理层在5月26日的业绩简报会中曾透露，其A
+4月29日，胖东来发布关于“博主惊梦人发布探店观点”的说明，回应其提出“249元奢侈品毛巾”“令人失望”“走不出河南”等观点。 胖东来称，该博主发布多条对胖东来门店实地探访的视频，对于发表的视频观点中，“其对胖东来经营初心、经营理念的歪曲解读、盲目靠自我意识随意猜测、不负责任乃至污蔑性的言论，严重侵害胖东来品牌和社会信任，我们已启动依法维权程序，严肃进行追责！” 对于产品价格问
 
 ## 正文
 
-花旗发布研报称，小米集团-W（01810）永久下调其“MiMo-V2.5”系列大语言模型（LLM）的API价格高达99%发表看法此项激进的降价举措于5月27日生效并在全球范围内实施，目的是与竞争对手保持一致。
+4月29日，胖东来发布关于“博主惊梦人发布探店观点”的说明，回应其提出“249元奢侈品毛巾”“令人失望”“走不出河南”等观点。
 
-该行重申对其“买入”评级，维持目标价37港元。
+胖东来称，该博主发布多条对胖东来门店实地探访的视频，对于发表的视频观点中，“其对胖东来经营初心、经营理念的歪曲解读、盲目靠自我意识随意猜测、不负责任乃至污蔑性的言论，严重侵害胖东来品牌和社会信任，我们已启动依法维权程序，严肃进行追责！
 
-此前，DeepSeek已于四天前永久下调其V4 Pro API价格达75%。
+” 对于产品价格问题，胖东来表示，以保障民生和合理毛利为核心，有严格规范的商品定价标准，明确禁止暴利。
 
-小米管理层在5月26日的业绩简报会中曾透露，其AI收入大部分来自词元（token），其中MiMo的Pro和Max版本占token使用量超过50%，有逾50%的token使用量来自海外，付费用户占比超30%且留存率高。
+“品牌商品我们遵循品牌定价标准，尊重品牌价值。
 
-花旗认为，小米MiMo大模型不仅限于内部使用，此次激进的定价策略将推动token使用量激增，同时也有助于训练并提升其大语言模型的性能。
+对于产品的价格、质量、价值方面的经营问题，我们会后续公示定价及毛利率，随着系统完善我们逐步实现二维码扫描即可查看的服务功能。
 
-该行看好小米在智能体（agentic）或Miclaw功能等方面的变现潜力，尽管目前尚未有明确的时间表，但预期升级版本将于今年稍后推出。
+” 胖东来还表示，对于博主质疑未经落实调查提出的“商品溢价高”、“质疑走不出河南”、“质疑员工工资”、“要求员工购买”等，以个人意识随意猜测、曲解的不实言论已对胖东来品牌造成严重伤害，并对社会造成了误导和不良影响，会坚定维护自身权益并追究法律责任。
 
-责任编辑：卢昱君
+“针对博主反馈胖东来自身存在的问题，我们会进行严谨的落实和完善。
+
+”胖东来称。
 
 ## 相关推荐
 
-- 2026-06-30 01:51 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 01:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 01:49 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 02:08 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 01:50 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 01:49 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 01:50 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 02:11 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 01:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 01:47 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 01:58 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 01:46 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 01:43 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 02:11 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 02:08 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 02:02 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 02:10 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 02:06 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 02:07 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 01:58 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 02:09 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 01:50 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 01:48 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 02:16 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 02:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/9054292089.shtml)
-- 2026-06-30 01:59 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/070775.shtml)
-- 2026-06-30 01:51 - [千与千寻](https://www.share.kurohicncr.top/Article/details/7022855.shtml)
-- 2026-06-30 02:04 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/60908220.shtml)
-- 2026-06-30 01:59 - [恋与深空致歉](https://www.share.minike.top/Article/details/73101236603.shtml)
-- 2026-06-30 02:01 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/342299859287.shtml)
-- 2026-06-30 01:46 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/3087757.shtml)
-- 2026-06-30 01:58 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/32840227505.shtml)
-- 2026-06-30 01:58 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/585002962.shtml)
-- 2026-06-30 02:07 - [我们的少年时代2](https://www.blog.minike.top/Article/details/883352333.shtml)
-- 2026-06-30 02:10 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/4826265413.shtml)
-- 2026-06-30 02:03 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/72731.shtml)
-- 2026-06-30 02:05 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/12805452.shtml)
-- 2026-06-30 01:45 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/474893443.shtml)
-- 2026-06-30 01:56 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/48793755862.shtml)
+- 2026-06-30 02:06 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/40529855.shtml)
+- 2026-06-30 01:51 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/4448388162.shtml)
+- 2026-06-30 02:05 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/697737808.shtml)
+- 2026-06-30 02:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/22122.shtml)
+- 2026-06-30 01:56 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/2888526027.shtml)
+- 2026-06-30 01:50 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/41426218445.shtml)
+- 2026-06-30 02:13 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/267973922.shtml)
+- 2026-06-30 02:08 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/827904.shtml)
+- 2026-06-30 01:54 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/17193352478.shtml)
+- 2026-06-30 01:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/54969647626.shtml)
+- 2026-06-30 01:51 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/6874448039.shtml)
+- 2026-06-30 01:55 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/990007054313.shtml)
+- 2026-06-30 02:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/5024187.shtml)
+- 2026-06-30 02:03 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/0669151947.shtml)
+- 2026-06-30 02:02 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/839808634.shtml)

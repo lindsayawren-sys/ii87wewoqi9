@@ -1,61 +1,59 @@
-# 云南修订陆生野生动物保护条例 守护“动物王国”生态名片
+# 年薪297万的王良卸任，招商银行新行长浮出水面
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网昆明5月28日电 (罗婕)28日，《云南省陆生野生动物保护条例》(下称《条例》)由云南省第十四届人民代表大会常务委员会第二十三次会议修订通过，自8月15日起施行。 云南是中国生物多样性最为丰富的省份，素有“植物王国”“动物王国”“世界花园”的美誉。 新修订的《条例》共二十九条，从全面贯彻落实《中华人民共和国生态环境法典》《中华人民共和国野生动物保护法》，正确处理野生动物保
+来源：银瑞社 招商银行最新召开的全行干部大会，透出一个重大消息。 招商银行行长王良因年龄原因卸任，而原副行长、招商金控总经理王小青接任招商银行党委书记，后续将接任行长一职。 王良从2022年临危受命，接过了招商银行行长一职，至今已有四年时间。 彼时，招商银行面临原行长田惠宇被查的舆论危机，老将王良成为“救火队长”，稳定了这场震动。 2022年-2025年，王良年薪分别为642.
 
 ## 正文
 
-中新网昆明5月28日电 (罗婕)28日，《云南省陆生野生动物保护条例》(下称《条例》)由云南省第十四届人民代表大会常务委员会第二十三次会议修订通过，自8月15日起施行。
+来源：银瑞社 招商银行最新召开的全行干部大会，透出一个重大消息。
 
-云南是中国生物多样性最为丰富的省份，素有“植物王国”“动物王国”“世界花园”的美誉。
+招商银行行长王良因年龄原因卸任，而原副行长、招商金控总经理王小青接任招商银行党委书记，后续将接任行长一职。
 
-新修订的《条例》共二十九条，从全面贯彻落实《中华人民共和国生态环境法典》《中华人民共和国野生动物保护法》，正确处理野生动物保护与维护民众生命财产安全、增进民生福祉的关系，突出云南省特色优势，切实保护陆生野生动物栖息地等方面作出修改完善。
+王良从2022年临危受命，接过了招商银行行长一职，至今已有四年时间。
 
-《条例》指出，陆生野生动物保护工作坚持保护优先、规范利用、严格监管、公众参与的原则，加强重要生态系统保护和修复，鼓励和支持开展陆生野生动物科学研究与应用，秉持生态文明理念，推动绿色发展。
+彼时，招商银行面临原行长田惠宇被查的舆论危机，老将王良成为“救火队长”，稳定了这场震动。
 
-《条例》进一步固化云南在野生动物保护方面的实践成果，增加了采取建立食源地、种植食源植物、配置巢箱、饮水槽等多种方式，营造适宜陆生野生动物生息繁衍的环境；加强对亚洲象、滇金丝猴、高黎贡白眉长臂猿、西黑冠长臂猿、绿孔雀、双角犀鸟等珍贵、濒危的陆生野生动物实施抢救性保护，促进物种种群恢复和稳定等内容。
+2022年-2025年，王良年薪分别为642.5万元、345.3万元、296.2万元、297.1万元，下滑明显。
 
-新修订的《条例》还增加促进野生动物保护与周边社区协调发展的内容。
+算下来，王良是招商银行历任行长里面，履职时间最短的一任。
 
-如，在不妨碍陆生野生动物生息繁衍的前提下，可以在保护小区内依法依规开展科学考察、科普教育、自然观光活动，发挥保护小区生态效益，促进与周边社区的协调发展。
+招商银行首任行长王世祯，履职时间12年，推出“一卡通”在国内率先实现一卡多户功能，而任期最长的是马蔚华，履职时间超过了14年，一举奠定了招商银行“零售之王”的地位，并推动A+H股上市。
 
-此外，《条例》明确划定栖息地保护与行为禁止红线。
+王良年龄不小，现年已经61岁，进入招商银行工作已有超30年的时间。
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 02:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 01:54 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 01:53 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 02:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 02:02 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 01:49 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 02:03 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 02:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 02:11 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 02:07 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 01:50 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 02:08 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 01:57 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 01:58 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 02:00 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 02:10 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 02:15 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 02:07 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 02:17 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 01:52 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 02:01 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 02:02 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 01:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 01:56 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 02:14 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 02:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 02:05 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:06 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/185636.shtml)
-- 2026-06-30 01:50 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/686795.shtml)
-- 2026-06-30 01:58 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/29140.shtml)
-- 2026-06-30 02:01 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/75720.shtml)
-- 2026-06-30 02:00 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/56288332.shtml)
-- 2026-06-30 01:50 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/411413519.shtml)
-- 2026-06-30 01:58 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/280490468.shtml)
-- 2026-06-30 02:02 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/199627071906.shtml)
-- 2026-06-30 01:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/45757085366.shtml)
-- 2026-06-30 02:09 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/795920658235.shtml)
-- 2026-06-30 02:07 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/7121565.shtml)
-- 2026-06-30 02:08 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/94540417.shtml)
-- 2026-06-30 01:57 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/7613188528.shtml)
-- 2026-06-30 02:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/2941728476.shtml)
-- 2026-06-30 02:04 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/346239598573.shtml)
+- 2026-06-30 01:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/05336.shtml)
+- 2026-06-30 02:03 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/133987.shtml)
+- 2026-06-30 01:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/511171914275.shtml)
+- 2026-06-30 01:58 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/6555449.shtml)
+- 2026-06-30 01:53 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/0844856334.shtml)
+- 2026-06-30 02:14 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/70285.shtml)
+- 2026-06-30 01:57 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/877154472.shtml)
+- 2026-06-30 02:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/896560870.shtml)
+- 2026-06-30 01:55 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/3186595932.shtml)
+- 2026-06-30 02:01 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/5735582.shtml)
+- 2026-06-30 02:12 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/44602.shtml)
+- 2026-06-30 01:58 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/8185008004.shtml)
+- 2026-06-30 02:05 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/91575913.shtml)
+- 2026-06-30 01:49 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/72333267.shtml)
+- 2026-06-30 02:00 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/6040765472.shtml)

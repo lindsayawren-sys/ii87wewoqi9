@@ -1,56 +1,61 @@
-# 浙商证券王大霁：复盘A股七轮共识行情，从“五朵金花”到AI算力，当下无需猜顶
+# 十四届全国人大常委会举行第六十六次委员长会议 听取有关草案和议案审议情况汇报 赵乐际主持
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-A股自2003年以来，已先后经历七轮清晰可辨的板块共识行情，从早期的周期“五朵金花”，到互联网、消费、新能源、红利资产，再到当下如火如荼的AI算力主线，每一轮都以相似的逻辑萌芽、发酵、高潮与落幕。5月29日，浙商证券策略首席分析师王大霁做客新浪证券直播间，通过复盘历史规律，定位当前AI行情所处阶段。视频直播>> 2003—2007年：周期“五朵金花”，重工业化共识 核心驱动来自
+新华社北京4月29日电 十四届全国人大常委会第六十六次委员长会议29日上午在北京人民大会堂举行。赵乐际委员长主持。 会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于监狱法修订草案修改意见的汇报、关于社会救助法草案修改意见的汇报，审议了相关草案修改稿。 会议听取了全国人大外事委员会主任委员娄勤俭作的关于《中华人民共和国和阿塞拜疆共和国关于刑事司法协助的条约》《中华人民共和
 
 ## 正文
 
-A股自2003年以来，已先后经历七轮清晰可辨的板块共识行情，从早期的周期“五朵金花”，到互联网、消费、新能源、红利资产，再到当下如火如荼的AI算力主线，每一轮都以相似的逻辑萌芽、发酵、高潮与落幕。
+新华社北京4月29日电 十四届全国人大常委会第六十六次委员长会议29日上午在北京人民大会堂举行。
 
-5月29日，浙商证券策略首席分析师王大霁做客新浪证券直播间，通过复盘历史规律，定位当前AI行情所处阶段。
+赵乐际委员长主持。
 
-视频直播>> 2003—2007年：周期“五朵金花”，重工业化共识 核心驱动来自中国经济高速增长与重工业化浪潮，市场最初质疑周期股高波动风险，少数派坚定看多“重工业化”长期趋势。
+会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于监狱法修订草案修改意见的汇报、关于社会救助法草案修改意见的汇报，审议了相关草案修改稿。
 
-宝钢、鞍钢等龙头业绩持续兑现，扭转市场预期，公募持仓集中度从13%升至30%，游资推升龙头连续涨停。
+会议听取了全国人大外事委员会主任委员娄勤俭作的关于《中华人民共和国和阿塞拜疆共和国关于刑事司法协助的条约》《中华人民共和国和哈萨克斯坦共和国、吉尔吉斯共和国、塔吉克斯坦共和国、土库曼斯坦、乌兹别克斯坦共和国永久睦邻友好合作条约》审议情况的汇报，审议了关于批准条约的决定草案代拟稿。
 
-风险钝化期，周期股被赋予成长股PE估值，估值达二三十倍仍强势。
+会议听取了全国人大常委会秘书长刘奇作的关于个别代表的代表资格的报告和任免案审议情况的汇报等。
 
-最终因次贷危机爆发、国内外流动性收紧而崩塌，板块平均跌幅约66%。
+会议听取了全国人大常委会副秘书长刘俊臣作的关于新增人事任免事项的汇报。
 
-2009—2012年：第一轮医药共识，医保红利与老龄化共振 驱动来自医保改革与人口老龄化双重红利，市场担忧医保降价风险，少数派提出“用量补价”逻辑，喊出医药行业“黄金十年”。
+委员长会议决定，将上述草案修改稿等提交常委会会议审议。
 
-龙头业绩持续超预期，公募持仓翻倍，散户资金加速入场。
+全国人大常委会副委员长李鸿忠、王东明、肖捷、郑建邦、丁仲礼、郝明金、蔡达峰、何维、武维华、铁凝、彭清华、张庆伟、洛桑江村、雪克来提·扎克尔出席会议。
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 02:11 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 01:50 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 02:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 01:55 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 02:06 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 01:59 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 01:54 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 02:01 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 02:04 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 01:58 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 01:53 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 02:07 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 01:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 02:17 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 01:55 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 01:59 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 01:55 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 02:09 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 02:01 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 02:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 01:53 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 01:51 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 02:05 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 02:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - [极限挑战第一季](http://www.blog.minike.top/Article/details/071790.shtml)
-- 2026-06-30 02:05 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/4499952.shtml)
-- 2026-06-30 02:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/62828052.shtml)
-- 2026-06-30 02:02 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/4033702868.shtml)
-- 2026-06-30 01:46 - [速度与激情9](http://www.blog.minike.top/Article/details/765916.shtml)
-- 2026-06-30 02:05 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/422718222.shtml)
-- 2026-06-30 01:59 - [急先锋](http://www.blog.minike.top/Article/details/8549648.shtml)
-- 2026-06-30 01:49 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/7824378.shtml)
-- 2026-06-30 01:42 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/46187.shtml)
-- 2026-06-30 01:59 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/04517998.shtml)
-- 2026-06-30 02:09 - [刘念回应](http://www.blog.minike.top/Article/details/5180481902.shtml)
-- 2026-06-30 02:04 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/21794365.shtml)
-- 2026-06-30 02:04 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/752178.shtml)
-- 2026-06-30 02:10 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/0226785.shtml)
-- 2026-06-30 02:01 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/404651913.shtml)
+- 2026-06-30 02:10 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/07357790228.shtml)
+- 2026-06-30 02:01 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/04237.shtml)
+- 2026-06-30 01:57 - [沉睡花园](http://www.share.minike.top/Article/details/0841951880.shtml)
+- 2026-06-30 02:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/47374519400.shtml)
+- 2026-06-30 02:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/6754223523.shtml)
+- 2026-06-30 02:07 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/67442111.shtml)
+- 2026-06-30 01:57 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/772275388614.shtml)
+- 2026-06-30 01:52 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/7733475224.shtml)
+- 2026-06-30 02:15 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/5261089.shtml)
+- 2026-06-30 02:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/946652558883.shtml)
+- 2026-06-30 02:06 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/853721131.shtml)
+- 2026-06-30 01:53 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/81151132647.shtml)
+- 2026-06-30 01:57 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/9253762197.shtml)
+- 2026-06-30 01:57 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/336408.shtml)
+- 2026-06-30 01:50 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/84258299.shtml)

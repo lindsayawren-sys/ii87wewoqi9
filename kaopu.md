@@ -1,58 +1,61 @@
-# “清空”台湾的书斋，这对史学家夫妇带三万册宝贝一起“回家”
+# 特朗普会晤雪佛龙等能源巨头，共商霍尔木兹长期封锁应对之策
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-视频：台湾史学伉俪徐泓、王芝芝三万余册藏书“落户”浙大“中西书库”来源：中国新闻网 这场“回家”，徐泓和王芝芝夫妇盼了太久。 在台湾新店名为“二闲斋”的书房里的藏书，一度多到让人产生“压迫感”。除了必要的生活空间，里里外外全被书架填满，甚至连走路都得侧身。 83岁的徐泓是台湾暨南国际大学历史学系荣誉教授，曾任台湾大学历史学系主任。这位明史大家的心中，最放心不下的就是这些陪伴他与
+随着美伊军事对峙进入第三个月，美国总统特朗普周二在白宫召集了一场闭门会议，与雪佛龙等主要能源公司高管讨论全球石油市场的动荡局势。白宫官员周三证实，会议的核心议题包括美国石油产量、期货市场、海运及天然气，以及为应对持续冲突可能采取的长期封锁措施。 能源巨头齐聚白宫，“锁定”霍尔木兹局势 据悉，雪佛龙首席执行官迈克·沃思亲自出席了此次会议。白宫幕僚长苏西·怀尔斯、财政部长斯科特·贝
 
 ## 正文
 
-视频：台湾史学伉俪徐泓、王芝芝三万余册藏书“落户”浙大“中西书库”来源：中国新闻网 这场“回家”，徐泓和王芝芝夫妇盼了太久。
+随着美伊军事对峙进入第三个月，美国总统特朗普周二在白宫召集了一场闭门会议，与雪佛龙等主要能源公司高管讨论全球石油市场的动荡局势。
 
-在台湾新店名为“二闲斋”的书房里的藏书，一度多到让人产生“压迫感”。
+白宫官员周三证实，会议的核心议题包括美国石油产量、期货市场、海运及天然气，以及为应对持续冲突可能采取的长期封锁措施。
 
-除了必要的生活空间，里里外外全被书架填满，甚至连走路都得侧身。
+能源巨头齐聚白宫，“锁定”霍尔木兹局势 据悉，雪佛龙首席执行官迈克·沃思亲自出席了此次会议。
 
-83岁的徐泓是台湾暨南国际大学历史学系荣誉教授，曾任台湾大学历史学系主任。
+白宫幕僚长苏西·怀尔斯、财政部长斯科特·贝森特、特使史蒂夫·维特科夫以及特朗普女婿贾里德·库什纳也陪同参会。
 
-这位明史大家的心中，最放心不下的就是这些陪伴他与太太王芝芝60余载、总计三万余册的“宝贝”。
+会议召开之际，由于霍尔木兹海峡航运受阻，全球市场已损失数亿桶原油供应，油价持续高企对执政党即将到来的中期选举构成了政治风险。
 
-时间倒回2023年9月，一条“诉苦”的微博曾让无数网友揪心。
+一位白宫官员在会后表示：“这些企业高管一致高度评价特朗普总统为释放美国能源主导地位所采取的行动，并认为总统当前在做的一切都是正确的。
 
-80岁的徐泓在书桌前写下文字：万一我们不在了，这些书散在旧书店，甚至掉进回收废纸堆，太可惜了！
+”雪佛龙方面则证实，沃思与会是为了讨论因美伊战争而动荡不安的全球石油市场。
 
-它们的未来究竟该去哪儿？
+讨论延长封锁，旨在切断德黑兰财源 随着外交谈判陷入僵局，特朗普政府正倾向于采取更强硬的经济施压手段。
 
 ## 相关推荐
 
-- 2026-06-30 02:06 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 02:02 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 02:04 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 01:45 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 02:05 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 01:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 01:45 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 01:56 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 01:58 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 02:01 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 01:50 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 01:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 01:59 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 02:10 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 02:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 01:56 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 02:04 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 02:00 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 02:05 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 01:57 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 02:17 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 01:53 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 01:49 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 01:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 02:00 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 01:55 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 02:02 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:05 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/24182307247.shtml)
-- 2026-06-30 01:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/13817145.shtml)
-- 2026-06-30 01:43 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/37629189.shtml)
-- 2026-06-30 01:49 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/759163.shtml)
-- 2026-06-30 02:07 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/57369.shtml)
-- 2026-06-30 01:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/97376.shtml)
-- 2026-06-30 02:04 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/86076990.shtml)
-- 2026-06-30 01:44 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/93009449575.shtml)
-- 2026-06-30 01:43 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/149076791071.shtml)
-- 2026-06-30 01:46 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/4396817634.shtml)
-- 2026-06-30 02:02 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/485549650.shtml)
-- 2026-06-30 01:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/84923538989.shtml)
-- 2026-06-30 02:07 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/63222231.shtml)
-- 2026-06-30 02:03 - [恋与深空 日服](https://www.blog.minike.top/Article/details/91639.shtml)
-- 2026-06-30 01:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/788500.shtml)
+- 2026-06-30 01:49 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/54338484289.shtml)
+- 2026-06-30 01:52 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/6009935569.shtml)
+- 2026-06-30 01:53 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/543986306.shtml)
+- 2026-06-30 02:01 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/595441494038.shtml)
+- 2026-06-30 02:01 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/777155.shtml)
+- 2026-06-30 02:10 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/961692.shtml)
+- 2026-06-30 02:17 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/769426.shtml)
+- 2026-06-30 01:51 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/38265648.shtml)
+- 2026-06-30 01:50 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/76694.shtml)
+- 2026-06-30 02:09 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/88950702.shtml)
+- 2026-06-30 02:17 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/153995369734.shtml)
+- 2026-06-30 01:59 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/810710130318.shtml)
+- 2026-06-30 02:02 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/8602144.shtml)
+- 2026-06-30 02:06 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/044530573.shtml)
+- 2026-06-30 01:53 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/3340201304.shtml)

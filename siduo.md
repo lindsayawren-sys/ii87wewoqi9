@@ -1,58 +1,55 @@
-# 纽约联储行长称当前货币政策处于良好位置
+# 订单已排到2030年！硬核国产，爆单！
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-纽约联储行长约翰·威廉姆斯表示，美联储的政策为应对伊朗战争的经济影响做好充分准备。 尽管这场冲突以及关税的持续影响推高了通胀，但威廉姆斯表示，他预计未来数月价格涨幅将达峰，从而为官员们评估形势变化留出空间。 “美联储的货币政策正处于我们希望看到的位置，”威廉姆斯周四在冰岛一场央行会议发表演讲后的问答环节中表示。“我们处于良好位置，可以在需要作出任何决定之前，继续关注这场冲突以及
+今年第一季度，我国汽车出口222.6万辆，同比增长56.7%，新能源汽车市场继续保持快速增长态势。记者发现，快速增长的汽车出口需求，也拉动了全球航运市场对汽车运输船的需求。2026年一季度，我国交付汽车运输船11艘，同比增长9.5%。在中船广船国际记者看到，汽车运输船正在船坞中加紧生产，排期已至2030年。工作人员告诉记者，当前全球汽车贸易需求持续增长，造船厂已累计承接汽车运输
 
 ## 正文
 
-纽约联储行长约翰·威廉姆斯表示，美联储的政策为应对伊朗战争的经济影响做好充分准备。
+今年第一季度，我国汽车出口222.6万辆，同比增长56.7%，新能源汽车市场继续保持快速增长态势。
 
-尽管这场冲突以及关税的持续影响推高了通胀，但威廉姆斯表示，他预计未来数月价格涨幅将达峰，从而为官员们评估形势变化留出空间。
+记者发现，快速增长的汽车出口需求，也拉动了全球航运市场对汽车运输船的需求。
 
-“美联储的货币政策正处于我们希望看到的位置，”威廉姆斯周四在冰岛一场央行会议发表演讲后的问答环节中表示。
+2026年一季度，我国交付汽车运输船11艘，同比增长9.5%。
 
-“我们处于良好位置，可以在需要作出任何决定之前，继续关注这场冲突以及其他经济数据。
+在中船广船国际记者看到，汽车运输船正在船坞中加紧生产，排期已至2030年。
 
-” 威廉姆斯还表示，美联储当前的政策立场对经济略具有限制性。
+工作人员告诉记者，当前全球汽车贸易需求持续增长，造船厂已累计承接汽车运输船订单超40艘，万车级汽车运输船自推出以来更是广受市场青睐。
 
-美联储官员在上月会议上将基准利率维持在3.5%-3.75%区间不变，但更多政策制定者援引通胀关切，希望表明央行下一步利率行动加息和降息的可能性相当。
-
-威廉姆斯表示，如果没有人工智能相关投资的大幅增长，美国经济表现会弱得多。
-
-不过，他淡化了有关人工智能将引发长期结构性失业的担忧，并对劳动力市场表达了乐观看法。
+中船广船国际10800车汽车运输船技术经理 张付利：目前10800车总共有14条订单，从公司建造的趋势来看，从最初的7000车到后来的8600车，再到目前的10800车，是逐步向大型化方面发展，降低了运输成本，对船东来说相当有利。
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 01:59 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 02:03 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 02:07 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 01:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 02:04 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 01:43 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 02:02 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 01:57 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 01:49 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 01:48 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 02:09 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 02:08 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 02:14 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 01:55 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 02:12 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 02:10 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 01:48 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 02:15 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 02:15 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 02:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 02:01 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 01:49 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 02:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 01:57 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:07 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/155908813169.shtml)
-- 2026-06-30 02:08 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/853940.shtml)
-- 2026-06-30 02:08 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/3887447.shtml)
-- 2026-06-30 01:50 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/15425995712.shtml)
-- 2026-06-30 01:51 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/443503.shtml)
-- 2026-06-30 02:02 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/378804268084.shtml)
-- 2026-06-30 01:48 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/20112.shtml)
-- 2026-06-30 02:05 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/943190594925.shtml)
-- 2026-06-30 01:45 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/3092650399.shtml)
-- 2026-06-30 02:02 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/81756444.shtml)
-- 2026-06-30 01:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/39036509857.shtml)
-- 2026-06-30 02:09 - [速度与激情9](https://www.blog.minike.top/Article/details/01001854.shtml)
-- 2026-06-30 01:57 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/221839714.shtml)
-- 2026-06-30 01:54 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/34368323.shtml)
-- 2026-06-30 02:10 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/74889.shtml)
+- 2026-06-30 01:52 - [斗破苍穹](https://www.share.minike.top/Article/details/7931185.shtml)
+- 2026-06-30 02:16 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/4614640326.shtml)
+- 2026-06-30 01:50 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/6559507680.shtml)
+- 2026-06-30 01:56 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/18425024328.shtml)
+- 2026-06-30 02:10 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/722915578.shtml)
+- 2026-06-30 02:10 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/514631695.shtml)
+- 2026-06-30 02:05 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/422175.shtml)
+- 2026-06-30 02:04 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/1200052679.shtml)
+- 2026-06-30 01:56 - [恋与深空回应争议](http://www.share.minike.top/Article/details/011905898.shtml)
+- 2026-06-30 02:07 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/33285.shtml)
+- 2026-06-30 02:00 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/74251.shtml)
+- 2026-06-30 02:13 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/663063760.shtml)
+- 2026-06-30 01:56 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/0958070.shtml)
+- 2026-06-30 02:17 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/6584772.shtml)
+- 2026-06-30 01:54 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/712928918.shtml)

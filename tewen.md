@@ -1,51 +1,60 @@
-# 中国车企首次突破产销量1亿大关
+# 北京银行首席信息官明立松：投资科技就是投资未来
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月28日下午，上汽集团交付第1亿辆车，中国汽车工业史上首个累计产销量突破1亿辆的汽车集团诞生。中国首个“亿级车企”的出现，是中国汽车工业70多年从无到有、从弱到强的生动注脚，也是“中国制造”的重要里程碑。（记者：周蕊） 责任编辑：宋雅芳
+4月29日金融一线消息，北京银行今日召开2025年年度暨2026年第一季度业绩说明会。首席信息官明立松表示，首先，北京银行始终以科技引领发展。面对复杂多变的经济环境和行业竞争压力，北京银行坚定不移地推动数字化转型。我们秉承长期主义理念，持续加大投入，因为我们相信，投资科技就是投资未来。过去几年，北京银行科技投入占营收的比例稳定在 4.5% 以上，科技投入增速达到 22.45%，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月29日金融一线消息，北京银行今日召开2025年年度暨2026年第一季度业绩说明会。
 
-5月28日下午，上汽集团交付第1亿辆车，中国汽车工业史上首个累计产销量突破1亿辆的汽车集团诞生。
+首席信息官明立松表示，首先，北京银行始终以科技引领发展。
 
-中国首个“亿级车企”的出现，是中国汽车工业70多年从无到有、从弱到强的生动注脚，也是“中国制造”的重要里程碑。
+面对复杂多变的经济环境和行业竞争压力，北京银行坚定不移地推动数字化转型。
 
-（记者：周蕊） 责任编辑：宋雅芳
+我们秉承长期主义理念，持续加大投入，因为我们相信，投资科技就是投资未来。
+
+过去几年，北京银行科技投入占营收的比例稳定在 4.5% 以上，科技投入增速达到 22.45%，该项指标在同业中保持较高水平。
+
+“资金投入并非短期行为，而是构建未来核心竞争力的坚实基础。
+
+”明立松强调。
+
+明立松还表示，我们坚持投资未来，以人工智能驱动创新发展。
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 02:06 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 02:00 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 02:10 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 01:45 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 01:59 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 01:57 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 01:58 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 01:58 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 01:58 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 01:52 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 02:01 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 01:47 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 02:14 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 01:52 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 01:55 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 02:17 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 01:51 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 01:56 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 02:02 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 02:01 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 01:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 02:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 01:59 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 02:02 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 01:57 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 02:07 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/52498165984.shtml)
-- 2026-06-30 01:44 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/677890033.shtml)
-- 2026-06-30 01:51 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/25075215.shtml)
-- 2026-06-30 01:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/1030064547.shtml)
-- 2026-06-30 01:58 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/61786756.shtml)
-- 2026-06-30 02:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/4436687807.shtml)
-- 2026-06-30 02:00 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/043898757980.shtml)
-- 2026-06-30 02:02 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/746228.shtml)
-- 2026-06-30 01:45 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/290755764.shtml)
-- 2026-06-30 01:57 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/492753664319.shtml)
-- 2026-06-30 02:06 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/21954571.shtml)
-- 2026-06-30 02:03 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/91413511922.shtml)
-- 2026-06-30 02:09 - [日本进球](https://www.blog.minike.top/Article/details/868749944533.shtml)
-- 2026-06-30 02:01 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/6822570390.shtml)
-- 2026-06-30 01:47 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/78744568.shtml)
+- 2026-06-30 01:53 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/31539.shtml)
+- 2026-06-30 02:12 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/137929.shtml)
+- 2026-06-30 02:01 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/7952336758.shtml)
+- 2026-06-30 02:08 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/731368507539.shtml)
+- 2026-06-30 01:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/664794354177.shtml)
+- 2026-06-30 02:06 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/4271501.shtml)
+- 2026-06-30 01:59 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/737084240.shtml)
+- 2026-06-30 02:10 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/33059748.shtml)
+- 2026-06-30 02:10 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/599414.shtml)
+- 2026-06-30 01:51 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/64368.shtml)
+- 2026-06-30 02:17 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/56118017.shtml)
+- 2026-06-30 02:14 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/40231366.shtml)
+- 2026-06-30 02:12 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/440137545.shtml)
+- 2026-06-30 01:52 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/909503.shtml)
+- 2026-06-30 01:52 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/1969742511.shtml)

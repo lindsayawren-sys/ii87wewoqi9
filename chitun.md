@@ -1,47 +1,57 @@
-# 招商金控注册资本获批增至150亿元
+# 网警严查“斗狠”类直播 13人已被行拘
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-5月29日金融一线消息，国家金融监督管理总局发布批复，同意招商局金融控股有限公司以未分配利润61.76亿元人民币转增注册资本，注册资本由88.24亿元人民币变更为150亿元人民币。 责任编辑：秦艺
+直播PK本是网络互动的娱乐形式，却有主播为了流量不惜突破底线。近日，浙江公安网安部门成功破获一起跨区域低俗直播“斗狠”案，抓获涉案人员13名，相关账号均被封禁。 浙江公安网安部门工作发现，多名短视频平台主播存在集中进行低俗、“斗狠”式PK直播的异常情况。经查，网民赵某等人为了“博眼球、赚流量、谋私利”，伙同本地主播，与外省主播相互串联，开展网络上流行的“斗狠PK”活动。 浙江公
 
 ## 正文
 
-5月29日金融一线消息，国家金融监督管理总局发布批复，同意招商局金融控股有限公司以未分配利润61.76亿元人民币转增注册资本，注册资本由88.24亿元人民币变更为150亿元人民币。
+直播PK本是网络互动的娱乐形式，却有主播为了流量不惜突破底线。
 
-责任编辑：秦艺
+近日，浙江公安网安部门成功破获一起跨区域低俗直播“斗狠”案，抓获涉案人员13名，相关账号均被封禁。
+
+浙江公安网安部门工作发现，多名短视频平台主播存在集中进行低俗、“斗狠”式PK直播的异常情况。
+
+经查，网民赵某等人为了“博眼球、赚流量、谋私利”，伙同本地主播，与外省主播相互串联，开展网络上流行的“斗狠PK”活动。
+
+浙江公安网安部门立即展开调查，成功抓获包括主要组织者在内的涉案人员13名。
+
+目前，涉案人员均已被依法行政拘留，相关直播账号已封禁。
+
+(总台央视记者 张岗)
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 02:09 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 02:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 01:42 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 01:53 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 02:11 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 01:56 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 02:06 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 01:53 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 01:51 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 01:59 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 02:11 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 01:47 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 01:58 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 01:56 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 02:12 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 02:03 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 01:52 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 01:53 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 02:00 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 01:54 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 01:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 02:17 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 02:02 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 02:07 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 01:52 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:46 - [恋与深空致歉](http://www.share.minike.top/Article/details/941603627.shtml)
-- 2026-06-30 02:03 - [周生如故](https://www.blog.minike.top/Article/details/48482374.shtml)
-- 2026-06-30 02:01 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/4705692.shtml)
-- 2026-06-30 01:45 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/482406453786.shtml)
-- 2026-06-30 01:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/7774243629.shtml)
-- 2026-06-30 02:09 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/9995357.shtml)
-- 2026-06-30 02:02 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/84972438036.shtml)
-- 2026-06-30 02:11 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/651123507.shtml)
-- 2026-06-30 02:02 - [恋与深空 日服](https://www.share.minike.top/Article/details/1274254280.shtml)
-- 2026-06-30 01:52 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/514993915304.shtml)
-- 2026-06-30 01:56 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/210067513350.shtml)
-- 2026-06-30 02:02 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/1678068614.shtml)
-- 2026-06-30 02:01 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/60449860619.shtml)
-- 2026-06-30 01:46 - [扬名立万](https://www.share.minike.top/Article/details/0540201412.shtml)
-- 2026-06-30 01:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/720710155.shtml)
+- 2026-06-30 02:05 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/096485652.shtml)
+- 2026-06-30 01:54 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/54166542866.shtml)
+- 2026-06-30 02:14 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/1912992.shtml)
+- 2026-06-30 01:54 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/715730.shtml)
+- 2026-06-30 02:04 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/0158375724.shtml)
+- 2026-06-30 02:14 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/48594837665.shtml)
+- 2026-06-30 01:51 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/32841279301.shtml)
+- 2026-06-30 01:51 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/41123.shtml)
+- 2026-06-30 01:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/510539.shtml)
+- 2026-06-30 01:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/221694135206.shtml)
+- 2026-06-30 02:02 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/98180.shtml)
+- 2026-06-30 01:58 - [女心理师](https://www.blog.minike.top/Article/details/5528400.shtml)
+- 2026-06-30 02:12 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/75594644859.shtml)
+- 2026-06-30 02:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/492188025.shtml)
+- 2026-06-30 02:08 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/3726440.shtml)

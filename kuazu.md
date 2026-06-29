@@ -1,49 +1,57 @@
-# 河南唐河回应群众名下出现不明贷款记录问题：全面核查
+# 梁文锋的担子更重了
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网5月29日电 据“唐河之声”微信公众号消息，河南南阳唐河县联合调查组5月29日发布情况说明称，近日，针对媒体反映唐河县少拜寺镇有群众名下出现不明贷款记录的问题。该县迅速成立由县纪委监委、县人民法院、县公安局、唐河金融监管支局等单位组成的联合调查组，全面开展核查工作。 联合调查组将彻查问题原委，依法依规厘清责任，对查实的违规违纪违法行为严肃追责问责，切实维护群众合法权益。后
+梁文锋用V4打破质疑，但Coding、to B商业化、人才争夺，DeepSeek还有硬仗要打。 文|《中国企业家》记者 闫俊文 见习编辑|李原 编辑|何伊凡 头图来源|视觉中国 DeepSeek-V4上线几日，围绕它的讨论仍未停止。梁文锋用V4的强势发布，回击了外界对于DeepSeek迭代缓慢的质疑。 从效果来看，V4参数放大明显。其拥有1M（百万字）超长上下文，分为DeepS
 
 ## 正文
 
-中新网5月29日电 据“唐河之声”微信公众号消息，河南南阳唐河县联合调查组5月29日发布情况说明称，近日，针对媒体反映唐河县少拜寺镇有群众名下出现不明贷款记录的问题。
+梁文锋用V4打破质疑，但Coding、to B商业化、人才争夺，DeepSeek还有硬仗要打。
 
-该县迅速成立由县纪委监委、县人民法院、县公安局、唐河金融监管支局等单位组成的联合调查组，全面开展核查工作。
+文|《中国企业家》记者 闫俊文 见习编辑|李原 编辑|何伊凡 头图来源|视觉中国 DeepSeek-V4上线几日，围绕它的讨论仍未停止。
 
-联合调查组将彻查问题原委，依法依规厘清责任，对查实的违规违纪违法行为严肃追责问责，切实维护群众合法权益。
+梁文锋用V4的强势发布，回击了外界对于DeepSeek迭代缓慢的质疑。
 
-后续调查处理结果将及时向社会公布。
+从效果来看，V4参数放大明显。
+
+其拥有1M（百万字）超长上下文，分为DeepSeek-V4-Pro和Flash两个版本。
+
+其中，Pro版本模型参数规模达到1.6T，比V3大出两倍，在开源阵营位列最高梯队，向OpenAI和谷歌看齐。
+
+大参数版本也标志着，DeepSeek正在放弃“小而美”路线，转而追求“参数暴力美学”与稀疏架构效率并行。
+
+更重要的突破来自于国产算力适配。
 
 ## 相关推荐
 
-- 2026-06-30 02:02 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 02:09 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 02:05 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 01:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 01:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 01:51 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 01:47 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 02:10 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 01:50 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 02:07 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 02:01 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 02:11 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 01:58 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 02:17 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 02:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 02:11 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 01:53 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 01:50 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 02:02 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 01:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 01:50 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 01:58 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/4884974535.shtml)
-- 2026-06-30 01:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/176519497.shtml)
-- 2026-06-30 01:46 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/027338897301.shtml)
-- 2026-06-30 02:01 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/3851093.shtml)
-- 2026-06-30 02:03 - [千香](https://www.share.kurohicncr.top/Article/details/72905.shtml)
-- 2026-06-30 01:45 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/099404458.shtml)
-- 2026-06-30 01:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/7166541.shtml)
-- 2026-06-30 01:49 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/713314880508.shtml)
-- 2026-06-30 02:07 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/28838135.shtml)
-- 2026-06-30 01:45 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/847472001.shtml)
-- 2026-06-30 02:11 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/192567095368.shtml)
-- 2026-06-30 01:43 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/5068264.shtml)
-- 2026-06-30 02:07 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/5825930.shtml)
-- 2026-06-30 02:06 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/243223948.shtml)
-- 2026-06-30 01:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/06209663529.shtml)
+- 2026-06-30 02:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/209212062840.shtml)
+- 2026-06-30 02:16 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/666080.shtml)
+- 2026-06-30 02:10 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/53876166.shtml)
+- 2026-06-30 01:57 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/052810345440.shtml)
+- 2026-06-30 02:03 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/0531239.shtml)
+- 2026-06-30 02:01 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/6831794973.shtml)
+- 2026-06-30 02:03 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/364307.shtml)
+- 2026-06-30 01:54 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/76253.shtml)
+- 2026-06-30 01:58 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/44613.shtml)
+- 2026-06-30 01:53 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/778639266938.shtml)
+- 2026-06-30 01:51 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/5191741409.shtml)
+- 2026-06-30 02:03 - [起风了](http://www.blog.kurohicncr.top/Article/details/0041313.shtml)
+- 2026-06-30 01:48 - [新官上任三把火](https://www.share.minike.top/Article/details/0767162.shtml)
+- 2026-06-30 02:11 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/39717454.shtml)
+- 2026-06-30 02:16 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/5169952125.shtml)

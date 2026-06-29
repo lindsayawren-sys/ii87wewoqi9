@@ -1,61 +1,56 @@
-# 挪威国家石油公司与DeepOcean签署挪威大陆架海底作业一揽子合同
+# 熊召政新作《忽必烈：南征大理国》推出
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-挪威国家石油公司Equinor已将一份涵盖挪威大陆架多个油气田的海底作业一揽子合同授予DeepOcean公司。该合同涉及北海与巴伦支海的项目，海上作业计划在2027年至2028年期间进行。 该合同包涵盖北海Visund油田和Snorre A油田，以及巴伦支海的Johan Castberg区域。 Visund油田高难度作业 在Visund油田，DeepOcean获得了一份SIMO
+中新网北京4月29日电 (记者 高凯)“从草原到天下——熊召政长篇历史小说《忽必烈：南征大理国》新书分享会”日前在国家大剧院艺术资料中心举办。 作家、诗人、学者熊召政携新作《忽必烈：南征大理国》与戏剧演员赵岭、杨淇，青年合作钢琴家肖明儒等嘉宾一道，以文学对话、选段朗诵与音乐表演三种形式围绕《忽必烈：南征大理国》展开艺术分享。 熊召政曾出版历史小说、中短篇小说、散文、历史札记、诗
 
 ## 正文
 
-挪威国家石油公司Equinor已将一份涵盖挪威大陆架多个油气田的海底作业一揽子合同授予DeepOcean公司。
+中新网北京4月29日电 (记者 高凯)“从草原到天下——熊召政长篇历史小说《忽必烈：南征大理国》新书分享会”日前在国家大剧院艺术资料中心举办。
 
-该合同涉及北海与巴伦支海的项目，海上作业计划在2027年至2028年期间进行。
+作家、诗人、学者熊召政携新作《忽必烈：南征大理国》与戏剧演员赵岭、杨淇，青年合作钢琴家肖明儒等嘉宾一道，以文学对话、选段朗诵与音乐表演三种形式围绕《忽必烈：南征大理国》展开艺术分享。
 
-该合同包涵盖北海Visund油田和Snorre A油田，以及巴伦支海的Johan Castberg区域。
+熊召政曾出版历史小说、中短篇小说、散文、历史札记、诗集四十余部。
 
-Visund油田高难度作业 在Visund油田，DeepOcean获得了一份SIMOPRO（海上作业与生产同步进行）安装合同，内容涉及在海上设施保持生产的同时更换输气和输油立管。
+著有长篇历史小说《张居正》《大金王朝》，散文集《南船北马走天下》《明朝大悲咒》《明朝帝王师》等。
 
-公司表示，作业范围包括项目管理、工程设计、制造、采购和海上安装活动，以及勘测、疏浚、管线连接和预调试作业。
+其中《张居正》获第六届茅盾文学奖。
 
-DeepOcean北欧区域执行副总裁Olaf A． Hansen表示：“此类复杂作业需要运营商和我们分包商网络之间进行强有力的协调和周全的安全规划，以确保无缝执行。
+《忽必烈：南征大理国》是熊召政的最新长篇历史小说。
 
-我们曾为Equinor执行过类似项目的良好记录，使我们为再次被选中感到自豪。
+1252年，忽必烈奉其兄蒙哥大汗之命南征大理国，他拜会东道诸王，复现成吉思汗班朱尼河盟誓；亲临京兆府征兵，打破蒙汉藩篱。
 
-” 巴伦支海首个回接项目 DeepOcean同时获得了与Isflak石油发现相关的作业合同。
+而后一路向南，踏川滇烟瘴之地，破苍山雄关之险，定边隅纷争之局，合诸族各异之风。
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 01:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 02:03 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 01:55 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 02:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 02:06 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 01:49 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 01:51 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 02:09 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 01:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 02:09 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 01:51 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 01:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 01:53 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 01:57 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 02:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 02:01 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 01:53 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 02:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 01:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 01:49 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 01:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 02:04 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 01:54 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 02:01 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/1811897558.shtml)
-- 2026-06-30 01:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/20340.shtml)
-- 2026-06-30 01:55 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/9595566.shtml)
-- 2026-06-30 02:01 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/4013494545.shtml)
-- 2026-06-30 01:44 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/18873397.shtml)
-- 2026-06-30 01:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/7993888556.shtml)
-- 2026-06-30 01:49 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/07970209.shtml)
-- 2026-06-30 02:02 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/9299791.shtml)
-- 2026-06-30 01:51 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/3508456.shtml)
-- 2026-06-30 02:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/51681.shtml)
-- 2026-06-30 01:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/313791.shtml)
-- 2026-06-30 02:05 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/49555.shtml)
-- 2026-06-30 01:44 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/40808061.shtml)
-- 2026-06-30 01:53 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/306486.shtml)
-- 2026-06-30 02:04 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/637618083.shtml)
+- 2026-06-30 02:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/026705269230.shtml)
+- 2026-06-30 01:59 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/71429220433.shtml)
+- 2026-06-30 02:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/908000048.shtml)
+- 2026-06-30 02:02 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/279479.shtml)
+- 2026-06-30 02:16 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/386983066216.shtml)
+- 2026-06-30 02:10 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/332302930359.shtml)
+- 2026-06-30 02:03 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/967977523623.shtml)
+- 2026-06-30 01:58 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/405935131541.shtml)
+- 2026-06-30 02:15 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/345871561.shtml)
+- 2026-06-30 01:56 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/4098436.shtml)
+- 2026-06-30 01:48 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/3479677397.shtml)
+- 2026-06-30 01:52 - [千与千寻](http://www.share.minike.top/Article/details/82238816547.shtml)
+- 2026-06-30 01:58 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/723697174.shtml)
+- 2026-06-30 01:52 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/261919836256.shtml)
+- 2026-06-30 02:14 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/9871798481.shtml)

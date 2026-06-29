@@ -1,59 +1,60 @@
-# 能源成本加剧 法国通胀率升至逾两年高点
+# 北方多地气温冲击30℃ 五一假期新一轮降雨来袭
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-受伊朗战事影响，能源价格持续上涨，导致法国本月通胀率攀升至两年多来的最高水平，这让欧洲央行料将在6月会议上进行自2023年以来的首次加息。 去年底之前，欧元区几大主要经济体的同比通胀率一直呈下降趋势，法国1月份的同比通胀率曾降至0.4%。然而，在霍尔木兹海峡被关闭导致石油和天然气价格走高后，3月份通胀率大幅攀升。 根据法国国家统计及经济研究局（Insee）周五公布的欧盟调和数据
+北方暖热升级多地将冲击30℃ 五一假期新一轮大范围降雨来袭 中国天气网讯 今天(4月30日)是五一假期前最后一个工作日，南方大部地区降雨暂歇，气温有所回升，华北、东北等多地气温将冲击30℃，或创今年来新高。不过，随着五一假期开启，新一轮降水过程又将发展，青藏高原、西北地区东部、黄淮南部及南方地区自西向东有大范围降雨，5月2日至3日南方雨势最强。 五一假期新一轮降水发展 南方2日
 
 ## 正文
 
-受伊朗战事影响，能源价格持续上涨，导致法国本月通胀率攀升至两年多来的最高水平，这让欧洲央行料将在6月会议上进行自2023年以来的首次加息。
+北方暖热升级多地将冲击30℃ 五一假期新一轮大范围降雨来袭 中国天气网讯 今天(4月30日)是五一假期前最后一个工作日，南方大部地区降雨暂歇，气温有所回升，华北、东北等多地气温将冲击30℃，或创今年来新高。
 
-去年底之前，欧元区几大主要经济体的同比通胀率一直呈下降趋势，法国1月份的同比通胀率曾降至0.4%。
+不过，随着五一假期开启，新一轮降水过程又将发展，青藏高原、西北地区东部、黄淮南部及南方地区自西向东有大范围降雨，5月2日至3日南方雨势最强。
 
-然而，在霍尔木兹海峡被关闭导致石油和天然气价格走高后，3月份通胀率大幅攀升。
+五一假期新一轮降水发展 南方2日至3日迎强降雨 4月26日夜间开始的南方强降雨过程，给广西、广东、贵州、湖南、江西等多地带来暴雨，不少地方甚至打破当地降雨量纪录。
 
-根据法国国家统计及经济研究局（Insee）周五公布的欧盟调和数据，法国5月份消费者物价同比上涨2.8%，同比通胀率较4月份的2.5%有所加快。
+昨天这轮过程有所减弱，但上海东部、浙江、福建东部和北部、广东东部及台湾岛北部等地出现大雨或暴雨，广东珠海、河源、潮州等局地遭遇大暴雨。
 
-这是自2024年2月以来的最高水平，使其进一步偏离欧洲央行2%的目标。
+今天，南方降雨过程基本结束，全国大部地区天气晴好，仅西藏、青海等地有明显降水。
 
-Insee表示，同比能源通胀率从4月份的14.3%升至16.8%，同时服务价格涨幅略有加快。
+预计，西藏中北部、青海大部、川西高原北部、新疆南疆西部山区等地部分地区有小到中雪或雨夹雪，其中，西藏北部、青海西南部等地部分地区有大雪；西藏东南部、青海东部、云南西南部、台湾岛等地部分地区有中到大雨，其中，西藏东南部等地部分地区有暴雨。
 
-在物价加速上涨之前，Insee的消费者信心指数在5月份降至三年低点，法国的商业景气度也出现下滑。
+明天，五一假期将开启，新一轮降水又将发展起来，青藏高原、西北地区东部、华北大部、黄淮南部及南方地区自西向东将有大范围降水过程，其中江南、华南中北部等地有大到暴雨，局地大暴雨，部分地区伴有雷暴大风、短时强降水等强对流天气，强降雨时段主要在5月2日至3日。
 
-责任编辑：刘明亮
+具体来看，明天降雨主要集中在青藏高原、西北地区东部、西南地区等地，预计内蒙古东北部、黑龙江西北部、新疆南疆西部山区、西藏中部、青海东部和南部、川西高原北部、甘肃河西等地部分地区有小到中雪或雨夹雪；西藏东南部、陕西南部、湖北西部、重庆大部、四川北部和东部等地部分地区有中到大雨，其中，西藏东南部等地部分地区有暴雨。
 
 ## 相关推荐
 
-- 2026-06-30 02:02 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 01:53 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 02:00 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 01:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 02:10 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 01:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 02:07 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 01:47 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 02:00 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 02:11 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 02:02 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 01:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 01:54 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 02:06 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 01:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 01:51 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 02:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 02:11 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 01:56 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 02:04 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 01:54 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 01:53 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 01:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 01:59 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 02:16 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 01:49 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 02:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/0957383.shtml)
-- 2026-06-30 02:04 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/709341268064.shtml)
-- 2026-06-30 01:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/021440864.shtml)
-- 2026-06-30 01:55 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/51228452877.shtml)
-- 2026-06-30 01:47 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/3905187.shtml)
-- 2026-06-30 01:52 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/9420006.shtml)
-- 2026-06-30 02:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/231738100.shtml)
-- 2026-06-30 02:02 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/83457268.shtml)
-- 2026-06-30 02:04 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/115699103525.shtml)
-- 2026-06-30 02:05 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/40823207.shtml)
-- 2026-06-30 01:58 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/31409064.shtml)
-- 2026-06-30 01:52 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/232669.shtml)
-- 2026-06-30 01:44 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/599561179355.shtml)
-- 2026-06-30 02:05 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/283607.shtml)
-- 2026-06-30 01:45 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/302613835.shtml)
+- 2026-06-30 02:09 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/034565728575.shtml)
+- 2026-06-30 02:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/49686549.shtml)
+- 2026-06-30 01:54 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/79356326.shtml)
+- 2026-06-30 02:16 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/6151120031.shtml)
+- 2026-06-30 01:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/6490023005.shtml)
+- 2026-06-30 01:53 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/05169.shtml)
+- 2026-06-30 01:58 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/48461.shtml)
+- 2026-06-30 02:10 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/69986.shtml)
+- 2026-06-30 02:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/64907700.shtml)
+- 2026-06-30 02:17 - [青春环游记第三季](https://www.share.minike.top/Article/details/812879028.shtml)
+- 2026-06-30 02:12 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/19498.shtml)
+- 2026-06-30 02:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/759407457783.shtml)
+- 2026-06-30 01:59 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/05055283994.shtml)
+- 2026-06-30 02:13 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/742845.shtml)
+- 2026-06-30 02:14 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/57578.shtml)

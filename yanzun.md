@@ -1,56 +1,59 @@
-# 源达信息宏观策略周报：主要指数表现分化，化工、硬件设备、机械调研关注度较高
+# 北京金融监管局、北京市市场监管局延长北京市股权信托财产登记试点有效期并扩大适用范围
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：河北源达信息技术股份有限公司 目录 一、本周市场回顾 3 1．主要指数表现 3 2．申万一级行业涨跌幅 3 二、本周机构调研情况 4 三、本周资讯要闻 6 四、热点行业方向 9 五、风险提示 13 图表目录 图1：申万一级行业涨跌幅情况 4 图2：近5天行业调研热度 4 图3：近30天行业调研热度 5
+2025年北京市首创发布股权信托财产登记试点政策以来，运行平稳，成效良好，反响热烈。该试点政策聚焦信托领域财产确权难题，通过“信托产品预登记、签订信托文件、信托财产登记”三步走模式，以在营业执照“经营范围”标注的形式，完成相关股权财产登记，使财产关系更加清晰，资产隔离更为有效，财产安全更有保障。试点政策不仅填补了《信托法》关于信托财产登记“有法可依、无处可登”的空白，助力北京市
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+2025年北京市首创发布股权信托财产登记试点政策以来，运行平稳，成效良好，反响热烈。
 
-来源：河北源达信息技术股份有限公司 目录 一、本周市场回顾 3 1．主要指数表现 3 2．申万一级行业涨跌幅 3 二、本周机构调研情况 4 三、本周资讯要闻 6 四、热点行业方向 9 五、风险提示 13 图表目录 图1：申万一级行业涨跌幅情况 4 图2：近5天行业调研热度 4 图3：近30天行业调研热度 5 图3：规模以上工业增加值同比增长速度（%） 7 图4：存储芯片指数3年PE Bands 10 图5：半导体设备指数3年PE Bands 10 图6：人形机器人指数3年PE Bands 11 图7：电力设备指数3年PE Bands 11 图8：储能指数3年PE Bands 12 表1：主要指数涨跌幅 3 表2：近5天机构评级家数大于10且机构调研次数TOP公司排名（2026/5/25-2026/5/29） 6 表3：近5天机构评级家数大于10且机构
+该试点政策聚焦信托领域财产确权难题，通过“信托产品预登记、签订信托文件、信托财产登记”三步走模式，以在营业执照“经营范围”标注的形式，完成相关股权财产登记，使财产关系更加清晰，资产隔离更为有效，财产安全更有保障。
 
-表1：主要指数涨跌幅 代码 名称 周涨跌幅 月涨跌幅 年初至今涨跌幅 PE TTM 五年估值百分位 000001.SH 上证指数 -1.08% -1.06% 2.51% 17.44 98.69% 399001.SZ 深证成指 -0.14% 3.10% 15.16% 37.09 99.59% 399006.SZ 创业板指 2.53% 9.81% 26.06% 49.16 77.36% 000300.SH 沪深300 0.97% 1.76% 5.66% 14.56 97.37% 000016.SH 上证50 -0.08% -2.16% -3.63% 11.19 73.58% 000905.SH 中证500 -2.53% 0.12% 11.97% 37.49 97.13% 000852.SH 中证1000 -3.27% 0.32% 10.71% 55.73
+试点政策不仅填补了《信托法》关于信托财产登记“有法可依、无处可登”的空白，助力北京市经济社会高质量发展，也为我国全面建立信托财产登记制度积累了宝贵经验。
 
-图1：申万一级行业涨跌幅情况 资料来源：Wind，源达信息证券研究所 二、本周机构调研情况 1．机构调研热门行业 本周（2026/5/25-2026/5/29），申万二级行业中，按机构被调研总次数从高到低排序，化工、硬件设备、机械的关注度较高，其中机械、硬件设备、有色金属的近5天调研机构家数较多。
+截至目前，辖内已落地试点登记案例7单，涉及信托业务规模330亿元，惠及企业破产重整、家族传承及财富管理等多个领域。
 
-对比上周调研情况，本周机构调研热度化工机构被调研次数位居第一，有色金属调研机构家数跻身前三。
+为持续深入推进股权信托财产登记试点工作，进一步提质扩面、优化升级，北京金融监管局联合北京市市场监管局将北京市股权信托财产登记试点有效期延长三年，并扩大股权试点范围，将合伙企业财产份额纳入登记，允许在北京市设有异地部门的辖外信托公司参照适用。
 
-图2：近5天行业调研热度 资料来源：Wind，源达信息证券研究所 近30天（2026/4/29-2026/5/29），申万二级行业中，按机构被调研总次数从高到低排序，硬件设备、机械、化工的关注度较高，其中硬件设备、半导体、电气设备的近一个月调研机构家数较多。
+通过政策“纵向延伸+横向扩面”，不断推动信托财产登记“北京模式”迭代升级。
 
-图3：近30天行业调研热度 资料来源：Wind，源达信息证券研究所 本周机构调研情况，按照近5天机构调研次数排名，调研次数较多且机构评级家数大于10家的公司为冰轮环境、沪电股份、京东方A等。
-
-表2：近5天机构评级家数大于10且机构调研次数TOP公司排名（2026/5/25-2026/5/29） 代码 简称 行业 机构评级家数 近5天机构调研次数 000811.SZ 冰轮环境 机械 12 4 002463.SZ 沪电股份 硬件设备 23 3 000725.SZ 京东方A 硬件设备 15 3 002142.SZ 宁波银行 银行 24 2 000776.SZ 广发证券 非银金融 19 2 688029.SH 南微医学 医疗设备与服务 13 2 002916.SZ 深南电路 硬件设备 21 1 002317.SZ 众生药业 医药生物 11 1 300979.SZ 华利集团 纺织服装Ⅱ 28 1 002003.SZ 伟星股份 纺织服装Ⅱ 19 1 资料来源：Wind，源达信息证券研究所 本周机构调研情况，按照近5天机构调研家数排名，调研机构家数较多
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 02:02 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 01:58 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 01:43 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 01:55 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 02:12 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 01:49 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 01:47 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 02:00 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 02:07 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 01:45 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 01:48 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 02:12 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 02:00 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 01:49 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 02:16 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 02:02 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 02:14 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 02:16 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 01:59 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 02:05 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 02:02 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 02:10 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 01:55 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 01:56 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 02:10 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:00 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/775301193.shtml)
-- 2026-06-30 01:55 - [扬名立万](http://www.blog.minike.top/Article/details/397704.shtml)
-- 2026-06-30 01:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/344393.shtml)
-- 2026-06-30 01:44 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/409336.shtml)
-- 2026-06-30 01:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/170940391.shtml)
-- 2026-06-30 02:06 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/51803284.shtml)
-- 2026-06-30 01:46 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/449710604.shtml)
-- 2026-06-30 01:51 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/53430.shtml)
-- 2026-06-30 02:03 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/0938621.shtml)
-- 2026-06-30 01:54 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/5187870.shtml)
-- 2026-06-30 01:43 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/006731.shtml)
-- 2026-06-30 01:59 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/481829509668.shtml)
-- 2026-06-30 02:04 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/099243778952.shtml)
-- 2026-06-30 02:04 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/643011.shtml)
-- 2026-06-30 01:57 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/39695288.shtml)
+- 2026-06-30 02:04 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/76662.shtml)
+- 2026-06-30 02:04 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/5647267.shtml)
+- 2026-06-30 02:03 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/603365415.shtml)
+- 2026-06-30 01:58 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/543613641.shtml)
+- 2026-06-30 02:12 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/24620.shtml)
+- 2026-06-30 01:54 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/9907143.shtml)
+- 2026-06-30 02:10 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/687549457682.shtml)
+- 2026-06-30 01:55 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/03608715757.shtml)
+- 2026-06-30 02:17 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/8515704836.shtml)
+- 2026-06-30 02:15 - [沙丘](https://www.blog.minike.top/Article/details/507567515664.shtml)
+- 2026-06-30 01:50 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/0889833.shtml)
+- 2026-06-30 01:57 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/31132.shtml)
+- 2026-06-30 02:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/964757977.shtml)
+- 2026-06-30 02:05 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/25687.shtml)
+- 2026-06-30 01:48 - [周生如故](http://www.share.kurohicncr.top/Article/details/24218745.shtml)

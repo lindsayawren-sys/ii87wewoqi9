@@ -1,59 +1,56 @@
-# 新疆经济看点丨新疆向西开放空中通道持续扩容
+# 但斌最新持仓曝光！大举加仓谷歌，清仓微软！减持港股互联网龙头，加仓A股
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-天山网-新疆日报记者 马伊宁 风起天山云海，航架欧亚通途。凭借丝绸之路经济带核心区得天独厚的区位禀赋，新疆航空对外开放蹄疾步稳，不断注入全新发展动能。 6月1日起，中国南方航空将开通广州—乌鲁木齐—法兰克福航线，这是中国西北地区通往德国的首条直飞航线。今年以来，乌鲁木齐天山国际机场、喀什徕宁国际机场、伊犁伊宁国际机场多点发力，集中新开、加密、复航多条中西亚直飞客运航线，新疆空中
+近日，但斌执掌的东方港湾海外基金向美国证监会SEC提供了2026年一季度的13F文件，其美股的最新调仓路径随之揭晓。 一季度，但斌再度加仓谷歌，新进谷歌A，使得其谷歌（A+C）的合计持仓达到38%，稳坐第一大重仓股；同时，但斌还对英伟达小幅加仓，期末持仓比例升至20%，这意味着但斌美股的前两大重仓持仓合计近60%，组合结构进一步向AI产业链聚焦。 此外，但斌还新进买入了台积电、
 
 ## 正文
 
-天山网-新疆日报记者 马伊宁 风起天山云海，航架欧亚通途。
+近日，但斌执掌的东方港湾海外基金向美国证监会SEC提供了2026年一季度的13F文件，其美股的最新调仓路径随之揭晓。
 
-凭借丝绸之路经济带核心区得天独厚的区位禀赋，新疆航空对外开放蹄疾步稳，不断注入全新发展动能。
+一季度，但斌再度加仓谷歌，新进谷歌A，使得其谷歌（A+C）的合计持仓达到38%，稳坐第一大重仓股；同时，但斌还对英伟达小幅加仓，期末持仓比例升至20%，这意味着但斌美股的前两大重仓持仓合计近60%，组合结构进一步向AI产业链聚焦。
 
-6月1日起，中国南方航空将开通广州—乌鲁木齐—法兰克福航线，这是中国西北地区通往德国的首条直飞航线。
+此外，但斌还新进买入了台积电、美光科技以及全球第二大稳定币公司Circle公司，并清仓了微软、FNGU（三倍做多FANG+指数ETN）。
 
-今年以来，乌鲁木齐天山国际机场、喀什徕宁国际机场、伊犁伊宁国际机场多点发力，集中新开、加密、复航多条中西亚直飞客运航线，新疆空中互联互通网络越织越密，向西开放空中通道持续扩容。
+除美股以外，但斌在港股和A股的持仓也有变化。
 
-4月28日，成都航空搭载C909机型，正式开通喀什至奥什直飞航线。
+但斌表示，一季度对两个互联网巨头以及纳指ETF减持，加仓了A股。
 
-这既是成都航空首条通往吉尔吉斯斯坦的航线，也是C909机型执飞的第二条中亚定期航线。
+值得注意的是，目前但斌A股的三大重仓股为中际旭创、胜宏科技、新易盛，有望获得加仓。
 
-以往喀什与奥什两地往来，多依赖公路客运或中转航班，路途辗转耗时漫长。
+大幅加仓谷歌，前两大持仓合计近60% 截至一季度末，东方港湾海外基金的持仓数量从14只降至12只，期末持仓市值为11.33亿美元，折合人民币约为78亿元，相比2025年末约13.16亿美元的持股市值略有下降。
 
-直飞航线开通后，跨境通行迈入“小时级”便捷时代。
+一季度，但斌大幅加仓谷歌，新进买入27.71万股谷歌A，并一举买成第五大持仓，期末持股比例达到7.03%；谷歌C则是第一大重仓股，期末持股比例为30.5%，使其谷歌（A+C）合计仓位进一步提升至37.53%，期末持股市值合计达4.26亿美元，稳居第一大重仓股。
 
 ## 相关推荐
 
-- 2026-06-30 01:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 01:46 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 01:44 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 01:43 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 01:58 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 01:50 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 01:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 02:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 02:01 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 02:00 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 02:06 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 02:11 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 01:52 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 01:49 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 02:06 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 01:52 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 02:00 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 01:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 01:56 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 02:04 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 02:05 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 02:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 02:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:01 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/218682.shtml)
-- 2026-06-30 01:56 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/63163221.shtml)
-- 2026-06-30 01:58 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/96526109.shtml)
-- 2026-06-30 01:51 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/65292863610.shtml)
-- 2026-06-30 01:55 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/06292.shtml)
-- 2026-06-30 01:48 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/194284078580.shtml)
-- 2026-06-30 02:00 - [恋与深空 日服](https://www.share.minike.top/Article/details/8087213915.shtml)
-- 2026-06-30 01:57 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/549148359.shtml)
-- 2026-06-30 02:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/55193594114.shtml)
-- 2026-06-30 02:00 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/91693609628.shtml)
-- 2026-06-30 02:01 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/67891912.shtml)
-- 2026-06-30 02:09 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/93011698346.shtml)
-- 2026-06-30 01:49 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/3670771636.shtml)
-- 2026-06-30 02:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/509226865855.shtml)
-- 2026-06-30 01:57 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/24334550440.shtml)
+- 2026-06-30 01:50 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/77360072381.shtml)
+- 2026-06-30 02:05 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/3938223538.shtml)
+- 2026-06-30 01:54 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/90006916150.shtml)
+- 2026-06-30 02:00 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/36110217.shtml)
+- 2026-06-30 02:12 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/59645633506.shtml)
+- 2026-06-30 02:04 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/499534319048.shtml)
+- 2026-06-30 01:54 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/192172588.shtml)
+- 2026-06-30 01:55 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/927279.shtml)
+- 2026-06-30 02:05 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/53834.shtml)
+- 2026-06-30 02:11 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/37819899889.shtml)
+- 2026-06-30 01:54 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/73114153.shtml)
+- 2026-06-30 02:15 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/250656542.shtml)
+- 2026-06-30 02:07 - [千香](https://www.blog.kurohicncr.top/Article/details/398627208272.shtml)
+- 2026-06-30 01:49 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/8224000.shtml)
+- 2026-06-30 02:01 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/3256593.shtml)

@@ -1,57 +1,59 @@
-# 百万购车人群悄然流失，且短期内难以回流
+# 2025年贵州法院共受理一审行政诉讼案件10222件 同比上升18.2%
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-高油价、利率攀升与顽固通胀抑制购车需求，新车持续积压 内容速览 进入 2026 年以来，受车价高企与各类经济因素影响，美国新车市场流失了约一百万潜在消费者。 美国汽车行业正面临严峻现实：自今年年初起，已有约一百万潜在买家退出新车市场，且业内预计这部分人群短期内不会回归。 此前，车企高管、行业分析师及经济学家普遍认为，美国新车销量将稳步回升至疫情前水平。新冠疫情曾导致工厂停工、全
+中新网贵阳4月29日电 (记者 张伟)贵州省高级人民法院29日举行新闻发布会，对外发布《2025年度贵州法院行政案件司法审查报告》(简称，《报告》)，同时发布10件“规范涉企行政行为、护航民营经济发展”行政审判典型案例，旨在为行政机关规范执法、市场主体依法经营提供指引和参考。 《报告》显示，2025年贵州省行政案件呈现出“两上升、两集中、两下降”的特点。“两上升”是指行政诉讼、
 
 ## 正文
 
-高油价、利率攀升与顽固通胀抑制购车需求，新车持续积压 内容速览 进入 2026 年以来，受车价高企与各类经济因素影响，美国新车市场流失了约一百万潜在消费者。
+中新网贵阳4月29日电 (记者 张伟)贵州省高级人民法院29日举行新闻发布会，对外发布《2025年度贵州法院行政案件司法审查报告》(简称，《报告》)，同时发布10件“规范涉企行政行为、护航民营经济发展”行政审判典型案例，旨在为行政机关规范执法、市场主体依法经营提供指引和参考。
 
-美国汽车行业正面临严峻现实：自今年年初起，已有约一百万潜在买家退出新车市场，且业内预计这部分人群短期内不会回归。
+《报告》显示，2025年贵州省行政案件呈现出“两上升、两集中、两下降”的特点。
 
-此前，车企高管、行业分析师及经济学家普遍认为，美国新车销量将稳步回升至疫情前水平。
+“两上升”是指行政诉讼、非诉执行案件数量均有增长。
 
-新冠疫情曾导致工厂停工、全球供应链陷入混乱。
+2025年，贵州全省法院共受理一审行政诉讼案件10222件，同比上升18.2%；受理行政非诉执行案件5442件，同比上升2.89%。
 
-如今形势已然生变。
+“两集中”是指涉诉行政管理领域与行政行为类型相对集中。
 
-通用汽车、福特汽车、丰田等多家车企表示，在通胀居高不下、燃油价格上涨、贷款利率走高的多重压力下，消费者对均价已升至约 5 万美元的新车望而却步，因此今年新车销量或将下滑或陷入停滞。
+从行政管理领域看，城建、资源、公安、劳动和社会保障四类案件占一审行政诉讼案件总量的80.29%。
 
-2020 年之前，美国每年新车及皮卡销量约 1700 万辆。
+从行为类型看，案件主要集中在行政复议、行政处罚、行政确认、行政协议、行政登记等方面，合计占比64.67%。
 
-行业分析师预判，市场销量要重回这一水平，至少要等到 2020 年代末甚至更晚。
+“两下降”是指行政机关一审败诉率和行政非诉执行准予执行率均小幅下降。
 
 ## 相关推荐
 
-- 2026-06-30 01:48 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 01:44 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 02:11 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 01:59 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 01:44 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 02:10 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 02:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 02:01 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 01:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 01:43 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 02:04 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 02:03 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 02:17 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 02:01 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 02:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 01:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 02:14 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 02:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 02:04 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 02:11 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 01:53 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 02:12 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 02:10 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 01:55 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:46 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/59711941.shtml)
-- 2026-06-30 01:46 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/76286840.shtml)
-- 2026-06-30 02:09 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/356764.shtml)
-- 2026-06-30 02:11 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/3105626.shtml)
-- 2026-06-30 02:00 - [恋与深空致歉](http://www.share.minike.top/Article/details/13509.shtml)
-- 2026-06-30 02:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/79302.shtml)
-- 2026-06-30 01:50 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/654507426.shtml)
-- 2026-06-30 02:00 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/20669.shtml)
-- 2026-06-30 01:53 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/6970317815.shtml)
-- 2026-06-30 01:51 - [起风了](http://www.share.kurohicncr.top/Article/details/37263.shtml)
-- 2026-06-30 01:59 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/86665.shtml)
-- 2026-06-30 01:47 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/644214208691.shtml)
-- 2026-06-30 01:45 - [急先锋](https://www.blog.minike.top/Article/details/31738086054.shtml)
-- 2026-06-30 02:07 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/9612453942.shtml)
-- 2026-06-30 02:02 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/94316318.shtml)
+- 2026-06-30 02:17 - [张凌赫 客串](http://www.blog.minike.top/Article/details/56769.shtml)
+- 2026-06-30 01:58 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/89237477.shtml)
+- 2026-06-30 02:03 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/01150210503.shtml)
+- 2026-06-30 02:01 - [起风了](http://www.blog.kurohicncr.top/Article/details/881849371.shtml)
+- 2026-06-30 02:12 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/737410715.shtml)
+- 2026-06-30 02:17 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/0098072549.shtml)
+- 2026-06-30 01:49 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/3214182788.shtml)
+- 2026-06-30 01:57 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/748770285027.shtml)
+- 2026-06-30 02:07 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/26715374.shtml)
+- 2026-06-30 02:08 - [电影后室值得看吗](https://www.share.minike.top/Article/details/82282.shtml)
+- 2026-06-30 01:57 - [一生一世](https://www.share.minike.top/Article/details/3030888899.shtml)
+- 2026-06-30 02:14 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/45820227211.shtml)
+- 2026-06-30 01:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/4841184660.shtml)
+- 2026-06-30 02:11 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/709701311056.shtml)
+- 2026-06-30 01:53 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/5241760715.shtml)

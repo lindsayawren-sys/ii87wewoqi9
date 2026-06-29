@@ -1,59 +1,59 @@
-# 大行AIC“押中”存储赛道：交行曾预判周期底部半年至3年
+# 广西“十五五”工业蓝图：打造1个万亿产业、2个五千亿产业
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-5月27日，长鑫科技科创板IPO获上市委会议通过。这家国产DRAM龙头拟募资295亿元，将成为科创板开板以来第二大IPO项目，仅次于中芯国际。 招股书里的一项关键信息成为资本圈热议话题——工商银行、农业银行、中国银行、建设银行、交通银行5家国有大行的金融资产投资公司（AIC）都直接或间接出现在长鑫科技的股东名册里，持股比例介于0.38%至0.95%之间，合计持股约3.18%。
+中新网南宁4月29日电(张广权)广西壮族自治区工业和信息化厅党组书记、厅长袁煌28日在南宁表示，“十五五”期间，广西将集中优势资源打造制造业十大现代化支柱产业，力争到“十五五”末，打造1个万亿元产业、2个五千亿元产业、3个四千亿元产业、4个超千亿元产业。广西壮族自治区人民政府新闻办公室当天在南宁召开新闻发布会。 袁煌在发布会上介绍，“十四五”期间，广西已打下坚实的产业根基，广西
 
 ## 正文
 
-5月27日，长鑫科技科创板IPO获上市委会议通过。
+中新网南宁4月29日电(张广权)广西壮族自治区工业和信息化厅党组书记、厅长袁煌28日在南宁表示，“十五五”期间，广西将集中优势资源打造制造业十大现代化支柱产业，力争到“十五五”末，打造1个万亿元产业、2个五千亿元产业、3个四千亿元产业、4个超千亿元产业。
 
-这家国产DRAM龙头拟募资295亿元，将成为科创板开板以来第二大IPO项目，仅次于中芯国际。
+广西壮族自治区人民政府新闻办公室当天在南宁召开新闻发布会。
 
-招股书里的一项关键信息成为资本圈热议话题——工商银行、农业银行、中国银行、建设银行、交通银行5家国有大行的金融资产投资公司（AIC）都直接或间接出现在长鑫科技的股东名册里，持股比例介于0.38%至0.95%之间，合计持股约3.18%。
+袁煌在发布会上介绍，“十四五”期间，广西已打下坚实的产业根基，广西规上工业企业总量突破1万家，规上工业增加值年均增长7%，工业对经济增长的贡献率超过三分之一。
 
-几乎在同一时段，另一家国产存储巨头长江存储也完成了IPO辅导备案，开启科创板上市进程。
+进入“十五五”，广西将打破传统产业、新兴产业和未来产业的界限，集中优势资源打造有色金属及关键金属材料等制造业十大现代化支柱产业。
 
-上述5家大行AIC同样整齐出现在股东名单里，且持股比例高度一致。
+袁煌称，发展制造业十大现代化支柱产业，广西具备多重优势。
 
-国产存储赛道上的两个核心玩家，背后站着同一批股东——在存储芯片国产替代等具有战略意义的“硬科技”领域，银行系AIC扮演的角色正日益吃重，其布局如何、模式都有哪些？
+资源禀赋方面，稀土、锑、铟、镓等9种有色金属矿产保有量居中国前五，甘蔗、水果、木材产量稳居中国第一，水资源、生态资源、海洋能源、清洁能源等潜力巨大。
 
-2024年的一场“逆向”选择 银行系AIC对两大存储龙头的布局，几乎都集中在2024年前后。
+产业基础方面，已有十大支柱产业，其中有色金属产业年产值突破4600亿元，钢铁、食品加工产业突破3000亿元，其他支柱产业均跨过千亿门槛。
 
-彼时，存储芯片行业远不是今天这般炙手可热的态势。
+政策优势方面，国家给予了广西西部陆海新通道、自贸试验区、沿边临港产业园区、面向东盟的金融开放门户等20多个重大支持政策。
 
 ## 相关推荐
 
-- 2026-06-30 02:04 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 01:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 02:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 01:53 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 02:04 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 01:58 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 02:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 01:54 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 02:04 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 02:05 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 01:48 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 01:46 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 01:46 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 02:04 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 02:12 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 01:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 02:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 02:05 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 01:51 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 01:54 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 02:02 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 02:12 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 02:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 02:17 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 02:11 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 02:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:51 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/5475066.shtml)
-- 2026-06-30 01:49 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/7421266172.shtml)
-- 2026-06-30 01:58 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/9245754.shtml)
-- 2026-06-30 01:55 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/680720239045.shtml)
-- 2026-06-30 01:48 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/09036449.shtml)
-- 2026-06-30 01:50 - [TOP Prada](https://www.share.minike.top/Article/details/83781536794.shtml)
-- 2026-06-30 02:06 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/0201188135.shtml)
-- 2026-06-30 01:51 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/895192.shtml)
-- 2026-06-30 01:53 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/821731896489.shtml)
-- 2026-06-30 01:47 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/122838640.shtml)
-- 2026-06-30 01:53 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/560779.shtml)
-- 2026-06-30 01:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/046798307.shtml)
-- 2026-06-30 02:06 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/4040798.shtml)
-- 2026-06-30 02:09 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/83599136202.shtml)
-- 2026-06-30 02:09 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/206911866586.shtml)
+- 2026-06-30 02:00 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/459672.shtml)
+- 2026-06-30 01:50 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/499694.shtml)
+- 2026-06-30 02:11 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/498736.shtml)
+- 2026-06-30 01:56 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/568307024.shtml)
+- 2026-06-30 01:55 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/523436940970.shtml)
+- 2026-06-30 02:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/6198642.shtml)
+- 2026-06-30 02:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/6157336718.shtml)
+- 2026-06-30 02:16 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/60231170520.shtml)
+- 2026-06-30 02:12 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/080978.shtml)
+- 2026-06-30 01:51 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/5717274.shtml)
+- 2026-06-30 02:14 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/102524525281.shtml)
+- 2026-06-30 02:11 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/09541.shtml)
+- 2026-06-30 02:12 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/45760647151.shtml)
+- 2026-06-30 02:13 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/10623417.shtml)
+- 2026-06-30 01:54 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/83682377.shtml)

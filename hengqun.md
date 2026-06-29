@@ -1,60 +1,60 @@
-# 华夏银行中高层调整 涉及多家一级分行行长
+# 媒体：巴基斯坦预计今天或最迟周五将收到伊朗的修订提案
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-来源：金融人事mini 近日，华夏银行发布公告称，杨宏因工作原因，辞去该行首席合规官职务，自2026年5月26日起生效；公告显示，杨宏将继续担任华夏银行香港分行行长。 银行人事了解到，华夏银行新任首席合规官人选已定，由重点分行行长调任；随之调整的还有多位一级分行行长。 杨宏，1967年12月出生，硕士学位。历任华夏银行国际业务部副总经理，国际业务管理部副总经理、总经理，国际化改
+德黑兰如今万众瞩目，各方都在等待伊朗领导层的下一步行动。 巴基斯坦斡旋人员预计，伊朗将提交修订后的和平方案 —— 此前美国总统唐纳德・特朗普已否决了伊朗的上一版提议。熟悉斡旋进展的消息人士称，伊朗最快可能于今日给出答复，也可能推迟至周五。这些消息还透露，迟迟未决的背后，是伊朗高层难以联系到最高领导人穆杰塔巴・哈梅内伊。 各方耐心正在经受不同考验。 巴基斯坦总理夏巴兹・谢里夫向内
 
 ## 正文
 
-来源：金融人事mini 近日，华夏银行发布公告称，杨宏因工作原因，辞去该行首席合规官职务，自2026年5月26日起生效；公告显示，杨宏将继续担任华夏银行香港分行行长。
+德黑兰如今万众瞩目，各方都在等待伊朗领导层的下一步行动。
 
-银行人事了解到，华夏银行新任首席合规官人选已定，由重点分行行长调任；随之调整的还有多位一级分行行长。
+巴基斯坦斡旋人员预计，伊朗将提交修订后的和平方案 —— 此前美国总统唐纳德・特朗普已否决了伊朗的上一版提议。
 
-杨宏，1967年12月出生，硕士学位。
+熟悉斡旋进展的消息人士称，伊朗最快可能于今日给出答复，也可能推迟至周五。
 
-历任华夏银行国际业务部副总经理，国际业务管理部副总经理、总经理，国际化改造办公室副主任、主任，信用卡中心首席行政官、常务副总裁，贵阳分行行长，贸易金融部总经理，信用卡中心总裁。
+这些消息还透露，迟迟未决的背后，是伊朗高层难以联系到最高领导人穆杰塔巴・哈梅内伊。
 
-2025年1月，杨宏任华夏银行首席合规官，他是《金融机构合规管理办法》实施后银行业首位获批的专职首席合规官，2025年其税前薪酬总额为221.86万元。
+各方耐心正在经受不同考验。
 
-杨宏履新的香港分行是华夏银行第一家境外分行，于2020年1月2日正式开业，是该行走向国际金融市场的关键一步。
+巴基斯坦总理夏巴兹・谢里夫向内阁表示，周末率团在伊斯兰堡参与谈判的伊朗外长 “向我保证，会给出答复”。
 
-截至2025年，香港分行资产规模为1179.31亿元，有员工165人。
+虽未明确时限，但此番公开催促伊朗，意味深长 —— 此前白宫已释放信号，美方耐心即将耗尽。
 
-2025年，华夏银行积极整合香港分行“桥头堡”与境内分行“根据地”双重资源，推动优质客户“走出去”，助力企业跨境直接融资。
+特朗普表态称伊朗 “最好尽快学聪明点”，与他昨日相对克制的口吻截然不同。
 
 ## 相关推荐
 
-- 2026-06-30 01:49 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 01:52 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 01:49 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-30 01:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 01:44 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 01:58 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 01:59 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 02:05 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 02:11 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 02:07 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 02:04 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 01:57 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 02:10 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 02:09 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 01:57 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 02:00 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 02:17 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 02:06 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 02:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 02:17 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 02:08 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 02:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 02:13 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 01:49 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 02:07 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 02:01 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 02:05 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 02:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/527390.shtml)
-- 2026-06-30 01:48 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/812898160.shtml)
-- 2026-06-30 01:53 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/84667.shtml)
-- 2026-06-30 02:01 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/93990055.shtml)
-- 2026-06-30 01:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/004133008.shtml)
-- 2026-06-30 01:53 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/63588.shtml)
-- 2026-06-30 01:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/345603.shtml)
-- 2026-06-30 01:53 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/446897255.shtml)
-- 2026-06-30 01:46 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/801672366.shtml)
-- 2026-06-30 02:08 - [美人鱼](https://www.share.minike.top/Article/details/82827.shtml)
-- 2026-06-30 01:55 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/42401365.shtml)
-- 2026-06-30 01:59 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/44651697648.shtml)
-- 2026-06-30 01:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/24145.shtml)
-- 2026-06-30 01:50 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/11000557161.shtml)
-- 2026-06-30 01:59 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/508641.shtml)
+- 2026-06-30 02:10 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/491964566.shtml)
+- 2026-06-30 01:59 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/32359504.shtml)
+- 2026-06-30 02:17 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/316417731.shtml)
+- 2026-06-30 02:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/054286052.shtml)
+- 2026-06-30 02:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/02590695106.shtml)
+- 2026-06-30 01:59 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/9336698388.shtml)
+- 2026-06-30 02:09 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/110751074342.shtml)
+- 2026-06-30 02:06 - [千香](http://www.share.minike.top/Article/details/7036101705.shtml)
+- 2026-06-30 02:15 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/0131010.shtml)
+- 2026-06-30 02:13 - [起风了](https://www.share.kurohicncr.top/Article/details/46392335.shtml)
+- 2026-06-30 02:09 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/061310827166.shtml)
+- 2026-06-30 02:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/0646762.shtml)
+- 2026-06-30 02:08 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/759322643354.shtml)
+- 2026-06-30 01:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/8742936.shtml)
+- 2026-06-30 02:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/1074116.shtml)

@@ -1,61 +1,55 @@
-# 北京医生草原帮扶记：留下一支“带不走的医疗队”
+# 快讯：恒指低开0.40% 科指跌0.68% 科网股普跌 半导体股活跃
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网乌兰察布5月28日电 题：北京医生草原帮扶记：留下一支“带不走的医疗队” 中新网记者 张林虎 他放下陪伴两岁女儿的朝夕，奔赴草原为牧民正骨解痛；他将清宫正骨流派的手法带到内蒙古，立志为当地留下一支带不走的中医队伍。他就是中国中医科学院西苑医院骨伤科主治医师李凯明。 作为清宫正骨流派传承人，他扎根“京蒙”医疗帮扶一线，用精湛医术书写了一份跨越千里的医者答卷。 舍小家赴草原
+美股周三个变发展，油价持续高企，打击大市气氛，联储局一如预期维持息率不变，对市场未有太大影响，三大指数收市升跌不一。美元走势向好，美国十年期债息上升至4.43厘水平，金价显著受压，油价则突破近日高位。 今日港股三大指数集体低开，恒指开盘跌0.40%，报26008.32点，恒科指跌0.68%，国企指数跌0.54%。盘面上，科网股普跌，哔哩哔哩跌超2%，快手、阿里巴巴、美团等跌超1
 
 ## 正文
 
-中新网乌兰察布5月28日电 题：北京医生草原帮扶记：留下一支“带不走的医疗队” 中新网记者 张林虎 他放下陪伴两岁女儿的朝夕，奔赴草原为牧民正骨解痛；他将清宫正骨流派的手法带到内蒙古，立志为当地留下一支带不走的中医队伍。
+美股周三个变发展，油价持续高企，打击大市气氛，联储局一如预期维持息率不变，对市场未有太大影响，三大指数收市升跌不一。
 
-他就是中国中医科学院西苑医院骨伤科主治医师李凯明。
+美元走势向好，美国十年期债息上升至4.43厘水平，金价显著受压，油价则突破近日高位。
 
-作为清宫正骨流派传承人，他扎根“京蒙”医疗帮扶一线，用精湛医术书写了一份跨越千里的医者答卷。
+今日港股三大指数集体低开，恒指开盘跌0.40%，报26008.32点，恒科指跌0.68%，国企指数跌0.54%。
 
-舍小家赴草原 得知“京蒙”协作急需骨伤科医疗力量支援，李凯明第一时间主动请缨。
+盘面上，科网股普跌，哔哩哔哩跌超2%，快手、阿里巴巴、美团等跌超1%；石油股活跃，中海油田服务涨近1%；半导体股部分上涨，兆易创新涨超5%；黄金股普跌，山东黄金跌超2%。
 
-彼时，他的女儿刚满两岁，正是天真烂漫、格外依恋父亲的年纪，他内心也曾纠结不舍，但一想到草原上常年受骨病折磨的农牧民，便毅然踏上了帮扶之路。
-
-“内蒙古气候高寒、风沙大，当地农牧民常年劳作，颈肩腰腿痛、风湿骨病等疾患高发，不少人长期饱受病痛困扰，以往只能远赴北京求医。
-
-如今我有机会来到这里，为大家排忧解难。
-
-”李凯明坦言。
+责任编辑：郭栩彤
 
 ## 相关推荐
 
-- 2026-06-30 02:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 02:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 01:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 02:09 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 02:01 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 01:53 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 01:55 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 02:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 01:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 02:06 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 02:03 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 01:48 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 01:54 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 02:00 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 01:55 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 02:12 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 01:54 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 02:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 02:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 01:55 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 02:14 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 01:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 01:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 01:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 02:09 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 02:07 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 01:55 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 02:03 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 01:55 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 01:51 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/956391335.shtml)
-- 2026-06-30 01:54 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/76642.shtml)
-- 2026-06-30 02:07 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/81347.shtml)
-- 2026-06-30 02:05 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/997865420050.shtml)
-- 2026-06-30 01:45 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/9363086.shtml)
-- 2026-06-30 02:10 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/35448.shtml)
-- 2026-06-30 02:02 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/32633725102.shtml)
-- 2026-06-30 02:08 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/4625323706.shtml)
-- 2026-06-30 02:06 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/773839.shtml)
-- 2026-06-30 01:45 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/51743713933.shtml)
-- 2026-06-30 02:03 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/918306.shtml)
-- 2026-06-30 01:44 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/363557648196.shtml)
-- 2026-06-30 01:53 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/70708581.shtml)
-- 2026-06-30 01:42 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/4893317982.shtml)
-- 2026-06-30 02:10 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/807345563084.shtml)
+- 2026-06-30 01:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/762210734426.shtml)
+- 2026-06-30 01:59 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/90548.shtml)
+- 2026-06-30 02:11 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/37599592.shtml)
+- 2026-06-30 02:13 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/80595306.shtml)
+- 2026-06-30 02:17 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/32752199.shtml)
+- 2026-06-30 01:52 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/40654753.shtml)
+- 2026-06-30 02:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/523573.shtml)
+- 2026-06-30 02:07 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/196722.shtml)
+- 2026-06-30 01:57 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/36788136940.shtml)
+- 2026-06-30 02:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/69992287.shtml)
+- 2026-06-30 02:08 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/72415971768.shtml)
+- 2026-06-30 01:58 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/23611799857.shtml)
+- 2026-06-30 02:02 - [周生如故](http://www.share.minike.top/Article/details/686198.shtml)
+- 2026-06-30 01:55 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/6976174597.shtml)
+- 2026-06-30 02:02 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/363817465.shtml)

@@ -1,59 +1,59 @@
-# 农商行“组团”申请理财子公司牌照 胜算几何？
+# 高盛、贝恩领投人工智能营销初创企业
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 地方农信系统改革，给地方农商银行提供了申请理财子公司牌照的契机。 当前，完成改制后的江苏、浙江两地的农商联合银行正在申请理财子公司牌照。2026年5月25日，记者分别致电江苏农商联合银行及浙江农商联合银行相关人士求证，对方均表示，相关工作正在推进中，以公告为准。 之前，地区单家农商行由于自身业务规模有限，且实力不大，单独申请理财
+亦有广告科技公司 The Trade Desk 参投 Hightouch，公司估值现已达 27.5 亿美元 多家企业联合公告称，生成式 AI 营销平台 Hightouch 完成 1.5 亿美元新一轮融资，由高盛另类投资旗下增长股权部门、贝恩资本风投联合领投。 本轮融资还引入广告科技公司 The Trade Desk 旗下风投机构 TD7 参投，投后Hightouch 估值达 2
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 地方农信系统改革，给地方农商银行提供了申请理财子公司牌照的契机。
+亦有广告科技公司 The Trade Desk 参投 Hightouch，公司估值现已达 27.5 亿美元 多家企业联合公告称，生成式 AI 营销平台 Hightouch 完成 1.5 亿美元新一轮融资，由高盛另类投资旗下增长股权部门、贝恩资本风投联合领投。
 
-当前，完成改制后的江苏、浙江两地的农商联合银行正在申请理财子公司牌照。
+本轮融资还引入广告科技公司 The Trade Desk 旗下风投机构 TD7 参投，投后Hightouch 估值达 27.5 亿美元。
 
-2026年5月25日，记者分别致电江苏农商联合银行及浙江农商联合银行相关人士求证，对方均表示，相关工作正在推进中，以公告为准。
+公司上一轮融资在 2025 年 2 月，当时估值为 12 亿美元。
 
-之前，地区单家农商行由于自身业务规模有限，且实力不大，单独申请理财子公司牌照难以获批。
+如今越来越多营销服务供应商向企业首席营销官及广告机构推介称，可借助 AI 快速高效批量生成营销内容。
 
-2025年8月，成都银行、成都农商银行与四川银行曾计划联合申请理财子公司牌照，目前尚无新的进展。
+Hightouch 表示，自身核心优势是可基于客户已有的营销文案素材训练 AI 智能体，确保 AI 生成内容贴合品牌调性，并沿用过往成功营销活动的成熟范式。
 
-一家银行理财子公司相关负责人向记者表示，母行资质与理财业务规模，是监管部门审核牌照申请的重要关注点。
+公司称，将客户数据库中的真实图片、视频与 AI 全新生成素材融合，还能避免普通 AI 内容常见的粗糙违和感。
 
-“此外，监管部门还看重申请银行在理财公司治理、资管能力、风险管理、信息披露、投资者权益保护、信息科技等方面的运营能力。
+Hightouch 联合创始人兼联席首席执行官：特贾斯・马诺哈尔、卡希什・古普塔。
 
-”上述理财子公司相关负责人说。
+联合创始人兼联席首席执行官特贾斯・马诺哈尔谈及当前生成式 AI 浪潮时表示： “AI 模型性能确实在不断提升，但永远无法完全掌握一个品牌的全部深层背景与调性。
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 02:11 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 01:42 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 01:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 02:00 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 01:47 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 01:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 02:08 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 02:03 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 01:59 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 02:00 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:43 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 02:09 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 01:57 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 01:53 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 01:59 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 02:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 02:13 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 02:07 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 02:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 02:05 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 02:05 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 01:52 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 02:07 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 02:08 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 01:53 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:00 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/61043591178.shtml)
-- 2026-06-30 01:50 - [孙兴慜道歉](http://www.share.minike.top/Article/details/6084328.shtml)
-- 2026-06-30 02:08 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/9833602518.shtml)
-- 2026-06-30 02:09 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/85493123821.shtml)
-- 2026-06-30 02:02 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/56947419.shtml)
-- 2026-06-30 01:58 - [一生一世](https://www.share.kurohicncr.top/Article/details/75532652.shtml)
-- 2026-06-30 01:58 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/7372407.shtml)
-- 2026-06-30 01:57 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/50004743371.shtml)
-- 2026-06-30 02:05 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/98477720.shtml)
-- 2026-06-30 02:09 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/9077548945.shtml)
-- 2026-06-30 02:07 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/808748.shtml)
-- 2026-06-30 01:48 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/02756572.shtml)
-- 2026-06-30 01:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/6096679.shtml)
-- 2026-06-30 02:00 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/737181906.shtml)
-- 2026-06-30 02:01 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/50318.shtml)
+- 2026-06-30 02:06 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/890120400.shtml)
+- 2026-06-30 02:14 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/4049157850.shtml)
+- 2026-06-30 01:56 - [扬名立万](http://www.blog.minike.top/Article/details/11858.shtml)
+- 2026-06-30 02:04 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/25580962.shtml)
+- 2026-06-30 02:00 - [内马尔替补](https://www.share.minike.top/Article/details/8398971215.shtml)
+- 2026-06-30 02:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/5859534453.shtml)
+- 2026-06-30 02:09 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/1871625885.shtml)
+- 2026-06-30 02:08 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/88870154728.shtml)
+- 2026-06-30 02:13 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/058802000966.shtml)
+- 2026-06-30 02:04 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/234154793579.shtml)
+- 2026-06-30 02:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/17070721281.shtml)
+- 2026-06-30 01:59 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/18646.shtml)
+- 2026-06-30 01:52 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/68659147493.shtml)
+- 2026-06-30 01:51 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/50830445.shtml)
+- 2026-06-30 02:00 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/850821620068.shtml)

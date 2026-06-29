@@ -1,56 +1,51 @@
-# 中国男足2026年第三期集训名单公布 武磊回归
+# 机构：阿联酋退出欧佩克对油价构成利空
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新社北京5月28日电(记者 国璇) 中国足球协会28日公布了关于组织国家男子足球队2026年第三期集训的通知，26人大名单中，老将武磊、蒋光太等回归国家队，在U23亚洲杯中表现出色的门将李昊首次入选。 根据中国足协公告，为扎实做好2027年亚足联沙特阿拉伯亚洲杯备战工作，经国家队教练组研究、中国足球协会批准，中国国家男子足球队定于2026年5月31日至6月17日组织年度第三期
+斯巴达资本（Spartan Capital）的彼得·卡迪略表示，阿联酋决定在5月1日退出石油输出国组织以追求其能源目标，这一举动最终对油价构成利空。 “我们认为，这一决定对这个石油卡特尔来说是一个负面进展，并可能导致战后更多石油供应进入市场。这也强化了对油价的长期看空前景。” 根据欧佩克援引的二手来源数据，在美伊战争爆发前的2月份，阿联酋的日产量约为340万桶。责任编辑：陈钰嘉
 
 ## 正文
 
-中新社北京5月28日电(记者 国璇) 中国足球协会28日公布了关于组织国家男子足球队2026年第三期集训的通知，26人大名单中，老将武磊、蒋光太等回归国家队，在U23亚洲杯中表现出色的门将李昊首次入选。
+斯巴达资本（Spartan Capital）的彼得·卡迪略表示，阿联酋决定在5月1日退出石油输出国组织以追求其能源目标，这一举动最终对油价构成利空。
 
-根据中国足协公告，为扎实做好2027年亚足联沙特阿拉伯亚洲杯备战工作，经国家队教练组研究、中国足球协会批准，中国国家男子足球队定于2026年5月31日至6月17日组织年度第三期集训并参加国际热身赛。
+“我们认为，这一决定对这个石油卡特尔来说是一个负面进展，并可能导致战后更多石油供应进入市场。
 
-集训期间将先后赴上海市、新加坡、浙江省金华市、辽宁省大连市组织训练及赛事活动。
+这也强化了对油价的长期看空前景。
 
-主教练依然为邵佳一。
+” 根据欧佩克援引的二手来源数据，在美伊战争爆发前的2月份，阿联酋的日产量约为340万桶。
 
-本期名单中，最令人瞩目的是34岁老将武磊。
-
-作为中国男足的功勋球员，武磊已为国家队出战99场比赛，打入36个进球，是现役国脚中的头号射手。
-
-受伤病困扰，他上次入选国家队大名单是在2025年5月，并在集训中因伤提前离队。
-
-此外，蒋光太、韩鹏飞、魏震和戴伟浚等经验丰富的球员纷纷归队。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 02:00 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 02:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 01:56 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 01:52 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 01:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 01:51 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 01:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 02:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 01:50 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 01:47 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 01:53 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 02:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 02:16 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 02:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 02:06 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 01:56 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 02:17 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 01:48 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 01:55 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 02:04 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 01:51 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:59 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/3109462.shtml)
-- 2026-06-30 01:46 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/068926.shtml)
-- 2026-06-30 01:51 - [一生一世](http://www.share.minike.top/Article/details/8360768.shtml)
-- 2026-06-30 01:52 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/29537376731.shtml)
-- 2026-06-30 01:47 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/8803777.shtml)
-- 2026-06-30 02:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/6600886.shtml)
-- 2026-06-30 01:43 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/392497848789.shtml)
-- 2026-06-30 01:52 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/64677856.shtml)
-- 2026-06-30 02:06 - [啊啊啊](http://www.share.minike.top/Article/details/18562510.shtml)
-- 2026-06-30 02:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/518805.shtml)
-- 2026-06-30 02:07 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/82687.shtml)
-- 2026-06-30 02:01 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/833835247231.shtml)
-- 2026-06-30 01:59 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/0674624206.shtml)
-- 2026-06-30 01:59 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/840372974.shtml)
-- 2026-06-30 02:11 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/62035443.shtml)
+- 2026-06-30 02:00 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/6171028.shtml)
+- 2026-06-30 02:05 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/59398112690.shtml)
+- 2026-06-30 02:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/5306301.shtml)
+- 2026-06-30 01:55 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/8026504.shtml)
+- 2026-06-30 02:16 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/097738120381.shtml)
+- 2026-06-30 02:13 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/77110384603.shtml)
+- 2026-06-30 02:08 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/9361369244.shtml)
+- 2026-06-30 01:51 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/62298.shtml)
+- 2026-06-30 01:49 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/8424373.shtml)
+- 2026-06-30 02:10 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/87863.shtml)
+- 2026-06-30 01:55 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/109923319.shtml)
+- 2026-06-30 02:03 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/614168679119.shtml)
+- 2026-06-30 02:07 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/16261655707.shtml)
+- 2026-06-30 02:04 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/171810.shtml)
+- 2026-06-30 02:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/4464786.shtml)

@@ -1,56 +1,58 @@
-# Mistral AI CEO：拟自研芯片 同步加码基础设施建设
+# 推特前CEO创办AI初创公司完成融资 估值达20亿美元
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-法国人工智能初创企业Mistral AI首席执行官阿瑟·门施表示，公司正考虑自研芯片，未来或将正式推出相关产品。 这是门施首次公开谈及公司在半导体领域的布局规划。此举也凸显出，在与美国行业巨头OpenAI、Anthropic展开竞争的过程中，米斯特拉尔希望进一步掌握基础设施环节的主导权。 谈及自研芯片的可能性，门施表示：“这一方向确实具备吸引力，公司并未将其排除在外。” 他称，
+由推特前首席执行官帕拉格・阿格拉瓦尔创立的初创公司ParallelWebSystems，完成1亿美元B轮融资，凸显市场对自主智能体落地应用的关注度持续攀升。 本轮融资由红杉资本领投，这家坐落于加州帕洛阿托的企业估值由此攀升至20亿美元。凯鹏华盈、指数创投、科斯拉风投等现有投资方均跟投。 Parallel主打面向AI智能体的网页搜索平台，目前员工规模约50人。公司上一轮为去年11
 
 ## 正文
 
-法国人工智能初创企业Mistral AI首席执行官阿瑟·门施表示，公司正考虑自研芯片，未来或将正式推出相关产品。
+由推特前首席执行官帕拉格・阿格拉瓦尔创立的初创公司ParallelWebSystems，完成1亿美元B轮融资，凸显市场对自主智能体落地应用的关注度持续攀升。
 
-这是门施首次公开谈及公司在半导体领域的布局规划。
+本轮融资由红杉资本领投，这家坐落于加州帕洛阿托的企业估值由此攀升至20亿美元。
 
-此举也凸显出，在与美国行业巨头OpenAI、Anthropic展开竞争的过程中，米斯特拉尔希望进一步掌握基础设施环节的主导权。
+凯鹏华盈、指数创投、科斯拉风投等现有投资方均跟投。
 
-谈及自研芯片的可能性，门施表示：“这一方向确实具备吸引力，公司并未将其排除在外。
+Parallel主打面向AI智能体的网页搜索平台，目前员工规模约50人。
 
-” 他称，定制芯片能够大幅降低AItoken的调用成本，而token是人工智能模型处理数据的基本单元。
+公司上一轮为去年11月的1亿美元A轮融资，彼时估值7.4亿美元；成立至今，累计融资总额达2.3亿美元。
 
-“自研芯片未来大概率会提上日程，但现阶段我们仍依托英伟达开展合作，英伟达是非常优质的合作伙伴。
+创始人兼首席执行官阿格拉瓦尔表示，本轮新资金将用于搭建销售与营销团队、扩充研发体系。
 
-目前我们也在多方开展相关测试。
+这家成立约三年的企业，还将持续发力拓展企业级客户。
 
-”门施说道。
+Parallel专为AI智能体提供底层服务。
 
 ## 相关推荐
 
-- 2026-06-30 02:01 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 01:50 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 02:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 02:00 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 02:07 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 02:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 01:52 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 02:02 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 01:48 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 01:44 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 02:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 01:56 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 01:56 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 02:05 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 02:10 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 02:14 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 02:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 01:51 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 02:09 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 02:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 01:53 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 01:56 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:52 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/401519102964.shtml)
-- 2026-06-30 01:54 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/10081608754.shtml)
-- 2026-06-30 01:47 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/5782546.shtml)
-- 2026-06-30 01:44 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/531215.shtml)
-- 2026-06-30 01:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/70460332.shtml)
-- 2026-06-30 02:11 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/36356930967.shtml)
-- 2026-06-30 02:06 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/767244.shtml)
-- 2026-06-30 01:50 - [千香](https://www.blog.kurohicncr.top/Article/details/339694228378.shtml)
-- 2026-06-30 02:01 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/32137768.shtml)
-- 2026-06-30 02:11 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/13107.shtml)
-- 2026-06-30 02:06 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/31190602.shtml)
-- 2026-06-30 01:53 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/336046.shtml)
-- 2026-06-30 02:01 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/729351.shtml)
-- 2026-06-30 01:53 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/07767999219.shtml)
-- 2026-06-30 01:50 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/10537483948.shtml)
+- 2026-06-30 02:14 - [天道](https://www.blog.kurohicncr.top/Article/details/842788.shtml)
+- 2026-06-30 02:13 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/01841388.shtml)
+- 2026-06-30 02:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/23438.shtml)
+- 2026-06-30 01:58 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/15468620673.shtml)
+- 2026-06-30 02:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/112064.shtml)
+- 2026-06-30 01:53 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/11871552.shtml)
+- 2026-06-30 02:12 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/303072.shtml)
+- 2026-06-30 01:52 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/3624519.shtml)
+- 2026-06-30 01:57 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/406314925663.shtml)
+- 2026-06-30 02:15 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/7982422.shtml)
+- 2026-06-30 01:57 - [急先锋](http://www.blog.minike.top/Article/details/41522012.shtml)
+- 2026-06-30 01:51 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/64257.shtml)
+- 2026-06-30 02:14 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/08903426596.shtml)
+- 2026-06-30 01:53 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/18255.shtml)
+- 2026-06-30 01:51 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/884019391731.shtml)

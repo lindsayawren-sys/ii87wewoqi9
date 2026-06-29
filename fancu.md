@@ -1,58 +1,57 @@
-# 蓝色起源火箭发生爆炸，太空概念股集体大跌
+# 港股半导体走出独立行情！规模最大港股通信息技术ETF（159131）溢价持续走阔，再获申购1700万份！
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-本周周五，蓝色起源公司的新格伦火箭发生严重爆炸，重创航天板块。在此之前，受太空探索技术公司（SpaceX）即将上市提振，航天股本处于一轮上涨行情中。 周四深夜，蓝色起源的新格伦火箭在卡纳维拉尔角发射台爆炸。受此影响，AST 太空移动、火箭实验室等航天概念股周五全线走低。此前得益于 SpaceX 即将启动 IPO，整个航天板块行情火热。 今年备受散户投资者青睐的卫星直连手机运营商
+4月29日，港股硬科技在昨日调整蓄势后再度回暖，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内温和上涨0.34%，溢价持续走阔，资金持续涌入，盘中实时净申购1700万份，此前连续3日连续获资金净流入超9800万元。 自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数（简称港股通信息C）累计涨幅超17
 
 ## 正文
 
-本周周五，蓝色起源公司的新格伦火箭发生严重爆炸，重创航天板块。
+4月29日，港股硬科技在昨日调整蓄势后再度回暖，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内温和上涨0.34%，溢价持续走阔，资金持续涌入，盘中实时净申购1700万份，此前连续3日连续获资金净流入超9800万元。
 
-在此之前，受太空探索技术公司（SpaceX）即将上市提振，航天股本处于一轮上涨行情中。
+自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数（简称港股通信息C）累计涨幅超17%，同期恒生科技、港股通科技的涨幅分别为5.33%、2.92%，港股通信息C指数的锐度和弹性显著领先。
 
-周四深夜，蓝色起源的新格伦火箭在卡纳维拉尔角发射台爆炸。
+统计区间：2026.3.31-2026.4.27。
 
-受此影响，AST 太空移动、火箭实验室等航天概念股周五全线走低。
+港股通信息C指数2021-2025年年度历史收益分别为：-9.54%、-34.47%、-0.25%、21.58%、39.30%。
 
-此前得益于 SpaceX 即将启动 IPO，整个航天板块行情火热。
+指数过往业绩不预示未来表现。
 
-今年备受散户投资者青睐的卫星直连手机运营商AST 太空移动跌幅最大，早盘最大跌幅达 18%。
+国元证券点评认为，港股市场在经历了情绪修复之后，上周受到外部环境影响出现震荡，对利率敏感度较高的资产表现普遍承压，而出现上涨的则主要是受益于AI产业较为明显的权益资产，港股中半导体板块走出了独立行情，表现显著优于其他板块。
 
-火箭实验室股价一度下挫超 6%，行星实验室、直觉机器公司、旅行者科技跌幅均超过 5%。
+在伊朗与美国谈判期间，全球市场或有持续的震荡与反复，不过若未来谈判进展顺利，伴随着谈判形势逐渐明朗，未来市场的不确定性有望缩减，这将为港股的本轮修复行情提供一定的延续基础，港股有望维持震荡向上的格局。
 
-追踪整个航天行业的普库尔太空 ETF（UFO）更是创下年内最差单日表现。
+支持T+0交易！
 
 ## 相关推荐
 
-- 2026-06-30 01:54 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 02:06 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 01:59 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 02:02 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 01:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 01:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 01:59 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 02:07 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 01:49 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 01:58 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 01:55 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 02:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 02:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 02:14 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 02:04 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 02:09 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 01:50 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 02:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 02:09 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 02:17 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 02:09 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 02:04 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 02:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:08 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/2970733959.shtml)
-- 2026-06-30 02:04 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/9450994.shtml)
-- 2026-06-30 02:10 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/433896034.shtml)
-- 2026-06-30 02:02 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/806431276136.shtml)
-- 2026-06-30 02:03 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/231562.shtml)
-- 2026-06-30 01:53 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/90390086505.shtml)
-- 2026-06-30 02:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/8993450.shtml)
-- 2026-06-30 02:01 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/84822273258.shtml)
-- 2026-06-30 02:11 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/61753616.shtml)
-- 2026-06-30 01:52 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/282518.shtml)
-- 2026-06-30 02:09 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/01005660.shtml)
-- 2026-06-30 01:43 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/5904608.shtml)
-- 2026-06-30 01:58 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/05867.shtml)
-- 2026-06-30 02:04 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/7351901.shtml)
-- 2026-06-30 01:55 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/456123327.shtml)
+- 2026-06-30 02:13 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/67627217.shtml)
+- 2026-06-30 01:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/8653096287.shtml)
+- 2026-06-30 01:53 - [新官上任三把火](https://www.share.minike.top/Article/details/780392632.shtml)
+- 2026-06-30 01:48 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/07612553775.shtml)
+- 2026-06-30 02:06 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/800072.shtml)
+- 2026-06-30 01:54 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/558890676762.shtml)
+- 2026-06-30 01:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/194417.shtml)
+- 2026-06-30 02:07 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/01655164.shtml)
+- 2026-06-30 01:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/515237.shtml)
+- 2026-06-30 02:11 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/407938.shtml)
+- 2026-06-30 02:01 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/2856853129.shtml)
+- 2026-06-30 01:54 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/8627934.shtml)
+- 2026-06-30 02:15 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/603229609.shtml)
+- 2026-06-30 02:02 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/25678850.shtml)
+- 2026-06-30 02:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/090344365989.shtml)

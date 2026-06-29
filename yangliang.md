@@ -1,58 +1,59 @@
-# “十五五”开局，民营企业家与新的社会阶层人士共话新担当
+# 张津镭:鲍威尔鹰派谢幕在即 是跌向4500还是绝地反击
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网北京5月28日电 题：“十五五”开局，民营企业家与新的社会阶层人士共话新担当 中新网记者 张晓曦 一只“星星人”玩偶，被轻轻摆在发言席上。“我们希望未来能够有更多好的产品和服务，给这个世界带来更多美好和快乐。”泡泡玛特国际集团创始人、董事长兼首席执行官王宁对记者们表示。 5月28日下午，国务院新闻办公室举行“新征程上的奋斗者”中外记者见面会。5位民营企业家和新的社会阶层人
+4月29日，昨日金价提前走了一个大跌行情，亚盘刚刚触及4700关口后便开始回落。午盘开始大跌，美盘更是跌破4600关口，最低是到了4554美元一线，不过后续有所企稳。最终金价是收盘于4594美元，日线收于一根阴线。 周三（4月29日）当前市场的核心叙事正在经历一次“终局演绎”：在美联储决议前夕，市场提前消化了鹰派预期——油价高企引发的通胀担忧、降息预期的彻底破灭、叠加美伊僵局下
 
 ## 正文
 
-中新网北京5月28日电 题：“十五五”开局，民营企业家与新的社会阶层人士共话新担当 中新网记者 张晓曦 一只“星星人”玩偶，被轻轻摆在发言席上。
+4月29日，昨日金价提前走了一个大跌行情，亚盘刚刚触及4700关口后便开始回落。
 
-“我们希望未来能够有更多好的产品和服务，给这个世界带来更多美好和快乐。
+午盘开始大跌，美盘更是跌破4600关口，最低是到了4554美元一线，不过后续有所企稳。
 
-”泡泡玛特国际集团创始人、董事长兼首席执行官王宁对记者们表示。
+最终金价是收盘于4594美元，日线收于一根阴线。
 
-5月28日下午，国务院新闻办公室举行“新征程上的奋斗者”中外记者见面会。
+周三（4月29日）当前市场的核心叙事正在经历一次“终局演绎”：在美联储决议前夕，市场提前消化了鹰派预期——油价高企引发的通胀担忧、降息预期的彻底破灭、叠加美伊僵局下的避险资金回流美元，三股力量形成共振，最终击穿了持续数周的震荡区间。
 
-5位民营企业家和新的社会阶层人士代表坐到聚光灯下，围绕“奋进‘十五五’ 民企勇担当”发表见解。
+4550-4600美元区域正成为多头最后的防线。
 
-虽身处不同赛道，他们却有着相似气质——扎根主业、持续创新，以及对“中国企业走向世界”的信心。
+市场普遍预期本次会议维持利率不变，但更令市场担忧的是：鲍威尔可能“鹰派谢幕”——在最后一次发布会上强调“通胀风险升级”或删除降息指引。
 
-“让世界快乐”的中国IP 从北京一家小店，到如今在全球多个知名街区开出门店，泡泡玛特已走到第16个年头。
+这也是昨日金价提前交易“鹰派冲击”，并非等待决议落地再反应。
 
-王宁说，公司已经发展成为一个以IP为核心孵化运营的平台，携手全世界艺术家孵化了众多广受欢迎的IP，如拉布布、星星人等。
+另外，美伊谈判陷入僵局，市场风险偏好承压回落，避险资金回流美元及原油市场，贵金属市场再度承压。
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 01:42 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 01:48 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 02:06 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 01:44 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 02:01 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 02:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 02:01 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 02:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 01:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 01:45 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 02:01 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 02:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 01:56 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 01:49 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 02:16 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 01:49 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 02:15 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 02:02 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 02:01 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 02:00 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 02:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 01:55 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 02:16 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 02:17 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:48 - [斛珠夫人](http://www.blog.minike.top/Article/details/586141.shtml)
-- 2026-06-30 01:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/358472184944.shtml)
-- 2026-06-30 02:05 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/7198162251.shtml)
-- 2026-06-30 01:54 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/4667641.shtml)
-- 2026-06-30 02:01 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/8387927.shtml)
-- 2026-06-30 01:50 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/36512792296.shtml)
-- 2026-06-30 02:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/41603245.shtml)
-- 2026-06-30 02:07 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/7140152247.shtml)
-- 2026-06-30 01:45 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/64216739.shtml)
-- 2026-06-30 01:58 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/53267590006.shtml)
-- 2026-06-30 02:10 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/8064790.shtml)
-- 2026-06-30 01:55 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/52310913610.shtml)
-- 2026-06-30 01:51 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/708170274.shtml)
-- 2026-06-30 01:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/84177.shtml)
-- 2026-06-30 01:53 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/644615066.shtml)
+- 2026-06-30 01:59 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/115970.shtml)
+- 2026-06-30 01:53 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/167017.shtml)
+- 2026-06-30 02:12 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/515171531245.shtml)
+- 2026-06-30 01:54 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/86738360.shtml)
+- 2026-06-30 02:17 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/555500239.shtml)
+- 2026-06-30 02:09 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/29988.shtml)
+- 2026-06-30 02:11 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/628872956239.shtml)
+- 2026-06-30 02:08 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/422759278.shtml)
+- 2026-06-30 02:10 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/3226126319.shtml)
+- 2026-06-30 02:01 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/69491.shtml)
+- 2026-06-30 01:52 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/6295392.shtml)
+- 2026-06-30 01:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/593242314.shtml)
+- 2026-06-30 02:17 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/9333282.shtml)
+- 2026-06-30 02:17 - [恋与深空致歉](https://www.share.minike.top/Article/details/2028970100.shtml)
+- 2026-06-30 01:51 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/0871304442.shtml)

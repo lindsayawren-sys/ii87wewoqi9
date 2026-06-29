@@ -1,56 +1,57 @@
-# 国际锐评丨中塞“铁杆”友谊如何迈向新高度？
+# 特朗普告诉Axios称他拒绝解除对伊朗的海上封锁
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-“两国元首会谈取得丰硕成果”“双方签署20多项合作文件”“进一步巩固‘铁杆’友谊”“为双边合作开辟了新路径”……对于塞尔维亚总统武契奇24日至28日首次对中国进行的国事访问，国际舆论给予积极评价。25日，中国国家主席习近平同武契奇总统举行会谈，一致同意不断深化中塞全面战略伙伴关系，持续推进构建新时代中塞命运共同体。分析人士认为，这为中塞深化合作注入了新动力。在中国与他国的交往中
+美国总统唐纳德·特朗普在接受Axios采访时表示，在与德黑兰达成解决核问题的协议前，他不会解除对伊朗港口的海上封锁。此举意味着霍尔木兹海峡的对峙将继续持续。 据Axios报道，特朗普周三在电话采访中称，“封锁在某种程度上比轰炸更有效。这对他们来说只会更糟。不能让他们拥有核武器。” 特朗普还表示，他已拒绝伊朗近期有关重新开放海峡，但将核谈判推迟到以后进行的提议。责任编辑：丁文武
 
 ## 正文
 
-“两国元首会谈取得丰硕成果”“双方签署20多项合作文件”“进一步巩固‘铁杆’友谊”“为双边合作开辟了新路径”……对于塞尔维亚总统武契奇24日至28日首次对中国进行的国事访问，国际舆论给予积极评价。
+美国总统唐纳德·特朗普在接受Axios采访时表示，在与德黑兰达成解决核问题的协议前，他不会解除对伊朗港口的海上封锁。
 
-25日，中国国家主席习近平同武契奇总统举行会谈，一致同意不断深化中塞全面战略伙伴关系，持续推进构建新时代中塞命运共同体。
+此举意味着霍尔木兹海峡的对峙将继续持续。
 
-分析人士认为，这为中塞深化合作注入了新动力。
+据Axios报道，特朗普周三在电话采访中称，“封锁在某种程度上比轰炸更有效。
 
-在中国与他国的交往中，中塞“铁杆”友谊独树一帜。
+这对他们来说只会更糟。
 
-塞尔维亚是首个同中国共同构建新时代命运共同体的欧洲国家，也是最早同中国签署共建“一带一路”合作文件的欧洲国家之一。
+不能让他们拥有核武器。
 
-今年是中塞建立全面战略伙伴关系10周年，双边关系发展来到了一个重要历史节点。
+” 特朗普还表示，他已拒绝伊朗近期有关重新开放海峡，但将核谈判推迟到以后进行的提议。
 
-在这次会谈中，习近平主席强调，双方要加强交往、巩固互信、深化合作、相互支持，携手走出一条命运与共、共同繁荣的光明大道，推动中塞全面战略伙伴关系迈向新高度。
-
-北京外国语大学区域与全球治理高等研究院教授崔洪建对《国际锐评》分析说，习主席的重要论述表明，中塞“铁杆”友谊既要厚植基础，也要不断升级。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 01:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 01:47 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 02:02 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 01:49 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 02:08 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 02:00 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 01:58 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 01:52 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 02:01 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 01:55 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 02:03 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 02:10 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 01:49 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 02:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 02:06 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 02:13 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 02:00 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 01:51 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 02:15 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 02:04 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-30 02:16 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 02:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:05 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/6582618555.shtml)
-- 2026-06-30 01:54 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/667861632764.shtml)
-- 2026-06-30 02:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/865248441778.shtml)
-- 2026-06-30 01:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/53946008209.shtml)
-- 2026-06-30 01:51 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/58319.shtml)
-- 2026-06-30 01:49 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/279242.shtml)
-- 2026-06-30 02:08 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/693123.shtml)
-- 2026-06-30 01:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/91344761205.shtml)
-- 2026-06-30 02:06 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/6339204428.shtml)
-- 2026-06-30 02:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/28342148.shtml)
-- 2026-06-30 01:53 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/37872.shtml)
-- 2026-06-30 02:03 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/9112850574.shtml)
-- 2026-06-30 02:06 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/508788.shtml)
-- 2026-06-30 02:06 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/2134471.shtml)
-- 2026-06-30 01:49 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/335803789969.shtml)
+- 2026-06-30 02:16 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/898958.shtml)
+- 2026-06-30 01:50 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/81167.shtml)
+- 2026-06-30 02:11 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/36856566.shtml)
+- 2026-06-30 02:16 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/6052443.shtml)
+- 2026-06-30 02:10 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/729376480.shtml)
+- 2026-06-30 02:02 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/083408331537.shtml)
+- 2026-06-30 01:55 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/28557417.shtml)
+- 2026-06-30 01:50 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/3749186.shtml)
+- 2026-06-30 01:51 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/85184151.shtml)
+- 2026-06-30 01:49 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/090335504229.shtml)
+- 2026-06-30 01:57 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/128215395327.shtml)
+- 2026-06-30 02:16 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/636833311894.shtml)
+- 2026-06-30 02:01 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/41338.shtml)
+- 2026-06-30 02:11 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/184129.shtml)
+- 2026-06-30 02:08 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/76729931567.shtml)

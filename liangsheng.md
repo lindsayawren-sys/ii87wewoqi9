@@ -1,61 +1,60 @@
-# 中国民营企业家谈科技创新：重视细节积累与长期主义
+# 特朗普称乌克兰在军事上已被击败 外媒指其疑似将乌克兰与伊朗混淆
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新社北京5月28日电 (陶思阅 张晓曦)中国国务院新闻办公室28日举行“新征程上的奋斗者”中外记者见面会，多位民营企业家代表出席。他们提到，科技创新是细节的积累，要重视长期主义。 上海稀宇极智科技有限公司创始人兼首席执行官闫俊杰说，科技行业相信细节的积累，除了一些基本原理，需要非常科学的做事方式和大量的技术迭代。中国越来越好的科技创新环境，让这种积累变成了可能。 卧龙控股集团
+中新网4月30日电 据俄罗斯卫星通讯社报道，美国总统特朗普4月29日表示，从军事角度来看乌克兰已经被击败，但其疑似将乌克兰与伊朗混淆。 据报道，记者在白宫向特朗普提问“俄乌冲突和伊朗战事哪一个会更快结束”。特朗普说：“我不知道。也许它们结束的时间会大致相同。我认为，从军事角度来看，乌克兰已经被击败。” 然而，在说完这番话后，特朗普立即给出了一组数据。他表示：“从军事角度看，他们
 
 ## 正文
 
-中新社北京5月28日电 (陶思阅 张晓曦)中国国务院新闻办公室28日举行“新征程上的奋斗者”中外记者见面会，多位民营企业家代表出席。
+中新网4月30日电 据俄罗斯卫星通讯社报道，美国总统特朗普4月29日表示，从军事角度来看乌克兰已经被击败，但其疑似将乌克兰与伊朗混淆。
 
-他们提到，科技创新是细节的积累，要重视长期主义。
+据报道，记者在白宫向特朗普提问“俄乌冲突和伊朗战事哪一个会更快结束”。
 
-上海稀宇极智科技有限公司创始人兼首席执行官闫俊杰说，科技行业相信细节的积累，除了一些基本原理，需要非常科学的做事方式和大量的技术迭代。
+特朗普说：“我不知道。
 
-中国越来越好的科技创新环境，让这种积累变成了可能。
+也许它们结束的时间会大致相同。
 
-卧龙控股集团有限公司董事长、总裁陈嫣妮认为，坚持长期主义的高质量发展对企业非常重要：一是要坚持技术创新；二是要用中国企业的文化走全球化道路。
+我认为，从军事角度来看，乌克兰已经被击败。
 
-“不管是做企业还是搞科研，都没有捷径。
+” 然而，在说完这番话后，特朗普立即给出了一组数据。
 
-随着技术迭代逐步加快，我们越来越意识到，只有持续积累，才可能有生命力、竞争力。
+他表示：“从军事角度看，他们的舰队共159艘舰艇，目前它们全部都沉在水下。
 
-”江西飞尚科技有限公司董事长、总经理刘文峰表示，深耕比速成更重要，守住初心、扎根本业、持续积累，才有可能创造出属于自己的成绩。
+”报道指出，数据表明他这里所描述的可能是伊朗。
 
 ## 相关推荐
 
-- 2026-06-30 01:52 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 01:45 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 02:09 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 02:04 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 02:09 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 01:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 01:46 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 01:42 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 01:53 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 02:07 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 01:58 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 01:52 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 02:08 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 01:48 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 02:01 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 02:17 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 02:02 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 01:55 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 01:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 02:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 01:58 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 01:53 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 02:09 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-30 02:08 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 01:53 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 01:51 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 01:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 02:04 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 02:09 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/121443377135.shtml)
-- 2026-06-30 01:52 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/0948916270.shtml)
-- 2026-06-30 01:52 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/979633.shtml)
-- 2026-06-30 01:45 - [青春环游记第三季](http://www.share.minike.top/Article/details/714580307.shtml)
-- 2026-06-30 01:52 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/11973650.shtml)
-- 2026-06-30 01:55 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/586202.shtml)
-- 2026-06-30 02:09 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/17453194.shtml)
-- 2026-06-30 01:49 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/915557487495.shtml)
-- 2026-06-30 02:04 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/571938977.shtml)
-- 2026-06-30 02:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/354489720899.shtml)
-- 2026-06-30 01:58 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/7236362.shtml)
-- 2026-06-30 02:09 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/275238455.shtml)
-- 2026-06-30 01:49 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/978598.shtml)
-- 2026-06-30 01:44 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/884805863.shtml)
-- 2026-06-30 02:01 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/025137417.shtml)
+- 2026-06-30 02:03 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/922370297786.shtml)
+- 2026-06-30 02:09 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/739376411.shtml)
+- 2026-06-30 01:51 - [扬名立万](https://www.blog.minike.top/Article/details/28513014.shtml)
+- 2026-06-30 01:53 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/571429033.shtml)
+- 2026-06-30 02:00 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/311500342.shtml)
+- 2026-06-30 01:56 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/005712359.shtml)
+- 2026-06-30 02:15 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/6949067775.shtml)
+- 2026-06-30 02:12 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/84838540512.shtml)
+- 2026-06-30 01:56 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/4716743.shtml)
+- 2026-06-30 02:06 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/57996071629.shtml)
+- 2026-06-30 02:11 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/04237413.shtml)
+- 2026-06-30 02:10 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/2935883931.shtml)
+- 2026-06-30 01:52 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/14254776594.shtml)
+- 2026-06-30 02:05 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/6633618459.shtml)
+- 2026-06-30 01:51 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/54208661.shtml)

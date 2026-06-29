@@ -1,58 +1,57 @@
-# 印尼盾汇率连跌五日 印尼央行出手干预
+# OpenAI悄然疏远微软，转而大举向亚马逊靠拢
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新社雅加达5月29日电 (记者 李志全)印度尼西亚本币印尼盾持续走低，29日一度逼近1美元兑17900印尼盾水平。这也是印尼盾连续第五个交易日下跌。 根据路孚特(Refinitiv)和彭博社等机构数据，当天交易中，印尼盾波动区间位于1美元兑17800印尼盾至17885印尼盾之间，收盘报1美元兑17865印尼盾，贬值0.51%，创下印尼盾兑美元新低。 一周前，印尼央行宣布将基准
+核心要点 OpenAI 营收主管黛安・德雷瑟在官宣与亚马逊合作后接受 CNBC 采访时表示，公司周二宣布将旗下大模型登陆亚马逊云，与前一日第二次重塑微软合作关系毫无关联。 她直言：“这两件事不存在任何关联。” 但分析师们并不买账。 自去年 10 月底 OpenAI 完成资本重组、微软获得其盈利实体 27% 股权以来，行业格局已发生诸多变化。 作为协议一部分，OpenAI 承诺额
 
 ## 正文
 
-中新社雅加达5月29日电 (记者 李志全)印度尼西亚本币印尼盾持续走低，29日一度逼近1美元兑17900印尼盾水平。
+核心要点 OpenAI 营收主管黛安・德雷瑟在官宣与亚马逊合作后接受 CNBC 采访时表示，公司周二宣布将旗下大模型登陆亚马逊云，与前一日第二次重塑微软合作关系毫无关联。
 
-这也是印尼盾连续第五个交易日下跌。
+她直言：“这两件事不存在任何关联。
 
-根据路孚特(Refinitiv)和彭博社等机构数据，当天交易中，印尼盾波动区间位于1美元兑17800印尼盾至17885印尼盾之间，收盘报1美元兑17865印尼盾，贬值0.51%，创下印尼盾兑美元新低。
+” 但分析师们并不买账。
 
-一周前，印尼央行宣布将基准利率上调50个基点至5.25%，高于市场预期。
+自去年 10 月底 OpenAI 完成资本重组、微软获得其盈利实体 27% 股权以来，行业格局已发生诸多变化。
 
-消息公布后，印尼盾曾短暂走强。
+作为协议一部分，OpenAI 承诺额外采购2500 亿美元的微软 Azure 云服务；且双方收益分成协议将持续生效，直至独立专家组认定 OpenAI 实现通用人工智能 AGI为止。
 
-印尼央行29日在一份声明中表示，目前印尼盾汇率所面临的压力，仍持续受到中东冲突发展所引发的全球不确定性影响。
+此后一大关键变局是：OpenAI 开始主动亲近微软在云基建领域的最大对手 ——亚马逊。
 
-此外，在美元流入有限背景下，季节性外汇需求正在增加，其中包括偿还外债等。
+去年 11 月，OpenAI 披露与亚马逊云达成380 亿美元算力采购承诺。
 
-声明强调，尽管国内市场休市，但央行仍“全天候、全球范围”干预，以维护印尼盾汇率稳定。
+今年 2 月末，亚马逊宣布向 OpenAI 投资500 亿美元；OpenAI 将使用亚马逊云自研的 Trainium 芯片，提供总计2 吉瓦算力用于大模型训练。
 
 ## 相关推荐
 
-- 2026-06-30 02:06 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 02:10 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 01:49 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 02:02 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 02:05 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 02:07 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 02:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 02:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 01:53 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 01:43 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 02:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 01:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 02:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 02:08 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 02:00 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 01:56 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 02:15 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 01:49 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 02:13 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 02:11 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 02:10 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 02:06 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 02:08 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/0930341322.shtml)
-- 2026-06-30 01:54 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/5576684461.shtml)
-- 2026-06-30 02:06 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/95172306.shtml)
-- 2026-06-30 02:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/5730104.shtml)
-- 2026-06-30 02:04 - [逃狱兄弟](https://www.share.minike.top/Article/details/2110811600.shtml)
-- 2026-06-30 01:56 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/56521943625.shtml)
-- 2026-06-30 02:10 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/4245873.shtml)
-- 2026-06-30 02:08 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/238825538.shtml)
-- 2026-06-30 01:51 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/251071.shtml)
-- 2026-06-30 01:56 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/33452087.shtml)
-- 2026-06-30 02:02 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/0778919.shtml)
-- 2026-06-30 01:47 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/0601511540.shtml)
-- 2026-06-30 02:07 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/28651309772.shtml)
-- 2026-06-30 01:52 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/9384539.shtml)
-- 2026-06-30 01:54 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/352966798677.shtml)
+- 2026-06-30 01:53 - [内马尔替补](https://www.blog.minike.top/Article/details/134435.shtml)
+- 2026-06-30 01:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/08134600.shtml)
+- 2026-06-30 01:56 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/80860482.shtml)
+- 2026-06-30 01:51 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/84246.shtml)
+- 2026-06-30 01:54 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/526093615195.shtml)
+- 2026-06-30 01:53 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/276519765.shtml)
+- 2026-06-30 02:13 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/558148.shtml)
+- 2026-06-30 02:12 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/477305352.shtml)
+- 2026-06-30 01:57 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/4103752487.shtml)
+- 2026-06-30 02:17 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/4100590306.shtml)
+- 2026-06-30 01:50 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/0663486.shtml)
+- 2026-06-30 02:16 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/593286777846.shtml)
+- 2026-06-30 02:11 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/601567.shtml)
+- 2026-06-30 01:51 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/7511643.shtml)
+- 2026-06-30 01:55 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/38759899643.shtml)

@@ -1,56 +1,47 @@
-# 半导体“国家队”密集套现：一日内三龙头遭减持，影响几何？
+# 英矽智能公布认购理财产品
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-【相关阅读】多只半导体股，遭大基金减持 高位套现！谁在接盘？兆易创新等A股半导体企业股东超百亿元减持 国家集成电路产业投资基金股份有限公司减持计划持续推进。5月28日晚间，两只半导体个股沪硅产业、德邦科技分别披露大基金减持进展公告。同日，港交所文件显示，大基金对中芯国际的H股多头持仓比例已降至8%以下。 沪硅产业（688126）公告称，于2026年5月28日收到股东国家集成电路
+英矽智能（03696）发布公告，于2026年4月29日，公司及英硅智能香港（公司的全资附属公司）下达订单认购以下理财产品： （i） 公司下达订单认购由招银国际资产管理有限公司管理的招银国际美元货币市场基金，认购本金额为5000万美元； （ii） 英硅智能香港下达订单认购由JPMorgan Asset Management （Europe） S.a.r.l 管理的美元标准货币市场
 
 ## 正文
 
-【相关阅读】多只半导体股，遭大基金减持 高位套现！
+英矽智能（03696）发布公告，于2026年4月29日，公司及英硅智能香港（公司的全资附属公司）下达订单认购以下理财产品： （i） 公司下达订单认购由招银国际资产管理有限公司管理的招银国际美元货币市场基金，认购本金额为5000万美元； （ii） 英硅智能香港下达订单认购由JPMorgan Asset Management （Europe） S.a.r.l 管理的美元标准货币市场VNAV基金，认购本金额为5000万美元；及 （iii） 英硅智能香港下达订单认购由JPMorgan Chase Bank， N.A．， Hong Kong Branch发行的美元╱离岸人民币双币存款，认购本金额为500万美元。
 
-谁在接盘？
+于认购理财产品前，英硅智能香港已于2026年4月14日下达订单认购上述由 JPMorgan Asset Management （Europe） S.a.r.l管理的美元标准货币市场VNAV基金，认购本金额为200万美元，而其于紧接认购理财产品前的尚未赎回结余为200万美元。
 
-兆易创新等A股半导体企业股东超百亿元减持 国家集成电路产业投资基金股份有限公司减持计划持续推进。
-
-5月28日晚间，两只半导体个股沪硅产业、德邦科技分别披露大基金减持进展公告。
-
-同日，港交所文件显示，大基金对中芯国际的H股多头持仓比例已降至8%以下。
-
-沪硅产业（688126）公告称，于2026年5月28日收到股东国家集成电路产业投资基金股份有限公司出具的告知函，国家集成电路产业投资基金股份有限公司于2026年5月20日至2026年5月28日期间，通过大宗交易方式累计减持公司股份3305.02万股，其所持有公司股份比例由13.89%减少至12.89%，权益变动触及1%刻度。
-
-公告显示，本次权益变动为国家集成电路产业投资基金股份有限公司履行已披露的减持股份计划，为公司股东的正常减持，不会导致公司无控股股东、无实际控制人的状态发生变化，不会对公司治理结构及持续经营产生重大影响。
-
-同日晚间，德邦科技（688035）公告称，2026年5月19日至2026年5月28日，公司持股5%以上股东国家集成电路产业投资基金股份有限公司通过集中竞价及大宗交易方式合计减持公司股份142.24万股，其中通过集中竞价方式减持71.12万股，通过大宗交易方式减持71.12万股。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 02:05 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 01:52 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 01:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 02:11 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 02:06 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 02:02 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 02:07 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 01:59 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 01:54 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 02:08 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 01:53 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 01:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 01:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 02:06 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 02:11 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 01:55 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 02:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 01:59 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 01:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 01:51 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:48 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/43002317035.shtml)
-- 2026-06-30 01:55 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/74189.shtml)
-- 2026-06-30 01:55 - [金刚川](https://www.share.minike.top/Article/details/12167973121.shtml)
-- 2026-06-30 02:01 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/286890341.shtml)
-- 2026-06-30 02:06 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/13078932.shtml)
-- 2026-06-30 01:44 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/654296.shtml)
-- 2026-06-30 02:03 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/18464909.shtml)
-- 2026-06-30 02:07 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/881584418523.shtml)
-- 2026-06-30 02:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/203624610946.shtml)
-- 2026-06-30 01:54 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/2857923469.shtml)
-- 2026-06-30 01:58 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/604843803.shtml)
-- 2026-06-30 01:59 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/815153626958.shtml)
-- 2026-06-30 01:49 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/5776227.shtml)
-- 2026-06-30 02:00 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/213240533.shtml)
-- 2026-06-30 01:56 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/949515.shtml)
+- 2026-06-30 01:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/700282183.shtml)
+- 2026-06-30 02:15 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/328048.shtml)
+- 2026-06-30 01:55 - [内马尔替补](https://www.share.minike.top/Article/details/9473030.shtml)
+- 2026-06-30 02:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/1309638.shtml)
+- 2026-06-30 01:58 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/8920694.shtml)
+- 2026-06-30 02:07 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/972890922.shtml)
+- 2026-06-30 01:58 - [千香](https://www.blog.minike.top/Article/details/095068887546.shtml)
+- 2026-06-30 02:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/2332573.shtml)
+- 2026-06-30 01:54 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/42944.shtml)
+- 2026-06-30 02:07 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/65441.shtml)
+- 2026-06-30 01:58 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/822036.shtml)
+- 2026-06-30 01:55 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/263660956.shtml)
+- 2026-06-30 02:18 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/481668044.shtml)
+- 2026-06-30 02:09 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/04645.shtml)
+- 2026-06-30 02:08 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/7819254863.shtml)

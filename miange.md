@@ -1,52 +1,58 @@
-# 南京银行：江苏交控变更股权获得监管机构批复
+# 台湾县市道教会理事长联谊会参访团赴福建诏安进香交流
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-5月29日金融一线消息，南京银行发布公告称，江苏交通控股有限公司（以下简称“江苏交控”）是南京银行股份有限公司（以下简称“公司”）大股东，截至2026年3月末持有公司股份比例为14.90%。根据《商业银行股权管理暂行办法》“第四条投资人及其关联方、一致行动人单独或合计拟首次持有或累计增持商业银行资本总额或股份总额百分之五以上的，应当事先报银监会或其派出机构核准”的要求，江苏交控
+中新网漳州4月29日电 (沈晴槟)一场以“信俗为纽带”的两岸宫庙文化交流活动28日在福建省漳州市诏安县霞葛镇五通宫举行。台湾县市道教会理事长联谊会执行长陈奇勇率45人交流团与五通宫宗亲齐聚一堂，共同拜谒五显大帝，畅叙乡情，共话融合。在庄严肃穆的氛围中，两岸信众遵循古制，手持馨香，共同向五显大帝行鞠躬礼，祈愿风调雨顺、国泰民安、两岸和平。当看到祖庙的明清古建筑与碑刻保存完好，台胞
 
 ## 正文
 
-5月29日金融一线消息，南京银行发布公告称，江苏交通控股有限公司（以下简称“江苏交控”）是南京银行股份有限公司（以下简称“公司”）大股东，截至2026年3月末持有公司股份比例为14.90%。
+中新网漳州4月29日电 (沈晴槟)一场以“信俗为纽带”的两岸宫庙文化交流活动28日在福建省漳州市诏安县霞葛镇五通宫举行。
 
-根据《商业银行股权管理暂行办法》“第四条投资人及其关联方、一致行动人单独或合计拟首次持有或累计增持商业银行资本总额或股份总额百分之五以上的，应当事先报银监会或其派出机构核准”的要求，江苏交控作为持股比例10%以上的股东，持股比例超过15%需要事先获得国家金融监督管理总局江苏监管局核准。
+台湾县市道教会理事长联谊会执行长陈奇勇率45人交流团与五通宫宗亲齐聚一堂，共同拜谒五显大帝，畅叙乡情，共话融合。
 
-近日，公司收到国家金融监督管理总局江苏监管局下发的《江苏金融监管局关于南京银行变更股权的批复》（苏金复〔2026〕154号），同意江苏交控持有公司股份比例超过15%。
+在庄严肃穆的氛围中，两岸信众遵循古制，手持馨香，共同向五显大帝行鞠躬礼，祈愿风调雨顺、国泰民安、两岸和平。
 
-责任编辑：王馨茹
+当看到祖庙的明清古建筑与碑刻保存完好，台胞们感慨万千，纷纷在殿前合影留念。
+
+祭拜活动结束后两岸宗亲举行交流座谈会。
+
+陈奇勇在座谈会上发言时表示，他已多次到访诏安县五通宫，此次率团再访，意在让大家深刻体会信仰的力量，两岸同属一个中国，信仰相同，希望两岸常来常往，推动民间信仰文化交流与合作。
+
+诏安与台湾一水之隔，地缘相近、人缘相亲、文缘相承。
+
+五通宫管委会负责人对台湾宗亲的到来表示热烈欢迎，并期待今后两岸宫庙加强联系，共同弘扬五显大帝信俗文化，增进两岸民间信俗交流，未来五通宫将继续发挥祖庙纽带作用，深化与台湾道教界的联系，促进两岸同胞心灵契合。
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 02:03 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 01:50 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 01:57 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 01:58 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 01:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 02:06 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 02:07 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 01:45 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 02:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 01:52 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 01:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 02:09 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 02:01 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 01:50 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 02:09 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 02:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 01:55 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 01:53 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 02:16 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 02:13 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 01:51 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 01:59 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 01:48 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 01:55 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 01:59 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:52 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/52749467.shtml)
-- 2026-06-30 01:53 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/813824381.shtml)
-- 2026-06-30 01:43 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/5738160.shtml)
-- 2026-06-30 01:56 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/3890990389.shtml)
-- 2026-06-30 01:57 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/55310415.shtml)
-- 2026-06-30 01:44 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/41237371.shtml)
-- 2026-06-30 02:10 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/130022316.shtml)
-- 2026-06-30 01:58 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/07174.shtml)
-- 2026-06-30 01:58 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/58027644.shtml)
-- 2026-06-30 01:59 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/74536988.shtml)
-- 2026-06-30 02:09 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/45219204761.shtml)
-- 2026-06-30 01:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/81715408300.shtml)
-- 2026-06-30 02:03 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/295936712.shtml)
-- 2026-06-30 01:44 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/970697421707.shtml)
-- 2026-06-30 01:57 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/7698355.shtml)
+- 2026-06-30 02:02 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/595828287.shtml)
+- 2026-06-30 02:16 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/98088.shtml)
+- 2026-06-30 02:05 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/349059824261.shtml)
+- 2026-06-30 02:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/81572.shtml)
+- 2026-06-30 02:09 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/082959860.shtml)
+- 2026-06-30 02:13 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/67795209.shtml)
+- 2026-06-30 01:55 - [恋与深空致歉](https://www.share.minike.top/Article/details/027228640.shtml)
+- 2026-06-30 02:04 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/482917.shtml)
+- 2026-06-30 02:08 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/08924923959.shtml)
+- 2026-06-30 02:15 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/96648347.shtml)
+- 2026-06-30 01:54 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/31262.shtml)
+- 2026-06-30 01:56 - [请回答王牌2019](https://www.share.minike.top/Article/details/65623708501.shtml)
+- 2026-06-30 02:16 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/838352066877.shtml)
+- 2026-06-30 01:57 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/854136952374.shtml)
+- 2026-06-30 02:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/41089.shtml)

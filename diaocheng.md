@@ -1,56 +1,47 @@
-# Salesforce应对AI颠覆：不招工程师、砸钱回购，市场仍在观望
+# 市场监管总局：对明星带货虚假宣传依法追究责任
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-华尔街正密切关注Salesforce（CRM）如何在人工智能浪潮中自我重塑。尽管这家云软件巨头交出了一份超预期的季报，但市场对其AI战略的疑虑，连同业绩指引的微妙信号，使其股价近期承压。 激进转型：停招工程师，押注AI代理 Salesforce的AI转型决心在招聘策略上体现得尤为彻底。公司首席执行官马克·贝尼奥夫明确表示，2026财年公司将不再招聘新工程师。这一反硅谷常规的决定
+发布时间：2026年04月29日 18:12 来源：中国新闻网 4月29日，记者在市场监管总局食品安全专题新闻发布会上获悉，市场监管总局近日正式印发《关于开展网络食品销售虚假宣传专项整治行动的通知》，从现在起在全国范围内开展为期半年的专项整治行动。市场监管总局食品安全总监孙会川表示，此次专项整治将彰显最严监管，坚决处罚到人：对违法行为负有直接责任的企业法定代表人、主要负责人、直
 
 ## 正文
 
-华尔街正密切关注Salesforce（CRM）如何在人工智能浪潮中自我重塑。
+发布时间：2026年04月29日 18:12 来源：中国新闻网 4月29日，记者在市场监管总局食品安全专题新闻发布会上获悉，市场监管总局近日正式印发《关于开展网络食品销售虚假宣传专项整治行动的通知》，从现在起在全国范围内开展为期半年的专项整治行动。
 
-尽管这家云软件巨头交出了一份超预期的季报，但市场对其AI战略的疑虑，连同业绩指引的微妙信号，使其股价近期承压。
+市场监管总局食品安全总监孙会川表示，此次专项整治将彰显最严监管，坚决处罚到人：对违法行为负有直接责任的企业法定代表人、主要负责人、直接责任人，依法实施个人罚款和从业禁止；对明星带货、网络主播、运营团队等实施虚假宣传的，坚持一案多查，依法追究法律责任。
 
-激进转型：停招工程师，押注AI代理 Salesforce的AI转型决心在招聘策略上体现得尤为彻底。
-
-公司首席执行官马克·贝尼奥夫明确表示，2026财年公司将不再招聘新工程师。
-
-这一反硅谷常规的决定，源于AI工具已为开发工作带来超过30%的效率提升。
-
-目前，AI代理已承担了公司内部30%至50%的工作，并直接导致客户支持人员数量从9000人缩减至5000人。
-
-这种“效率优先”的理念，正通过其核心AI产品Agentforce推向客户。
-
-Agentforce旨在部署能独立完成销售线索筛选、客户服务等任务的AI“数字劳动力”。
+责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 01:54 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 01:55 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 01:53 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 01:49 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 01:56 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 02:10 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 01:53 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 01:49 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 01:43 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 02:12 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 02:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 02:17 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 02:06 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 01:58 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 02:13 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 01:53 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 01:51 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 02:11 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 02:16 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 01:49 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/02919238426.shtml)
-- 2026-06-30 01:57 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/617677.shtml)
-- 2026-06-30 01:48 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/471299.shtml)
-- 2026-06-30 01:53 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/39844357043.shtml)
-- 2026-06-30 01:56 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/4005363.shtml)
-- 2026-06-30 01:58 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/441665505.shtml)
-- 2026-06-30 01:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/37975296.shtml)
-- 2026-06-30 01:59 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/24412584677.shtml)
-- 2026-06-30 01:51 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/08670271.shtml)
-- 2026-06-30 01:46 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/51403682867.shtml)
-- 2026-06-30 01:44 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/9901631004.shtml)
-- 2026-06-30 02:07 - [一生一世](http://www.share.kurohicncr.top/Article/details/59191921.shtml)
-- 2026-06-30 01:52 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/1625229740.shtml)
-- 2026-06-30 01:44 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/8056828288.shtml)
-- 2026-06-30 01:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/194872.shtml)
+- 2026-06-30 02:15 - [恋与深空 日服](https://www.share.minike.top/Article/details/80357.shtml)
+- 2026-06-30 01:56 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/73292682267.shtml)
+- 2026-06-30 02:09 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/61673.shtml)
+- 2026-06-30 02:12 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/82085.shtml)
+- 2026-06-30 01:56 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/295689909.shtml)
+- 2026-06-30 02:00 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/728306862116.shtml)
+- 2026-06-30 01:52 - [扫黑风暴](http://www.share.minike.top/Article/details/343020171.shtml)
+- 2026-06-30 01:50 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/87740838.shtml)
+- 2026-06-30 01:55 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/884013849.shtml)
+- 2026-06-30 01:50 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/242685919.shtml)
+- 2026-06-30 02:06 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/7894614657.shtml)
+- 2026-06-30 02:00 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/963260723.shtml)
+- 2026-06-30 02:10 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/96728775.shtml)
+- 2026-06-30 02:10 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/202884003.shtml)
+- 2026-06-30 02:04 - [世界杯](http://www.share.minike.top/Article/details/498585.shtml)

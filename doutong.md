@@ -1,57 +1,58 @@
-# 一纸侨批中，藏着哪些家国故事？
+# 假期闲钱往哪放？这个底仓品种吸金461亿
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-一纸侨批中，藏着哪些家国故事？ 5位侨批研究专家讲述泛黄纸页中的赤诚情怀与世界意义 来源：羊城晚报 作者：李焕坤 随着《给阿嬷的情书》的热播，28日，由省委统战部主办，中国统一战线理论研究会港澳和海外统战工作理论广东研究基地、广东华侨博物馆协办的“侨批里的家与国”故事分享会在广州举行，5位知名侨批研究专家围绕侨批所承载的深厚家国情怀与华侨精神展开分享。每封侨批都是个体生命史 广
+3月以来，全球市场波动明显加剧。地缘局势持续拉扯，叠加一季报业绩验证期的到来，A股整体震荡幅度放大。面对这样的环境，不少投资者开始重新审视账户配置：进攻端能够承受波动，而底仓是否足够稳健？ 刚刚披露完毕的一季报，恰好提供了一个值得关注的视角。据Wind二级分类统计，今年一季度，短期纯债基金规模增长461亿元，存量规模超过1万亿元。在市场波动加剧的背景下，短债基金依然保持了可观的
 
 ## 正文
 
-一纸侨批中，藏着哪些家国故事？
+3月以来，全球市场波动明显加剧。
 
-5位侨批研究专家讲述泛黄纸页中的赤诚情怀与世界意义 来源：羊城晚报 作者：李焕坤 随着《给阿嬷的情书》的热播，28日，由省委统战部主办，中国统一战线理论研究会港澳和海外统战工作理论广东研究基地、广东华侨博物馆协办的“侨批里的家与国”故事分享会在广州举行，5位知名侨批研究专家围绕侨批所承载的深厚家国情怀与华侨精神展开分享。
+地缘局势持续拉扯，叠加一季报业绩验证期的到来，A股整体震荡幅度放大。
 
-每封侨批都是个体生命史 广东是全国著名侨乡，近代以来大量广东人远赴海外谋生，由此催生了独具特色的侨批文化，至今全省留存的侨批数量庞大，2013年主要由广东侨批构成的“侨批档案”入选《世界记忆名录》。
+面对这样的环境，不少投资者开始重新审视账户配置：进攻端能够承受波动，而底仓是否足够稳健？
 
-在一群研究者的长期坚守中，一封封泛黄的侨批化作了有温度、有呼吸的个体生命史。
+刚刚披露完毕的一季报，恰好提供了一个值得关注的视角。
 
-侨批收藏家麦国培生长于华侨家庭，对侨批、侨汇有着特殊的情感。
+据Wind二级分类统计，今年一季度，短期纯债基金规模增长461亿元，存量规模超过1万亿元。
 
-他从1987年起便开始收集和研究侨批，个人收藏的广府侨批书信及侨批汇单实物有上万封(件)。
+在市场波动加剧的背景下，短债基金依然保持了可观的资金流入，侧面印证了其作为资产配置底仓的独特价值——不投权益、主投高评级短期债券，波动可控，且假期票息收益不间断，恰好契合闲钱理财的核心诉求。
 
-分享会上，他展示了与三水“红头巾”妇女相关的珍贵收藏。
+眼下，五一小长假即将到来。
 
-20世纪20年代至40年代，近6万名三水女子漂洋过海参与新加坡的现代化建设。
+需要留意的是，假期期间海外金融市场仍将正常交易，外围消息面存在不确定性。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 01:45 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 01:43 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 02:07 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 02:07 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 02:03 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 01:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 01:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 01:54 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 01:46 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 01:47 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 02:10 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 02:17 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 02:13 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 02:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 02:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 01:53 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 01:53 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 01:48 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 02:01 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 01:49 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 02:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 01:56 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/69606410.shtml)
-- 2026-06-30 01:47 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/71588539707.shtml)
-- 2026-06-30 02:05 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/4187984.shtml)
-- 2026-06-30 02:04 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/199004361.shtml)
-- 2026-06-30 02:03 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/20345.shtml)
-- 2026-06-30 02:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/47805427.shtml)
-- 2026-06-30 02:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/3839422.shtml)
-- 2026-06-30 01:51 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/11174388.shtml)
-- 2026-06-30 02:08 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/663102755181.shtml)
-- 2026-06-30 02:09 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/31002.shtml)
-- 2026-06-30 01:44 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/940684599.shtml)
-- 2026-06-30 01:58 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/19934.shtml)
-- 2026-06-30 01:54 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/4367145784.shtml)
-- 2026-06-30 01:53 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/07000.shtml)
-- 2026-06-30 01:57 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/19267178250.shtml)
+- 2026-06-30 02:09 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/33304410.shtml)
+- 2026-06-30 02:10 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/16791021.shtml)
+- 2026-06-30 02:01 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/163113273508.shtml)
+- 2026-06-30 01:49 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/57643.shtml)
+- 2026-06-30 02:01 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/20379408.shtml)
+- 2026-06-30 02:14 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/217781563453.shtml)
+- 2026-06-30 02:04 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/035561318.shtml)
+- 2026-06-30 02:06 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/19733138.shtml)
+- 2026-06-30 02:16 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/84792621951.shtml)
+- 2026-06-30 01:58 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/25081671722.shtml)
+- 2026-06-30 02:07 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/3088259653.shtml)
+- 2026-06-30 02:10 - [第一炉香](http://www.share.minike.top/Article/details/192283787.shtml)
+- 2026-06-30 02:06 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/707565.shtml)
+- 2026-06-30 02:09 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/55057.shtml)
+- 2026-06-30 02:12 - [一见倾心](http://www.share.kurohicncr.top/Article/details/564613695977.shtml)

@@ -1,57 +1,61 @@
-# 贵港海关信息化设备及系统驻点维护服务比选采购公告
+# 国台办：和平统一后，台湾经济将焕发新活力
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-贵港海关需对信息化设备及系统驻点维护服务进行采购，采用比选采购的方式择优选择供应单位，现将有关采购情况公告如下： 一、项目名称：贵港海关信息化设备及系统驻点维护服务。 二、报价内容：贵港海关信息化设备及系统驻点维护服务采购需求表(附件1)进行报价。(单价、总价均需报价) 三、项目预算金额(人民币)：11万元(最终结算金额根据服务合同确定)。四、报价人资格： (一)国内注册(指按
+中新社北京4月29日电 (记者 张晓曦 刘大炜)国务院台办新闻发言人陈斌华29日在北京表示，和平统一后，立足于大陆超大市场和超大规模经济等优势，结合自身科技特色和人才优势，台湾经济将焕发新活力，台湾同胞将从中得到实实在在的好处。国台办例行新闻发布会当天举行。解读和平统一后台湾七个“更好”中关于经济发展相关内容时，陈斌华作上述表示。 他还指出，届时，两岸贸易将进一步释放新的增长动
 
 ## 正文
 
-贵港海关需对信息化设备及系统驻点维护服务进行采购，采用比选采购的方式择优选择供应单位，现将有关采购情况公告如下： 一、项目名称：贵港海关信息化设备及系统驻点维护服务。
+中新社北京4月29日电 (记者 张晓曦 刘大炜)国务院台办新闻发言人陈斌华29日在北京表示，和平统一后，立足于大陆超大市场和超大规模经济等优势，结合自身科技特色和人才优势，台湾经济将焕发新活力，台湾同胞将从中得到实实在在的好处。
 
-二、报价内容：贵港海关信息化设备及系统驻点维护服务采购需求表(附件1)进行报价。
+国台办例行新闻发布会当天举行。
 
-(单价、总价均需报价) 三、项目预算金额(人民币)：11万元(最终结算金额根据服务合同确定)。
+解读和平统一后台湾七个“更好”中关于经济发展相关内容时，陈斌华作上述表示。
 
-四、报价人资格： (一)国内注册(指按国家有关规定要求注册的)，符合《中华人民共和国政府采购法》第二十二条资格条件，具备法人资格的供应商 (二)参加政府采购活动前三年内，在“信用中国”网站(www.creditchina.gov.cn)、中国政府采购网(www.ccgp.gov.cn)等渠道未被列入失信被执行人、重大税收违法案件当事人名单、政府采购严重违法失信行为记录名单及无其他不符合《中华人民共和国政府采购法》第二十二条规定条件。
+他还指出，届时，两岸贸易将进一步释放新的增长动能，大陆市场将成为台湾经济稳定增长的强力支撑；两岸产业链、供应链将深度融合，进一步激活台湾产业发展内生动力。
 
-五、报价文件要求： (一)报价文件(需提交正本一份，副本二份，见附件2)。
+陈斌华指出，升级传统产业方面，台企可通过两岸上下游协同创新，实现数字化转型、智能化升级，焕发高端化、智能化、绿色化蓬勃生机。
 
-(二)报价文件复印件须加盖封面章或骑缝章。
+壮大新兴产业方面，台企可通过开发新技术、新产品、新场景，进入更多新领域、新赛道，向产业链、价值链高端跃升。
 
-所有报价文件需按报价文件目录顺序装订成册，且须装在一个密封袋内，密封袋的封口处应加贴封条并加盖报价人单位公章以示密封。
+布局未来产业方面，台企可通过善用大陆科技产业资源，积极融入创新生态，获得更大的发展空间。
 
-六、协商须知： (一)报价文件必须满足贵港海关信息化设备及系统驻点维护服务采购需求表中所列具体要求(附件1)。
+此外，两岸将实现互联互通、应通尽通，物流、人流、资金流、信息流将更加顺畅，为台湾民众提供更多就业创业机会。
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 01:51 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 01:44 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 01:55 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 02:09 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 01:42 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 01:51 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 01:55 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 01:45 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 02:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 01:50 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 02:00 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 02:16 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 01:56 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 01:48 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 01:52 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 02:16 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 01:56 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 01:48 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 02:07 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 02:04 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 02:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 01:51 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 01:54 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 02:11 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 02:15 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/961602.shtml)
-- 2026-06-30 01:44 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/44183145860.shtml)
-- 2026-06-30 01:42 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/12947763123.shtml)
-- 2026-06-30 01:47 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/070908619365.shtml)
-- 2026-06-30 01:45 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/078221442.shtml)
-- 2026-06-30 02:05 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/37469365.shtml)
-- 2026-06-30 01:52 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/249846.shtml)
-- 2026-06-30 02:09 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/867081311665.shtml)
-- 2026-06-30 02:03 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/22081401026.shtml)
-- 2026-06-30 02:08 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/7116790411.shtml)
-- 2026-06-30 01:55 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/237024541701.shtml)
-- 2026-06-30 02:06 - [千与千寻](https://www.share.minike.top/Article/details/52072021623.shtml)
-- 2026-06-30 02:03 - [请回答王牌2019](http://www.share.minike.top/Article/details/42880.shtml)
-- 2026-06-30 01:48 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/518657.shtml)
-- 2026-06-30 01:45 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/794272232.shtml)
+- 2026-06-30 02:02 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/38598585848.shtml)
+- 2026-06-30 02:11 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/156812.shtml)
+- 2026-06-30 02:11 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/0464880254.shtml)
+- 2026-06-30 01:53 - [新官上任三把火](https://www.share.minike.top/Article/details/713905.shtml)
+- 2026-06-30 02:12 - [千香](http://www.blog.minike.top/Article/details/52673620359.shtml)
+- 2026-06-30 02:00 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/58361.shtml)
+- 2026-06-30 02:03 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/29053.shtml)
+- 2026-06-30 01:59 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/42342904.shtml)
+- 2026-06-30 02:00 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/3396892.shtml)
+- 2026-06-30 02:07 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/0187831111.shtml)
+- 2026-06-30 02:02 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/20381597.shtml)
+- 2026-06-30 01:53 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/769766057196.shtml)
+- 2026-06-30 01:59 - [月亮](https://www.share.minike.top/Article/details/44006654.shtml)
+- 2026-06-30 01:50 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/10772974490.shtml)
+- 2026-06-30 01:52 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/7314233.shtml)

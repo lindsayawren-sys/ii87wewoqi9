@@ -1,53 +1,58 @@
-# 明东：非侵入式脑机接口产业化前景广阔
+# 深圳放宽限购叠加公积金提额 重点城市楼市“金三银四”成色足
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！聆听前沿声音，洞见未来趋势。5月28日，以“智行天下 能动未来”为主题的2026世界智能产业博览会在天津启幕。天津大学副校长、脑机交互与人机共融海河实验室主任明东在开幕式嘉宾发言中表示，高性能、无创脑机接口技术供给侧的成熟，是脑机接口领域迈向大规模未来产业的关键。 责任编辑：宋雅芳
+“金三银四”是楼市的传统旺季，今年的这个旺季似乎比往年来得更暖一些。 4月即将过去，多个重点城市的楼市依旧维持高热度，楼市政策也暖风频吹。不过，在业内人士看来，当前楼市企稳趋势显现，企稳基础仍需夯实。 交易意愿显著增强 进入4月以来，以北京、上海、深圳为代表的多个重点城市的房地产市场交易延续了3月的热度。 北京市住建委的数据显示，4月截至28日，北京二手房网签量达16186套，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+“金三银四”是楼市的传统旺季，今年的这个旺季似乎比往年来得更暖一些。
 
-聆听前沿声音，洞见未来趋势。
+4月即将过去，多个重点城市的楼市依旧维持高热度，楼市政策也暖风频吹。
 
-5月28日，以“智行天下 能动未来”为主题的2026世界智能产业博览会在天津启幕。
+不过，在业内人士看来，当前楼市企稳趋势显现，企稳基础仍需夯实。
 
-天津大学副校长、脑机交互与人机共融海河实验室主任明东在开幕式嘉宾发言中表示，高性能、无创脑机接口技术供给侧的成熟，是脑机接口领域迈向大规模未来产业的关键。
+交易意愿显著增强 进入4月以来，以北京、上海、深圳为代表的多个重点城市的房地产市场交易延续了3月的热度。
 
-责任编辑：宋雅芳
+北京市住建委的数据显示，4月截至28日，北京二手房网签量达16186套，同比上涨超过15%，创近五年同期新高；根据市场公开信息，4月截至23日，上海二手房成交已突破2万套；4月1日至26日，深圳贝壳合作门店二手房签约量同比上涨26%，成交效率明显提升，新房市场同步回暖，认购量同比增长16%。
+
+另据中指研究院统计，4月19日至4月25日，20城二手房成交39992套，环比增长2.2%，同比增长21.1%；4月以来环比增长10.7%，同比增长11.8%。
+
+除了成交量，证券时报记者在深圳多个区走访时发现，一些热点二手房小区的挂牌和成交均价均有所上涨，购房者对市场的信心有所恢复。
+
+对于价格上涨，深圳贝壳研究院院长肖小平表示，本轮价格回升覆盖刚需与改善房源，属于市场调整后的理性回归，整体仍保持温和复苏节奏。
 
 ## 相关推荐
 
-- 2026-06-30 01:52 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 02:10 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 02:02 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 01:57 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 02:04 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 01:44 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 02:02 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 02:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 02:00 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 01:53 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 02:03 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 01:49 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 01:42 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 02:03 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 02:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 01:53 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 01:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 01:51 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 02:17 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 02:01 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 02:05 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 02:04 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 02:13 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 01:49 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 01:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/70328.shtml)
-- 2026-06-30 01:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/0869366.shtml)
-- 2026-06-30 01:55 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/41612496.shtml)
-- 2026-06-30 02:10 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/417502.shtml)
-- 2026-06-30 01:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/281036.shtml)
-- 2026-06-30 02:04 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/0906806.shtml)
-- 2026-06-30 01:52 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/3097967482.shtml)
-- 2026-06-30 02:04 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/375954108.shtml)
-- 2026-06-30 01:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/0492747.shtml)
-- 2026-06-30 01:50 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/556577470.shtml)
-- 2026-06-30 01:50 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/6879683.shtml)
-- 2026-06-30 01:46 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/481157436.shtml)
-- 2026-06-30 02:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/25916964312.shtml)
-- 2026-06-30 02:05 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/999545.shtml)
-- 2026-06-30 02:10 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/145956.shtml)
+- 2026-06-30 02:03 - [我们的少年时代2](http://www.share.minike.top/Article/details/174625493466.shtml)
+- 2026-06-30 02:07 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/93974.shtml)
+- 2026-06-30 02:09 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/7797508.shtml)
+- 2026-06-30 02:07 - [金刚川](http://www.share.minike.top/Article/details/347785997.shtml)
+- 2026-06-30 01:48 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/7009276236.shtml)
+- 2026-06-30 02:01 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/57338659.shtml)
+- 2026-06-30 01:59 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/804012.shtml)
+- 2026-06-30 02:12 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/03576803.shtml)
+- 2026-06-30 02:03 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/75234706913.shtml)
+- 2026-06-30 01:54 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/168817923044.shtml)
+- 2026-06-30 01:51 - [这一刀 会很帅](http://www.share.minike.top/Article/details/4118513.shtml)
+- 2026-06-30 01:57 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/46433.shtml)
+- 2026-06-30 02:01 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/56801775.shtml)
+- 2026-06-30 01:58 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/05107610.shtml)
+- 2026-06-30 02:11 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/6822052451.shtml)

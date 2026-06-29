@@ -1,58 +1,58 @@
-# CRP Subsea获得海上风电电缆保护合同
+# 印度南部一医院围墙倒塌致7死7伤
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-CRP Subsea公司已从Seaway7获得一份重要合同，为位于北海的ScottishPower Renewables东英吉利二期风电项目提供电缆保护系统。 根据协议，CRP Subsea将交付142套NjordGuard电缆保护系统，用于保护该项目风电机组阵列间电缆的两端。这些系统将保护电缆在安装期间及整个运行寿命中免受过度弯曲、磨损和疲劳的影响。公司将设计三种NjordG
+中新社北京4月30日电 据印度《德干先驱报》报道，当地时间29日傍晚，印度南部城市班加罗尔一处医院围墙突然倒塌，造成至少7人死亡、7人受伤。 当地警方表示，遇难者包括一名儿童和在路边做小生意的商贩；伤者中有商贩、躲雨的路人和在班加罗尔旅游的游客。 事发时当地正遭遇雷暴和强降雨，围墙在傍晚约5时45分突然坍塌，压倒在附近避雨的人群。 印媒援引消息人士的话说，这段墙体已有约30年历
 
 ## 正文
 
-CRP Subsea公司已从Seaway7获得一份重要合同，为位于北海的ScottishPower Renewables东英吉利二期风电项目提供电缆保护系统。
+中新社北京4月30日电 据印度《德干先驱报》报道，当地时间29日傍晚，印度南部城市班加罗尔一处医院围墙突然倒塌，造成至少7人死亡、7人受伤。
 
-根据协议，CRP Subsea将交付142套NjordGuard电缆保护系统，用于保护该项目风电机组阵列间电缆的两端。
+当地警方表示，遇难者包括一名儿童和在路边做小生意的商贩；伤者中有商贩、躲雨的路人和在班加罗尔旅游的游客。
 
-这些系统将保护电缆在安装期间及整个运行寿命中免受过度弯曲、磨损和疲劳的影响。
+事发时当地正遭遇雷暴和强降雨，围墙在傍晚约5时45分突然坍塌，压倒在附近避雨的人群。
 
-公司将设计三种NjordGuard系统型号，以满足单桩和J型管两种接口类型的特定安装要求。
+印媒援引消息人士的话说，这段墙体已有约30年历史，长期老化及额外施工负荷可能导致结构受损，在极端天气影响下最终失稳。
 
-NjordGuard系统将在CRP Subsea位于英格兰西北部专门建造的制造工厂生产。
+事故发生后，附近居民第一时间参与救援，但消防车辆一度因道路受阻延误到场。
 
-该工厂拥有一条半自动化生产线，可提高生产能力。
+印度总理莫迪在社交媒体上对事故表示哀悼，称事件“令人遗憾”。
 
-项目工程设计工作将立即启动，最终产品预计于2027年2月交付。
+目前伤者已被送医救治，当地政府正在展开调查。
 
-东英吉利二期是更大规模的东英吉利Hub项目的一部分，该Hub还包括东英吉利北一期和东英吉利三期。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 01:51 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 01:59 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 01:59 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 02:07 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 02:01 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 01:46 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 02:11 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 02:05 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 01:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 01:48 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 01:56 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 02:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 02:13 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 01:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 01:53 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 02:07 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 01:58 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 02:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 02:08 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 01:56 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 02:00 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 01:55 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 02:13 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/55491.shtml)
-- 2026-06-30 02:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/6439026.shtml)
-- 2026-06-30 02:06 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/75775285268.shtml)
-- 2026-06-30 01:46 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/946550.shtml)
-- 2026-06-30 02:06 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/79564286897.shtml)
-- 2026-06-30 02:02 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/618352406773.shtml)
-- 2026-06-30 02:04 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/538409602042.shtml)
-- 2026-06-30 01:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/8664155142.shtml)
-- 2026-06-30 01:59 - [毒液2](https://www.share.kurohicncr.top/Article/details/82741762725.shtml)
-- 2026-06-30 01:45 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/167612178.shtml)
-- 2026-06-30 02:02 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/160018010.shtml)
-- 2026-06-30 01:51 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/05172.shtml)
-- 2026-06-30 02:03 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/90966.shtml)
-- 2026-06-30 02:05 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/061823482430.shtml)
-- 2026-06-30 01:57 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/6751728.shtml)
+- 2026-06-30 01:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/76390394959.shtml)
+- 2026-06-30 02:17 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/142712.shtml)
+- 2026-06-30 01:53 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/961234217.shtml)
+- 2026-06-30 02:14 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/423362.shtml)
+- 2026-06-30 02:16 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/877007566335.shtml)
+- 2026-06-30 01:49 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/246212.shtml)
+- 2026-06-30 02:14 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/91743.shtml)
+- 2026-06-30 01:52 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/146226.shtml)
+- 2026-06-30 01:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/124093472432.shtml)
+- 2026-06-30 01:50 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/44800868.shtml)
+- 2026-06-30 01:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/78282440.shtml)
+- 2026-06-30 01:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/6614538679.shtml)
+- 2026-06-30 02:03 - [周生如故](https://www.share.kurohicncr.top/Article/details/62007573791.shtml)
+- 2026-06-30 02:09 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/8750320621.shtml)
+- 2026-06-30 02:14 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/092065.shtml)

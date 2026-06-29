@@ -1,58 +1,54 @@
-# 2.36万元商品遭“恶意退款” 卖家跨省千里维权
+# 花旗：威胜控股维持“买入”评级 目标价34港元
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-有人购买衣服穿几天弄脏后又退给卖家，有人买了昂贵的女士睡衣后，换成一件廉价的其他款式睡衣申请退货退款，而前些天河北邯郸一位商家更是遭遇了一起大额商品的“仅退款”，价值23600元的商品被买家仅退款，为了追回货款，卖家杨女士与同事一起，从邯郸赶往上海，找到买家当面对质。 据杨女士说，4月23日，有一位上海的买家从自家店铺下单了一批价值23600元的货物，4月27日，物流公司将货品
+花旗发布研报称，威胜控股（03393）电网智能电表业务首季毛利率由2025年的40%下跌4至5个百分点至约35%至36%，但预期2026年下半年将有所恢复，因大部分2025年订单积压将于上半年交付，导致上半年相关收入同比下跌，随后于下半年复苏。该行维持“买入”评级，目标价34港元。 威胜股价于昨日（28日）下跌11%，该行认为这很可能反映市场对国家电网智能电表招标价格可能下调的
 
 ## 正文
 
-有人购买衣服穿几天弄脏后又退给卖家，有人买了昂贵的女士睡衣后，换成一件廉价的其他款式睡衣申请退货退款，而前些天河北邯郸一位商家更是遭遇了一起大额商品的“仅退款”，价值23600元的商品被买家仅退款，为了追回货款，卖家杨女士与同事一起，从邯郸赶往上海，找到买家当面对质。
+花旗发布研报称，威胜控股（03393）电网智能电表业务首季毛利率由2025年的40%下跌4至5个百分点至约35%至36%，但预期2026年下半年将有所恢复，因大部分2025年订单积压将于上半年交付，导致上半年相关收入同比下跌，随后于下半年复苏。
 
-据杨女士说，4月23日，有一位上海的买家从自家店铺下单了一批价值23600元的货物，4月27日，物流公司将货品运送到了买家指定的收货地点，但到货第二天，这位买家就以缺少配件为由，申请3000元部分退款。
+该行维持“买入”评级，目标价34港元。
 
-此时，订单状态明确显示“已收到货”，并且负责货物物流的运输公司，也确认对方已收到货，买家也在这天让杨女士远程指导货品的安装。
+威胜股价于昨日（28日）下跌11%，该行认为这很可能反映市场对国家电网智能电表招标价格可能下调的担忧。
 
-但在4月29日，买家却以未收到货物为由，在平台上发起全额退款申请，并备注“与卖家协商一致”。
+然而，威胜子公司威胜信息（688100.SH）首季纯利同比增长6.4%至1.39亿元人民币，表现优于同业。
 
-杨女士说店铺工作人员当时没有看到这条退款消息，因此未做处理。
+该行决定终止原先的正向短期观点，并开启新的90日上行催化剂观察。
 
-然而让她没想到的是，就在买家发起退款申请的24个小时后，平台就以卖家超时未处理为由，直接将23600元全款退给了买家。
+该行表示，开启催化剂观察基于三大原因：一是预期2026至2027年配电业务及海外智能电表销售将实现强劲盈利增长； 二是威胜具备内部制造电表继电器的能力，而该关键零部件价格在2026年已大幅上涨2至4倍，有助减低电网智能电表业务的潜在盈利压力； 三是当前估值具吸引力，对应2026年预测市盈率16.4倍、市账率3.2倍及股息率2.4%。
 
-杨女士多次在线上找买家催还货款，但遭到对方拒绝。
-
-无奈之下，杨女士与同事一起从河北邯郸赶到上海，找买家当面协商退还货款，依然被拒。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 01:47 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 02:05 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 02:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 01:52 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 01:55 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 01:42 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 01:54 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 01:44 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 01:44 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 01:45 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 01:48 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 02:05 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 01:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 01:51 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 01:59 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 02:05 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 02:02 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 01:50 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 02:04 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 02:07 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 02:11 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:05 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/8719513.shtml)
-- 2026-06-30 01:51 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/1009101828.shtml)
-- 2026-06-30 01:56 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/556015843921.shtml)
-- 2026-06-30 02:05 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/1554594.shtml)
-- 2026-06-30 02:08 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/72458682.shtml)
-- 2026-06-30 02:08 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/58365.shtml)
-- 2026-06-30 01:42 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/572465751.shtml)
-- 2026-06-30 01:57 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/41902833.shtml)
-- 2026-06-30 02:11 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/938674.shtml)
-- 2026-06-30 01:57 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/8267871.shtml)
-- 2026-06-30 02:11 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/61625.shtml)
-- 2026-06-30 02:02 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/6922600076.shtml)
-- 2026-06-30 01:51 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/231988225102.shtml)
-- 2026-06-30 02:05 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/1005430.shtml)
-- 2026-06-30 02:02 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/619635326.shtml)
+- 2026-06-30 01:51 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/1280118.shtml)
+- 2026-06-30 01:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/48697424774.shtml)
+- 2026-06-30 02:17 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/84697483590.shtml)
+- 2026-06-30 01:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/7067549.shtml)
+- 2026-06-30 02:00 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/82478174.shtml)
+- 2026-06-30 01:59 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/0709197801.shtml)
+- 2026-06-30 01:48 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/60454702864.shtml)
+- 2026-06-30 01:49 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/320056675836.shtml)
+- 2026-06-30 02:03 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/74162.shtml)
+- 2026-06-30 01:48 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/99292555.shtml)
+- 2026-06-30 02:15 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/26773.shtml)
+- 2026-06-30 02:13 - [金刚川](http://www.share.kurohicncr.top/Article/details/34626307040.shtml)
+- 2026-06-30 02:12 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/369543.shtml)
+- 2026-06-30 02:08 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/3596041230.shtml)
+- 2026-06-30 01:57 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/39899520.shtml)

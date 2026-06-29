@@ -1,60 +1,52 @@
-# 明尼阿波利斯联储行长卡什卡里：现在就断定美联储需要升息还为时过早
+# 三星电子一季度净利润同比增长474.3%
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-明尼阿波利斯联储行长尼尔·卡什卡里表示，现在断定利率需要上升还为时过早，但他认为美联储应当保留所有政策选项。 卡什卡里周五在首尔高丽大学的一场活动上表示，“我认为，现在就断定我们需要立即加息还为时过早。我们需要继续观察经济数据，并关注中东冲突的后续发展，然后我才会考虑是否需要调整政策。” 美联储官员在4月会议上维持利率不变。虽然卡什卡里支持这一决定，但他是三位对会后声明措辞提出
+三星电子周四公布，其第一季度净利润为47.22万亿韩元（约合318亿美元），同比增长474.3%。 该公司在提交给监管机构的文件中表示，第一季度营业利润为57.23万亿韩元，同比增长756.1%。营收增长69.2%，达到133.87万亿韩元。 这与该公司本月较早时公布的未经审计的初步业绩基本一致，但当时该公司未公布净利润数据。责任编辑：于健 SF069
 
 ## 正文
 
-明尼阿波利斯联储行长尼尔·卡什卡里表示，现在断定利率需要上升还为时过早，但他认为美联储应当保留所有政策选项。
+三星电子周四公布，其第一季度净利润为47.22万亿韩元（约合318亿美元），同比增长474.3%。
 
-卡什卡里周五在首尔高丽大学的一场活动上表示，“我认为，现在就断定我们需要立即加息还为时过早。
+该公司在提交给监管机构的文件中表示，第一季度营业利润为57.23万亿韩元，同比增长756.1%。
 
-我们需要继续观察经济数据，并关注中东冲突的后续发展，然后我才会考虑是否需要调整政策。
+营收增长69.2%，达到133.87万亿韩元。
 
-” 美联储官员在4月会议上维持利率不变。
+这与该公司本月较早时公布的未经审计的初步业绩基本一致，但当时该公司未公布净利润数据。
 
-虽然卡什卡里支持这一决定，但他是三位对会后声明措辞提出异议的决策者之一。
-
-该声明暗示美联储下一步行动可能是降息。
-
-卡什卡里和其另外两位同事主张采用更中性的表述，以传递这样一个信号：加息与降息的可能性同样存在。
-
-与许多美联储官员一样，卡什卡里表示，伊朗战争加剧了美国经济前景的不确定性。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 02:09 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 02:06 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 01:42 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 02:05 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 01:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 02:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 01:52 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 01:47 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 02:06 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 01:55 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 02:04 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 02:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 02:03 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 02:13 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 02:08 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 01:52 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 02:03 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 02:02 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 01:57 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 02:13 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 02:04 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 01:52 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 02:10 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 01:49 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 02:10 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:55 - [时光音乐会](https://www.share.minike.top/Article/details/63710.shtml)
-- 2026-06-30 02:04 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/53525073322.shtml)
-- 2026-06-30 02:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/109646329510.shtml)
-- 2026-06-30 01:52 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/25686001636.shtml)
-- 2026-06-30 02:08 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/0862912.shtml)
-- 2026-06-30 02:04 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/235985.shtml)
-- 2026-06-30 01:56 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/319124443.shtml)
-- 2026-06-30 02:00 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/495441.shtml)
-- 2026-06-30 02:08 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/7162762029.shtml)
-- 2026-06-30 02:07 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/62515.shtml)
-- 2026-06-30 02:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/88982.shtml)
-- 2026-06-30 01:47 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/71692476807.shtml)
-- 2026-06-30 01:49 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/09895730365.shtml)
-- 2026-06-30 02:03 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/9777809.shtml)
-- 2026-06-30 01:53 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/14890369537.shtml)
+- 2026-06-30 01:48 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/192543.shtml)
+- 2026-06-30 01:56 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/54555.shtml)
+- 2026-06-30 01:51 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/21615454.shtml)
+- 2026-06-30 02:14 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/72222278340.shtml)
+- 2026-06-30 02:11 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/1535480118.shtml)
+- 2026-06-30 01:57 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/1877439881.shtml)
+- 2026-06-30 02:10 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/33720482.shtml)
+- 2026-06-30 01:58 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/93023776016.shtml)
+- 2026-06-30 01:56 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/51619750.shtml)
+- 2026-06-30 02:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/4647946951.shtml)
+- 2026-06-30 01:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/91629385.shtml)
+- 2026-06-30 02:09 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/4484939046.shtml)
+- 2026-06-30 02:13 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/44537001.shtml)
+- 2026-06-30 02:15 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/79098841.shtml)
+- 2026-06-30 02:10 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/791563235179.shtml)

@@ -1,60 +1,61 @@
-# 海上名家走进福建三明 沪明文化交融共促老区发展
+# 特朗普被曝欲打“持久战”：长期封锁伊朗，迫使其在核方面妥协
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网上海5月29日电(范宇斌 陶慕蔡)记者29日从上海市文史研究馆获悉，该馆近日举办“海上名家三明行”活动，邀请多位馆员循着红色足迹、探访绿色生态、观摩城市建设，走进福建省三明市，通过座谈建言、实地采风、文史讲座、创作交流等形式，推动沪明文化交融互鉴，旨在深化沪明对口合作，探索助力新时代革命老区振兴发展新模式，以文化艺术赋能三明城市建设与发展。 在“助力三明文旅融合发展”海上
+来源：金十数据 据《华尔街日报》报道，美国总统特朗普已指示助手为对伊朗实施长期封锁做好准备，目标是切断伊朗政权的资金来源，逼迫德黑兰在核问题上做出让步。 在包括本周一战情室讨论在内的多次会议中，特朗普评估了手头选项，即重新开始轰炸或全面退出。经评估后，其认为两者的风险均高于继续维持封锁，由此选择持续压缩伊朗的经济与石油出口通道。 这项决定标志着历时八周有余的美伊冲突进入“不缔约
 
 ## 正文
 
-中新网上海5月29日电(范宇斌 陶慕蔡)记者29日从上海市文史研究馆获悉，该馆近日举办“海上名家三明行”活动，邀请多位馆员循着红色足迹、探访绿色生态、观摩城市建设，走进福建省三明市，通过座谈建言、实地采风、文史讲座、创作交流等形式，推动沪明文化交融互鉴，旨在深化沪明对口合作，探索助力新时代革命老区振兴发展新模式，以文化艺术赋能三明城市建设与发展。
+来源：金十数据 据《华尔街日报》报道，美国总统特朗普已指示助手为对伊朗实施长期封锁做好准备，目标是切断伊朗政权的资金来源，逼迫德黑兰在核问题上做出让步。
 
-在“助力三明文旅融合发展”海上名家座谈会上，来自不同专业领域的馆员结合自身研究与创作经验，围绕革命文化遗产保护活化、本土文艺精品创作、沪明文旅对口合作落地等主题，提出了诸多兼具专业性与可操作性的建议。
+在包括本周一战情室讨论在内的多次会议中，特朗普评估了手头选项，即重新开始轰炸或全面退出。
 
-上海市文史研究馆馆员李静建言，可举办书法交流活动，既要“走出去”，也要“请进来”，弘扬中华优秀传统文化，秉持执着深耕的态度、久久为功，让两地文化交流绵绵不息。
+经评估后，其认为两者的风险均高于继续维持封锁，由此选择持续压缩伊朗的经济与石油出口通道。
 
-谈及三明文化建设，上海市文史研究馆馆员陈志宏表示，要汇聚各方合力，走进学校、走进社区传播美学美育，也可走进具有地方特色的村落，让中华优秀传统文化走进老百姓的生活场景，走入大众视野。
+这项决定标志着历时八周有余的美伊冲突进入“不缔约、不开战”的消耗阶段。
 
-上海市文史研究馆馆员吴越深入学习了三明的红色文化和历史，了解到三明子弟为红军长征作出巨大牺牲和贡献后深受触动。
+自4月7日停火并结束大规模轰炸以来，特朗普多次避免局势升级，为外交斡旋保留空间，但封锁的持续拉长同样在累加成本：汽油价格上行，国内民调承压，共和党中期选举前景趋于黯淡，霍尔木兹海峡过境船只数量已降至冲突爆发以来的最低点。
 
-他表示：“我们要向老一辈红军致敬，他们都是我们心中的丰碑。
+特朗普周二发文称，封锁正将伊朗推向“崩溃的边缘”。
 
-接下来，我会把三明的元素融入我的书画创作中，为今年红军长征胜利90周年献礼。
+一位美国高级官员判断，伊朗经济因石油滞销、储存空间告急而遭受重创，这促使德黑兰重新向华盛顿释放试探信号。
 
-” 在实地采风创作中，馆员们聚焦三明厚重的红色文化，在一幅幅老照片、一件件革命文物前重温中央红军长征的峥嵘岁月，感悟革命先辈的崇高理想与坚定信念。
+白宫女发言人安娜·凯利同日表态，美国已达成“史诗狂怒”行动的军事目标，凭借对伊朗港口的成功封锁，“总统只会接受一份能够保护我国国家安全的协议”。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 01:53 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 01:50 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 01:56 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 02:08 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 01:51 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 01:55 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 01:50 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 01:56 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 01:52 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 01:59 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 02:09 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 02:05 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 01:55 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 01:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 02:07 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 01:49 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 01:59 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 01:54 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 01:59 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 02:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 02:08 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 01:59 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 01:48 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 02:05 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 02:17 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 01:57 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 02:15 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 01:53 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/40682114.shtml)
-- 2026-06-30 02:04 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/562924627.shtml)
-- 2026-06-30 02:05 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/2378338.shtml)
-- 2026-06-30 01:48 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/158255.shtml)
-- 2026-06-30 01:46 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/97019904049.shtml)
-- 2026-06-30 01:55 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/03999749416.shtml)
-- 2026-06-30 02:10 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/225160.shtml)
-- 2026-06-30 02:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/1440237934.shtml)
-- 2026-06-30 02:11 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/45789985.shtml)
-- 2026-06-30 01:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/1099993819.shtml)
-- 2026-06-30 02:02 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/712750.shtml)
-- 2026-06-30 02:05 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/135163736588.shtml)
-- 2026-06-30 01:51 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/93162.shtml)
-- 2026-06-30 02:11 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/7401232.shtml)
-- 2026-06-30 01:50 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/2558495020.shtml)
+- 2026-06-30 01:59 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/5528726.shtml)
+- 2026-06-30 02:04 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/6386151.shtml)
+- 2026-06-30 01:51 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/52687.shtml)
+- 2026-06-30 01:57 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/010473.shtml)
+- 2026-06-30 02:14 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/6818131449.shtml)
+- 2026-06-30 01:51 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/1442289.shtml)
+- 2026-06-30 01:50 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/04555069792.shtml)
+- 2026-06-30 02:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/92547.shtml)
+- 2026-06-30 01:56 - [沉睡花园](http://www.blog.minike.top/Article/details/786219670534.shtml)
+- 2026-06-30 02:17 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/653719742.shtml)
+- 2026-06-30 02:08 - [小娘惹](https://www.share.kurohicncr.top/Article/details/1200956905.shtml)
+- 2026-06-30 01:59 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/93617.shtml)
+- 2026-06-30 02:00 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/5991564.shtml)
+- 2026-06-30 01:57 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/4307337.shtml)
+- 2026-06-30 01:56 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/84587.shtml)

@@ -1,60 +1,56 @@
-# 可持续全球领导者大会海外专场走进韩国圃美多，解码可持续食品企业的长期主义
+# 花旗：吉利汽车维持“买入”评级 目标价30港元
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-专题：中韩企业可持续发展交流会 5月26-28日，新浪财经与洋河股份联合主办的“可持续全球领导者大会海外专场”系列活动在韩国首尔举行。27日，参访团一行走进位于韩国首尔江南水西的圃美多（Pulmuone）总部，实地探寻这家以 “爱邻如己，尊重生命” 为理念的知名食品企业。 圃美多从品牌诞生之初便刻下了 “可持续” 的基因。“Pulmu” 源自韩国传统打铁铺中用于向火炉鼓风的工具
+花旗发布研报称，吉利汽车（00175）首季核心溢利（撇除汇兑）同比升31%至45.6亿元人民币，符预期。该行指出，吉利是期内唯一录得盈利按季增长的主要车企，维持“买入”评级，目标价30港元。 花旗表示，吉利首季收入同比升15%至838亿元人民币（下同）； 新能源汽车销量同比升9%至36.9万辆；整体市占率亦提升至12%。期内出口总量同比急升1.26倍至20.3万辆，当中新能源汽
 
 ## 正文
 
-专题：中韩企业可持续发展交流会 5月26-28日，新浪财经与洋河股份联合主办的“可持续全球领导者大会海外专场”系列活动在韩国首尔举行。
+花旗发布研报称，吉利汽车（00175）首季核心溢利（撇除汇兑）同比升31%至45.6亿元人民币，符预期。
 
-27日，参访团一行走进位于韩国首尔江南水西的圃美多（Pulmuone）总部，实地探寻这家以 “爱邻如己，尊重生命” 为理念的知名食品企业。
+该行指出，吉利是期内唯一录得盈利按季增长的主要车企，维持“买入”评级，目标价30港元。
 
-圃美多从品牌诞生之初便刻下了 “可持续” 的基因。
+花旗表示，吉利首季收入同比升15%至838亿元人民币（下同）； 新能源汽车销量同比升9%至36.9万辆；整体市占率亦提升至12%。
 
-“Pulmu” 源自韩国传统打铁铺中用于向火炉鼓风的工具，寓意废旧铁器在千锤百炼中重获新生；“One” 意为摇篮，二者结合，正是 “淬炼社会栋梁的摇篮，培育时代所需人才的沃土”。
+期内出口总量同比急升1.26倍至20.3万辆，当中新能源汽车出口12.5万辆，同比飙升5.72倍。
 
-这份诞生之初的初心，也成为圃美多百年来坚守的底色。
+毛利率受出口及高端销售组合改善带动，同比及按季分别扩阔1.8及0.6个百分点，至17.5%。
 
-圃美多董事长李孝律对参访团的到来表示热烈欢迎。
+行政开支同比减少6%，研发开支则同比增加38%，销售开支亦升20%。
 
-他于1983年10月在圃美多创立前以员工身份成为公司第一号入职员工，43年来始终坚守岗位，是公司最长工龄员工，并亲身参与和见证了圃美多的发展壮大，堪称书写企业成长历史的传奇人物。
+至于已计入一次性及汇兑亏损的经营溢利为47.2亿元，按季升41%。
 
-圃美多ESG团队经理金显秀表示，自元敬善院长确立 “爱邻如己，尊重生命” 的精神以来，圃美多从未将经营理念停留在口号层面，而是构建了商业盈利与社会公益双赢的良性循环，让价值驱动成为企业发展的动力。
+该行估算，核心除息税前盈利（EBIT）利润率改善至10.7%，按季及同比分别升2.3及1.9个百分点。
 
 ## 相关推荐
 
-- 2026-06-30 01:45 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 02:07 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 01:48 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 02:01 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 01:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 01:46 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 01:57 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 02:06 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 02:03 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 01:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 02:08 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-30 02:04 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 01:51 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 01:42 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 02:16 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 02:09 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 02:10 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 02:02 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 02:15 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 01:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 01:54 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 02:04 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 01:55 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 02:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:54 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/810406937.shtml)
-- 2026-06-30 01:54 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/58560324.shtml)
-- 2026-06-30 02:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/300752348.shtml)
-- 2026-06-30 02:07 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/2319196.shtml)
-- 2026-06-30 01:57 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/686445784.shtml)
-- 2026-06-30 01:47 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/2171727.shtml)
-- 2026-06-30 02:00 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/551943.shtml)
-- 2026-06-30 01:50 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/43730393705.shtml)
-- 2026-06-30 02:08 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/582262646978.shtml)
-- 2026-06-30 01:52 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/408214371883.shtml)
-- 2026-06-30 02:09 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/6643915.shtml)
-- 2026-06-30 02:00 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/7630998.shtml)
-- 2026-06-30 01:54 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/34034550536.shtml)
-- 2026-06-30 01:54 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/52390318177.shtml)
-- 2026-06-30 01:57 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/9119242589.shtml)
+- 2026-06-30 02:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/96535.shtml)
+- 2026-06-30 01:49 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/739111306870.shtml)
+- 2026-06-30 01:55 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/89494889.shtml)
+- 2026-06-30 02:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/46601218.shtml)
+- 2026-06-30 02:16 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/18973016.shtml)
+- 2026-06-30 01:56 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/27689125170.shtml)
+- 2026-06-30 01:54 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/34077665.shtml)
+- 2026-06-30 02:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/91678783204.shtml)
+- 2026-06-30 02:13 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/765633114619.shtml)
+- 2026-06-30 02:07 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/4826738864.shtml)
+- 2026-06-30 01:48 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/435439.shtml)
+- 2026-06-30 02:15 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/363017964.shtml)
+- 2026-06-30 02:11 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/138207553271.shtml)
+- 2026-06-30 01:51 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/888649.shtml)
+- 2026-06-30 02:07 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/914517.shtml)

@@ -1,59 +1,53 @@
-# 市场研判停火协议或将延期，欧洲股市小幅高开
+# 指数级增长 2025年我国词元调用量约21100万亿
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-受市场评估美伊脆弱停火协议有望延期影响，欧洲股市周五预计小幅高开。 IG集团数据显示，德国DAX指数开盘预计上涨0.28%，法国CAC40指数高开0.22%，英国富时100指数则基本平开。 亚洲市场并未受伊朗新一轮军事行动拖累，韩国综合股价指数与日本东证指数隔夜双双创下历史新高。 据伊朗官方媒体法尔斯通讯社报道，伊朗武装部队于周四晚间向多处未知目标发射导弹。 此次伊朗南部的军事
+数据，被称为人工智能发展的“原料”。今天，《全国数据资源调查报告(2025年)》在第九届数字中国建设峰会上发布，报告显示，我国数据资源正以更大力度，赋能人工智能创新发展。 “词元”(Token)，是人工智能大模型为了高效处理数据，把数据进行拆分后的最小信息单元。2025年，全国日均词元调用量从年初的超万亿增长到年末的100万亿，呈现指数级增长；全年词元累计调用量达到约21100
 
 ## 正文
 
-受市场评估美伊脆弱停火协议有望延期影响，欧洲股市周五预计小幅高开。
+数据，被称为人工智能发展的“原料”。
 
-IG集团数据显示，德国DAX指数开盘预计上涨0.28%，法国CAC40指数高开0.22%，英国富时100指数则基本平开。
+今天，《全国数据资源调查报告(2025年)》在第九届数字中国建设峰会上发布，报告显示，我国数据资源正以更大力度，赋能人工智能创新发展。
 
-亚洲市场并未受伊朗新一轮军事行动拖累，韩国综合股价指数与日本东证指数隔夜双双创下历史新高。
+“词元”(Token)，是人工智能大模型为了高效处理数据，把数据进行拆分后的最小信息单元。
 
-据伊朗官方媒体法尔斯通讯社报道，伊朗武装部队于周四晚间向多处未知目标发射导弹。
+2025年，全国日均词元调用量从年初的超万亿增长到年末的100万亿，呈现指数级增长；全年词元累计调用量达到约21100万亿。
 
-此次伊朗南部的军事行动发生数小时前，美国国防部称，伊朗向科威特发射一枚弹道导弹，并在霍尔木兹海峡及其周边部署攻击无人机。
-
-周四早些时候，白宫一名官员证实了阿克西奥斯新闻网的报道，美伊双方已就临时结束这场持续三个月冲突的协议条款基本达成共识。
-
-相关消息称，该协议拟将现有停火期限延长60天，并为后续伊朗核问题谈判搭建框架。
-
-泛欧斯托克600指数周四走势震荡，最终收跌0.5%，多数板块收跌，伦敦、巴黎、法兰克福各大主要股指全线走低。
+(总台央视记者 刘颖 刘柏煊 制图 艾玖玫)
 
 ## 相关推荐
 
-- 2026-06-30 01:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 02:07 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 02:03 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 01:49 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 01:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 01:49 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 02:00 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 02:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 01:59 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 01:43 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 01:48 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 01:51 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 01:43 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 01:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 02:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 01:51 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 02:02 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 02:03 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 01:58 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 02:14 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 01:48 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 01:49 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 02:11 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 01:58 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 02:00 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 02:02 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:51 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/22043860550.shtml)
-- 2026-06-30 02:02 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/93546011.shtml)
-- 2026-06-30 01:59 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/11291313.shtml)
-- 2026-06-30 02:06 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/4145104.shtml)
-- 2026-06-30 01:42 - [我们的少年时代2](http://www.share.minike.top/Article/details/218556340.shtml)
-- 2026-06-30 02:02 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/7856874739.shtml)
-- 2026-06-30 01:50 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/784842011.shtml)
-- 2026-06-30 02:04 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/23882.shtml)
-- 2026-06-30 01:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/6132498.shtml)
-- 2026-06-30 01:57 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/226555837176.shtml)
-- 2026-06-30 01:58 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/72550714673.shtml)
-- 2026-06-30 01:56 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/485718691113.shtml)
-- 2026-06-30 02:10 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/391602817696.shtml)
-- 2026-06-30 02:01 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/711214.shtml)
-- 2026-06-30 01:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/6925521.shtml)
+- 2026-06-30 02:02 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/831145543.shtml)
+- 2026-06-30 02:05 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/239204.shtml)
+- 2026-06-30 02:12 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/193079705.shtml)
+- 2026-06-30 01:55 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/592103.shtml)
+- 2026-06-30 02:05 - [一生一世](http://www.blog.minike.top/Article/details/0168718357.shtml)
+- 2026-06-30 01:59 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/031952.shtml)
+- 2026-06-30 01:54 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/86705911057.shtml)
+- 2026-06-30 02:09 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/928523.shtml)
+- 2026-06-30 02:05 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/7037041.shtml)
+- 2026-06-30 01:59 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/70754468046.shtml)
+- 2026-06-30 01:59 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/04601011631.shtml)
+- 2026-06-30 01:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/609167829.shtml)
+- 2026-06-30 01:52 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/2860645091.shtml)
+- 2026-06-30 01:49 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/59212.shtml)
+- 2026-06-30 02:15 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/65754194968.shtml)

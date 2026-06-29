@@ -1,51 +1,54 @@
-# 上海青浦警方通报高校偷拍事件：涉事学生已被行政拘留
+# “五一”假期大兴机场预计运送旅客超85万人次
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网5月29日电 据上海市公安局青浦分局官方微博消息，2026年5月28日16时许，上海青浦公安分局接报警称辖区某高校内发现偷拍行为，警方即开展调查。 经查，该校在读学生沈某(男，32岁)将网购的摄像设备，放置在自习教室男女厕所之间的隔墙顶部进行偷拍。经核查，该摄像设备仅能拍摄到女厕所门口及洗手台区域，拍摄内容未对外传播。目前，沈某已被警方依法行政拘留。
+发布时间：2026年04月29日 20:59 来源：中国新闻网 交通运输部数据显示，2026年“五一”假期，全国预计将有15.2亿人次出行，创历史同期新高。4月29日，记者在大兴机场发现，不少民众选择错峰出行，提前开始享受假期。 记者从大兴机场了解到，“五一”期间，大兴机场预计执行航班5249架次，运送旅客85.76万人次。假期出行高峰预计出现在5月1日，运送旅客超18万人次。
 
 ## 正文
 
-中新网5月29日电 据上海市公安局青浦分局官方微博消息，2026年5月28日16时许，上海青浦公安分局接报警称辖区某高校内发现偷拍行为，警方即开展调查。
+发布时间：2026年04月29日 20:59 来源：中国新闻网 交通运输部数据显示，2026年“五一”假期，全国预计将有15.2亿人次出行，创历史同期新高。
 
-经查，该校在读学生沈某(男，32岁)将网购的摄像设备，放置在自习教室男女厕所之间的隔墙顶部进行偷拍。
+4月29日，记者在大兴机场发现，不少民众选择错峰出行，提前开始享受假期。
 
-经核查，该摄像设备仅能拍摄到女厕所门口及洗手台区域，拍摄内容未对外传播。
+记者从大兴机场了解到，“五一”期间，大兴机场预计执行航班5249架次，运送旅客85.76万人次。
 
-目前，沈某已被警方依法行政拘留。
+假期出行高峰预计出现在5月1日，运送旅客超18万人次。
+
+据介绍，假期期间，预计大兴机场与长三角、珠三角、成渝等城市群的传统热门航线将迎来客流高峰，前往三亚、贵阳、西安、哈尔滨等地客流也将有明显增长。
+
+(记者 刘超 北京报道) 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 01:49 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 01:47 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 02:02 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 02:00 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 01:52 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 01:56 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 01:47 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 01:54 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 01:46 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 02:08 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 02:04 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 02:03 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 01:50 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 02:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 02:07 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 02:11 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 02:17 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 01:52 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 01:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 01:54 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 02:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 01:56 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 01:51 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 01:56 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 02:07 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:44 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/921373806427.shtml)
-- 2026-06-30 01:48 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/338936.shtml)
-- 2026-06-30 01:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/487980665010.shtml)
-- 2026-06-30 01:46 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/42600335828.shtml)
-- 2026-06-30 01:48 - [急先锋](https://www.blog.kurohicncr.top/Article/details/65559858.shtml)
-- 2026-06-30 01:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/5518907835.shtml)
-- 2026-06-30 02:11 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/779888246.shtml)
-- 2026-06-30 01:58 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/84179237.shtml)
-- 2026-06-30 01:48 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/91067.shtml)
-- 2026-06-30 02:09 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/9061669251.shtml)
-- 2026-06-30 02:10 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/24033.shtml)
-- 2026-06-30 01:55 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/09942.shtml)
-- 2026-06-30 01:59 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/8017337.shtml)
-- 2026-06-30 02:07 - [女心理师](https://www.share.minike.top/Article/details/10319108604.shtml)
-- 2026-06-30 02:04 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/849936834.shtml)
+- 2026-06-30 02:01 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/7903360.shtml)
+- 2026-06-30 01:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/509220733.shtml)
+- 2026-06-30 01:59 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/702471.shtml)
+- 2026-06-30 01:53 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/181872.shtml)
+- 2026-06-30 01:53 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/456096240.shtml)
+- 2026-06-30 02:05 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/6954002.shtml)
+- 2026-06-30 01:57 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/93802.shtml)
+- 2026-06-30 01:59 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/9241561.shtml)
+- 2026-06-30 02:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/66104202999.shtml)
+- 2026-06-30 01:48 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/9071225007.shtml)
+- 2026-06-30 01:50 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/440530.shtml)
+- 2026-06-30 01:58 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/05256058.shtml)
+- 2026-06-30 02:03 - [日本进球](https://www.blog.kurohicncr.top/Article/details/97713.shtml)
+- 2026-06-30 02:14 - [女心理师](http://www.blog.minike.top/Article/details/69219407.shtml)
+- 2026-06-30 02:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/283934.shtml)

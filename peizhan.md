@@ -1,60 +1,60 @@
-# 《国家基本医疗保险医疗服务项目目录（第一批）制定工作方案》政策解读
+# CVC向立顿注入现金，45亿欧元茶饮交易陷入僵局
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-近日，国家医保局在官网和微信公众号发布了《国家基本医疗保险医疗服务项目目录（第一批）制定工作方案》（以下简称《工作方案》）并公开征求社会意见。《工作方案》主要对制定《国家基本医疗保险医疗服务项目目录》（以下简称医保项目目录）的目标任务、目录范围、工作程序等内容进行了说明，现就有关内容解读如下。 一、为什么要制定《国家基本医疗保险医疗服务项目目录》？ 为贯彻落实党中央、国务院关于
+CVC资本合伙公司（CVC Capital Partners）正向其以45亿欧元从联合利华（Unilever）手中收购、如今陷入困境的茶饮业务注入2.1亿欧元，这家私募股权公司旨在避免PG Tips茶包生产商进行潜在的债务重组。 随着这家全球最大茶饮制造商业绩恶化，立顿（Lipton）发行的一笔15.75亿欧元贷款的价格已从去年初的95欧分跌至71欧分。投资者目前持有该债务所要
 
 ## 正文
 
-近日，国家医保局在官网和微信公众号发布了《国家基本医疗保险医疗服务项目目录（第一批）制定工作方案》（以下简称《工作方案》）并公开征求社会意见。
+CVC资本合伙公司（CVC Capital Partners）正向其以45亿欧元从联合利华（Unilever）手中收购、如今陷入困境的茶饮业务注入2.1亿欧元，这家私募股权公司旨在避免PG Tips茶包生产商进行潜在的债务重组。
 
-《工作方案》主要对制定《国家基本医疗保险医疗服务项目目录》（以下简称医保项目目录）的目标任务、目录范围、工作程序等内容进行了说明，现就有关内容解读如下。
+随着这家全球最大茶饮制造商业绩恶化，立顿（Lipton）发行的一笔15.75亿欧元贷款的价格已从去年初的95欧分跌至71欧分。
 
-一、为什么要制定《国家基本医疗保险医疗服务项目目录》？
+投资者目前持有该债务所要求的收益率为19%。
 
-为贯彻落实党中央、国务院关于增强社会保障制度统一性和规范性的要求，国家医保局持续完善医保支付范围管理。
+在高通胀和利率上升的时期，立顿一直在32亿欧元的债务重压下举步维艰。
 
-药品目录、医疗服务项目目录和医用耗材目录一起构成了医保基金的支付范围。
+根据英国税务海关总署的进口数据，随着年轻人转向喝咖啡，英国的饮茶量一直在缓慢下降。
 
-目前，国家医保药品目录已实现全国层面基本统一。
+尽管在美国、中国和印度等主要市场，茶的消费仍在增长，但其驱动力是草本茶和宣称有益健康的“功能性”茶，而非传统的红茶。
 
-对于医疗服务项目，国家层面只规定了不予支付和可以部分支付费用的范围，各地医保部门根据临床需求、医疗技术发展、医保基金运行等实际情况确定本地区医疗服务项目医保支付范围。
+立顿旗下还拥有Pukka草本茶品牌，由于停产表现不佳的产品线，其年营收已从分拆前的20亿欧元降至2024年的15.7亿欧元。
 
-医疗服务价格项目是医保支付的基础，在国家医保局成立以前，各地区项目的名称、内涵、颗粒度不一等情况普遍存在。
+在公开可得的最新数据——2025年上半年，营收下降了13%，近7亿欧元。
 
 ## 相关推荐
 
-- 2026-06-30 01:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 02:03 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 02:02 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 02:00 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 02:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 01:54 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 01:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 02:05 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 02:08 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 01:45 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 01:59 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 01:47 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 02:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 01:48 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 02:13 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 01:52 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 02:16 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 02:06 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 01:56 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 01:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 02:15 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 02:15 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 01:57 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-30 02:10 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 02:11 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 02:09 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 02:00 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 01:59 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/1207023063.shtml)
-- 2026-06-30 01:54 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/162568925.shtml)
-- 2026-06-30 02:03 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/22804.shtml)
-- 2026-06-30 02:00 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/32977359188.shtml)
-- 2026-06-30 01:50 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/1890622659.shtml)
-- 2026-06-30 01:55 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/70177055.shtml)
-- 2026-06-30 01:42 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/702836.shtml)
-- 2026-06-30 02:08 - [啊啊啊](http://www.share.minike.top/Article/details/492556.shtml)
-- 2026-06-30 01:44 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/263087420448.shtml)
-- 2026-06-30 01:53 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/48960.shtml)
-- 2026-06-30 02:02 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/9411872.shtml)
-- 2026-06-30 02:04 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/47611565931.shtml)
-- 2026-06-30 01:43 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/778758163116.shtml)
-- 2026-06-30 01:57 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/5776069.shtml)
-- 2026-06-30 02:02 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/51319445670.shtml)
+- 2026-06-30 02:17 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/76922810492.shtml)
+- 2026-06-30 02:17 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/995781644773.shtml)
+- 2026-06-30 02:12 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/42155839608.shtml)
+- 2026-06-30 01:49 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/1313786851.shtml)
+- 2026-06-30 02:01 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/88193786.shtml)
+- 2026-06-30 01:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/469167.shtml)
+- 2026-06-30 02:00 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/79756.shtml)
+- 2026-06-30 01:48 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/56721898.shtml)
+- 2026-06-30 02:16 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/4613908.shtml)
+- 2026-06-30 02:11 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/3797416325.shtml)
+- 2026-06-30 02:18 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/68571412.shtml)
+- 2026-06-30 02:00 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/929825.shtml)
+- 2026-06-30 02:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/26946.shtml)
+- 2026-06-30 02:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/8058676.shtml)
+- 2026-06-30 02:02 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/1869679790.shtml)

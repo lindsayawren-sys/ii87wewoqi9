@@ -1,57 +1,56 @@
-# 斯泰兰蒂斯商用车业务计划到2030年推出11款新车型
+# 国际医学：量增价跌下的盈利困局，DRG改革加速暴露刚性成本压力
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-规划涵盖全新中型及大型厢式货车平台 内容速览 为巩固行业地位，斯泰兰蒂斯公布战略规划，将于 2030 年前推出 11 款全新商用车。 旗下拥有吉普品牌的斯泰兰蒂斯（STLA，涨幅 0.18%）宣布，作为夯实商用车业务的战略举措，公司将在 2030 年前推出11 款全新商用车。 集团旗下专门负责商用车业务的斯泰兰蒂斯 Pro One部门，一方面对现有车型进行迭代升级，另一方面进军
+近日，国际医学披露2025年年报，交出一组充满张力的财务数据。一边是经营活动现金流量净额同比增长26.49%至12.76亿元，门急诊总量达270.02万人次，同比增长4.96%；另一边是营业收入40.75亿元，同比下降15.39%，归母净利润亏损3.13亿元，亏损额较上年扩大23.20%。 这种“量增价跌”的背离，揭示了公司更深层的结构性矛盾：服务规模的增长，并未能覆盖刚性成本
 
 ## 正文
 
-规划涵盖全新中型及大型厢式货车平台 内容速览 为巩固行业地位，斯泰兰蒂斯公布战略规划，将于 2030 年前推出 11 款全新商用车。
+近日，国际医学披露2025年年报，交出一组充满张力的财务数据。
 
-旗下拥有吉普品牌的斯泰兰蒂斯（STLA，涨幅 0.18%）宣布，作为夯实商用车业务的战略举措，公司将在 2030 年前推出11 款全新商用车。
+一边是经营活动现金流量净额同比增长26.49%至12.76亿元，门急诊总量达270.02万人次，同比增长4.96%；另一边是营业收入40.75亿元，同比下降15.39%，归母净利润亏损3.13亿元，亏损额较上年扩大23.20%。
 
-集团旗下专门负责商用车业务的斯泰兰蒂斯 Pro One部门，一方面对现有车型进行迭代升级，另一方面进军目前尚未布局的细分市场，推出全新产品。
+这种“量增价跌”的背离，揭示了公司更深层的结构性矛盾：服务规模的增长，并未能覆盖刚性成本与支付改革带来的收益压缩。
 
-该规划包含全新中型、大型厢式货车平台，平台将提供多种动力选择，涵盖纯电动、混动以及传统燃油动力。
+对于以大型综合医院为核心资产的民营医疗集团而言，这比单纯的收入下滑更具警示意义。
 
-车型更新计划还包括：推出新款小型厢式货车、换代紧凑型厢式货车，并为全系车型搭载两款全新纯电动动力系统。
+一、核心医院分化：高新医院利润腰斩，中心医院亏损扩大 国际医学旗下两大核心院区——西安高新医院与西安国际医学中心医院，呈现出不同的经营轨迹。
 
-公司同时加快全球皮卡产品矩阵扩张：在南美市场，完成菲亚特 Strada 小型皮卡与菲亚特 Toro 紧凑型皮卡的换代；面向北美市场，推出全新公羊 Rampage 皮卡。
+高新医院作为成熟院区，2025年收入12.69亿元，同比下降16.79%；净利润3787.07万元，同比大幅下滑55.32%。
 
-与此同时，斯泰兰蒂斯 Pro One 还将对北美全系全尺寸皮卡完成全面迭代。
+门急诊量微增2.44%，住院量却下降4.39%。
 
-公司表示：“中型皮卡是未来核心战略方向，也是拓展市场份额的重要机遇。
+这表明，即便在区域品牌积淀较深的院区，支付改革与成本压力仍在侵蚀利润。
 
 ## 相关推荐
 
-- 2026-06-30 01:45 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 01:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 01:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 02:04 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 01:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 01:47 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 01:57 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 01:50 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 01:50 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 01:49 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 01:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 02:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 01:55 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 02:13 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 02:09 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 01:52 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 01:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 02:11 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 01:52 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 02:09 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 02:13 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:01 - [女心理师](http://www.share.minike.top/Article/details/1488902.shtml)
-- 2026-06-30 02:03 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/37137594.shtml)
-- 2026-06-30 02:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/61259701490.shtml)
-- 2026-06-30 02:09 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/7858036263.shtml)
-- 2026-06-30 02:03 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/013499.shtml)
-- 2026-06-30 01:58 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/2085406.shtml)
-- 2026-06-30 01:54 - [恋与深空致歉](http://www.blog.minike.top/Article/details/57714435.shtml)
-- 2026-06-30 02:09 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/35461025.shtml)
-- 2026-06-30 02:05 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/42845356546.shtml)
-- 2026-06-30 01:46 - [日本领先巴西](http://www.share.minike.top/Article/details/79234791.shtml)
-- 2026-06-30 02:03 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/789578.shtml)
-- 2026-06-30 02:01 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/2575869.shtml)
-- 2026-06-30 02:04 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/7261981.shtml)
-- 2026-06-30 02:06 - [流金岁月](https://www.share.kurohicncr.top/Article/details/38466336202.shtml)
-- 2026-06-30 02:02 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/871821613548.shtml)
+- 2026-06-30 02:11 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/859790.shtml)
+- 2026-06-30 01:48 - [刘念回应](http://www.share.kurohicncr.top/Article/details/955646221.shtml)
+- 2026-06-30 02:08 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/502209390628.shtml)
+- 2026-06-30 02:03 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/72616718.shtml)
+- 2026-06-30 02:13 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/876447369889.shtml)
+- 2026-06-30 02:05 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/1534410103.shtml)
+- 2026-06-30 02:05 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/069788571.shtml)
+- 2026-06-30 02:04 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/2129477.shtml)
+- 2026-06-30 01:55 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/32977297800.shtml)
+- 2026-06-30 02:10 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/1666707.shtml)
+- 2026-06-30 02:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/65077770734.shtml)
+- 2026-06-30 02:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/685776.shtml)
+- 2026-06-30 02:16 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/32968762256.shtml)
+- 2026-06-30 02:00 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/346144617979.shtml)
+- 2026-06-30 02:12 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/04054035534.shtml)

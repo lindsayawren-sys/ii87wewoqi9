@@ -1,58 +1,60 @@
-# 沃什刚上任，美联储内部已现“质疑声”
+# 芬兰Kone拟斥资约240亿美元收购TK Elevator
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-作者 | 第一财经 樊志菁 本月以来，越来越多的美联储官员表示，若通胀未能迅速缓解，可能需要加息。同时，他们对人工智能（AI）能否抑制通胀持怀疑态度。这为新任美联储主席凯文・沃什下月首次主持的利率决议会议，埋下了激烈辩论的伏笔。 通胀压力持续升级 美伊冲突爆发以来，汽油与燃料价格大幅飙升，已经引发美联储官员激烈争论：能源涨价叠加关税推升的物价压力，是否会全面渗透至核心通胀？ “
+芬兰Kone同意从私募机构Advent与Cinven牵头的财团手中，以约236.6亿美元价格收购德国竞争对手TK Elevator，该交易落地后，将打造全球营收规模第一的电梯制造商。 根据交易协议，Kone将向财团支付约50亿欧元现金，外加至多2.7亿欧元的Kone新发股份，Kone当前总市值约152亿欧元。 若纳入债务计算，本次交易对TK Elevator的整体估值约294亿
 
 ## 正文
 
-作者 | 第一财经 樊志菁 本月以来，越来越多的美联储官员表示，若通胀未能迅速缓解，可能需要加息。
+芬兰Kone同意从私募机构Advent与Cinven牵头的财团手中，以约236.6亿美元价格收购德国竞争对手TK Elevator，该交易落地后，将打造全球营收规模第一的电梯制造商。
 
-同时，他们对人工智能（AI）能否抑制通胀持怀疑态度。
+根据交易协议，Kone将向财团支付约50亿欧元现金，外加至多2.7亿欧元的Kone新发股份，Kone当前总市值约152亿欧元。
 
-这为新任美联储主席凯文・沃什下月首次主持的利率决议会议，埋下了激烈辩论的伏笔。
+若纳入债务计算，本次交易对TK Elevator的整体估值约294亿欧元。
 
-通胀压力持续升级 美伊冲突爆发以来，汽油与燃料价格大幅飙升，已经引发美联储官员激烈争论：能源涨价叠加关税推升的物价压力，是否会全面渗透至核心通胀？
+Kone表示，合并后的集团总部仍设在芬兰，年销售额约205亿欧元，员工总数超10万人。
 
-“若未来一两个季度看不到通胀降温，我会非常担忧。
+2025年，电梯企业Otis Worldwide营收达144亿美元，Schindler Holding收为139亿美元。
 
-”圣路易斯联储主席阿尔伯托・穆萨莱姆周四在冰岛央行与西北大学联合举办的经济会议上称。
+此次并购预计每年可产生7亿欧元协同收益。
 
-他勾勒了可能迫使美联储加息的情景：“目前来看，风险天平已明显偏向通胀，而非就业市场。
+Kone首席执行官Philippe Delorme表示：“在行业快速变革的环境下，本次合并将大幅提升我们的能力，更好满足客户对于可靠、可持续解决方案与服务的增长需求。
 
-” 最新会议纪要显示，上月美联储19位官员中至少6人认为：应删除会后声明中 “下一步大概率降息”的措辞，改为 “加息与降息可能性均等”。
+” “同时还将加速我们向服务与设备现代化业务的战略转型，增强企业抗风险能力。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 01:58 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 02:03 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 01:52 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 01:51 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 01:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 02:10 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 02:06 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 02:00 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 02:05 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 01:46 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 01:42 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 01:59 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 02:01 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 01:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 02:17 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 02:15 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 01:55 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 02:06 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 01:49 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 02:12 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 02:11 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 02:08 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 02:02 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 02:05 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 01:54 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:11 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/448252.shtml)
-- 2026-06-30 01:45 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/687567.shtml)
-- 2026-06-30 01:57 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/1078523.shtml)
-- 2026-06-30 02:06 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/913490.shtml)
-- 2026-06-30 02:10 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/98060819706.shtml)
-- 2026-06-30 01:49 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/47679.shtml)
-- 2026-06-30 01:52 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/690469.shtml)
-- 2026-06-30 02:06 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/08234862.shtml)
-- 2026-06-30 01:42 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/28788728654.shtml)
-- 2026-06-30 02:08 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/24425226.shtml)
-- 2026-06-30 02:03 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/51200982811.shtml)
-- 2026-06-30 01:46 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/7507845871.shtml)
-- 2026-06-30 01:54 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/360492119.shtml)
-- 2026-06-30 01:46 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/6818952.shtml)
-- 2026-06-30 01:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/30076209.shtml)
+- 2026-06-30 01:59 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/845367548.shtml)
+- 2026-06-30 02:09 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/5491077763.shtml)
+- 2026-06-30 02:11 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/1424639816.shtml)
+- 2026-06-30 02:16 - [千香](http://www.blog.minike.top/Article/details/254524.shtml)
+- 2026-06-30 02:00 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/149738625031.shtml)
+- 2026-06-30 02:02 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/1659283.shtml)
+- 2026-06-30 01:52 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/47280554.shtml)
+- 2026-06-30 01:54 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/2921178772.shtml)
+- 2026-06-30 02:05 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/35516513628.shtml)
+- 2026-06-30 01:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/2314992810.shtml)
+- 2026-06-30 01:54 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/23420687.shtml)
+- 2026-06-30 02:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/664391841223.shtml)
+- 2026-06-30 02:06 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/377441.shtml)
+- 2026-06-30 01:50 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/34386670.shtml)
+- 2026-06-30 01:55 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/51759125074.shtml)

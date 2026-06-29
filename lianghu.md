@@ -1,58 +1,48 @@
-# 美联储理事米歇尔・鲍曼警示：不应因通胀反弹而加息
+# 找钢集团-W遭MPC II L.P.减持32.4万股 每股作价1港元
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-核心要点 美联储理事米歇尔・鲍曼于周五表态，反对通过加息来平抑当前物价上涨。 目前通胀水平远高于美联储 2% 的目标值。市场普遍预期，美联储今年将维持利率不变，或在 2027 年初启动加息；从当前市场定价来看，至少在 2027 年年内，美联储几乎没有降息可能。 但鲍曼认为，通过调整货币政策来对冲能源价格推动的通胀飙升，过往经验证明效果不佳。 她在冰岛雷克雅未克举办的一场会议上表
+香港联交所最新资料显示，4月27日，MPC II L.P．减持找钢集团-W（06676）32.4万股，每股作价1港元，总金额为32.4万港元。减持后最新持股数目约为6147.20万股，最新持股比例为6.98%。责任编辑：卢昱君
 
 ## 正文
 
-核心要点 美联储理事米歇尔・鲍曼于周五表态，反对通过加息来平抑当前物价上涨。
+香港联交所最新资料显示，4月27日，MPC II L.P．减持找钢集团-W（06676）32.4万股，每股作价1港元，总金额为32.4万港元。
 
-目前通胀水平远高于美联储 2% 的目标值。
+减持后最新持股数目约为6147.20万股，最新持股比例为6.98%。
 
-市场普遍预期，美联储今年将维持利率不变，或在 2027 年初启动加息；从当前市场定价来看，至少在 2027 年年内，美联储几乎没有降息可能。
-
-但鲍曼认为，通过调整货币政策来对冲能源价格推动的通胀飙升，过往经验证明效果不佳。
-
-她在冰岛雷克雅未克举办的一场会议上表示：“若针对能源价格短期走高引发的通胀采取应对行动，只会造成过度的政策紧缩，无端压制经济活力、恶化就业市场。
-
-” 鲍曼补充称，相关研究表明，面对短期能源冲击，货币政策不宜过度激进。
-
-就在此番言论发布前一日，美国商务部公布数据：美联储核心通胀指标 —— 个人消费支出价格指数（PCE）4 月同比上涨 3.8%；剔除食品和能源后，核心 PCE 同比涨幅为 3.3%。
-
-不过，剔除价格波动极端项后的通胀数据显示，实际通胀水平更接近政策目标。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 02:03 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 01:48 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 01:55 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 01:44 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 02:05 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 01:52 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 02:00 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 02:10 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 02:09 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 01:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 02:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 02:10 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 01:57 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 02:14 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 02:03 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 02:14 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 02:04 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 02:13 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 02:01 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 01:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 01:57 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 02:05 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 02:03 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:54 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/38776116.shtml)
-- 2026-06-30 02:02 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/281107343.shtml)
-- 2026-06-30 01:45 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/64575003537.shtml)
-- 2026-06-30 01:48 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/832946156595.shtml)
-- 2026-06-30 01:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/15899.shtml)
-- 2026-06-30 01:50 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/04507386099.shtml)
-- 2026-06-30 01:49 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/4837806.shtml)
-- 2026-06-30 02:02 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/833606131.shtml)
-- 2026-06-30 01:50 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/88143870526.shtml)
-- 2026-06-30 01:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/9217452.shtml)
-- 2026-06-30 01:52 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/49295729.shtml)
-- 2026-06-30 01:49 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/31139058.shtml)
-- 2026-06-30 02:09 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/80802.shtml)
-- 2026-06-30 01:47 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/6909596927.shtml)
-- 2026-06-30 02:00 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/116235.shtml)
+- 2026-06-30 02:07 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/298008705.shtml)
+- 2026-06-30 01:53 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/070373527917.shtml)
+- 2026-06-30 01:49 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/153899.shtml)
+- 2026-06-30 02:17 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/8962505885.shtml)
+- 2026-06-30 01:55 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/78397.shtml)
+- 2026-06-30 01:59 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/370445.shtml)
+- 2026-06-30 01:56 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/775645.shtml)
+- 2026-06-30 02:00 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/92005456160.shtml)
+- 2026-06-30 01:54 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/601134514.shtml)
+- 2026-06-30 02:18 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/846304338.shtml)
+- 2026-06-30 01:58 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/57136.shtml)
+- 2026-06-30 01:50 - [流金岁月](https://www.share.minike.top/Article/details/71503475.shtml)
+- 2026-06-30 02:03 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/687473362532.shtml)
+- 2026-06-30 02:05 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/029720708166.shtml)
+- 2026-06-30 02:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/58243411929.shtml)

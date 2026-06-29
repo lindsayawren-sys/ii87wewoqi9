@@ -1,58 +1,59 @@
-# 广州“十五五”规划纲要：做大做强金融平台和机构，支持市属金融控股公司争取金融控股牌照
+# 知名百亿基金经理葛兰，官宣卸任中欧明睿新起点，由代云锋接任
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-5月29日金融一线消息，广州市国民经济和社会发展第十五个五年规划纲要发布。其中提出，做大做强金融平台和机构。支持广州期货交易所加快丰富期货、期权上市品种，支持引进或新设期货经营、风险管理等期货中介和服务机构，大力吸引与期货交易和资产配置相关的金融机构落户，加快建设南沙期货产业园，促进期现货联动发展，推动构建完整期货产业链。支持广东股权交易中心申请开展业务创新试点、有效增加挂牌企
+来源：中国基金报 原标题：知名百亿基金经理，官宣！ 【导读】中欧明睿新起点变更基金经理，葛兰专注医药板块投资 中国基金报记者 曹雯璟 4月29日，中欧基金发布公告称，中欧明睿新起点的基金经理由葛兰变更为代云锋。 除了中欧明睿新起点，葛兰旗下还有两只医药主题基金。截至今年一季度末，葛兰在管公募基金规模为332.89亿元。 记者从业内了解到，卸任中欧明睿新起点后，葛兰将继续管理两只
 
 ## 正文
 
-5月29日金融一线消息，广州市国民经济和社会发展第十五个五年规划纲要发布。
+来源：中国基金报 原标题：知名百亿基金经理，官宣！
 
-其中提出，做大做强金融平台和机构。
+【导读】中欧明睿新起点变更基金经理，葛兰专注医药板块投资 中国基金报记者 曹雯璟 4月29日，中欧基金发布公告称，中欧明睿新起点的基金经理由葛兰变更为代云锋。
 
-支持广州期货交易所加快丰富期货、期权上市品种，支持引进或新设期货经营、风险管理等期货中介和服务机构，大力吸引与期货交易和资产配置相关的金融机构落户，加快建设南沙期货产业园，促进期现货联动发展，推动构建完整期货产业链。
+除了中欧明睿新起点，葛兰旗下还有两只医药主题基金。
 
-支持广东股权交易中心申请开展业务创新试点、有效增加挂牌企业数量。
+截至今年一季度末，葛兰在管公募基金规模为332.89亿元。
 
-优化金融产业载体布局，加快广州国际金融城建设，吸引国内外知名金融机构、研究院和第三方咨询机构集聚；推动广州民间金融街提质转型。
+记者从业内了解到，卸任中欧明睿新起点后，葛兰将继续管理两只医药基金，深耕医药领域。
 
-支持市属金融控股公司争取金融控股牌照，提升资产规模和盈利能力。
+葛兰在最新季报中表示：“整体而言，医药行业持续进行从‘价格竞争’向‘质量+创新’的转型，企业凭借核心产品竞争力和高效经营管理能力在调整周期中脱颖而出。
 
-支持证券、基金、保险等金融机构做优做强、争先进位，提升行业影响力。
+我们维持长期价值投资框架，继续重点关注创新药械产业链、消费医疗等核心领域，严格依据企业盈利周期、估值吸引力和经营趋势进行动态评估，力争为投资人获取长期稳健回报。
 
-责任编辑：秦艺
+” 中欧科技战队代云锋接棒明睿新起点 葛兰专注医药板块投资 4月29日，中欧明睿新起点基金经理变更公告发布。
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 02:08 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 01:48 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 01:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 02:01 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 01:55 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 01:57 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 02:00 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 01:42 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 02:03 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 01:45 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 02:06 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 02:05 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 01:55 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 01:52 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 01:54 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 02:02 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 02:07 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 01:56 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 02:08 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 01:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 02:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 02:17 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 01:52 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 02:01 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/208212.shtml)
-- 2026-06-30 01:57 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/202753.shtml)
-- 2026-06-30 02:01 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/965497.shtml)
-- 2026-06-30 01:59 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/0737769.shtml)
-- 2026-06-30 01:50 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/6289520.shtml)
-- 2026-06-30 02:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/48014.shtml)
-- 2026-06-30 01:54 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/45450.shtml)
-- 2026-06-30 01:47 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/122529157.shtml)
-- 2026-06-30 02:08 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/32094.shtml)
-- 2026-06-30 02:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/254550.shtml)
-- 2026-06-30 01:53 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/432303606.shtml)
-- 2026-06-30 02:07 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/128482634612.shtml)
-- 2026-06-30 02:00 - [日本进球](http://www.blog.kurohicncr.top/Article/details/96582689787.shtml)
-- 2026-06-30 02:03 - [沙丘](http://www.blog.kurohicncr.top/Article/details/98240276.shtml)
-- 2026-06-30 02:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/842216.shtml)
+- 2026-06-30 01:49 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/33280094935.shtml)
+- 2026-06-30 01:50 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/64801.shtml)
+- 2026-06-30 02:02 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/3541032.shtml)
+- 2026-06-30 02:07 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/5372461.shtml)
+- 2026-06-30 01:53 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/1251262189.shtml)
+- 2026-06-30 02:13 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/07356934.shtml)
+- 2026-06-30 01:56 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/63308342.shtml)
+- 2026-06-30 02:01 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/706082827.shtml)
+- 2026-06-30 02:15 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/194758753.shtml)
+- 2026-06-30 02:03 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/23132879.shtml)
+- 2026-06-30 01:50 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/5892856.shtml)
+- 2026-06-30 02:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/39780814.shtml)
+- 2026-06-30 02:05 - [一生一世](http://www.share.kurohicncr.top/Article/details/897076246.shtml)
+- 2026-06-30 02:15 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/2238652905.shtml)
+- 2026-06-30 01:59 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/020938921846.shtml)

@@ -1,58 +1,59 @@
-# 王毅在“全球治理之友小组”会议上的主旨发言（全文）
+# 促进服务业优质高效发展——国务院政策例行吹风会介绍《关于推进服务业扩能提质的意见》有关情况
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-新华社联合国5月28日电 改革完善全球治理 携手共创美好未来 ——在“全球治理之友小组”会议上的主旨发言 中共中央政治局委员、外交部长 王毅 (2026年5月28日，纽约联合国总部) 各位同事： 感谢大家出席今天的“全球治理之友小组”会议。 当今国际形势变乱交织，各国呼唤公平正义、渴望团结合作、向往和平稳定。在此背景下，习近平主席去年9月郑重提出全球治理倡议，强调主权平等、国际
+新华社北京4月28日电 题：促进服务业优质高效发展——国务院政策例行吹风会介绍《关于推进服务业扩能提质的意见》有关情况 新华社记者魏弘毅、邹雨沁 近日，国务院印发《关于推进服务业扩能提质的意见》。如何以意见为抓手，落实全国服务业大会精神、推动服务业优质高效发展？国新办28日举行国务院政策例行吹风会，介绍相关情况。 推动服务业扩能提质国家发展改革委副主任沈竹林表示，服务业是增长的
 
 ## 正文
 
-新华社联合国5月28日电 改革完善全球治理 携手共创美好未来 ——在“全球治理之友小组”会议上的主旨发言 中共中央政治局委员、外交部长 王毅 (2026年5月28日，纽约联合国总部) 各位同事： 感谢大家出席今天的“全球治理之友小组”会议。
+新华社北京4月28日电 题：促进服务业优质高效发展——国务院政策例行吹风会介绍《关于推进服务业扩能提质的意见》有关情况 新华社记者魏弘毅、邹雨沁 近日，国务院印发《关于推进服务业扩能提质的意见》。
 
-当今国际形势变乱交织，各国呼唤公平正义、渴望团结合作、向往和平稳定。
+如何以意见为抓手，落实全国服务业大会精神、推动服务业优质高效发展？
 
-在此背景下，习近平主席去年9月郑重提出全球治理倡议，强调主权平等、国际法治、多边主义、以人为本、行动导向五大核心理念。
+国新办28日举行国务院政策例行吹风会，介绍相关情况。
 
-不到一年，倡议已得到近160个国家和国际组织支持响应。
+推动服务业扩能提质国家发展改革委副主任沈竹林表示，服务业是增长的动力源、转型的加速器、就业的主渠道、民生的幸福网。
 
-“全球治理之友小组”在纽约、日内瓦、维也纳三地相继成立，成员数量达到60余国。
+《关于推进服务业扩能提质的意见》就推进服务业扩能提质作出系列部署。
 
-大家本着平等、尊重精神，围绕改革完善全球治理进行了广泛讨论，凝聚了五大共识： 一是都主张推进国际关系民主化，认为各国无论大小、强弱、贫富，都有权自主选择社会制度和发展道路，都应在全球治理进程中平等参与、平等决策、平等受益。
+如何理解“扩能提质”这一关键词？
 
-二是都主张维护联合国宪章宗旨和原则，确保国际法和国际规则平等统一适用，反对双重标准和强加于人。
+“扩能”，就是要针对服务业现存的供需缺口，不断扩大服务供给，不断培育服务业新增长点和服务贸易新空间，来提升发展能级，即做大“蛋糕”。
 
-三是都主张维护联合国核心地位，践行多边主义，筑牢多边机制，反对单边主义和强权政治。
+“提质”，就是要提升质量标准，提高专业化水平，增强品牌的竞争力，加快迈向产业链价值链更高端，即把“蛋糕”做好。
 
 ## 相关推荐
 
-- 2026-06-30 02:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 02:07 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 02:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 01:47 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 02:09 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 02:10 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 02:09 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 01:58 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 01:48 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 01:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 02:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 01:57 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 01:55 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 02:08 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 02:01 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 02:15 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 01:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 01:57 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 01:52 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 02:16 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 01:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 02:10 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 01:52 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 02:06 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 02:14 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/75140782.shtml)
-- 2026-06-30 01:55 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/558884.shtml)
-- 2026-06-30 01:55 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/9682414103.shtml)
-- 2026-06-30 01:47 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/74014.shtml)
-- 2026-06-30 01:56 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/784007659383.shtml)
-- 2026-06-30 01:54 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/8496739.shtml)
-- 2026-06-30 01:56 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/391963017805.shtml)
-- 2026-06-30 02:11 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/83520.shtml)
-- 2026-06-30 02:08 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/802820048243.shtml)
-- 2026-06-30 02:02 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/780952.shtml)
-- 2026-06-30 01:59 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/236513427.shtml)
-- 2026-06-30 01:48 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/09542575918.shtml)
-- 2026-06-30 01:48 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/881994.shtml)
-- 2026-06-30 02:08 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/23747.shtml)
-- 2026-06-30 01:50 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/5588378934.shtml)
+- 2026-06-30 02:10 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/156500.shtml)
+- 2026-06-30 02:01 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/90674066.shtml)
+- 2026-06-30 01:52 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/0972755957.shtml)
+- 2026-06-30 02:05 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/27568009.shtml)
+- 2026-06-30 01:56 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/24190.shtml)
+- 2026-06-30 02:11 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/976493.shtml)
+- 2026-06-30 01:50 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/089188.shtml)
+- 2026-06-30 01:59 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/61104370.shtml)
+- 2026-06-30 01:49 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/861355800.shtml)
+- 2026-06-30 02:16 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/3240112.shtml)
+- 2026-06-30 01:54 - [锐评T1零封KC](https://www.share.minike.top/Article/details/623846421481.shtml)
+- 2026-06-30 01:52 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/23824.shtml)
+- 2026-06-30 01:57 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/0843437802.shtml)
+- 2026-06-30 02:17 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/809853597.shtml)
+- 2026-06-30 01:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/67322325.shtml)

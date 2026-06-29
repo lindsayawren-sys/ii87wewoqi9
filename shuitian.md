@@ -1,58 +1,61 @@
-# 落实陪餐、制定食材采购“负面清单” 幼儿园食品安全新规将于6月1日起实施
+# 长城基金汪立：短期关注事件与业绩波动影响
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网北京5月29日电(记者 左雨晴) 记者29日从市场监管总局新闻发布会上获悉，市场监管总局会同教育部制定了《幼儿园落实食品安全主体责任监督管理规定》(以下简称规定)。《规定》自今年6月1日起正式实施。 “2025年的甘肃天水幼儿血铅异常事件，为幼儿园食品安全敲响了一记沉重的警钟。”市场监管总局食品安全总监孙会川指出，涉事幼儿园的行为令人震惊，后果令人痛心，教训也极其深刻，充
+上周A股市场呈现明显震荡分化格局。宽基指数中，权重股表现相对稳健，中小盘股则面临调整压力。从申万一级行业来看，煤炭、电子和石油石化表现较好，农林牧渔、综合和传媒表现相对一般。 宏观分析：美通胀信号走强压制降息预期 海外方面，美国4月制造业PMI超预期回升压制降息预期。具体来看，美国3月零售销售环比大幅增长1.7%，为2023年1月以来最大单月涨幅。主要增量来自加油站收入激增15
 
 ## 正文
 
-中新网北京5月29日电(记者 左雨晴) 记者29日从市场监管总局新闻发布会上获悉，市场监管总局会同教育部制定了《幼儿园落实食品安全主体责任监督管理规定》(以下简称规定)。
+上周A股市场呈现明显震荡分化格局。
 
-《规定》自今年6月1日起正式实施。
+宽基指数中，权重股表现相对稳健，中小盘股则面临调整压力。
 
-“2025年的甘肃天水幼儿血铅异常事件，为幼儿园食品安全敲响了一记沉重的警钟。
+从申万一级行业来看，煤炭、电子和石油石化表现较好，农林牧渔、综合和传媒表现相对一般。
 
-”市场监管总局食品安全总监孙会川指出，涉事幼儿园的行为令人震惊，后果令人痛心，教训也极其深刻，充分暴露出一些幼儿园食品安全“第一责任人”意识淡薄、食品安全风险防控能力弱、从业人员素质低下等问题。
+宏观分析：美通胀信号走强压制降息预期 海外方面，美国4月制造业PMI超预期回升压制降息预期。
 
-幼儿园集中用餐体量庞大、群体敏感特殊。
+具体来看，美国3月零售销售环比大幅增长1.7%，为2023年1月以来最大单月涨幅。
 
-不容有任何闪失。
+主要增量来自加油站收入激增15.5%，系美伊冲突推高燃油价格所致。
 
-为此，市场监管总局会同教育部，按照《食品安全法》的相关规定，在《学校食品安全与营养健康管理规定》和《集中用餐单位落实食品安全主体责任监督管理规定》的基础上，专门制定了《幼儿园落实食品安全主体责任监督管理规定》，将自6月1日起实施。
+美国4月制造业PMI初值录得54.0，创47个月新高，服务业PMI初值升至51.3，重返扩张区间。
 
-《规定》一共32条，涵盖7个方面内容，进一步明确了幼儿园供餐模式选择、管理人员配备履职、采购验收、加工制作、餐饮具清洗消毒等关键环节的责任要求和具体措施，并在现行法律法规框架下，作出了一系列严于一般校园食品安全管理的制度安排。
+制造业的强劲表现估计在很大程度上源于企业预防性囤货，而非终端需求的实质性改善。
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 02:09 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 01:51 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 02:07 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 01:58 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 02:10 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 01:49 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 01:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 01:54 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 02:00 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 02:00 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 02:00 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 01:55 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 02:11 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 02:17 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 01:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 02:17 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 01:58 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 02:16 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 01:50 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 01:54 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 01:49 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 02:00 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 01:56 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 02:09 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 02:09 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 01:55 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - [我们的少年时代2](https://www.share.minike.top/Article/details/4794722856.shtml)
-- 2026-06-30 01:49 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/6309570.shtml)
-- 2026-06-30 01:51 - [请回答王牌2019](https://www.blog.minike.top/Article/details/4248258.shtml)
-- 2026-06-30 01:49 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/57234138856.shtml)
-- 2026-06-30 02:07 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/14925846060.shtml)
-- 2026-06-30 01:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/61722645629.shtml)
-- 2026-06-30 01:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/836541069.shtml)
-- 2026-06-30 02:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/393673052798.shtml)
-- 2026-06-30 01:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/48509373.shtml)
-- 2026-06-30 02:04 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/4117747447.shtml)
-- 2026-06-30 02:00 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/0065701238.shtml)
-- 2026-06-30 01:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/952100.shtml)
-- 2026-06-30 02:06 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/94772248843.shtml)
-- 2026-06-30 02:05 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/607644919404.shtml)
-- 2026-06-30 01:53 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/01730.shtml)
+- 2026-06-30 02:14 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/09661.shtml)
+- 2026-06-30 02:02 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/748456524.shtml)
+- 2026-06-30 02:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/851071.shtml)
+- 2026-06-30 02:16 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/596023.shtml)
+- 2026-06-30 02:03 - [巴西vs日本](http://www.share.minike.top/Article/details/923060387.shtml)
+- 2026-06-30 02:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/406209399911.shtml)
+- 2026-06-30 02:12 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/070292.shtml)
+- 2026-06-30 02:00 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/88046652.shtml)
+- 2026-06-30 02:10 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/481902.shtml)
+- 2026-06-30 02:12 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/145282648.shtml)
+- 2026-06-30 02:08 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/456078.shtml)
+- 2026-06-30 02:17 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/93328146713.shtml)
+- 2026-06-30 02:06 - [毒液2](https://www.share.kurohicncr.top/Article/details/23007202577.shtml)
+- 2026-06-30 01:49 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/250359021.shtml)
+- 2026-06-30 02:13 - [电影后室值得看吗](http://www.share.minike.top/Article/details/343199933.shtml)

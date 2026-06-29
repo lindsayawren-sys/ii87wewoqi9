@@ -1,48 +1,48 @@
-# 大摩：石药集团目标价上调至11港元 维持“增持”评级
+# 阿克曼旗下潘兴广场通过IPO和配股融资50亿美元
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-摩根士丹利发布研报称，石药集团（01093）发布第一季度业绩后，维持正面看法，并在报告指，国内产品销售似乎终于恢复正增长，而过往 BD （业务拓展）交易合作及潜在新 BD 交易有望释放持续的授权费收入，维持“增持”评级，目标价由10.4港元上调至11港元。 大摩上调石药2026年每股盈利预测123%，以反映大部分与阿斯利康的协议带来的预付款，及以前未入账到2026年的预付款，但
+公司声明显示，亿万富豪比尔・阿克曼旗下封闭式基金及另类资产管理公司，通过首次公开募股合计预计募资总额达50亿美元。潘兴广场股票将于4月29日在纽约证券交易所挂牌交易。本次合并IPO预计于4月30日完成交割。责任编辑：王永生
 
 ## 正文
 
-摩根士丹利发布研报称，石药集团（01093）发布第一季度业绩后，维持正面看法，并在报告指，国内产品销售似乎终于恢复正增长，而过往 BD （业务拓展）交易合作及潜在新 BD 交易有望释放持续的授权费收入，维持“增持”评级，目标价由10.4港元上调至11港元。
+公司声明显示，亿万富豪比尔・阿克曼旗下封闭式基金及另类资产管理公司，通过首次公开募股合计预计募资总额达50亿美元。
 
-大摩上调石药2026年每股盈利预测123%，以反映大部分与阿斯利康的协议带来的预付款，及以前未入账到2026年的预付款，但亦指出无论实际现金收取时间如何，BD 收入账的时间点仍存在固有的不确定性。
+潘兴广场股票将于4月29日在纽约证券交易所挂牌交易。
 
-责任编辑：卢昱君
+本次合并IPO预计于4月30日完成交割。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 02:03 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 01:44 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 01:56 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 02:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 01:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 02:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 02:10 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 01:53 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 02:04 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 01:51 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 01:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 02:11 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 02:01 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 02:09 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 01:55 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 02:03 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 02:14 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 02:09 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 02:10 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 02:02 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-30 02:11 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/6023789345.shtml)
-- 2026-06-30 02:04 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/109723674246.shtml)
-- 2026-06-30 02:07 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/69705328865.shtml)
-- 2026-06-30 02:01 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/851634.shtml)
-- 2026-06-30 02:03 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/863257802.shtml)
-- 2026-06-30 02:06 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/85376117.shtml)
-- 2026-06-30 01:48 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/88839.shtml)
-- 2026-06-30 01:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/91073684453.shtml)
-- 2026-06-30 01:56 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/004878808.shtml)
-- 2026-06-30 01:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/86038269.shtml)
-- 2026-06-30 01:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/978480.shtml)
-- 2026-06-30 01:52 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/2256207.shtml)
-- 2026-06-30 01:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/47796.shtml)
-- 2026-06-30 02:03 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/532577295399.shtml)
-- 2026-06-30 02:03 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/26345.shtml)
+- 2026-06-30 01:51 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/57112557283.shtml)
+- 2026-06-30 02:01 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/1187985665.shtml)
+- 2026-06-30 01:58 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/43829387.shtml)
+- 2026-06-30 01:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/496689136.shtml)
+- 2026-06-30 01:56 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/16476124.shtml)
+- 2026-06-30 02:12 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/34727260.shtml)
+- 2026-06-30 01:50 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/40910.shtml)
+- 2026-06-30 01:58 - [刘念回应](http://www.share.minike.top/Article/details/759073072.shtml)
+- 2026-06-30 02:15 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/8037462806.shtml)
+- 2026-06-30 01:50 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/67809710346.shtml)
+- 2026-06-30 01:53 - [美人鱼](https://www.share.minike.top/Article/details/26818799.shtml)
+- 2026-06-30 01:58 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/972009371010.shtml)
+- 2026-06-30 01:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/301337.shtml)
+- 2026-06-30 02:02 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/814740.shtml)
+- 2026-06-30 02:17 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/44081650.shtml)

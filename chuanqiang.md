@@ -1,57 +1,59 @@
-# “践行民盟初心 护航融合成长”——民盟宿迁市宿豫区总支举办迎“六一”慰问活动
+# 华商基金陈夏琼：关注AI、新能源、机器人等制造业景气方向
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-5月28日上午，民盟宿豫区总支走进宿豫区特殊教育学校，开展“践行民盟初心 护航融合成长”迎“六一”慰问活动。宿迁市政协副主席、民盟宿迁市委会主委史明霞，宿豫区委常委、统战部部长仓杰，民盟宿迁市委会副主委、宿豫区政协副主席、民盟宿豫区总支主委张智勇出席活动，部分骨干盟员参加活动。史明霞代表民盟宿迁市委会向全校儿童送上节日问候和美好祝福，向长期坚守在特殊教育一线的教职工致以崇高的敬
+近期，AI与新能源两大主线持续走强，助推创业板指跃升至近11年高位区间。在华商竞争力优选混合基金经理陈夏琼看来，AI的产业变革还在持续，带动AI硬件、下游智驾、机器人等产业发展；全球能源价格上涨，地缘及产业变动带动能源结构变化，也为国内储能锂电、风光、电力设备相关公司带来份额提升。她表示持续看好科技和能源变革投资机遇。 陈夏琼 华商竞争力优选混合基金经理 华商高端装备制造股票基
 
 ## 正文
 
-5月28日上午，民盟宿豫区总支走进宿豫区特殊教育学校，开展“践行民盟初心 护航融合成长”迎“六一”慰问活动。
+近期，AI与新能源两大主线持续走强，助推创业板指跃升至近11年高位区间。
 
-宿迁市政协副主席、民盟宿迁市委会主委史明霞，宿豫区委常委、统战部部长仓杰，民盟宿迁市委会副主委、宿豫区政协副主席、民盟宿豫区总支主委张智勇出席活动，部分骨干盟员参加活动。
+在华商竞争力优选混合基金经理陈夏琼看来，AI的产业变革还在持续，带动AI硬件、下游智驾、机器人等产业发展；全球能源价格上涨，地缘及产业变动带动能源结构变化，也为国内储能锂电、风光、电力设备相关公司带来份额提升。
 
-史明霞代表民盟宿迁市委会向全校儿童送上节日问候和美好祝福，向长期坚守在特殊教育一线的教职工致以崇高的敬意，同时希望民盟宿豫区总支持续深化关爱行动，当好儿童成长路上的“护航者”，特殊教育事业发展的“助推者”。
+她表示持续看好科技和能源变革投资机遇。
 
-孩子们表演了器乐合奏《扬鞭催马运粮忙》、手语舞蹈《礼仪之邦》等精彩节目，展现了他们的才艺与自信。
+陈夏琼 华商竞争力优选混合基金经理 华商高端装备制造股票基金经理 华商新能源汽车混合基金经理 陈夏琼，毕业于北京大学，于2015年加入华商基金，历任行业研究员、基金经理助理、基金经理，能力圈集中在制造业、新能源相关的上下游行业。
 
-随后，与会领导为孩子们送上了节日礼物，传递民盟组织的关爱与祝福。
+陈夏琼始终坚信“深度研究是穿越市场波动的基石”，并将这一理念深刻融入其投资管理中。
 
-活动开始前，史明霞一行还调研了解了宿豫区特殊教育工作开展情况。
+在当前AI+新能源双驱轮动的结构性行情中，华商基金陈夏琼凭借十余年深耕制造业与新能源的投研积淀（其中9.4年证券研究经历、1.2年证券投资经历），自2025年1月担任基金经理以来交出了一份亮眼成绩单。
+
+据权威基金评价机构数据显示，截至2026年1季度末，陈夏琼管理的华商竞争力优选混合基金、参与共同管理的华商高端装备股票基金近一年业绩排名均位列同类前10%。
+
+尤为值得一提的是，华商高端装备股票基金近1年业绩位列同类第二（详见下表）。
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 02:09 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 01:50 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 01:54 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 01:48 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 01:58 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 02:03 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 01:58 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 02:11 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 01:44 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 02:04 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 01:47 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 02:02 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 02:01 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 02:10 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 02:05 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 02:07 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 01:48 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 02:12 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 01:50 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 02:07 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 02:12 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 02:16 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 01:51 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 01:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 02:04 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 02:08 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 01:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:57 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/48702576.shtml)
-- 2026-06-30 01:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/42180892.shtml)
-- 2026-06-30 02:02 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/4961845260.shtml)
-- 2026-06-30 02:04 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/1629253.shtml)
-- 2026-06-30 02:11 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/004292170707.shtml)
-- 2026-06-30 01:46 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/782323971884.shtml)
-- 2026-06-30 01:45 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/94665709.shtml)
-- 2026-06-30 02:10 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/64430541199.shtml)
-- 2026-06-30 01:49 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/80906655.shtml)
-- 2026-06-30 02:11 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/85861.shtml)
-- 2026-06-30 01:56 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/6747536272.shtml)
-- 2026-06-30 01:54 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/3536818674.shtml)
-- 2026-06-30 02:08 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/41875.shtml)
-- 2026-06-30 01:44 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/38083818.shtml)
-- 2026-06-30 01:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/443942.shtml)
+- 2026-06-30 02:00 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/3981619736.shtml)
+- 2026-06-30 01:50 - [日本进球](http://www.blog.kurohicncr.top/Article/details/611670079748.shtml)
+- 2026-06-30 02:07 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/8435762.shtml)
+- 2026-06-30 01:51 - [刘念回应](http://www.share.kurohicncr.top/Article/details/38847439.shtml)
+- 2026-06-30 02:06 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/87899635986.shtml)
+- 2026-06-30 02:10 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/054946692.shtml)
+- 2026-06-30 02:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/126035.shtml)
+- 2026-06-30 01:50 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/8730570.shtml)
+- 2026-06-30 02:04 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/709072650.shtml)
+- 2026-06-30 01:52 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/65905135858.shtml)
+- 2026-06-30 02:10 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/232530309163.shtml)
+- 2026-06-30 02:12 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/811355.shtml)
+- 2026-06-30 01:52 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/388246987.shtml)
+- 2026-06-30 02:11 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/692747471375.shtml)
+- 2026-06-30 02:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/53251107.shtml)

@@ -1,59 +1,56 @@
-# 联发科预计AI业务收入将在2027年迎来爆发式增长
+# 中国“工业之米”，何以香飘四海？
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-联发科预计，今年取得强劲增长后，其正在发展的AI数据中心业务收入将在2027年实现数倍增长。 联发科总部位于新竹、以智能手机芯片领域与高通竞争而闻名。该公司资深副总经理Vince Hu在周五的简报会上表示，公司有望在2026年实现20亿美元的数据中心业务销售额。联发科目前预计，明年其在数据中心市场中可获得的份额最高可达15%，对应的市场机会规模为800亿美元。 对于一家正处于业
+河北省邯郸市永年区，被称为“中国紧固件之都”。 2025年，这里紧固件产量达780万吨，产值551.6亿元，产销量约占全国市场的58%，是全国最大的紧固件生产基地和集散中心。 紧固件，是作紧固连接用，且应用极为广泛的一类机械零件，又被称为“工业之米”，包括螺丝、索具、异形件、建筑配件等，小到眼镜、钟表，大到轮船、飞机、桥梁等都离不开它。 从手工烘炉到产业奠基 永年紧固件产业的源
 
 ## 正文
 
-联发科预计，今年取得强劲增长后，其正在发展的AI数据中心业务收入将在2027年实现数倍增长。
+河北省邯郸市永年区，被称为“中国紧固件之都”。
 
-联发科总部位于新竹、以智能手机芯片领域与高通竞争而闻名。
+2025年，这里紧固件产量达780万吨，产值551.6亿元，产销量约占全国市场的58%，是全国最大的紧固件生产基地和集散中心。
 
-该公司资深副总经理Vince Hu在周五的简报会上表示，公司有望在2026年实现20亿美元的数据中心业务销售额。
+紧固件，是作紧固连接用，且应用极为广泛的一类机械零件，又被称为“工业之米”，包括螺丝、索具、异形件、建筑配件等，小到眼镜、钟表，大到轮船、飞机、桥梁等都离不开它。
 
-联发科目前预计，明年其在数据中心市场中可获得的份额最高可达15%，对应的市场机会规模为800亿美元。
+从手工烘炉到产业奠基 永年紧固件产业的源头，可以追溯到20世纪六七十年代。
 
-对于一家正处于业务转型阶段、努力支持人工智能任务（无论是在终端设备还是云端）的公司来说，这是一个相当乐观的预测。
+在当时的河北铺、东滩头等村镇，为增加集体收入，许多生产队利用农闲办起烘炉，依靠技艺精湛的铁匠，手工锻造螺丝、螺母。
 
-AI热潮对联发科传统的智能手机业务造成了压力，今年智能手机出货量预计将大幅下降；但与此同时，来自AI基础设施建设以及全球最大AI开发商的需求增长，正在弥补这一影响。
+老师傅韩孟奎回忆，那时“呼啦呼啦的风箱声、烧得通红的炉火、锤下四溅的火花”，是乡镇里常见的生产图景。
 
-负责联发科数据中心业务部门的Hu表示，“所有四大超大规模云服务商都在加速资本支出。
+改革开放的春风吹来，掌握技术的农民纷纷开办家庭作坊，用小烘炉生产紧固件，沿街摆摊或用车拉到外地销售。
 
-因此，我们将总可服务市场的预期从原先的700亿美元上调到800亿美元，并且认为这一规模预计将在2027年而不是2028年实现。
+20世纪八十年代后期，冷镦机等机械设备的引入，使生产从纯手工迈向机械化，产能迅速提升。
 
 ## 相关推荐
 
-- 2026-06-30 02:00 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 02:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 02:11 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 02:08 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 02:06 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 02:00 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 01:58 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 02:05 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 01:48 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 01:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 02:03 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 01:52 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 01:50 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 01:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 02:04 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 01:53 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 01:56 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 02:07 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 02:09 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 01:54 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 01:55 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 02:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 02:07 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:46 - [周生如故](https://www.share.kurohicncr.top/Article/details/83132.shtml)
-- 2026-06-30 02:07 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/43607711.shtml)
-- 2026-06-30 01:47 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/7071331.shtml)
-- 2026-06-30 01:59 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/4966116.shtml)
-- 2026-06-30 02:07 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/652608761876.shtml)
-- 2026-06-30 02:08 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/19893431194.shtml)
-- 2026-06-30 01:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/78179870.shtml)
-- 2026-06-30 02:05 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/36031.shtml)
-- 2026-06-30 01:44 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/3824544138.shtml)
-- 2026-06-30 01:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/4863534130.shtml)
-- 2026-06-30 02:07 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/29333610900.shtml)
-- 2026-06-30 01:42 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/796461777.shtml)
-- 2026-06-30 01:45 - [青春环游记第三季](http://www.blog.minike.top/Article/details/762694174.shtml)
-- 2026-06-30 01:42 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/3563204.shtml)
-- 2026-06-30 02:11 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/72002034491.shtml)
+- 2026-06-30 01:48 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/16026732.shtml)
+- 2026-06-30 02:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/72196636.shtml)
+- 2026-06-30 02:01 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/8647332.shtml)
+- 2026-06-30 02:09 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/16154006397.shtml)
+- 2026-06-30 01:57 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/39148434.shtml)
+- 2026-06-30 02:03 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/9517098.shtml)
+- 2026-06-30 02:16 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/78887084.shtml)
+- 2026-06-30 02:07 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/3741028.shtml)
+- 2026-06-30 02:16 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/287439.shtml)
+- 2026-06-30 02:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/826711.shtml)
+- 2026-06-30 02:00 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/8914410346.shtml)
+- 2026-06-30 01:52 - [田曦薇没招了](https://www.blog.minike.top/Article/details/353799932418.shtml)
+- 2026-06-30 02:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/6902711.shtml)
+- 2026-06-30 01:52 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/31635272465.shtml)
+- 2026-06-30 02:00 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/82802934906.shtml)

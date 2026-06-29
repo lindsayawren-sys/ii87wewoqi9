@@ -1,58 +1,61 @@
-# 唱词引用《诗经》篇章 河北梆子大型新编历史剧《胡服骑射》将亮相石家庄
+# 宏观变局下的投资逻辑：2026公募一季报观察
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网石家庄5月28日电 (邢璐 苗孛)由河北省河北梆子剧院创排，聚焦战国时期赵武灵王推行“胡服骑射”军事与文化改革壮阔历程的大型新编历史剧《胡服骑射》，将于5月29日晚在石家庄亮相。 据河北梆子剧院院长赵涛介绍，《胡服骑射》最初名为《赵武灵王》，于今年1月底在石家庄首演。演出后不少观众在社交媒体平台分享观剧感受，称赞其“文武戏俱佳”、“有血性，有温度”，并期盼该剧能持续打磨，
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！张坤、葛兰等最新布局出炉 来源：点拾投资 基金一季报上周都已经披露完了，回顾2026年一季度的A股市场，整体呈现出震荡修复的态势，但结构分化显著。受全球地缘政治（特别是中东局势）影响，能源价格维持高位，推动周期板块表现活跃。与此同时，国内政策层面对于新质生产力的支持力度不减，TMT板块在AI概念的催化下
 
 ## 正文
 
-中新网石家庄5月28日电 (邢璐 苗孛)由河北省河北梆子剧院创排，聚焦战国时期赵武灵王推行“胡服骑射”军事与文化改革壮阔历程的大型新编历史剧《胡服骑射》，将于5月29日晚在石家庄亮相。
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！
 
-据河北梆子剧院院长赵涛介绍，《胡服骑射》最初名为《赵武灵王》，于今年1月底在石家庄首演。
+张坤、葛兰等最新布局出炉 来源：点拾投资 基金一季报上周都已经披露完了，回顾2026年一季度的A股市场，整体呈现出震荡修复的态势，但结构分化显著。
 
-演出后不少观众在社交媒体平台分享观剧感受，称赞其“文武戏俱佳”、“有血性，有温度”，并期盼该剧能持续打磨，开展巡演。
+受全球地缘政治（特别是中东局势）影响，能源价格维持高位，推动周期板块表现活跃。
 
-此后，主创团队结合专家和观众意见，认为赵武灵王故事的核心正是通过胡服骑射革故鼎新、富国强兵。
+与此同时，国内政策层面对于新质生产力的支持力度不减，TMT板块在AI概念的催化下虽有波动，但仍是市场活跃资金的重要聚集地。
 
-为了更贴近故事本身，最终将剧名调整为《胡服骑射》。
+另一方面，受制于外部关税壁垒及部分行业产能出清的缓慢，传统制造业及部分出口依赖型板块表现相对疲软。
 
-该剧导演翟建蕊表示，主创团队在尊重史实基础上，着力挖掘赵武灵王改革精神与时代价值，并在艺术呈现上进行多重探索。
+市场整体风险偏好在“稳增长政策预期”与“外部通胀压力”之间反复博弈，成交量虽较去年四季度有所回升，但投资者情绪仍保持谨慎乐观。
 
-“比如道白采用半文言文，唱词引用《诗经》篇章，提升文学性。
+季报向来是观察机构策略与市场判断的重要窗口，往往备受关注，后续我会提到一些我觉得有记忆点的一季报和大家分享。
 
-”翟建蕊说，剧中孟姚登场时所唱“泄泄其羽雄雉飞”，化自《诗经·邶风·雄雉》中的“雄雉于飞，泄泄其羽”；“上下齐音向云追”则取自同篇的“雄雉于飞，上下其音”。
+在当前公募行业竞争日趋激烈、存量博弈加剧的背景下，中小体量公募如何依托资源禀赋寻找增量空间，是行业共同关注的课题。
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 02:11 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 01:59 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 01:54 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 01:59 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 02:10 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 01:53 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 02:03 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 01:50 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 02:02 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 01:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 02:09 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 02:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 02:17 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 02:09 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 01:50 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 02:11 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 02:06 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 02:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 02:02 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 02:06 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 01:53 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 01:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 02:10 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 02:14 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 01:59 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 02:01 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:44 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/93995779.shtml)
-- 2026-06-30 01:42 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/5827471718.shtml)
-- 2026-06-30 01:53 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/56199.shtml)
-- 2026-06-30 01:46 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/3294605666.shtml)
-- 2026-06-30 01:56 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/32289759396.shtml)
-- 2026-06-30 02:02 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/78847253.shtml)
-- 2026-06-30 01:45 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/1337039.shtml)
-- 2026-06-30 01:44 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/0609053627.shtml)
-- 2026-06-30 02:05 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/73977713.shtml)
-- 2026-06-30 02:08 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/76666.shtml)
-- 2026-06-30 02:07 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/4841890506.shtml)
-- 2026-06-30 02:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/216713717661.shtml)
-- 2026-06-30 02:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/83679.shtml)
-- 2026-06-30 02:11 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/6626280126.shtml)
-- 2026-06-30 01:58 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/265881.shtml)
+- 2026-06-30 02:08 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/56108182671.shtml)
+- 2026-06-30 02:11 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/53093744127.shtml)
+- 2026-06-30 02:03 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/6318732.shtml)
+- 2026-06-30 02:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/6415563.shtml)
+- 2026-06-30 02:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/091256272501.shtml)
+- 2026-06-30 02:02 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/76616447043.shtml)
+- 2026-06-30 02:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/716634.shtml)
+- 2026-06-30 01:57 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/991564902.shtml)
+- 2026-06-30 01:48 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/917477679.shtml)
+- 2026-06-30 01:50 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/857757615.shtml)
+- 2026-06-30 02:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/58857282397.shtml)
+- 2026-06-30 02:14 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/1851126987.shtml)
+- 2026-06-30 02:00 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/561674.shtml)
+- 2026-06-30 01:48 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/18484458.shtml)
+- 2026-06-30 02:17 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/04859.shtml)

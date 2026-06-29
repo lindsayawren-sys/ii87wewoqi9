@@ -1,59 +1,56 @@
-# 从“城市矿山”中“碳”索未来 沪高校沉浸式思政课赋能绿色育人
+# 【劳动者之歌】以高质量劳动创造在新征程上展现新作为
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网上海5月29日电(记者 许婧)废弃的旧手机、淘汰的洗衣机、闲置的笔记本电脑……在许多人眼中，这些是毫无用处的“电子垃圾”。但在上海第二工业大学的师生看来，它们却是蕴藏着金、银、铜等宝贵资源的“城市矿山”。29日，一场以“万物循环 ‘碳’索未来”为主题的生态文明展览在上海第二工业大学拉开帷幕，一堂生态文明沉浸式大思政课同时开讲。 活动旨在将“科普新知”与“立德树人”深度融合
+央视新闻客户端消息(新闻联播)：劳动谱写时代华章，奋斗创造美好未来。在中国式现代化的伟大实践中，一批批先进模范人物立足岗位、奋发进取、拼搏奉献，以昂扬姿态奋进新征程、建功新时代。眼下，全国劳动模范唐世彪和团队正在加速推进新一代量子密钥分发设备研发，瞄准小型化、芯片化、集成化目标，持续迭代升级关键软硬件产品。 科技创新赋能未来发展，耕耘大地端稳中国饭碗。在北大荒的试验田里，全国劳
 
 ## 正文
 
-中新网上海5月29日电(记者 许婧)废弃的旧手机、淘汰的洗衣机、闲置的笔记本电脑……在许多人眼中，这些是毫无用处的“电子垃圾”。
+央视新闻客户端消息(新闻联播)：劳动谱写时代华章，奋斗创造美好未来。
 
-但在上海第二工业大学的师生看来，它们却是蕴藏着金、银、铜等宝贵资源的“城市矿山”。
+在中国式现代化的伟大实践中，一批批先进模范人物立足岗位、奋发进取、拼搏奉献，以昂扬姿态奋进新征程、建功新时代。
 
-29日，一场以“万物循环 ‘碳’索未来”为主题的生态文明展览在上海第二工业大学拉开帷幕，一堂生态文明沉浸式大思政课同时开讲。
+眼下，全国劳动模范唐世彪和团队正在加速推进新一代量子密钥分发设备研发，瞄准小型化、芯片化、集成化目标，持续迭代升级关键软硬件产品。
 
-活动旨在将“科普新知”与“立德树人”深度融合，通过设备模型、实物拆解、艺术创作、视频课程等多元形式，将“双碳”战略、无废城市建设、资源安全等宏大命题转化为可观、可感、可学的育人资源。
+科技创新赋能未来发展，耕耘大地端稳中国饭碗。
 
-上海第二工业大学党委书记陆敏回顾了学校自2004年设立国内首个电子废物资源化方向以来，二十年磨一剑的奋斗历程。
+在北大荒的试验田里，全国劳动模范胡喜平和团队选育出的大豆优质新品种即将破土萌芽。
 
-他强调，学校主导制定国家行业标准5项，获发明专利160余项，年处理电子废物超10万吨，这些数据不仅是科研实力的体现，更是开展“大思政课”最鲜活的素材。
+过去一年，他带领团队聚焦寒地高产高油、耐盐碱等育种核心难题，创新攻关，不断刷新寒地大豆高产纪录。
 
-“电子废弃物含金量是天然金矿的17倍，含铜量是天然铜矿的40倍。
+从业30年来，胡喜平跑遍了全国上百个试验田，选育出78个自主品种，实现了从传统育种到现代生物育种的跨越。
 
-仅一吨废旧电路板，黄金含量就能达到80克至1500克。
+锚定“十五五”，站在新的历史起点，优秀劳动者们以实干扛起责任，以坚守诠释担当，积极投身加快推进中国式现代化的火热实践中。
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 02:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 02:03 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 02:07 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 02:01 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 02:09 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 01:51 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 01:59 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 01:43 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 01:53 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 01:47 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 01:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 01:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 02:07 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 02:11 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 02:04 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 01:59 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 01:48 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 02:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 02:11 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 02:02 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 02:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 01:57 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:44 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/4491060.shtml)
-- 2026-06-30 02:02 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/907802199.shtml)
-- 2026-06-30 02:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/188088078749.shtml)
-- 2026-06-30 01:43 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/33851033052.shtml)
-- 2026-06-30 02:05 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/7803834.shtml)
-- 2026-06-30 01:51 - [千香](https://www.share.minike.top/Article/details/8613779024.shtml)
-- 2026-06-30 01:57 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/1120105141.shtml)
-- 2026-06-30 02:07 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/26402085200.shtml)
-- 2026-06-30 01:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/33243154337.shtml)
-- 2026-06-30 01:45 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/57264348.shtml)
-- 2026-06-30 02:02 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/46358538.shtml)
-- 2026-06-30 02:00 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/62779099.shtml)
-- 2026-06-30 01:54 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/300049631074.shtml)
-- 2026-06-30 02:11 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/86191.shtml)
-- 2026-06-30 01:42 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/92622.shtml)
+- 2026-06-30 01:53 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/183765284650.shtml)
+- 2026-06-30 01:56 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/90065734400.shtml)
+- 2026-06-30 02:04 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/267680950399.shtml)
+- 2026-06-30 02:10 - [斗破苍穹](https://www.blog.minike.top/Article/details/79612656.shtml)
+- 2026-06-30 01:48 - [送你一朵小红花](https://www.blog.minike.top/Article/details/6380503.shtml)
+- 2026-06-30 01:54 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/986510.shtml)
+- 2026-06-30 02:06 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/8497370.shtml)
+- 2026-06-30 02:06 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/06487497875.shtml)
+- 2026-06-30 02:14 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/17399.shtml)
+- 2026-06-30 01:58 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/619165.shtml)
+- 2026-06-30 01:56 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/675741.shtml)
+- 2026-06-30 02:16 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/372656.shtml)
+- 2026-06-30 01:59 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/86126073.shtml)
+- 2026-06-30 02:13 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/60651314.shtml)
+- 2026-06-30 02:07 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/40359915662.shtml)

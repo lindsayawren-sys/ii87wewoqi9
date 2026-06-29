@@ -1,60 +1,59 @@
-# 旅游业应跳出“走马观花”模式
+# Alphabet第一季度营收和利润均超预期 受云业务强劲表现提振
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-据文化和旅游部数据中心测算，今年一季度，全国乡村旅游接待总人次为7.93亿，同比增长12.2%。中国社会科学院旅游研究中心此前发布的《旅游绿皮书：2025～2026年中国旅游发展分析与预测》指出，2025年以来，文旅融合、数智赋能、赛事经济、入境旅游成为释放旅游发展潜力的重要支点。随着游客群体代际更迭和消费心理变化，旅游已升级为融合文化认知、情感共鸣与价值认同的复合型体验活动。
+谷歌母公司Alphabet第一季度营收和利润均超预期，主要得益于云业务强劲增长，表明这家互联网巨头在人工智能（AI）基础设施的空前投资开始获得回报。 Alphabet公布第一季度不含合作伙伴分成的营收为947亿美元，高于汇总分析师平均预估的916亿美元。每股收益5.11美元，也高于华尔街预期的2.62美元。 业绩公布后，Alphabet股价在盘后交易中大涨逾6%。该股周四收报3
 
 ## 正文
 
-据文化和旅游部数据中心测算，今年一季度，全国乡村旅游接待总人次为7.93亿，同比增长12.2%。
+谷歌母公司Alphabet第一季度营收和利润均超预期，主要得益于云业务强劲增长，表明这家互联网巨头在人工智能（AI）基础设施的空前投资开始获得回报。
 
-中国社会科学院旅游研究中心此前发布的《旅游绿皮书：2025～2026年中国旅游发展分析与预测》指出，2025年以来，文旅融合、数智赋能、赛事经济、入境旅游成为释放旅游发展潜力的重要支点。
+Alphabet公布第一季度不含合作伙伴分成的营收为947亿美元，高于汇总分析师平均预估的916亿美元。
 
-随着游客群体代际更迭和消费心理变化，旅游已升级为融合文化认知、情感共鸣与价值认同的复合型体验活动。
+每股收益5.11美元，也高于华尔街预期的2.62美元。
 
-旅游是现代服务业的重要组成部分，涉及吃、住、行、游、购、娱等多个产业。
+业绩公布后，Alphabet股价在盘后交易中大涨逾6%。
 
-近年来，我国旅游业成为经济社会发展的一大亮点，成为各地增长速度快、市场潜力大、发展前景好的新兴产业，在促进消费、拉动内需方面发挥了巨大作用。
+该股周四收报349.94美元。
 
-随着民众生活水平的提高，对旅游产品和旅游服务的需求也不断提升。
+谷歌已投入巨资建设AI数据中心，与Anthropic和OpenAI等初创公司展开激烈竞争。
 
-人们的游客心态发生了转变，不再把旅游当作日常生活的短暂逃离，而将其视为日常生活的延伸。
+投资者密切关注云业务表现，以判断需求是否会持续增长，这被视为AI热潮推进速度的一个重要风向标。
 
-人们希望在旅途中继续原有的兴趣和生活方式，追求深度参与和情感连接，而非简单的景点打卡。
+谷歌云业务第一季度营收200亿美元，高于分析师预估的184亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 02:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 01:45 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 02:00 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 01:46 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 02:07 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 01:58 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 01:44 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 02:08 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 02:11 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 01:58 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 02:02 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 02:01 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 01:57 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 01:56 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 02:12 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 02:03 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 02:09 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 01:49 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 01:49 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 02:03 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 02:10 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 01:53 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 01:55 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 01:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 02:14 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 01:55 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 02:09 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/52539160.shtml)
-- 2026-06-30 01:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/1656882845.shtml)
-- 2026-06-30 02:05 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/6698820.shtml)
-- 2026-06-30 01:44 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/3753308897.shtml)
-- 2026-06-30 01:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/38709762281.shtml)
-- 2026-06-30 01:57 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/981906302.shtml)
-- 2026-06-30 02:01 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/07318106324.shtml)
-- 2026-06-30 01:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/110523.shtml)
-- 2026-06-30 01:51 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/82377366.shtml)
-- 2026-06-30 01:47 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/56315.shtml)
-- 2026-06-30 02:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/536805075.shtml)
-- 2026-06-30 01:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/26017274.shtml)
-- 2026-06-30 01:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/02402548934.shtml)
-- 2026-06-30 01:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/62983616155.shtml)
-- 2026-06-30 01:55 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/076021.shtml)
+- 2026-06-30 02:06 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/49851682118.shtml)
+- 2026-06-30 02:11 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/35490444.shtml)
+- 2026-06-30 02:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/360854572303.shtml)
+- 2026-06-30 01:54 - [点菜也要教吗](http://www.share.minike.top/Article/details/138251.shtml)
+- 2026-06-30 01:56 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/876615551797.shtml)
+- 2026-06-30 02:09 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/27380.shtml)
+- 2026-06-30 01:54 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/357417.shtml)
+- 2026-06-30 02:10 - [乔家的儿女](http://www.share.minike.top/Article/details/44874302.shtml)
+- 2026-06-30 02:05 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/94237692.shtml)
+- 2026-06-30 02:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/410440272.shtml)
+- 2026-06-30 01:54 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/2091301853.shtml)
+- 2026-06-30 01:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/8498000156.shtml)
+- 2026-06-30 02:15 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/83655253861.shtml)
+- 2026-06-30 01:57 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/89659938.shtml)
+- 2026-06-30 01:55 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/1965498205.shtml)

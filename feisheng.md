@@ -1,58 +1,58 @@
-# 欧洲央行会议纪要：如果加息作为选项 一些官员不会反对4月行动
+# 优步年度产品发布会大举布局旅游、酒店及AI语音预订
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-欧洲央行的会议纪要显示，该行一些官员在上个月的政策会议上不会反对加息。 欧洲央行4月29日至30日会议的纪要显示：“一些成员指出，最终决策是一个势均力敌的决定。如果此次会议上加息被列为选项，那么他们不会反对加息。” 在政策会议之后，一些欧洲央行官员开始宣扬6月份加息的可能性，其中包括管理委员会中一些立场较鸽派的成员。他们担心，目前为3%且仍在攀升的通胀将推升工资要求，并使未来物
+核心要点 优步正式进军旅游行业。 这家网约车平台周三在纽约年度 Go-Get 发布会上发布多款新产品，旨在吸引更多平台用户，并摆脱单一网约车业务依赖，打造差异化生态。 本次年度产品展示，优步并未重点宣传雄心勃勃的自动驾驶布局，而是集中推出酒店预订、线上购物等全新业务板块，致力于打造一站式超级应用。 除自动驾驶之外，优步此前已布局货运、专车服务、滑雪出行等领域；同时持续扩张生鲜配
 
 ## 正文
 
-欧洲央行的会议纪要显示，该行一些官员在上个月的政策会议上不会反对加息。
+核心要点 优步正式进军旅游行业。
 
-欧洲央行4月29日至30日会议的纪要显示：“一些成员指出，最终决策是一个势均力敌的决定。
+这家网约车平台周三在纽约年度 Go-Get 发布会上发布多款新产品，旨在吸引更多平台用户，并摆脱单一网约车业务依赖，打造差异化生态。
 
-如果此次会议上加息被列为选项，那么他们不会反对加息。
+本次年度产品展示，优步并未重点宣传雄心勃勃的自动驾驶布局，而是集中推出酒店预订、线上购物等全新业务板块，致力于打造一站式超级应用。
 
-” 在政策会议之后，一些欧洲央行官员开始宣扬6月份加息的可能性，其中包括管理委员会中一些立场较鸽派的成员。
+除自动驾驶之外，优步此前已布局货运、专车服务、滑雪出行等领域；同时持续扩张生鲜配送业务，并与乔比航空合作推出纯电动空中出租车服务。
 
-他们担心，目前为3%且仍在攀升的通胀将推升工资要求，并使未来物价上涨预期脱锚，而这些趋势一旦形成，逆转起来代价高昂。
+优步首席执行官达拉・科斯罗萨西在现场活动中表示，全新旅游相关业务，旨在为忙碌用户简化出行流程、减轻旅途繁琐感。
 
-即便最初由伊朗战争引发的能源冲击开始逆转，欧洲央行首席经济学家Philip Lane在周四依旧表示，第二轮效应将“伴随我们一段时间”。
+他称：“优步早已是全球出行首选平台。
 
-经济学家和投资者预计欧洲央行今年至少会加息两次。
+既然用户抵达一座城市会第一时间打开我们的 App，我们理所应当让整段旅程、全部出行体验变得更简单。
 
-以下是官员们4月份的其他看法： 关于利率： “能源价格冲击及相关供应中断给货币政策带来了两难处境。
+” 以下是本次发布的核心新功能： 酒店预订 优步通过与亿客行（Expedia） 合作，在平台上线酒店预订服务。
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 02:08 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 01:59 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 01:42 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 01:55 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 01:50 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 02:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 01:49 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 02:06 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 02:10 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 01:47 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 01:50 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 02:14 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 01:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 01:56 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 02:09 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 01:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 01:54 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 02:09 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 01:58 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 01:53 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 01:50 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 02:07 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 01:56 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:46 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/82184066.shtml)
-- 2026-06-30 02:01 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/623449614.shtml)
-- 2026-06-30 02:01 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/285636.shtml)
-- 2026-06-30 01:53 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/21172127.shtml)
-- 2026-06-30 01:44 - [世界杯](https://www.share.minike.top/Article/details/064826.shtml)
-- 2026-06-30 02:06 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/5917495810.shtml)
-- 2026-06-30 01:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/594040758112.shtml)
-- 2026-06-30 01:46 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/81725291783.shtml)
-- 2026-06-30 01:48 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/6619571.shtml)
-- 2026-06-30 02:06 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/312250653.shtml)
-- 2026-06-30 01:59 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/64656.shtml)
-- 2026-06-30 02:04 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/156506930.shtml)
-- 2026-06-30 01:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/16973306.shtml)
-- 2026-06-30 02:05 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/464327435.shtml)
-- 2026-06-30 01:53 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/20813.shtml)
+- 2026-06-30 02:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/55781037.shtml)
+- 2026-06-30 02:13 - [恋与深空 日服](https://www.share.minike.top/Article/details/57458096419.shtml)
+- 2026-06-30 01:51 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/5175568316.shtml)
+- 2026-06-30 02:01 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/08493265.shtml)
+- 2026-06-30 02:04 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/024970851237.shtml)
+- 2026-06-30 02:00 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/86339675878.shtml)
+- 2026-06-30 01:54 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/01590.shtml)
+- 2026-06-30 02:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/5696326.shtml)
+- 2026-06-30 02:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/077272.shtml)
+- 2026-06-30 02:15 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/1275065.shtml)
+- 2026-06-30 02:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/922091244143.shtml)
+- 2026-06-30 02:05 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/5858831503.shtml)
+- 2026-06-30 01:52 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/60169.shtml)
+- 2026-06-30 02:08 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/42361.shtml)
+- 2026-06-30 01:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/48498.shtml)

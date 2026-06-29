@@ -1,58 +1,50 @@
-# 一周两起 日本客机再因轮胎问题紧急降落
+# 南京银行周文凯：持续拓宽客群基础 强化产业生态合作
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网5月29日电 据日本广播协会(NHK)报道，当地时间29日，日本航空公司一架从日本东京羽田机场飞往鹿儿岛机场的客机因轮胎问题紧急降落在东京成田机场。 据报道，涉事飞机左侧后轮爆胎。机上乘客和机组人员共计226人，无人受伤。 报道还称，该飞机降落时使用的成田机场跑道一度关闭，其起飞时使用的羽田机场跑道因发现疑似轮胎碎片，也暂时关闭。目前，跑道已恢复使用，但受此影响，羽田机场
+4月29日金融一线消息，南京银行今日召开2025年度暨2026年一季度业绩说明会。副行长周文凯表示，南京银行始终坚守金融服务实体经济初心，扎根地方发展，赋能产业转型升级，以务实举措践行好银行发展理念，稳步实现自身高质量可持续发展。 周文凯表示，2026年作为全新五年规划起步之年，南京银行重点落实五项工作举措：持续深化产业研究，依托南京研究院，聚焦重点产业赛道，落实一区域一产业一
 
 ## 正文
 
-中新网5月29日电 据日本广播协会(NHK)报道，当地时间29日，日本航空公司一架从日本东京羽田机场飞往鹿儿岛机场的客机因轮胎问题紧急降落在东京成田机场。
+4月29日金融一线消息，南京银行今日召开2025年度暨2026年一季度业绩说明会。
 
-据报道，涉事飞机左侧后轮爆胎。
+副行长周文凯表示，南京银行始终坚守金融服务实体经济初心，扎根地方发展，赋能产业转型升级，以务实举措践行好银行发展理念，稳步实现自身高质量可持续发展。
 
-机上乘客和机组人员共计226人，无人受伤。
+周文凯表示，2026年作为全新五年规划起步之年，南京银行重点落实五项工作举措：持续深化产业研究，依托南京研究院，聚焦重点产业赛道，落实一区域一产业一策略；持续拓宽客群基础，依托客户倍增计划及专项行动，开展场景化、生态化获客；持续研发特色金融产品，丰富企业全生命周期服务工具箱；持续升级线上服务平台，完善对公系统建设，打造数字化综合服务体系；持续强化产业生态合作，联动创投机构、产业平台、科研院所，构建多元协同格局。
 
-报道还称，该飞机降落时使用的成田机场跑道一度关闭，其起飞时使用的羽田机场跑道因发现疑似轮胎碎片，也暂时关闭。
-
-目前，跑道已恢复使用，但受此影响，羽田机场已出现航班取消和延误情况。
-
-日本共同社指出，这是本周内日本发生的又一起类似事故。
-
-25日，日本天马航空公司一架客机因轮胎问题紧急返航，降落羽田机场。
-
-该飞机其中一个轮胎爆裂。
+责任编辑：张文
 
 ## 相关推荐
 
-- 2026-06-30 01:54 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 02:07 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 02:09 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 02:02 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 02:08 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 01:42 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 01:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 02:11 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 02:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-30 02:03 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 01:47 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 01:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 02:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 02:15 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 01:52 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 01:56 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 02:00 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 01:59 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 01:52 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 02:12 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 02:05 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 02:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 01:51 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 01:56 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:07 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/453960.shtml)
-- 2026-06-30 01:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/3668673202.shtml)
-- 2026-06-30 01:55 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/16603.shtml)
-- 2026-06-30 01:43 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/78701213617.shtml)
-- 2026-06-30 01:52 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/54692507.shtml)
-- 2026-06-30 01:53 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/6563317951.shtml)
-- 2026-06-30 01:50 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/90559633.shtml)
-- 2026-06-30 01:58 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/23492.shtml)
-- 2026-06-30 01:54 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/394940534276.shtml)
-- 2026-06-30 01:51 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/9811468.shtml)
-- 2026-06-30 01:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/421771260.shtml)
-- 2026-06-30 02:11 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/05263085.shtml)
-- 2026-06-30 01:47 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/628834550709.shtml)
-- 2026-06-30 02:05 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/37376.shtml)
-- 2026-06-30 01:54 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/719067569753.shtml)
+- 2026-06-30 01:49 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/19691891451.shtml)
+- 2026-06-30 01:53 - [一生一世](http://www.share.minike.top/Article/details/76165658.shtml)
+- 2026-06-30 01:48 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/893026602216.shtml)
+- 2026-06-30 02:11 - [月亮](http://www.share.kurohicncr.top/Article/details/93534274.shtml)
+- 2026-06-30 02:01 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/250075435.shtml)
+- 2026-06-30 01:50 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/01729502494.shtml)
+- 2026-06-30 01:51 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/058150910.shtml)
+- 2026-06-30 02:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/24220787.shtml)
+- 2026-06-30 02:14 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/5524953048.shtml)
+- 2026-06-30 01:52 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/286371.shtml)
+- 2026-06-30 01:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/3656424.shtml)
+- 2026-06-30 02:05 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/5010546374.shtml)
+- 2026-06-30 02:06 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/4055561167.shtml)
+- 2026-06-30 01:57 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/45363.shtml)
+- 2026-06-30 02:11 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/62567793684.shtml)

@@ -1,57 +1,56 @@
-# Waymo新款Ojai自动驾驶出租车向部分乘客开放，公司力求降低车队扩张成本
+# 十四届全国人大常委会举行第六十七次委员长会议 决定将社会救助法草案等交付常委会会议表决 赵乐际主持会议
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-核心要点 谷歌母公司字母表旗下 Waymo 为自动驾驶出租车车队新增全新自研车型 Ojai。 新款 Ojai 车内空间更宽敞，配备可拆卸方向盘，制造成本低于 Waymo 以往车型。 近期 Waymo 接连遭遇车辆安全召回、高速路段停运等问题。 Waymo 正式向部分用户开放Ojai新款自动驾驶出租车服务。这款新车更适配多雪环境，且制造成本低于公司以往车型。 Waymo 在周四发
+新华社北京4月30日电 十四届全国人大常委会第六十七次委员长会议30日上午在北京人民大会堂举行。赵乐际委员长主持会议。 会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于监狱法修订草案修改稿审议情况的汇报、关于社会救助法草案修改稿审议情况的汇报，审议了有关草案表决稿。 会议听取了全国人大常委会秘书长刘奇作的其他拟提请表决事项审议情况的汇报。 委员长会议决定，将上述草案等交
 
 ## 正文
 
-核心要点 谷歌母公司字母表旗下 Waymo 为自动驾驶出租车车队新增全新自研车型 Ojai。
+新华社北京4月30日电 十四届全国人大常委会第六十七次委员长会议30日上午在北京人民大会堂举行。
 
-新款 Ojai 车内空间更宽敞，配备可拆卸方向盘，制造成本低于 Waymo 以往车型。
+赵乐际委员长主持会议。
 
-近期 Waymo 接连遭遇车辆安全召回、高速路段停运等问题。
+会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于监狱法修订草案修改稿审议情况的汇报、关于社会救助法草案修改稿审议情况的汇报，审议了有关草案表决稿。
 
-Waymo 正式向部分用户开放Ojai新款自动驾驶出租车服务。
+会议听取了全国人大常委会秘书长刘奇作的其他拟提请表决事项审议情况的汇报。
 
-这款新车更适配多雪环境，且制造成本低于公司以往车型。
+委员长会议决定，将上述草案等交付十四届全国人大常委会第二十二次会议闭幕会表决。
 
-Waymo 在周四发布声明称，目前旧金山、洛杉矶、凤凰城的部分普通民众可体验该车型；今年夏季，服务还将拓展至圣地亚哥、拉斯维加斯与丹佛。
-
-这款新车于 2024 年首次对外亮相，今年 2 月已率先在旧金山、洛杉矶面向内部员工及访客开放乘坐。
-
-Waymo 设计负责人瑞安・鲍威尔在接受 CNBC 采访时表示，目前已有 100 辆 Ojai 投入运营，公司整体自动驾驶车队规模接近 4000 辆；预计到今年年底，上路的 Ojai 车型将达数千辆。
+全国人大常委会副委员长李鸿忠、王东明、肖捷、郑建邦、丁仲礼、郝明金、蔡达峰、何维、武维华、铁凝、彭清华、张庆伟、洛桑江村、雪克来提·扎克尔出席会议。
 
 ## 相关推荐
 
-- 2026-06-30 01:48 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 02:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 02:04 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 01:55 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 01:48 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 01:54 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 02:00 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 01:59 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 01:52 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 02:03 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 01:57 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 02:14 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 01:56 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 01:57 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 02:00 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 01:58 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 01:50 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 01:48 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 01:54 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 01:50 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 02:08 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 01:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 02:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 01:49 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 01:51 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/676044628.shtml)
-- 2026-06-30 01:55 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/3809268.shtml)
-- 2026-06-30 01:42 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/5790815.shtml)
-- 2026-06-30 01:57 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/545610.shtml)
-- 2026-06-30 02:07 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/6961436.shtml)
-- 2026-06-30 02:03 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/8662914.shtml)
-- 2026-06-30 02:02 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/686443293.shtml)
-- 2026-06-30 01:52 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/29590144821.shtml)
-- 2026-06-30 02:10 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/2641770.shtml)
-- 2026-06-30 01:48 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/73923942607.shtml)
-- 2026-06-30 01:51 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/5120432472.shtml)
-- 2026-06-30 01:42 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/498739944722.shtml)
-- 2026-06-30 02:07 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/107363520.shtml)
-- 2026-06-30 01:44 - [日本领先巴西](http://www.share.minike.top/Article/details/644829309663.shtml)
-- 2026-06-30 02:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/87954.shtml)
+- 2026-06-30 02:05 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/532880802.shtml)
+- 2026-06-30 02:04 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/63696120753.shtml)
+- 2026-06-30 01:49 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/835395391306.shtml)
+- 2026-06-30 02:10 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/037347.shtml)
+- 2026-06-30 01:57 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/065717213.shtml)
+- 2026-06-30 01:49 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/289175937.shtml)
+- 2026-06-30 02:01 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/810198335606.shtml)
+- 2026-06-30 02:09 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/81726263770.shtml)
+- 2026-06-30 02:06 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/96207.shtml)
+- 2026-06-30 02:02 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/999452558.shtml)
+- 2026-06-30 02:07 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/99952.shtml)
+- 2026-06-30 01:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/3152111219.shtml)
+- 2026-06-30 01:51 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/82442120096.shtml)
+- 2026-06-30 01:48 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/786401.shtml)
+- 2026-06-30 02:13 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/3758244844.shtml)

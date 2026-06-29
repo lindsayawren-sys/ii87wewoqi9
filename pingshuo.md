@@ -1,59 +1,57 @@
-# 2026面向东盟“AI+跨境电商”创新应用大赛在南宁启动
+# 贵州持续推进新型工业化绿色低碳发展
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网南宁5月29日电(韦佳秀)5月29日，2026面向东盟“AI+跨境电商”创新应用大赛新闻发布会在广西壮族自治区商务厅举行。本届大赛旨在以赛事为牵引，推动人工智能技术与跨境电商真实业务场景深度融合，促进人才、项目、资本、平台和市场资源集聚，助力广西打造面向东盟的数字贸易合作高地。 广西商务厅副厅长李硕介绍，大赛设置院校赛道和社会赛道，面向中国及东盟国家院校学生、企业机构、创
+中新网贵阳4月29日电 (曾琪男)2025年贵州规上工业单位增加值能耗同比下降7.6%，绿色制造体系建设、数智赋能转型等工作亮点频出，其中累计创建绿色工厂353家，贵州轮胎获评全省首个全球“灯塔工厂”。 贵州省政府新闻办29日举行新闻发布会，介绍贵州省工业绿色低碳发展推进情况。 作为节能降碳的主战场，贵州近年来紧扣“含新量”“含绿量”提升工业增长“含金量”的要求，协同推进降碳、
 
 ## 正文
 
-中新网南宁5月29日电(韦佳秀)5月29日，2026面向东盟“AI+跨境电商”创新应用大赛新闻发布会在广西壮族自治区商务厅举行。
+中新网贵阳4月29日电 (曾琪男)2025年贵州规上工业单位增加值能耗同比下降7.6%，绿色制造体系建设、数智赋能转型等工作亮点频出，其中累计创建绿色工厂353家，贵州轮胎获评全省首个全球“灯塔工厂”。
 
-本届大赛旨在以赛事为牵引，推动人工智能技术与跨境电商真实业务场景深度融合，促进人才、项目、资本、平台和市场资源集聚，助力广西打造面向东盟的数字贸易合作高地。
+贵州省政府新闻办29日举行新闻发布会，介绍贵州省工业绿色低碳发展推进情况。
 
-广西商务厅副厅长李硕介绍，大赛设置院校赛道和社会赛道，面向中国及东盟国家院校学生、企业机构、创业团队和行业组织广泛征集参赛项目。
+作为节能降碳的主战场，贵州近年来紧扣“含新量”“含绿量”提升工业增长“含金量”的要求，协同推进降碳、减污、扩绿、增长。
 
-本届大赛于5月29日启动，开放赛事平台报名通道，6月30日前完成选拔赛，7月下旬组织决赛。
+在节能降碳方面，贵州强化项目节能审查和碳排放评价机制，坚决遏制高耗能高排放低水平项目盲目发展，稳妥推进工业领域碳达峰碳中和。
 
-决赛期间，还将配套开展成果展示、项目路演、投融资对接和产业资源对接等活动。
+2025年，贵州完成141家水泥、钢铁、焦化、化工、平板玻璃企业节能监察，淘汰更新落后机电设备5816台(套)，主要工业企业单位产品能耗全部达到基准水平以上，水泥、钢铁行业标杆水平分别达到67.41%和66.67%。
 
-其中，院校赛道重点考察人工智能(AI)视觉设计、AI短视频创作、跨境平台操作和项目展示能力；社会赛道则聚焦AI智能选品、多语种营销、智能客服、直播运营、合规风控、供应链协同等领域的应用方案，推动人工智能从“辅助创作”走向“业务赋能”。
+在工业固废利用方面，磷石膏、赤泥、锰渣等治理取得突破。
 
-在面向东盟方面，大赛参赛招募目标覆盖东盟11国和全国31个省(区、市)及港澳台地区，鼓励联合组队参赛推动与东盟的交流合作，围绕中国—东盟数字贸易合作需求，推动形成“北上广研发、广西集成、东盟应用”“东盟出产、广西集散、中国畅销”的协同发展格局。
+贵州省一般工业固废综合利用率持续提升，松桃县保留提升的2家电解锰企业通过清洁生产Ⅲ级验收，年无害化处理100万吨电解锰渣项目建成验收并发挥能力。
 
-成果转化是本届大赛的一大重点。
+贵州还大力开展绿色示范创建。
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 01:58 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 01:52 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 02:09 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 01:42 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 01:58 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 02:09 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 01:56 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 01:54 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 01:58 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 01:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 02:08 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 01:57 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 01:58 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 01:54 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 01:52 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 01:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 01:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 02:00 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 01:53 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 02:08 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 01:50 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 02:07 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 01:48 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [流金岁月](https://www.share.kurohicncr.top/Article/details/631682078.shtml)
-- 2026-06-30 02:03 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/74635257043.shtml)
-- 2026-06-30 01:42 - [斛珠夫人](https://www.blog.minike.top/Article/details/357928533877.shtml)
-- 2026-06-30 01:49 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/10456000.shtml)
-- 2026-06-30 01:54 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/5455644.shtml)
-- 2026-06-30 01:51 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/7705609174.shtml)
-- 2026-06-30 01:45 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/810251124.shtml)
-- 2026-06-30 01:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/91468.shtml)
-- 2026-06-30 01:44 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/211507.shtml)
-- 2026-06-30 02:00 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/116748858086.shtml)
-- 2026-06-30 02:04 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/4976027246.shtml)
-- 2026-06-30 02:00 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/305778483.shtml)
-- 2026-06-30 01:50 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/0103381680.shtml)
-- 2026-06-30 01:49 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/606459.shtml)
-- 2026-06-30 02:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/8832897408.shtml)
+- 2026-06-30 01:50 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/6545345192.shtml)
+- 2026-06-30 02:17 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/449660481311.shtml)
+- 2026-06-30 01:56 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/18746466559.shtml)
+- 2026-06-30 01:50 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/18392787.shtml)
+- 2026-06-30 02:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/165902908520.shtml)
+- 2026-06-30 02:13 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/5332980746.shtml)
+- 2026-06-30 01:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/1703644.shtml)
+- 2026-06-30 02:07 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/34000718194.shtml)
+- 2026-06-30 02:02 - [美人鱼](http://www.share.minike.top/Article/details/08836636.shtml)
+- 2026-06-30 02:03 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/514953.shtml)
+- 2026-06-30 01:54 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/63651716.shtml)
+- 2026-06-30 02:04 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/377481.shtml)
+- 2026-06-30 02:15 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/92718.shtml)
+- 2026-06-30 01:51 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/4774134959.shtml)
+- 2026-06-30 02:07 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/02412.shtml)

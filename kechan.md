@@ -1,56 +1,61 @@
-# 泰森食品任命杰夫・雄伯格接替唐尼・金担任总裁兼首席执行官
+# 伊朗、霍尔木兹海峡，传出新消息！特朗普突发威胁！
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-唐尼・金自 2021 年 6 月起出任该职位 内容速览 泰森食品宣布任命董事杰夫・雄伯格为新任总裁兼首席执行官，接替唐尼・金。 肉类加工巨头泰森食品（TSN） 宣布，委任公司董事、前宝洁全球销售负责人杰夫・雄伯格接任总裁兼首席执行官一职。 泰森食品于周四表示，交接过渡期将从 7 月启动，雄伯格将于 10 月 4 日正式履职，执掌这家总部位于阿肯色州斯普林代尔的企业。 唐尼・金已
+当地时间29日，美国总统特朗普威胁伊朗“放聪明点”。而此前一天，有美国官员称，特朗普已指示助手为长期封锁伊朗做准备。伊朗官员29日表示，伊朗不会放弃“对霍尔木兹海峡的主权权利”，与美谈判不是退缩，是“战斗的又一个阶段”。 特朗普威胁伊朗 据新华社消息，美国总统特朗普29日凌晨在社交媒体上发文称：“伊朗就是搞不明白，他们不知道怎么签署无核协议。他们最好快些放聪明点！” 特朗普还配
 
 ## 正文
 
-唐尼・金自 2021 年 6 月起出任该职位 内容速览 泰森食品宣布任命董事杰夫・雄伯格为新任总裁兼首席执行官，接替唐尼・金。
+当地时间29日，美国总统特朗普威胁伊朗“放聪明点”。
 
-肉类加工巨头泰森食品（TSN） 宣布，委任公司董事、前宝洁全球销售负责人杰夫・雄伯格接任总裁兼首席执行官一职。
+而此前一天，有美国官员称，特朗普已指示助手为长期封锁伊朗做准备。
 
-泰森食品于周四表示，交接过渡期将从 7 月启动，雄伯格将于 10 月 4 日正式履职，执掌这家总部位于阿肯色州斯普林代尔的企业。
+伊朗官员29日表示，伊朗不会放弃“对霍尔木兹海峡的主权权利”，与美谈判不是退缩，是“战斗的又一个阶段”。
 
-唐尼・金已在泰森任职四十余年，自 2021 年 6 月起担任总裁兼首席执行官。
+特朗普威胁伊朗 据新华社消息，美国总统特朗普29日凌晨在社交媒体上发文称：“伊朗就是搞不明白，他们不知道怎么签署无核协议。
 
-卸任后，他将继续留任公司董事。
+他们最好快些放聪明点！
 
-现年 64 岁的雄伯格 2016 年加入泰森董事会，2025 年 11 月升任首席独立董事。
+” 特朗普还配发一张图片，图片上是他持枪的“造型”，配有文字“不再有好好先生”。
 
-他在宝洁供职约 35 年，2015 年至 2019 年退休前，担任宝洁全球销售负责人。
+美国《华尔街日报》28日援引美国官员的话报道说，特朗普已指示其助手，准备对伊朗实施长期封锁。
 
-公司披露，雄伯格担任首席执行官后的基本年薪为 160 万美元，年度目标奖金为基本工资的 2 倍。
+报道说，在近期举行的会议中，特朗普选择通过阻止船只进出伊朗港口的方式，继续打压伊朗的经济和石油出口。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 01:49 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 01:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 02:02 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 02:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 01:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 02:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 01:53 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 02:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 01:55 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 02:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 01:48 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 01:53 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 01:53 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 02:11 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 02:14 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 02:02 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 02:00 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 02:04 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 02:07 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 02:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 01:54 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 02:09 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 01:50 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 02:04 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/0522081572.shtml)
-- 2026-06-30 01:50 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/4492200768.shtml)
-- 2026-06-30 01:56 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/3513459527.shtml)
-- 2026-06-30 01:52 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/8548073.shtml)
-- 2026-06-30 02:03 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/206256788.shtml)
-- 2026-06-30 02:03 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/336999054597.shtml)
-- 2026-06-30 01:53 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/58185.shtml)
-- 2026-06-30 02:05 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/10545.shtml)
-- 2026-06-30 02:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/8366102891.shtml)
-- 2026-06-30 01:47 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/75245101.shtml)
-- 2026-06-30 02:11 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/665230235.shtml)
-- 2026-06-30 01:59 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/056675792.shtml)
-- 2026-06-30 01:57 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/988553725.shtml)
-- 2026-06-30 01:59 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/8653572202.shtml)
-- 2026-06-30 01:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/53965.shtml)
+- 2026-06-30 02:01 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/4732147.shtml)
+- 2026-06-30 02:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/44555.shtml)
+- 2026-06-30 02:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/127952047.shtml)
+- 2026-06-30 02:13 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/708445.shtml)
+- 2026-06-30 02:07 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/75957013.shtml)
+- 2026-06-30 02:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/320577.shtml)
+- 2026-06-30 01:54 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/77400908604.shtml)
+- 2026-06-30 01:56 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/8095711.shtml)
+- 2026-06-30 02:16 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/189864.shtml)
+- 2026-06-30 01:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/655837.shtml)
+- 2026-06-30 02:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/004132173.shtml)
+- 2026-06-30 02:14 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/233199575812.shtml)
+- 2026-06-30 01:56 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/539580920906.shtml)
+- 2026-06-30 02:14 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/528887.shtml)
+- 2026-06-30 01:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/2318929002.shtml)

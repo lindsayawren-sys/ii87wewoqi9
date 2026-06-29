@@ -1,56 +1,49 @@
-# 中国“三夏”大规模小麦机收全面展开
+# 广西崇左：民警巧扮“接客司机” 抓获4名偷渡嫌疑人
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新社北京5月28日电 (记者 陈溯)记者28日从中国农业农村部获悉，中国“三夏”(夏收、夏种、夏管)大规模小麦机收全面展开。 截至28日17时，各地已收夏粮小麦4897万亩。当前麦收总体进度已近两成，西南地区及湖北麦收已进入尾声，河南、安徽进度近一成，江苏、陕西等地陆续开收。今年“三夏”，全国将投入各类农机具超1700万台(套)，其中联合收割机80多万台、参与跨区作业的20多
+发布时间：2026年04月29日 10:32 来源：中国新闻网 近日，广西崇左边境管理支队罗回边境检查站，执勤民警对一辆轿车进行例行查验时，发现驾驶员神色慌张。面对民警的严密盘查，该驾驶员供认自己正准备接驳4名外籍人员的事实，民警随即伪装成接驳司机循线追踪，最终成功将4名外籍偷渡人员全部抓获。目前，案件正在进一步办理中。(作者：袁金锋 博林 韩中宽） 责任编辑：【魏聪聪】
 
 ## 正文
 
-中新社北京5月28日电 (记者 陈溯)记者28日从中国农业农村部获悉，中国“三夏”(夏收、夏种、夏管)大规模小麦机收全面展开。
+发布时间：2026年04月29日 10:32 来源：中国新闻网 近日，广西崇左边境管理支队罗回边境检查站，执勤民警对一辆轿车进行例行查验时，发现驾驶员神色慌张。
 
-截至28日17时，各地已收夏粮小麦4897万亩。
+面对民警的严密盘查，该驾驶员供认自己正准备接驳4名外籍人员的事实，民警随即伪装成接驳司机循线追踪，最终成功将4名外籍偷渡人员全部抓获。
 
-当前麦收总体进度已近两成，西南地区及湖北麦收已进入尾声，河南、安徽进度近一成，江苏、陕西等地陆续开收。
+目前，案件正在进一步办理中。
 
-今年“三夏”，全国将投入各类农机具超1700万台(套)，其中联合收割机80多万台、参与跨区作业的20多万台。
-
-农业农村部提前组织各地做好机收准备，联合相关部门单位加强农机作业服务保障。
-
-目前，各麦收省份已设立跨区作业接待服务站3100多个，为跨区机手提供作业对接、维修保养等信息和生活食宿便利。
-
-交通运输部门组织高速公路收费站开通农机绿色通道5500多个。
-
-为应对近期强降雨天气不利影响，农业农村部指导相关省份迅速行动，组织3300多家区域农机社会化服务中心、2000多家区域农业应急救灾中心、5900多支常态化农机应急作业服务队，动员28万多台履带收割机、7万多台烘干机，全力以赴保障成熟小麦适收快收、应烘尽烘。
+(作者：袁金锋 博林 韩中宽） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 02:12 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 01:46 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 01:43 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 02:11 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 01:59 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 01:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 01:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 01:55 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 02:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 02:17 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 01:57 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 02:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 01:58 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 02:00 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 01:48 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 02:01 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 02:06 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 02:03 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 02:03 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 01:57 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/1231315.shtml)
-- 2026-06-30 01:53 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/9350786.shtml)
-- 2026-06-30 01:43 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/91438.shtml)
-- 2026-06-30 01:45 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/208239433.shtml)
-- 2026-06-30 01:47 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/575959396583.shtml)
-- 2026-06-30 02:11 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/93864309.shtml)
-- 2026-06-30 01:52 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/3953882933.shtml)
-- 2026-06-30 01:46 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/9427369958.shtml)
-- 2026-06-30 01:43 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/808265.shtml)
-- 2026-06-30 02:00 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/608208855.shtml)
-- 2026-06-30 01:49 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/350380796100.shtml)
-- 2026-06-30 02:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/846463.shtml)
-- 2026-06-30 01:42 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/576015.shtml)
-- 2026-06-30 02:10 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/2519185587.shtml)
-- 2026-06-30 01:55 - [日本16强魔咒](https://www.blog.minike.top/Article/details/69002.shtml)
+- 2026-06-30 02:17 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/52808478.shtml)
+- 2026-06-30 01:48 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/7291883255.shtml)
+- 2026-06-30 01:56 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/229379152005.shtml)
+- 2026-06-30 02:08 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/1154417598.shtml)
+- 2026-06-30 02:13 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/46410873.shtml)
+- 2026-06-30 01:50 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/727777.shtml)
+- 2026-06-30 02:07 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/06996935430.shtml)
+- 2026-06-30 02:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/48741.shtml)
+- 2026-06-30 01:52 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/4531672.shtml)
+- 2026-06-30 02:06 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/402202956.shtml)
+- 2026-06-30 01:48 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/57330185.shtml)
+- 2026-06-30 01:55 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/660261054692.shtml)
+- 2026-06-30 02:05 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/804391790344.shtml)
+- 2026-06-30 02:09 - [千与千寻](https://www.blog.minike.top/Article/details/171372.shtml)
+- 2026-06-30 01:55 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/39585584832.shtml)

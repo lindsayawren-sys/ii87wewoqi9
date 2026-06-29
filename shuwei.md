@@ -1,61 +1,56 @@
-# 河南将打造更多“胖东来”“蜜雪冰城”式消费IP
+# ZFX山海证券:FOMC会议前金价波动加大
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网郑州5月28日电 (记者 韩章云 阚力)5月28日，河南省政府新闻办举行“开局起步‘十五五’——奋力谱写中原大地推进中国式现代化新篇章”专题新闻发布会通报称，未来五年，该省计划打造更多“胖东来”“蜜雪冰城”式消费IP，以激发消费活力，拓展投资空间。 起步于河南许昌的商超胖东来，凭借货真价实的商品、精益求精的服务赢得广大消费者的口碑，被网友称为“没有淡季的6A级景区”。从郑
+4月29日，国际金价在美联储议息会议前夕波动明显放大。ZFX山海证券表示，现货黄金价格回落至约4600美元/盎司，三周低位附近的关键支撑面临考验。市场对联邦公开市场委员会4月28日至29日会议结果普遍预期按兵不动，但对鲍威尔记者会的措辞高度敏感，金价短期走势取决于政策路径预期的微妙变化。 从市场预期看，本轮议息会议为非SEP会议。ZFX山海证券认为，由于不更新点阵图与经济预测，
 
 ## 正文
 
-中新网郑州5月28日电 (记者 韩章云 阚力)5月28日，河南省政府新闻办举行“开局起步‘十五五’——奋力谱写中原大地推进中国式现代化新篇章”专题新闻发布会通报称，未来五年，该省计划打造更多“胖东来”“蜜雪冰城”式消费IP，以激发消费活力，拓展投资空间。
+4月29日，国际金价在美联储议息会议前夕波动明显放大。
 
-起步于河南许昌的商超胖东来，凭借货真价实的商品、精益求精的服务赢得广大消费者的口碑，被网友称为“没有淡季的6A级景区”。
+ZFX山海证券表示，现货黄金价格回落至约4600美元/盎司，三周低位附近的关键支撑面临考验。
 
-从郑州成长起来的茶饮品牌蜜雪冰城，如今已是年轻人心中的潮流品牌，其总部旗舰店门口，常年可见年轻人排长队购买新款冰淇淋、文创潮玩。
+市场对联邦公开市场委员会4月28日至29日会议结果普遍预期按兵不动，但对鲍威尔记者会的措辞高度敏感，金价短期走势取决于政策路径预期的微妙变化。
 
-消费、投资是拉动经济增长的动力。
+从市场预期看，本轮议息会议为非SEP会议。
 
-河南是经济大省、人口大省，拥有1亿人口、2200多万中等收入群体、1100多万户经营主体，消费潜力巨大、投资空间广阔。
+ZFX山海证券认为，由于不更新点阵图与经济预测，所有政策信号都将通过会议声明和新闻发布会传递，因此市场可能放大解读边际表态。
 
-“可以说，内需是我们的巨大优势，也是沿着高质量发展这条最优曲线、最佳路径阔步前行的底气所在。
+一季度GDP数据、初请失业金人数等高频指标的同步公布也将影响美元与美债收益率走势，从而间接对黄金估值构成扰动。
 
-”河南省发展和改革委员会主任马健介绍，“十五五”时期，河南将牢牢锚定扩大内需这个战略基点，促进消费和投资、供给和需求良性互动，持续释放源源不断的强劲动能，增强在全国统一大市场中的循环放大效应。
+从中长期视角看，地缘风险与通胀粘性仍是支撑金价的关键变量。
 
-如何让民众能消费、敢消费？
+中东能源供应受阻持续推升输入型通胀压力，央行抗通胀的政策选择空间受限，避险买盘维持稳定。
 
 ## 相关推荐
 
-- 2026-06-30 01:56 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 02:09 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 02:08 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 01:43 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 02:06 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 02:05 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 01:57 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 02:01 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 02:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 02:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 02:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 02:10 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 01:49 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 01:53 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 02:07 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 02:14 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 01:49 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 01:51 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 02:17 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 01:57 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 01:58 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 01:55 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 02:13 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 02:02 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 01:59 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/349980.shtml)
-- 2026-06-30 02:04 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/869656.shtml)
-- 2026-06-30 01:58 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/312318.shtml)
-- 2026-06-30 02:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/7976457520.shtml)
-- 2026-06-30 01:50 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/70746.shtml)
-- 2026-06-30 01:50 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/335935.shtml)
-- 2026-06-30 01:52 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/5423266471.shtml)
-- 2026-06-30 01:56 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/08061103.shtml)
-- 2026-06-30 01:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/54440519570.shtml)
-- 2026-06-30 02:04 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/8776994841.shtml)
-- 2026-06-30 01:51 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/9209018.shtml)
-- 2026-06-30 01:57 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/9961195250.shtml)
-- 2026-06-30 02:00 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/092529458726.shtml)
-- 2026-06-30 01:54 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/28609185.shtml)
-- 2026-06-30 01:44 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/966227532813.shtml)
+- 2026-06-30 02:11 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/564642175.shtml)
+- 2026-06-30 02:03 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/1253171223.shtml)
+- 2026-06-30 02:04 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/474355589.shtml)
+- 2026-06-30 02:10 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/728739211128.shtml)
+- 2026-06-30 01:48 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/378039076251.shtml)
+- 2026-06-30 01:57 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/143702963.shtml)
+- 2026-06-30 01:49 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/382618085912.shtml)
+- 2026-06-30 01:54 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/50533349475.shtml)
+- 2026-06-30 02:11 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/62672827755.shtml)
+- 2026-06-30 02:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/435217473.shtml)
+- 2026-06-30 01:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/743137459.shtml)
+- 2026-06-30 02:00 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/86110018.shtml)
+- 2026-06-30 01:50 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/7114263.shtml)
+- 2026-06-30 02:03 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/6769638.shtml)
+- 2026-06-30 02:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/6178163384.shtml)

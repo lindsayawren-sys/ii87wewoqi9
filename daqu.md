@@ -1,58 +1,59 @@
-# Aldeyra Therapeutics投资者迎来集体诉讼主导权申请截止日
+# 4月30日收盘：美联储维持利率不变 美股涨跌不一
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-生物制药公司Aldeyra Therapeutics近日面临证券欺诈集体诉讼，多家律所提醒投资者，申请担任首席原告的截止日期为2026年5月29日。 此次诉讼源于美国食品药品监督管理局于2026年3月17日对该公司的干眼症候选药物reproxalap新药申请发出完全回复函，正式拒绝批准。FDA在信中明确表示，该申请“缺乏由充分且控制良好的研究构成的实质性证据”，无法证明该药物在
+专题：美联储维持利率不变 4人投反对票 北京时间4月30日凌晨，美股周三收盘涨跌不一。美联储维持利率不变，但内部分歧创1992年以来最高水平。油价继续上涨。市场关注美股“七巨头”中四家公司的季度财报。 道指跌280.12点，跌幅为0.57%，报48861.81点；纳指涨9.44点，涨幅为0.04%，报24673.24点；标普500指数跌2.82点，跌幅为0.04%，报7135.
 
 ## 正文
 
-生物制药公司Aldeyra Therapeutics近日面临证券欺诈集体诉讼，多家律所提醒投资者，申请担任首席原告的截止日期为2026年5月29日。
+专题：美联储维持利率不变 4人投反对票 北京时间4月30日凌晨，美股周三收盘涨跌不一。
 
-此次诉讼源于美国食品药品监督管理局于2026年3月17日对该公司的干眼症候选药物reproxalap新药申请发出完全回复函，正式拒绝批准。
+美联储维持利率不变，但内部分歧创1992年以来最高水平。
 
-FDA在信中明确表示，该申请“缺乏由充分且控制良好的研究构成的实质性证据”，无法证明该药物在拟定使用条件下具有其声称的效果。
+油价继续上涨。
 
-监管机构还指出，“研究结果的不一致性引发了对阳性发现可靠性和意义的严重质疑”，且“已完成临床试验的整体证据不支持该产品的有效性”。
+市场关注美股“七巨头”中四家公司的季度财报。
 
-受此消息冲击，Aldeyra股价在2026年3月17日单日暴跌2.99美元，跌幅达70.7%，收于每股1.24美元。
+道指跌280.12点，跌幅为0.57%，报48861.81点；纳指涨9.44点，涨幅为0.04%，报24673.24点；标普500指数跌2.82点，跌幅为0.04%，报7135.98点。
 
-诉讼指控在2023年11月3日至2026年3月16日期间，Aldeyra及其部分高管违反了联邦证券法，就reproxalap临床试验结果作出了虚假和误导性陈述，未能披露试验数据的不一致性。
+美联储周三决定维持基准利率在3.50%-3.75%区间不变。
 
-多家律师事务所已提起集体诉讼，其中包括最早提起诉讼的Rosen律师事务所。
+会议纪要显示，美联储维持利率不变，但内部分歧创1992年以来最高水平。
 
-投资者可在2026年5月29日截止日期前向法院申请担任首席原告，在集体诉讼中代表其他股东参与诉讼指导。
+周三，美联储在内部分歧异常严重的情况下，决定维持关键利率不变。
 
 ## 相关推荐
 
-- 2026-06-30 01:52 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 01:55 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 01:49 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 02:00 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 01:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 01:56 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 01:51 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 01:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 02:05 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 01:50 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 02:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 01:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 02:08 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 01:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 01:53 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 01:55 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 02:14 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 02:02 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 02:01 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 01:51 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 01:56 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 02:10 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 01:59 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 01:58 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 01:54 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:54 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/204256440103.shtml)
-- 2026-06-30 02:03 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/491220.shtml)
-- 2026-06-30 01:58 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/31448030466.shtml)
-- 2026-06-30 01:58 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/1397503692.shtml)
-- 2026-06-30 02:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/127797698.shtml)
-- 2026-06-30 02:09 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/687317.shtml)
-- 2026-06-30 01:56 - [千香](http://www.blog.minike.top/Article/details/95112453.shtml)
-- 2026-06-30 02:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/340282776.shtml)
-- 2026-06-30 01:58 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/0908252358.shtml)
-- 2026-06-30 02:04 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/459191.shtml)
-- 2026-06-30 02:10 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/1088220.shtml)
-- 2026-06-30 01:48 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/5395908.shtml)
-- 2026-06-30 01:55 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/9938403.shtml)
-- 2026-06-30 01:44 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/0011318.shtml)
-- 2026-06-30 01:54 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/9087076.shtml)
+- 2026-06-30 02:16 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/44840482610.shtml)
+- 2026-06-30 02:02 - [流金岁月](https://www.share.kurohicncr.top/Article/details/924417157.shtml)
+- 2026-06-30 02:01 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/95046.shtml)
+- 2026-06-30 02:06 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/329793.shtml)
+- 2026-06-30 02:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/87784633791.shtml)
+- 2026-06-30 02:10 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/1904089185.shtml)
+- 2026-06-30 01:54 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/42775.shtml)
+- 2026-06-30 02:01 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/097267491722.shtml)
+- 2026-06-30 02:03 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/698985331.shtml)
+- 2026-06-30 02:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/6486317.shtml)
+- 2026-06-30 02:03 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/77769226.shtml)
+- 2026-06-30 02:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/390040112.shtml)
+- 2026-06-30 01:53 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/949293166.shtml)
+- 2026-06-30 02:13 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/017219842799.shtml)
+- 2026-06-30 02:06 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/41489.shtml)

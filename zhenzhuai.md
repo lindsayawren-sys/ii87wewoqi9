@@ -1,58 +1,44 @@
-# 重庆海关技术中心2026年第二批食品抽样服务采购项目比选公告
+# 特朗普将“上”美国护照
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-一、项目基本情况 1.项目名称：重庆海关技术中心2026年第二批食品抽样服务采购项目。 2.最高限价：单价165元/批次，总价330000元。 3.采购需求：在重庆市抽取食品样品2000批次，具体见第三章“项目需求书”。4.合同履行期限：自合同签订之日起7个月。 5.本项目不接受联合体投标。 二、★供应商资格要求 1.满足《中华人民共和国政府采购法》第二十二条规定； 2.具备有
+纪念建国250周年特朗普肖像将印上美国护照 美国国务院28日说，为纪念美国建国250周年，美国务院将推出一版限量版护照，护照内将印有现任总统特朗普的肖像。（记者杨伶 熊茂伶） 来源 | 新华社 审核 | 邓媛 编辑 | 许海婷 田欣责任编辑：郭建
 
 ## 正文
 
-一、项目基本情况 1.项目名称：重庆海关技术中心2026年第二批食品抽样服务采购项目。
+纪念建国250周年特朗普肖像将印上美国护照 美国国务院28日说，为纪念美国建国250周年，美国务院将推出一版限量版护照，护照内将印有现任总统特朗普的肖像。
 
-2.最高限价：单价165元/批次，总价330000元。
-
-3.采购需求：在重庆市抽取食品样品2000批次，具体见第三章“项目需求书”。
-
-4.合同履行期限：自合同签订之日起7个月。
-
-5.本项目不接受联合体投标。
-
-二、★供应商资格要求 1.满足《中华人民共和国政府采购法》第二十二条规定； 2.具备有效的《劳务派遣经营许可证》。
-
-3.落实政府采购政策需满足的资格要求：落实中小微企业、监狱企业、残疾人福利性单位采购优惠政策。
-
-4.本项目不允许转包，未经允许不得分包。
+（记者杨伶 熊茂伶） 来源 | 新华社 审核 | 邓媛 编辑 | 许海婷 田欣责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 01:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 01:58 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 01:46 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 01:47 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 02:06 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 02:08 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 02:07 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 01:44 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 01:59 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 01:46 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 01:50 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 02:03 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 02:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 02:04 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 01:53 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 02:16 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 02:09 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 02:10 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 02:13 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 02:11 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 01:57 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:46 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/420788047.shtml)
-- 2026-06-30 02:02 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/19158.shtml)
-- 2026-06-30 01:47 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/43331323195.shtml)
-- 2026-06-30 02:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/271717195.shtml)
-- 2026-06-30 01:52 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/8369078379.shtml)
-- 2026-06-30 01:59 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/36269.shtml)
-- 2026-06-30 02:09 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/32169.shtml)
-- 2026-06-30 01:46 - [美人鱼](https://www.blog.minike.top/Article/details/0366422.shtml)
-- 2026-06-30 02:03 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/362102.shtml)
-- 2026-06-30 01:42 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/402309.shtml)
-- 2026-06-30 01:46 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/05538933.shtml)
-- 2026-06-30 02:10 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/01166436.shtml)
-- 2026-06-30 01:55 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/1448172.shtml)
-- 2026-06-30 01:45 - [时光音乐会](https://www.blog.minike.top/Article/details/396793946999.shtml)
-- 2026-06-30 02:03 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/7481209368.shtml)
+- 2026-06-30 02:02 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/23248317.shtml)
+- 2026-06-30 01:54 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/967769358629.shtml)
+- 2026-06-30 01:59 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/0273993.shtml)
+- 2026-06-30 02:11 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/38018.shtml)
+- 2026-06-30 02:11 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/763144178.shtml)
+- 2026-06-30 02:00 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/1889847.shtml)
+- 2026-06-30 01:50 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/526838.shtml)
+- 2026-06-30 02:05 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/0370280251.shtml)
+- 2026-06-30 01:55 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/87994209921.shtml)
+- 2026-06-30 02:04 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/85878945.shtml)
+- 2026-06-30 02:16 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/518127633947.shtml)
+- 2026-06-30 01:51 - [金刚川](https://www.share.minike.top/Article/details/325929827.shtml)
+- 2026-06-30 02:07 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/89807.shtml)
+- 2026-06-30 01:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/535934718.shtml)
+- 2026-06-30 02:17 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/32637060.shtml)

@@ -1,49 +1,60 @@
-# 南宁海关基础设施功能恢复项目监理服务(NNHG2026-ZZ-04)采购成交结果公告
+# 民政部：着力推进普惠性、基础性、兜底性民生建设
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-南宁海关于2026年5月11日就南宁海关基础设施功能恢复项目监理服务项目(NNHG2026-ZZ-04)采用协商谈判方式进行采购。现将成交结果公告如下： 一、采购项目名称及编号 南宁海关基础设施功能恢复项目监理服务采购(NNHG2026-ZZ-04) 二、采购项目简要说明南宁海关基础设施功能恢复项目监理服务采购1项。 三、采购公告媒体及日期： 公告媒体：中华人民共和国南宁海关网
+中新网4月29日电 民政部4月29日举行2026年第二季度例行新闻发布会。民政部新闻发言人、办公厅(国际合作司)副主任武增锋通报第一季度民政重点工作进展情况和下一步工作安排。武增锋介绍，今年以来，民政部认真落实党中央、国务院决策部署，着力推进普惠性、基础性、兜底性民生建设，各项工作取得新的进展和成效。民生兜底保障方面 积极推动社会救助立法，持续健全分层分类的社会救助体系，完善临
 
 ## 正文
 
-南宁海关于2026年5月11日就南宁海关基础设施功能恢复项目监理服务项目(NNHG2026-ZZ-04)采用协商谈判方式进行采购。
+中新网4月29日电 民政部4月29日举行2026年第二季度例行新闻发布会。
 
-现将成交结果公告如下： 一、采购项目名称及编号 南宁海关基础设施功能恢复项目监理服务采购(NNHG2026-ZZ-04) 二、采购项目简要说明南宁海关基础设施功能恢复项目监理服务采购1项。
+民政部新闻发言人、办公厅(国际合作司)副主任武增锋通报第一季度民政重点工作进展情况和下一步工作安排。
 
-三、采购公告媒体及日期： 公告媒体：中华人民共和国南宁海关网(http://nanning.customs.gov.cn) 公告日期：2026年4月23日 四、评审日期及地点 评审日期：2026年5月11日 评审地点：南宁海关滨湖办公区0702室 五、成交结果信息 成交供应商名称：广西建荣工程项目管理有限公司 地址：南宁市青秀区佛子岭路18号德利·东盟国际文化广场B1栋1401、1402、1403号房 成交金额：人民币贰拾万玖仟元整(￥209,000.00) 六、公告期限 自成交结果公告发布之日起1个工作日 七、联系事项 联系人：张工 联系电话：0771-5369795 各有关当事人对成交结果有异议的，可以在成交结果公告发布期限届满之日起3个工作日内以书面形式向南宁海关提出，逾期将不再受理。
+武增锋介绍，今年以来，民政部认真落实党中央、国务院决策部署，着力推进普惠性、基础性、兜底性民生建设，各项工作取得新的进展和成效。
+
+民生兜底保障方面 积极推动社会救助立法，持续健全分层分类的社会救助体系，完善临时救助制度，强化社会救助对象动态监测，推进高效办成“社会救助一件事”，联合财政部下拨2026年中央财政困难群众救助补助资金1566.8亿元，开展“寒冬送温暖”专项救助行动。
+
+截至3月底，全国城市低保平均标准每人每月835元，农村低保平均标准每人每月623元。
+
+社会组织管理方面 组织召开推进社会组织高质量发展暨第五次“全国先进社会组织”表彰工作会议，授予286个社会团体、社会服务机构和基金会“全国先进社会组织”称号。
+
+公布新修订的《社会组织评估管理办法》。
+
+印发《2026年中央财政支持社会组织参与社会服务项目实施方案》的通知。
 
 ## 相关推荐
 
-- 2026-06-30 01:46 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 01:45 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 01:47 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 01:53 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 01:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 01:55 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 01:53 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 01:56 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 02:04 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 02:08 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 02:08 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 01:59 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 01:49 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 01:55 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 01:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 02:01 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 01:49 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 02:13 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 02:11 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 02:17 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 02:07 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 02:12 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 01:58 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 01:54 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 02:08 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 01:48 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 02:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:51 - [新官上任三把火](http://www.share.minike.top/Article/details/163399.shtml)
-- 2026-06-30 01:58 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/6760124097.shtml)
-- 2026-06-30 01:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/693926678.shtml)
-- 2026-06-30 01:49 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/891760387863.shtml)
-- 2026-06-30 02:04 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/111263823.shtml)
-- 2026-06-30 01:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/39375680.shtml)
-- 2026-06-30 01:42 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/311617748.shtml)
-- 2026-06-30 01:55 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/7233141918.shtml)
-- 2026-06-30 01:47 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/31128123557.shtml)
-- 2026-06-30 01:52 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/37272113430.shtml)
-- 2026-06-30 01:46 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/100132897406.shtml)
-- 2026-06-30 01:51 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/272556.shtml)
-- 2026-06-30 01:51 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/9227742133.shtml)
-- 2026-06-30 02:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/34314971876.shtml)
-- 2026-06-30 01:45 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/95492.shtml)
+- 2026-06-30 02:08 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/156047197601.shtml)
+- 2026-06-30 01:55 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/764979681.shtml)
+- 2026-06-30 02:04 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/903887892429.shtml)
+- 2026-06-30 01:52 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/53621459134.shtml)
+- 2026-06-30 02:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/7258107071.shtml)
+- 2026-06-30 01:57 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/942750939502.shtml)
+- 2026-06-30 02:10 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/6371720.shtml)
+- 2026-06-30 02:04 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/6994689130.shtml)
+- 2026-06-30 01:51 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/111831953.shtml)
+- 2026-06-30 02:06 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/207505.shtml)
+- 2026-06-30 02:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/0895276.shtml)
+- 2026-06-30 01:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/282405802.shtml)
+- 2026-06-30 01:58 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/90612.shtml)
+- 2026-06-30 02:02 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/57530.shtml)
+- 2026-06-30 02:15 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/862564092452.shtml)

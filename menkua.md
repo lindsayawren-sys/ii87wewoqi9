@@ -1,56 +1,45 @@
-# 沪港携手共建口腔生物材料创新高地
+# 海南省公安厅原党委委员、副厅长董长青接受审查调查
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网上海5月28日电 (陈静 金恒)记者28日获悉，香港大学牙医学院与上海市口腔医院(复旦大学附属口腔医院)(下称：上海市口腔医院)在沪正式签署合作备忘录，标志着沪港口腔医学战略伙伴关系迈上新台阶。 第四届“沪港口腔汇·2026未来口腔生物材料前沿论坛”在沪举行。该论坛时隔三年重回上海。本届论坛以“探本归源·合鸣致新”为主题，汇聚海内外口腔医学、生物材料及临床转化领域顶尖学者
+中新网4月29日电 据海南省纪委监委消息：海南省公安厅原党委委员、副厅长董长青涉嫌严重违纪违法，目前正接受海南省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-中新网上海5月28日电 (陈静 金恒)记者28日获悉，香港大学牙医学院与上海市口腔医院(复旦大学附属口腔医院)(下称：上海市口腔医院)在沪正式签署合作备忘录，标志着沪港口腔医学战略伙伴关系迈上新台阶。
-
-第四届“沪港口腔汇·2026未来口腔生物材料前沿论坛”在沪举行。
-
-该论坛时隔三年重回上海。
-
-本届论坛以“探本归源·合鸣致新”为主题，汇聚海内外口腔医学、生物材料及临床转化领域顶尖学者，聚焦从源头创新到产业转化的全链条突破。
-
-“沪港口腔汇”由香港大学牙医学院与上海市口腔医院共同发起，正从区域性学术交流平台向具有全球影响力的战略合作高地迈进，在国际学术舞台彰显中国口腔医学的创新自信与实力。
-
-沪港合作是服务国家战略的一个重要支点。
-
-香港拥有国际化科研平台和全球创新网络优势，上海则具备完整的生物医药产业链和临床转化资源。
-
-双方深化合作，有助于打通“基础研究-技术攻关-临床应用-产业转化”的创新链条，为中国口腔生物材料实现从“跟跑”到“领跑”的跨越提供关键支撑。
+中新网4月29日电 据海南省纪委监委消息：海南省公安厅原党委委员、副厅长董长青涉嫌严重违纪违法，目前正接受海南省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-30 01:46 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 02:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 02:11 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 02:00 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 01:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 01:57 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 01:55 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 02:06 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 01:48 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 02:01 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 01:57 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 02:01 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 02:08 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 01:56 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 01:56 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 01:49 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 02:00 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 01:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 02:00 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 02:01 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 01:55 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 02:14 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 02:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:52 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/31284448398.shtml)
-- 2026-06-30 01:59 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/9453988937.shtml)
-- 2026-06-30 01:52 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/997879885.shtml)
-- 2026-06-30 01:43 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/2001697.shtml)
-- 2026-06-30 02:01 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/6605629506.shtml)
-- 2026-06-30 01:51 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/19223992799.shtml)
-- 2026-06-30 01:54 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/333790.shtml)
-- 2026-06-30 02:00 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/34835067.shtml)
-- 2026-06-30 02:07 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/91131892.shtml)
-- 2026-06-30 01:51 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/769439078885.shtml)
-- 2026-06-30 01:52 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/35884898896.shtml)
-- 2026-06-30 01:47 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/40146.shtml)
-- 2026-06-30 01:49 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/36729105860.shtml)
-- 2026-06-30 02:05 - [恋与深空 日服](https://www.blog.minike.top/Article/details/19484259.shtml)
-- 2026-06-30 01:58 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/280944230178.shtml)
+- 2026-06-30 01:53 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/597770842.shtml)
+- 2026-06-30 01:49 - [日本进球](https://www.blog.kurohicncr.top/Article/details/882224893836.shtml)
+- 2026-06-30 01:48 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/51449481757.shtml)
+- 2026-06-30 02:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/62585362756.shtml)
+- 2026-06-30 02:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/128682770529.shtml)
+- 2026-06-30 02:03 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/93968360422.shtml)
+- 2026-06-30 01:49 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/282239.shtml)
+- 2026-06-30 01:51 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/0588489075.shtml)
+- 2026-06-30 01:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/6580015.shtml)
+- 2026-06-30 02:01 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/42871203.shtml)
+- 2026-06-30 01:57 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/218974.shtml)
+- 2026-06-30 01:55 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/7842112.shtml)
+- 2026-06-30 02:10 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/03875.shtml)
+- 2026-06-30 02:02 - [TOP Prada](https://www.share.minike.top/Article/details/56978754.shtml)
+- 2026-06-30 02:10 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/230366.shtml)

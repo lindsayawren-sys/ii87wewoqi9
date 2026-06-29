@@ -1,57 +1,59 @@
-# 美伊紧张局势持续升级打压市场情绪，欧洲股市走低
+# 科技巨头财报相继公布 AI资本支出升至7250亿美元
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-周四，中东紧张局势不断升级，市场普遍认为短期内难以达成协议重新开放霍尔木兹海峡，全球经济前景蒙上阴影，欧洲股市随之走弱。 截至格林尼治标准时间9时25分，泛欧斯托克600指数下跌0.6%，报624.28点，欧洲各大主要股指全线收低。 欧洲能源对外依存度高，美伊冲突加剧推动原油价格暴涨超2.5%，升至每桶97美元。科威特方面表示，该国防空系统正在拦截来袭导弹与无人机，场面与今年3
+谷歌一季度财报表现超越竞争对手，云业务增长更快。与此同时，这家搜索巨头及其他大型科技同行再次上调了人工智能基础设施支出计划，今年总额将达到7250亿美元。 包括亚马逊、Meta、微软以及谷歌母公司Alphabet在内的四大“超大规模企业”，预计今年的资本支出总额将比去年创纪录的4100亿美元再高出77%。 尽管投资者过去曾对这些巨额支出表示怀疑，但此次他们普遍对财报表示欢迎，因
 
 ## 正文
 
-周四，中东紧张局势不断升级，市场普遍认为短期内难以达成协议重新开放霍尔木兹海峡，全球经济前景蒙上阴影，欧洲股市随之走弱。
+谷歌一季度财报表现超越竞争对手，云业务增长更快。
 
-截至格林尼治标准时间9时25分，泛欧斯托克600指数下跌0.6%，报624.28点，欧洲各大主要股指全线收低。
+与此同时，这家搜索巨头及其他大型科技同行再次上调了人工智能基础设施支出计划，今年总额将达到7250亿美元。
 
-欧洲能源对外依存度高，美伊冲突加剧推动原油价格暴涨超2.5%，升至每桶97美元。
+包括亚马逊、Meta、微软以及谷歌母公司Alphabet在内的四大“超大规模企业”，预计今年的资本支出总额将比去年创纪录的4100亿美元再高出77%。
 
-科威特方面表示，该国防空系统正在拦截来袭导弹与无人机，场面与今年3月冲突最激烈阶段相仿。
+尽管投资者过去曾对这些巨额支出表示怀疑，但此次他们普遍对财报表示欢迎，因为对人工智能和数据中心的需求推动了收入和利润的大幅增长——其中谷歌云收入增长了63%。
 
-受能源价格上涨冲击，对油价高度敏感的航空股普遍下行，法国航空与瑞安航空股价均下跌约2%。
+“人工智能经济是健康的，”杰富瑞分析师Brent Thill表示。
 
-景顺基金经理詹姆斯・拉特兰表示：“从企业财报来看，各家业绩指引并未出现明显调整。
+他补充说，近期的收入增长表明，大型企业有能力承担巨大的资本支出成本。
 
-当前最大的不确定性，在于下半年消费者面对能源涨价会作何反应。
+“看空的观点是垃圾。
 
-” 他补充道：“目前企业盈利尚未受到实质影响，但后续压力大概率会逐步显现。
+” Alphabet股价在盘后交易中上涨7%，有望在周四开盘时创下4.3万亿美元的市值纪录。
 
 ## 相关推荐
 
-- 2026-06-30 02:04 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 01:53 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 01:49 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 02:09 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 01:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 01:53 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 01:44 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 01:54 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 01:45 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 01:50 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 02:10 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 01:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 02:16 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 02:03 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 02:04 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 02:12 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 02:00 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 02:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 01:59 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 02:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 01:51 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 02:17 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 01:56 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 02:00 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:44 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/640848445807.shtml)
-- 2026-06-30 02:10 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/05515016.shtml)
-- 2026-06-30 02:01 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/48396251.shtml)
-- 2026-06-30 01:52 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/9376542.shtml)
-- 2026-06-30 02:03 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/9050740.shtml)
-- 2026-06-30 02:05 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/724718.shtml)
-- 2026-06-30 01:54 - [青春环游记第三季](https://www.blog.minike.top/Article/details/96631865.shtml)
-- 2026-06-30 01:45 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/98905267712.shtml)
-- 2026-06-30 01:53 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/97335.shtml)
-- 2026-06-30 01:57 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/7682324.shtml)
-- 2026-06-30 02:02 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/607573020.shtml)
-- 2026-06-30 01:48 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/28138230.shtml)
-- 2026-06-30 01:47 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/6771268.shtml)
-- 2026-06-30 02:03 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/5214507.shtml)
-- 2026-06-30 01:51 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/71914.shtml)
+- 2026-06-30 01:59 - [扫黑风暴](https://www.share.minike.top/Article/details/33686864942.shtml)
+- 2026-06-30 01:53 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/132844754.shtml)
+- 2026-06-30 02:12 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/1761392512.shtml)
+- 2026-06-30 02:00 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/157928.shtml)
+- 2026-06-30 02:00 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/76278.shtml)
+- 2026-06-30 01:52 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/73603665.shtml)
+- 2026-06-30 02:04 - [女心理师](https://www.blog.kurohicncr.top/Article/details/7081257.shtml)
+- 2026-06-30 02:08 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/736390104.shtml)
+- 2026-06-30 01:59 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/786914994.shtml)
+- 2026-06-30 01:52 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/4530877.shtml)
+- 2026-06-30 02:00 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/65737564.shtml)
+- 2026-06-30 01:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/82390373.shtml)
+- 2026-06-30 02:09 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/33095680803.shtml)
+- 2026-06-30 02:16 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/0945116218.shtml)
+- 2026-06-30 01:59 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/6688123.shtml)

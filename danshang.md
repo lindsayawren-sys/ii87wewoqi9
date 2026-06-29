@@ -1,56 +1,48 @@
-# 外交部提醒中国公民近期谨慎前往刚果（金）
+# 视频|李大霄：美联储内部出现重大决策分歧
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新网5月29日电 据“领事直通车”微信公众号29日消息，5月17日，世界卫生组织宣布，刚果(金)的本迪布焦型埃博拉病毒疫情构成“国际关注的突发公共卫生事件”。22日，世界卫生组织将刚果(金)本国疫情风险等级上调至“极高风险”。目前，刚果(金)已报告超过900例疑似病例。外交部和中国驻刚果(金)使馆提醒中国公民近期谨慎前往刚果(金)，非必要不前往。在刚及周边国家同胞切勿前往刚伊
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
 
 ## 正文
 
-中新网5月29日电 据“领事直通车”微信公众号29日消息，5月17日，世界卫生组织宣布，刚果(金)的本迪布焦型埃博拉病毒疫情构成“国际关注的突发公共卫生事件”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-22日，世界卫生组织将刚果(金)本国疫情风险等级上调至“极高风险”。
-
-目前，刚果(金)已报告超过900例疑似病例。
-
-外交部和中国驻刚果(金)使馆提醒中国公民近期谨慎前往刚果(金)，非必要不前往。
-
-在刚及周边国家同胞切勿前往刚伊图里省、北基伍省等埃博拉疫区，避免接触野生动物、可疑病人，降低感染风险。
-
-出现发热、呕吐、腹泻、腹痛、出血等症状时，及时就医或寻求中国医疗队帮助。
-
-回国途中如出现相关症状，请主动向机组、口岸工作人员报告。
-
-联系方式 外交部全球领事保护与服务应急热线(24小时)： +86-10-12308 +86-10-65612308 驻刚果(金)使馆领事保护与协助电话： +243-851474669
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-30 01:49 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 01:49 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 02:02 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 02:08 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 01:43 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 02:01 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 02:01 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 02:07 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 01:46 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-30 01:57 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 01:59 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 02:10 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 01:50 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 02:13 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 02:00 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 01:58 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 02:04 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 02:07 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 02:07 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 02:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 02:06 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 01:51 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 02:00 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 02:06 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:51 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/31537.shtml)
-- 2026-06-30 02:00 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/07875833432.shtml)
-- 2026-06-30 01:47 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/09583.shtml)
-- 2026-06-30 01:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/36417.shtml)
-- 2026-06-30 01:54 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/3373915.shtml)
-- 2026-06-30 01:58 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/68606724331.shtml)
-- 2026-06-30 01:51 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/02164517090.shtml)
-- 2026-06-30 02:07 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/24510992.shtml)
-- 2026-06-30 01:55 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/36768.shtml)
-- 2026-06-30 01:53 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/13167.shtml)
-- 2026-06-30 02:00 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/41090.shtml)
-- 2026-06-30 02:11 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/369971.shtml)
-- 2026-06-30 01:47 - [毒液2](http://www.share.kurohicncr.top/Article/details/918896561.shtml)
-- 2026-06-30 01:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/87203684594.shtml)
-- 2026-06-30 02:10 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/4032460.shtml)
+- 2026-06-30 01:56 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/57420526991.shtml)
+- 2026-06-30 02:11 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/04473.shtml)
+- 2026-06-30 01:52 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/06696820.shtml)
+- 2026-06-30 01:56 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/79283356426.shtml)
+- 2026-06-30 02:11 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/9662482.shtml)
+- 2026-06-30 02:03 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/4868409.shtml)
+- 2026-06-30 01:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/674474.shtml)
+- 2026-06-30 02:15 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/05363.shtml)
+- 2026-06-30 02:07 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/564678.shtml)
+- 2026-06-30 02:02 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/963017759441.shtml)
+- 2026-06-30 02:03 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/1345684.shtml)
+- 2026-06-30 01:56 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/51181.shtml)
+- 2026-06-30 02:00 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/89374900.shtml)
+- 2026-06-30 01:52 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/32813.shtml)
+- 2026-06-30 01:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/87347.shtml)

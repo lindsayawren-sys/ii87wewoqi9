@@ -1,60 +1,48 @@
-# 事关人工智能！两部门联合印发重要文件
+# 【小新的Vlog】一场串联八大菜系与五大洲风味的中国美食盛会
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！两部门联手 系统布局人工智能计量能力建设 记者今天了解到，市场监管总局、国家发展改革委联合印发《人工智能计量体系和能力建设指引（2026版）》，系统布局人工智能计量能力建设。 《指引》围绕基础支撑、通用技术、核心技术、计量技术规范、计量服务产业、智能赋能计量等六大部分系统布局，打通实验室创新与行业应用“最后
+发布时间：2026年04月29日 12:56 来源：中国新闻网 4月28日至5月2日，一场“美食市集”在宁夏银川市兰傒谷商务广场正式开市，持续5天。这里汇集了145个美食展位，分成五大主题市集——中华美食、世界美食、风土微醺、塞上风味、丝路生活。不用出银川，就能“一站式”吃遍全国、尝遍五大洲。 (记者 谢宇 宁夏银川报道） 责任编辑：【黄钰涵】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月29日 12:56 来源：中国新闻网 4月28日至5月2日，一场“美食市集”在宁夏银川市兰傒谷商务广场正式开市，持续5天。
 
-两部门联手 系统布局人工智能计量能力建设 记者今天了解到，市场监管总局、国家发展改革委联合印发《人工智能计量体系和能力建设指引（2026版）》，系统布局人工智能计量能力建设。
+这里汇集了145个美食展位，分成五大主题市集——中华美食、世界美食、风土微醺、塞上风味、丝路生活。
 
-《指引》围绕基础支撑、通用技术、核心技术、计量技术规范、计量服务产业、智能赋能计量等六大部分系统布局，打通实验室创新与行业应用“最后一公里”。
+不用出银川，就能“一站式”吃遍全国、尝遍五大洲。
 
-聚焦“测不准”难题，让人工智能更可信。
-
-针对算法“黑箱”、决策可解释性差等痛点，《指引》部署AI系统内部状态监测与表征等关键技术攻关，推动建立人工智能可靠、安全、可信计量标准，实现AI技术性能“可测量、可比较、可追溯”。
-
-聚焦“度量衡”基准，让人工智能更精准。
-
-“十五五”规划纲要提出推进量子计量、原位计量等新型计量校准仪器仪表攻关，《指引》明确提出支持构建国家级计量技术研发应用中心，研制一批具有自主知识产权人工智能计量标准装置，加快形成覆盖算法模型、算力效率、数据质量全链条计量能力，为人工智能产品提供统一“度量衡”。
-
-聚焦“全产业”赋能，让智能经济更惠民。
+(记者 谢宇 宁夏银川报道） 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-30 01:42 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 01:48 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 01:46 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 02:04 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 02:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 02:01 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 02:01 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 02:01 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 01:54 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 02:01 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 01:58 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 02:04 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 02:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 01:43 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 01:49 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 02:15 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 02:10 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 02:08 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 02:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 01:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 01:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 01:55 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 01:58 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 02:04 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:57 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/315867444584.shtml)
-- 2026-06-30 01:52 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/6770905.shtml)
-- 2026-06-30 01:43 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/184200672173.shtml)
-- 2026-06-30 01:51 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/693164848878.shtml)
-- 2026-06-30 01:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/7729612.shtml)
-- 2026-06-30 01:57 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/114408572821.shtml)
-- 2026-06-30 01:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/55000074032.shtml)
-- 2026-06-30 01:45 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/43530161.shtml)
-- 2026-06-30 02:00 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/20045061507.shtml)
-- 2026-06-30 02:05 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/06355205690.shtml)
-- 2026-06-30 01:47 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/165590.shtml)
-- 2026-06-30 01:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/5663242201.shtml)
-- 2026-06-30 01:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/0172761.shtml)
-- 2026-06-30 01:46 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/57419342.shtml)
-- 2026-06-30 02:04 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/626855268517.shtml)
+- 2026-06-30 02:09 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/458845290.shtml)
+- 2026-06-30 01:50 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/7433306.shtml)
+- 2026-06-30 01:53 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/09738048.shtml)
+- 2026-06-30 01:56 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/026065551376.shtml)
+- 2026-06-30 02:10 - [恋与深空 日服](http://www.share.minike.top/Article/details/356111886.shtml)
+- 2026-06-30 02:17 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/2106009.shtml)
+- 2026-06-30 02:10 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/40599819085.shtml)
+- 2026-06-30 02:09 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/294850.shtml)
+- 2026-06-30 02:04 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/078686.shtml)
+- 2026-06-30 02:10 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/071316326.shtml)
+- 2026-06-30 02:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/9663917526.shtml)
+- 2026-06-30 02:02 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/8652288.shtml)
+- 2026-06-30 01:54 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/718936494021.shtml)
+- 2026-06-30 02:04 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/4095493952.shtml)
+- 2026-06-30 02:00 - [毒液2](http://www.blog.minike.top/Article/details/7641028239.shtml)

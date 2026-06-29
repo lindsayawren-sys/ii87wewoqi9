@@ -1,58 +1,50 @@
-# SeaTwirl与Mooreast合作推动东南亚浮式风电发展
+# 外媒：消息人士称伊朗将很快发动“前所未有的军事行动”
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-SeaTwirl已与Mooreast Asia签署战略合作协议，双方将共同在东南亚地区寻求浮式海上风电的发展机遇。 此次合作整合了SeaTwirl的浮式风电技术与工程能力，以及Mooreast在海上系泊领域的专长、区域制造能力和在东盟地区的产业布局。 据两家公司介绍，Mooreast拥有超过30年的海上系泊经验，是全球最大的拖曳锚制造商之一。 根据协议，双方旨在提供涵盖概念开发
+中新网4月29日电 据伊朗新闻电视台当地时间29日援引一名高级安全官员的话称，伊朗将很快以“前所未有的军事行动”回应美国“持续不断的海盗行为”。 报道称，美国近期在霍尔木兹海峡附近拦截并扣押了伊朗船只，伊方指责这是“海盗行为”。 此前伊朗军队发言人曾表示，伊朗空军已对地区美军基地实施了“前所未有的打击”。
 
 ## 正文
 
-SeaTwirl已与Mooreast Asia签署战略合作协议，双方将共同在东南亚地区寻求浮式海上风电的发展机遇。
+中新网4月29日电 据伊朗新闻电视台当地时间29日援引一名高级安全官员的话称，伊朗将很快以“前所未有的军事行动”回应美国“持续不断的海盗行为”。
 
-此次合作整合了SeaTwirl的浮式风电技术与工程能力，以及Mooreast在海上系泊领域的专长、区域制造能力和在东盟地区的产业布局。
+报道称，美国近期在霍尔木兹海峡附近拦截并扣押了伊朗船只，伊方指责这是“海盗行为”。
 
-据两家公司介绍，Mooreast拥有超过30年的海上系泊经验，是全球最大的拖曳锚制造商之一。
-
-根据协议，双方旨在提供涵盖概念开发、工程设计、本地制造、供应链发展、安装支持和长期运维能力的综合区域解决方案。
-
-此次合作旨在支持SeaTwirl在东盟市场建立可扩展且具有成本效益的工业布局。
-
-双方表示，东盟市场预计将在海上可再生能源开发中发挥日益重要的作用。
-
-两家公司表示，该协议包含在东盟区域内的排他性承诺，但该承诺需满足业务发展和绩效条件，且协议不包含具有约束力的商业承诺或收入保证。
-
-SeaTwirl首席执行官Johan Sandberg表示：“Mooreast带来了丰富的区域经验和工业能力，这与SeaTwirl的技术平台形成互补。
+此前伊朗军队发言人曾表示，伊朗空军已对地区美军基地实施了“前所未有的打击”。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 01:47 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 02:02 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 01:56 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 01:50 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 01:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 01:50 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 02:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 02:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 02:06 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-30 01:59 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 01:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 01:54 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 02:07 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 02:10 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 02:14 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 02:15 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 01:54 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 01:58 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 02:02 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 01:54 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 02:06 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 01:57 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 02:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 02:15 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 02:03 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:08 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/52709.shtml)
-- 2026-06-30 02:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/31481194916.shtml)
-- 2026-06-30 01:43 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/2646834.shtml)
-- 2026-06-30 01:56 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/9439326736.shtml)
-- 2026-06-30 01:59 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/81377.shtml)
-- 2026-06-30 01:58 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/1258869856.shtml)
-- 2026-06-30 01:46 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/667792837.shtml)
-- 2026-06-30 02:03 - [日本16强魔咒](http://www.share.minike.top/Article/details/7817175.shtml)
-- 2026-06-30 01:55 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/59854129601.shtml)
-- 2026-06-30 02:11 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/541881.shtml)
-- 2026-06-30 01:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/41422.shtml)
-- 2026-06-30 02:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/32905692.shtml)
-- 2026-06-30 02:11 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/842902106.shtml)
-- 2026-06-30 02:09 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/35311.shtml)
-- 2026-06-30 01:54 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/015760649725.shtml)
+- 2026-06-30 02:05 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/0499058.shtml)
+- 2026-06-30 02:16 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/69786295.shtml)
+- 2026-06-30 02:01 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/04687925.shtml)
+- 2026-06-30 01:54 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/12179311.shtml)
+- 2026-06-30 01:56 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/414084.shtml)
+- 2026-06-30 02:01 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/926141.shtml)
+- 2026-06-30 02:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/579448084028.shtml)
+- 2026-06-30 02:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/807801064321.shtml)
+- 2026-06-30 02:13 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/336417142837.shtml)
+- 2026-06-30 02:17 - [恋与深空回应争议](http://www.share.minike.top/Article/details/3974267.shtml)
+- 2026-06-30 02:16 - [请回答王牌2019](http://www.share.minike.top/Article/details/70846568239.shtml)
+- 2026-06-30 02:14 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/41699818.shtml)
+- 2026-06-30 01:57 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/77092.shtml)
+- 2026-06-30 02:03 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/7832209.shtml)
+- 2026-06-30 02:00 - [恋与深空 巧合](https://www.share.minike.top/Article/details/1790359486.shtml)

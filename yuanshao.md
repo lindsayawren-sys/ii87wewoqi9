@@ -1,59 +1,54 @@
-# 广州航天小镇开工 打造大湾区商业航天增长极
+# 百胜餐饮营收增长 塔可钟、肯德基业务拉动
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-中新社广州5月28日电 (记者 程景伟)广州航天小镇项目28日在广州市黄埔区西基岛开工。项目计划总投资约50亿元人民币，分阶段推进建设，将形成涵盖火箭制造、卫星制造及应用服务的完整产业链，打造粤港澳大湾区商业航天产业重要增长极。当前，商业航天正成为全球科技竞争和产业变革的重要方向。近年来，广东持续加快布局未来产业，着力打造航空航天经济发展高地。广州加快将商业航天纳入战略性新兴产
+专题：聚焦美股2026年第一季度财报 必胜客同店销售额基本持平 百胜餐饮集团一季度营收实现增长，主要由旗下塔可钟和肯德基连锁品牌业绩带动。 这家快餐连锁运营商于周三公布，在截至 3 月 31 日的季度中： 季度净利润 4.32 亿美元，折合每股收益 1.55 美元；上年同期净利润 2.53 亿美元，每股收益 0.90 美元。 剔除一次性项目后，调整后每股收益 1.50 美元，高
 
 ## 正文
 
-中新社广州5月28日电 (记者 程景伟)广州航天小镇项目28日在广州市黄埔区西基岛开工。
+专题：聚焦美股2026年第一季度财报 必胜客同店销售额基本持平 百胜餐饮集团一季度营收实现增长，主要由旗下塔可钟和肯德基连锁品牌业绩带动。
 
-项目计划总投资约50亿元人民币，分阶段推进建设，将形成涵盖火箭制造、卫星制造及应用服务的完整产业链，打造粤港澳大湾区商业航天产业重要增长极。
+这家快餐连锁运营商于周三公布，在截至 3 月 31 日的季度中： 季度净利润 4.32 亿美元，折合每股收益 1.55 美元；上年同期净利润 2.53 亿美元，每股收益 0.90 美元。
 
-当前，商业航天正成为全球科技竞争和产业变革的重要方向。
+剔除一次性项目后，调整后每股收益 1.50 美元，高于 FactSet 分析师预期的 1.38 美元。
 
-近年来，广东持续加快布局未来产业，着力打造航空航天经济发展高地。
+营收同比增长 15%，达20.6 亿美元，高于市场预期的 20.4 亿美元。
 
-广州加快将商业航天纳入战略性新兴产业重点布局。
-
-广州航天小镇项目位于广深港澳科技创新走廊关键节点，计划占地面积57.41万平方米，临江靠港，配套两座5000吨级泊位码头，具备大型航天装备运输及高端制造发展条件。
-
-项目重点布局可重复使用航天运输系统、卫星制造及应用等产业方向。
-
-当天，中科宇航可重复使用运载器、航天器与液体发动机项目率先动工，主要建设综合制造厂房、研发办公楼及相关配套设施，计划于2027年建成投产。
+门店同店销售表现： 责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 01:44 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 01:47 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 01:53 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 01:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 01:50 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 02:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 02:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 02:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 02:05 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 01:55 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-30 01:47 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-30 01:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 02:12 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 01:52 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 01:54 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 01:59 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 02:16 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 02:05 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 02:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 02:05 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 01:58 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 02:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 01:52 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 02:12 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 02:06 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 02:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:54 - [斗破苍穹](https://www.blog.minike.top/Article/details/495703467.shtml)
-- 2026-06-30 01:52 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/6312784784.shtml)
-- 2026-06-30 02:07 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/0264380.shtml)
-- 2026-06-30 01:44 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/57139.shtml)
-- 2026-06-30 01:56 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/4225856138.shtml)
-- 2026-06-30 01:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/777561960514.shtml)
-- 2026-06-30 01:56 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/33508373.shtml)
-- 2026-06-30 01:47 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/11555263475.shtml)
-- 2026-06-30 02:02 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/777473101075.shtml)
-- 2026-06-30 01:42 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/40101674.shtml)
-- 2026-06-30 01:51 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/03581428283.shtml)
-- 2026-06-30 01:49 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/932791295.shtml)
-- 2026-06-30 01:53 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/177225173.shtml)
-- 2026-06-30 01:45 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/233928050.shtml)
-- 2026-06-30 01:52 - [第一炉香](http://www.blog.minike.top/Article/details/40766914139.shtml)
+- 2026-06-30 01:55 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/8376360834.shtml)
+- 2026-06-30 02:07 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/310721568.shtml)
+- 2026-06-30 02:06 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/11969.shtml)
+- 2026-06-30 02:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/176296867.shtml)
+- 2026-06-30 02:00 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/037398107802.shtml)
+- 2026-06-30 02:10 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/7992255107.shtml)
+- 2026-06-30 01:57 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/07392087.shtml)
+- 2026-06-30 02:00 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/7942808318.shtml)
+- 2026-06-30 02:03 - [千与千寻](https://www.share.minike.top/Article/details/58479915340.shtml)
+- 2026-06-30 02:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/99560920356.shtml)
+- 2026-06-30 02:16 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/677570.shtml)
+- 2026-06-30 02:10 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/2772054199.shtml)
+- 2026-06-30 01:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/356029093882.shtml)
+- 2026-06-30 02:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/122748802957.shtml)
+- 2026-06-30 01:56 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/11601.shtml)

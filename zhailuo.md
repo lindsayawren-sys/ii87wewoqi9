@@ -1,50 +1,60 @@
-# 《国家基本医疗保险医疗服务项目目录（第一批）制定工作方案》公开征求意见
+# 中国市场监管部门严打网络食品销售虚假宣传乱象
 
-> 更新时间：2026-06-30 02:12:02 UTC+8
+> 更新时间：2026-06-30 02:18:03 UTC+8
 
 ## 摘要
 
-为深入贯彻落实党中央、国务院关于增强社会保障制度统一性和规范性的要求，持续完善医疗服务项目医保支付管理，国家医保局拟建立国家基本医疗保险医疗服务项目目录。为此，我们研究起草了《国家基本医疗保险医疗服务项目目录（第一批）制定工作方案（征求意见稿）》，现向社会公开征求意见。公众可于2026年6月3日（星期三）17：00前提出意见和建议，以书面或电子邮件的形式向我们反馈。 电子邮箱：
+中新社北京4月29日电 中国国家市场监管总局食品安全总监孙会川29日在新闻发布会上介绍，针对网络食品销售虚假宣传屡禁不止问题，该局决定在全国范围内开展为期半年的专项整治行动。 孙会川指出，近年来，网络食品销量快速增长，但网售食品虚假宣传、违法广告等突出问题屡禁不止。比如，涉嫌原产地造假、虚假宣传的“优思益”保健品，虚假标注相关成分、打品牌“擦边球”的同仁堂南极磷虾油等，都是近期
 
 ## 正文
 
-为深入贯彻落实党中央、国务院关于增强社会保障制度统一性和规范性的要求，持续完善医疗服务项目医保支付管理，国家医保局拟建立国家基本医疗保险医疗服务项目目录。
+中新社北京4月29日电 中国国家市场监管总局食品安全总监孙会川29日在新闻发布会上介绍，针对网络食品销售虚假宣传屡禁不止问题，该局决定在全国范围内开展为期半年的专项整治行动。
 
-为此，我们研究起草了《国家基本医疗保险医疗服务项目目录（第一批）制定工作方案（征求意见稿）》，现向社会公开征求意见。
+孙会川指出，近年来，网络食品销量快速增长，但网售食品虚假宣传、违法广告等突出问题屡禁不止。
 
-公众可于2026年6月3日（星期三）17：00前提出意见和建议，以书面或电子邮件的形式向我们反馈。
+比如，涉嫌原产地造假、虚假宣传的“优思益”保健品，虚假标注相关成分、打品牌“擦边球”的同仁堂南极磷虾油等，都是近期翻车的“网红产品”，让老百姓“舌尖上的期待”变成了“舌尖上的上当”。
 
-电子邮箱：YBML006@nhsa.gov.cn 通讯地址：北京市西城区月坛北小街甲2号，国家医疗保障局医药服务管理司，邮编：100830 国家医疗保障局 2026年5月28日 责任编辑：王馨茹
+他介绍，针对网络食品销售虚假宣传屡禁不止的问题，此次专项整治行动的目标是把那些欺骗消费者、扰乱市场秩序的害群之马揪出来，把背后的黑灰产业链条彻底斩断。
+
+打法是“线上盯着查、线下追着打、全链条一锅端”。
+
+不让任何一个违法者心存侥幸，不让任何一条违法链条漏网。
+
+据悉，这次专项整治的检查对象涵盖5类主体：电商平台、平台内经营者、营销服务机构及人员、广告活动主体、食品生产经营者。
+
+重点整治3类违法违规行为：一是虚假宣传行为，比如普通食品却通过各种手段明示暗示自己可以“治病、保健、防病”的；保健食品夸大功效、暗示自己可以“治病”的；二是违法广告行为，比如对食品的产地、成分、功能等胡编乱造、张冠李戴的，利用所谓“专家、学者、白大褂”站台背书，误导消费者的；三是平台机构违法行为，比如对于虚假宣传放任不管，甚至纵容造假、配合忽悠的。
 
 ## 相关推荐
 
-- 2026-06-30 01:42 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 01:49 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 02:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 01:43 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 02:03 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 02:00 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 01:42 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 01:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 02:05 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 01:56 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 01:45 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 01:45 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 02:05 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 01:54 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 01:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 01:59 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 02:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 02:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 02:09 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 02:16 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 02:09 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 01:56 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 02:16 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 02:18 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 02:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 02:16 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:53 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/86960326.shtml)
-- 2026-06-30 02:10 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/90461.shtml)
-- 2026-06-30 01:42 - [起风了](https://www.blog.minike.top/Article/details/120735193.shtml)
-- 2026-06-30 02:01 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/56784881669.shtml)
-- 2026-06-30 01:53 - [毒液2](https://www.blog.kurohicncr.top/Article/details/20699360.shtml)
-- 2026-06-30 01:56 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/242795460434.shtml)
-- 2026-06-30 02:07 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/184700444.shtml)
-- 2026-06-30 01:45 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/944369.shtml)
-- 2026-06-30 02:03 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/098996.shtml)
-- 2026-06-30 02:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/245197.shtml)
-- 2026-06-30 01:53 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/340649.shtml)
-- 2026-06-30 02:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/433460864981.shtml)
-- 2026-06-30 01:42 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/35230.shtml)
-- 2026-06-30 01:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/7231344.shtml)
-- 2026-06-30 01:48 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/049484.shtml)
+- 2026-06-30 02:15 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/20315306.shtml)
+- 2026-06-30 02:09 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/8922314.shtml)
+- 2026-06-30 01:48 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/9915122220.shtml)
+- 2026-06-30 01:48 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/461157084978.shtml)
+- 2026-06-30 01:56 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/780379453234.shtml)
+- 2026-06-30 01:50 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/4388353613.shtml)
+- 2026-06-30 02:07 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/8070105.shtml)
+- 2026-06-30 02:10 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/6248981.shtml)
+- 2026-06-30 01:55 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/46110188240.shtml)
+- 2026-06-30 02:11 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/8642505.shtml)
+- 2026-06-30 02:11 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/3328626.shtml)
+- 2026-06-30 01:58 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/731750.shtml)
+- 2026-06-30 02:11 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/498807345171.shtml)
+- 2026-06-30 01:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/68794978994.shtml)
+- 2026-06-30 02:17 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/560654297.shtml)
