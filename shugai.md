@@ -1,60 +1,61 @@
-# （乡村行·看振兴）一条“有礼枇杷街”，何以折射正确政绩观？
+# “全国销冠”被刑拘，泰康人寿紧急回应
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网衢州6月1日电 (张斌)5月，浙江衢州的枇杷树挂满了果，果农盼望的丰收季来了。 清晨5点多，天刚蒙蒙亮，今年65岁的衢州市衢江区周家乡果农宋石室来到地里，摘了满满两大筐枇杷，准备前往城里兜售。和几年前不同，他无需占用人行道和城管“打游击”，而是径直前往位于衢州市柯城区信安街道的“有礼枇杷街”。 “第一天来这里，我就卖了1200块。”在摊位前，宋石室把枇杷按大小分类，跟笔者
+近日，“泰康人寿‘全国销冠’任晓敏被刑拘”的消息，引发关注。5月8日，泰康人寿对中国证券报·中证金牛座记者表示，近日，公司个人代理人任某某被青岛市公安机关立案侦查。对此，公司高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动对该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。 该公司强调，始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客
 
 ## 正文
 
-中新网衢州6月1日电 (张斌)5月，浙江衢州的枇杷树挂满了果，果农盼望的丰收季来了。
+近日，“泰康人寿‘全国销冠’任晓敏被刑拘”的消息，引发关注。
 
-清晨5点多，天刚蒙蒙亮，今年65岁的衢州市衢江区周家乡果农宋石室来到地里，摘了满满两大筐枇杷，准备前往城里兜售。
+5月8日，泰康人寿对中国证券报·中证金牛座记者表示，近日，公司个人代理人任某某被青岛市公安机关立案侦查。
 
-和几年前不同，他无需占用人行道和城管“打游击”，而是径直前往位于衢州市柯城区信安街道的“有礼枇杷街”。
+对此，公司高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动对该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。
 
-“第一天来这里，我就卖了1200块。
+该公司强调，始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客户权益的行为零容忍。
 
-”在摊位前，宋石室把枇杷按大小分类，跟笔者算起了账。
+目前，公司已主动联系可能受影响的客户及相关人士，并承诺对于依法应由其承担的责任绝不推卸。
 
-宋石室种了二十多年枇杷。
+此前，有媒体报道，青岛市公安机关以涉嫌诈骗罪对泰康人寿青岛分公司个人代理人任晓敏立案侦查，涉案本金规模约3亿至4亿元。
 
-过去，因为城里卖价高，他都要骑着三轮车在信安街道的太真路、紫荆西路兜售枇杷——这一路段曾经是当地客运枢纽，人流密集，每年枇杷上市季，都会引来衢江区的果农来此集中售卖。
+记者了解到，任晓敏曾是多项荣誉加身、泰康人寿力捧的标杆代理人。
 
-“衢江区杜泽镇以及其他地方都有果农。
+公开宣传资料显示，2020-2022年任晓敏累计签下“幸福有约”保单超百件，服务高净值客户近百人，2022年度她实现标保业绩1761万元，拿下幸福有约41单，成为当年新业务系列全国第一；2025年，任晓敏仅“开门红”期间的个人标保业绩就突破2900万元。
 
 ## 相关推荐
 
-- 2026-06-29 14:46 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 14:35 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 14:46 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 14:44 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 14:37 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 14:44 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 14:51 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 14:35 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 14:26 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 14:42 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 14:27 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 14:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 14:52 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 14:34 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 14:41 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 14:49 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 14:35 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 14:52 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 14:37 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 14:33 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 14:33 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 14:37 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 14:58 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 14:37 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 14:57 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 14:44 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 14:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 14:42 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 14:45 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/940851.shtml)
-- 2026-06-29 14:35 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/459456839.shtml)
-- 2026-06-29 14:42 - [以前不让妆女二可以艳压女主](https://www.blog.kurohicncr.top/Article/details/23160.shtml)
-- 2026-06-29 14:38 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/444395452668.shtml)
-- 2026-06-29 14:54 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/14021652036.shtml)
-- 2026-06-29 14:51 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/3179001.shtml)
-- 2026-06-29 14:47 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/73480.shtml)
-- 2026-06-29 14:27 - [医药股集体爆发](http://www.blog.kurohicncr.top/Article/details/13955155.shtml)
-- 2026-06-29 14:43 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/408727219.shtml)
-- 2026-06-29 14:34 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/0596658109.shtml)
-- 2026-06-29 14:27 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.minike.top/Article/details/626725.shtml)
-- 2026-06-29 14:30 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/08865.shtml)
-- 2026-06-29 14:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/581132871.shtml)
-- 2026-06-29 14:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/452079522.shtml)
-- 2026-06-29 14:38 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/47023.shtml)
+- 2026-06-29 14:42 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/970958912904.shtml)
+- 2026-06-29 14:54 - [智界V9成为高端圈层共同选择](http://www.blog.minike.top/Article/details/309463.shtml)
+- 2026-06-29 14:44 - [逃狱兄弟](http://www.share.minike.top/Article/details/3898656388.shtml)
+- 2026-06-29 14:36 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/121583.shtml)
+- 2026-06-29 14:48 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/188632327125.shtml)
+- 2026-06-29 14:36 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/20812004479.shtml)
+- 2026-06-29 14:37 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/74275.shtml)
+- 2026-06-29 14:47 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/713990656151.shtml)
+- 2026-06-29 14:38 - [金牌调解](https://www.share.kurohicncr.top/Article/details/2993761561.shtml)
+- 2026-06-29 14:54 - [光与夜之恋](http://www.blog.minike.top/Article/details/1977350120.shtml)
+- 2026-06-29 14:30 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/38551142.shtml)
+- 2026-06-29 14:56 - [比亚迪为什么卖得越多市值越低](http://www.blog.kurohicncr.top/Article/details/64006778744.shtml)
+- 2026-06-29 14:31 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.minike.top/Article/details/492543032894.shtml)
+- 2026-06-29 14:31 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/408153796.shtml)
+- 2026-06-29 14:37 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/4766281.shtml)

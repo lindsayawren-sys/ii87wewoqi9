@@ -1,48 +1,56 @@
-# 山东烟台：果园来了个新家伙 专门给苹果“穿衣服”
+# 世界斯诺克巡回赛年终奖项 赵心童、吴宜泽双双获奖
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 13:51 来源：中国新闻网 近日，山东烟台，由山东渤聚通云计算有限公司联合东南大学研发的苹果幼果套袋机器人，进入果园开展实地测试。烟台是中国苹果主产区之一，长期面临套袋环节用工难、成本高、标准化程度低的产业痛点。这款机器人融合了计算机视觉与智能机械技术，有望为果农破解“套袋难”问题。(姜鹏飞 制作 刘昊） 责任编辑：【罗攀】
+5月8日，世界斯诺克巡回赛(WST)发布25/26赛季年终奖项： WST年度最佳球员：赵心童 球迷票选最佳球员：吴宜泽 媒体评选最佳球员：赵心童年度最佳表现奖：罗尼·奥沙利文 年度最佳新人奖：米哈乌·苏巴尔奇克 年度神奇时刻：杰克·利索夫斯基北爱尔兰公开赛决赛9-8绝杀贾德·特鲁姆普 年度突破选手奖：常冰玉 名人堂入选：赵心童、马克·艾伦 赵心童获评WST年度最佳球员，他199
 
 ## 正文
 
-发布时间：2026年06月02日 13:51 来源：中国新闻网 近日，山东烟台，由山东渤聚通云计算有限公司联合东南大学研发的苹果幼果套袋机器人，进入果园开展实地测试。
+5月8日，世界斯诺克巡回赛(WST)发布25/26赛季年终奖项： WST年度最佳球员：赵心童 球迷票选最佳球员：吴宜泽 媒体评选最佳球员：赵心童年度最佳表现奖：罗尼·奥沙利文 年度最佳新人奖：米哈乌·苏巴尔奇克 年度神奇时刻：杰克·利索夫斯基北爱尔兰公开赛决赛9-8绝杀贾德·特鲁姆普 年度突破选手奖：常冰玉 名人堂入选：赵心童、马克·艾伦 赵心童获评WST年度最佳球员，他1997年出生于广东深圳，8岁开始接触斯诺克运动。
 
-烟台是中国苹果主产区之一，长期面临套袋环节用工难、成本高、标准化程度低的产业痛点。
+他2016年进入职业赛场，2021年获得英锦赛冠军，成为首位在斯诺克三大赛中夺冠的90后球员，2025年夺得世锦赛冠军，成为亚洲首位斯诺克世锦赛冠军。
 
-这款机器人融合了计算机视觉与智能机械技术，有望为果农破解“套袋难”问题。
+2026年4月，赵心童夺得2026斯诺克巡回锦标赛冠军，成为历史上首位单赛季包揽球员系列赛三座冠军的选手。
 
-(姜鹏飞 制作 刘昊） 责任编辑：【罗攀】
+刚刚在2026世界斯诺克锦标赛夺得冠军的吴宜泽，斩获球迷票选最佳球员。
+
+他2003年出生于甘肃省兰州市，7岁与台球结缘，2018年获IBSF世界青年斯诺克锦标赛U21冠军，2021年转为职业球员。
+
+2025年夺得国际锦标赛冠军。
+
+日前，他在2026世锦赛决赛中战胜肖恩·墨菲，成为史上首位“00后”世锦赛冠军，世界排名升至第4位，是继赵心童之后第2位世锦赛冠军中国选手。
+
+此外，年度突破选手奖花落中国选手常冰玉。
 
 ## 相关推荐
 
-- 2026-06-29 14:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 14:32 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 14:44 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 14:36 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 14:32 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 14:30 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 14:45 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 14:34 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 14:45 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 14:53 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 14:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 14:38 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 14:46 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 14:52 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 14:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 14:34 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 14:43 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 14:41 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 14:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 14:58 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/098955233.shtml)
-- 2026-06-29 14:39 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/04914704.shtml)
-- 2026-06-29 14:37 - [三都主：淘汰赛我会支持日本](http://www.share.minike.top/Article/details/609109691.shtml)
-- 2026-06-29 14:44 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/0987061615.shtml)
-- 2026-06-29 14:24 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/767164945.shtml)
-- 2026-06-29 14:44 - [异世界一点都不好玩！](http://www.share.minike.top/Article/details/84759.shtml)
-- 2026-06-29 14:29 - [流金岁月](https://www.share.minike.top/Article/details/21540015.shtml)
-- 2026-06-29 14:37 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/612601910.shtml)
-- 2026-06-29 14:28 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/5143208.shtml)
-- 2026-06-29 14:51 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/8661870.shtml)
-- 2026-06-29 14:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/4387179651.shtml)
-- 2026-06-29 14:25 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/5940219858.shtml)
-- 2026-06-29 14:51 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/350939.shtml)
-- 2026-06-29 14:44 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/70492197.shtml)
-- 2026-06-29 14:26 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/01981457.shtml)
+- 2026-06-29 14:32 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/19164.shtml)
+- 2026-06-29 14:40 - [当我回母校教书](https://www.blog.minike.top/Article/details/752384454.shtml)
+- 2026-06-29 14:42 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/1222645.shtml)
+- 2026-06-29 14:40 - [久坐小心“死臀综合征”](http://www.blog.minike.top/Article/details/73162302397.shtml)
+- 2026-06-29 14:55 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/852560965.shtml)
+- 2026-06-29 14:42 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/706268.shtml)
+- 2026-06-29 14:59 - [金刚川](https://www.share.kurohicncr.top/Article/details/637654137.shtml)
+- 2026-06-29 14:30 - [NBA交易](https://www.blog.minike.top/Article/details/4663965937.shtml)
+- 2026-06-29 14:55 - [金刚川](http://www.share.minike.top/Article/details/6811699.shtml)
+- 2026-06-29 14:39 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/357893639275.shtml)
+- 2026-06-29 14:35 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/2479394.shtml)
+- 2026-06-29 14:41 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/348788526.shtml)
+- 2026-06-29 14:37 - [灿如繁星定档](https://www.share.minike.top/Article/details/0959013960.shtml)
+- 2026-06-29 14:34 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/706523288.shtml)
+- 2026-06-29 14:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/639841839924.shtml)

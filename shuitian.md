@@ -1,57 +1,59 @@
-# Adobe将于2026年6月11日发布第二财季财报，市场聚焦AI战略与增长动能
+# 20天17阳强势上攻！华宝基金电子ETF（515260）创新高后，再涨2.19%！PCB概念股东山精密涨停！今年股价翻倍
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-Adobe今日宣布，将于2026年6月11日美股盘后发布2026财年第二季度财务业绩。财报发布后，公司管理层将于美国东部时间下午5：00举行网络直播电话会议，讨论业绩表现并回答分析师提问。 根据FactSet的共识预期，分析师预计Adobe第二季度非GAAP每股收益为5.01美元，营收预计在64.3亿至64.8亿美元之间。公司此前给出的官方指引为：营收64.3亿至64.8亿美元
+今日（5月7日）PCB概念股表现活跃，东山精密涨停，今年以来累计上涨126.67%，实现股价翻倍，鹏鼎控股、沪电股份、深南电路年内分别上涨48.54%、43.41%和37.22%，已取得亮眼股价表现。 热门ETF方面，荟聚电子板块核心龙头的电子ETF华宝（515260）继昨日续创历史新高之后，今日场内价格盘中上探2.19%，20天17阳强势上攻！ 资金面上，截至发稿，电子板块获
 
 ## 正文
 
-Adobe今日宣布，将于2026年6月11日美股盘后发布2026财年第二季度财务业绩。
+今日（5月7日）PCB概念股表现活跃，东山精密涨停，今年以来累计上涨126.67%，实现股价翻倍，鹏鼎控股、沪电股份、深南电路年内分别上涨48.54%、43.41%和37.22%，已取得亮眼股价表现。
 
-财报发布后，公司管理层将于美国东部时间下午5：00举行网络直播电话会议，讨论业绩表现并回答分析师提问。
+热门ETF方面，荟聚电子板块核心龙头的电子ETF华宝（515260）继昨日续创历史新高之后，今日场内价格盘中上探2.19%，20天17阳强势上攻！
 
-根据FactSet的共识预期，分析师预计Adobe第二季度非GAAP每股收益为5.01美元，营收预计在64.3亿至64.8亿美元之间。
+资金面上，截至发稿，电子板块获主力资金净流入超339亿元，拉长时间来看，近5日、近20日分别吸金913亿元和3384亿元，板块吸金额持续高居31个申万一级行业首位，电子ETF华宝（515260）成份股东山精密、胜宏科技分别获主力资金净流入超33亿元和18亿元，高居A股吸金榜第3位和第5位。
 
-公司此前给出的官方指引为：营收64.3亿至64.8亿美元，非GAAP每股收益5.80至5.85美元，GAAP每股收益4.35至4.40美元。
+电子板块为何持续受到主力资金的偏爱？
 
-第一季度，Adobe实现营收64亿美元，同比增长12%，非GAAP每股收益6.06美元，双双超出市场预期。
+业内人士指出，这是基于政策支持、盈利诉求、业绩验证的综合考量。
 
-投资者将密切关注几个核心指标：数字媒体业务的年度经常性收入增长、Firefly等AI产品的商业化进展，以及创意云和专业消费者业务的订阅增长势头。
+其一，国家层面对于高水平科技自立自强的政策支持力度不断加大，为电子行业的长期发展提供了坚实的保障；其二，电子行业近两年在A股中表现出极强的韧性，细分赛道具备超额收益；其三，当前AI算力和高端制造是市场确定性较高的主线。
 
-第一季度总ARR达260.6亿美元，同比增长10.9%，AI优先应用的ARR同比增长超过两倍。
+其四，一季报显示，半导体设备、AI终端硬件等细分领域企业的净利润均实现了同比大幅增长。
 
-过去一年，Adobe正经历从传统软件许可模式向AI驱动的订阅服务的深度转型。
+消息面上，CCL供应短缺，交货周期延长。
 
 ## 相关推荐
 
-- 2026-06-29 14:46 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 14:33 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 14:47 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 14:50 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 14:27 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 14:48 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 14:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 14:27 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 14:39 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 14:40 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 14:26 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 14:51 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 14:39 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 14:57 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 14:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 14:42 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 14:36 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 14:37 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 14:53 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 14:30 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 14:58 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 14:32 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 14:53 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 14:57 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:33 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.kurohicncr.top/Article/details/09005003964.shtml)
-- 2026-06-29 14:32 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/4426720.shtml)
-- 2026-06-29 14:41 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/748215.shtml)
-- 2026-06-29 14:26 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/235416267.shtml)
-- 2026-06-29 14:38 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/54734.shtml)
-- 2026-06-29 14:40 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.kurohicncr.top/Article/details/954183233.shtml)
-- 2026-06-29 14:26 - [迈巴赫提车第二天发现大灯起雾](https://www.share.kurohicncr.top/Article/details/63434438788.shtml)
-- 2026-06-29 14:32 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/502401.shtml)
-- 2026-06-29 14:52 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.minike.top/Article/details/979550221.shtml)
-- 2026-06-29 14:30 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/878762057.shtml)
-- 2026-06-29 14:25 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/28633.shtml)
-- 2026-06-29 14:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/06813231.shtml)
-- 2026-06-29 14:48 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.kurohicncr.top/Article/details/41393672257.shtml)
-- 2026-06-29 14:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/13774888.shtml)
-- 2026-06-29 14:45 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/278699.shtml)
+- 2026-06-29 14:42 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/671102486711.shtml)
+- 2026-06-29 14:54 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/0486221.shtml)
+- 2026-06-29 14:35 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/34269152.shtml)
+- 2026-06-29 15:00 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/445606785.shtml)
+- 2026-06-29 14:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/05440534707.shtml)
+- 2026-06-29 14:47 - [42岁郭碧婷纯素颜状态](https://www.blog.kurohicncr.top/Article/details/940352.shtml)
+- 2026-06-29 14:41 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/137902811.shtml)
+- 2026-06-29 14:39 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/16145798323.shtml)
+- 2026-06-29 14:31 - [新一代影后杨紫](http://www.share.kurohicncr.top/Article/details/91710682008.shtml)
+- 2026-06-29 14:48 - [普京称考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/275741833313.shtml)
+- 2026-06-29 14:34 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/343214.shtml)
+- 2026-06-29 14:43 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/5803789.shtml)
+- 2026-06-29 14:44 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/7244213328.shtml)
+- 2026-06-29 14:55 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/99451.shtml)
+- 2026-06-29 14:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/706837350.shtml)

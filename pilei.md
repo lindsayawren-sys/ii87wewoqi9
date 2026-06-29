@@ -1,59 +1,51 @@
-# 电诈盯上未成年人！手机弹出更新系统竟是骗子在远程操控
+# 重庆一厂房发生火灾 附近6名群众因感觉身体不适送医
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-法治在线丨电诈盯上未成年人！手机弹出更新系统竟是骗子在远程操控 孩子想免费领游戏皮肤却引来了骗子？原来有人瞄准未成年人设局，借孩子之手控制家长的手机，盗刷钱款。来看北京通州一位家长的遭遇。 手机弹出系统更新？ 竟是骗子在远程操控事情要从今年4月的一天说起。当天晚上10点多，家住北京通州的梁女士手机屏幕上突然出现了一个奇怪的界面。 被害人 梁女士：我的手机屏幕突然出现操作系统正在
+中新网5月8日电 据“璧山消防”微信公众号消息，重庆市璧山区消防救援局发布情况通报称，2026年5月7日23时42分，重庆市璧山区璧泉街道铁山路20号一厂房发生火灾。接报后，璧山区消防救援局第一时间调派力量赶赴现场处置。经现场处置，8日2时28分，现场明火已被扑灭，火场内无人员伤亡。 在紧急疏散过程中，火场附近(非起火厂房内)有6名群众因感觉身体不适送医，其中1人轻微扭伤留院观
 
 ## 正文
 
-法治在线丨电诈盯上未成年人！
+中新网5月8日电 据“璧山消防”微信公众号消息，重庆市璧山区消防救援局发布情况通报称，2026年5月7日23时42分，重庆市璧山区璧泉街道铁山路20号一厂房发生火灾。
 
-手机弹出更新系统竟是骗子在远程操控 孩子想免费领游戏皮肤却引来了骗子？
+接报后，璧山区消防救援局第一时间调派力量赶赴现场处置。
 
-原来有人瞄准未成年人设局，借孩子之手控制家长的手机，盗刷钱款。
+经现场处置，8日2时28分，现场明火已被扑灭，火场内无人员伤亡。
 
-来看北京通州一位家长的遭遇。
-
-手机弹出系统更新？
-
-竟是骗子在远程操控事情要从今年4月的一天说起。
-
-当天晚上10点多，家住北京通州的梁女士手机屏幕上突然出现了一个奇怪的界面。
-
-被害人 梁女士：我的手机屏幕突然出现操作系统正在更新中，请不要触屏或被格式化这样的提示，当时怀疑手机操作系统更新是不是正常。
+在紧急疏散过程中，火场附近(非起火厂房内)有6名群众因感觉身体不适送医，其中1人轻微扭伤留院观察，其余5人经检查无碍已自行出院，起火原因正在调查中。
 
 ## 相关推荐
 
-- 2026-06-29 14:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 14:46 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 14:51 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 14:26 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 14:28 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 14:42 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 14:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 14:36 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 14:41 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 14:42 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 14:50 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 14:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 14:29 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 14:36 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 14:44 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 14:59 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 14:45 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 14:44 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 14:58 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 14:55 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 14:41 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 14:38 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 14:45 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 14:31 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 14:59 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 14:56 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/589506.shtml)
-- 2026-06-29 14:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/0066624.shtml)
-- 2026-06-29 14:45 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/7190621393.shtml)
-- 2026-06-29 14:39 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/657767357.shtml)
-- 2026-06-29 14:45 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/141673742521.shtml)
-- 2026-06-29 14:32 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/5852609.shtml)
-- 2026-06-29 14:38 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/8012201.shtml)
-- 2026-06-29 14:43 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/64417489.shtml)
-- 2026-06-29 14:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/299670897352.shtml)
-- 2026-06-29 14:28 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/59424.shtml)
-- 2026-06-29 14:25 - [王楚钦3比0周启豪](https://www.share.kurohicncr.top/Article/details/3961907609.shtml)
-- 2026-06-29 14:24 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/0638499.shtml)
-- 2026-06-29 14:26 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/34500536829.shtml)
-- 2026-06-29 14:37 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/6780100361.shtml)
-- 2026-06-29 14:26 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/6457037184.shtml)
+- 2026-06-29 14:44 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/58764434.shtml)
+- 2026-06-29 14:46 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/066548692007.shtml)
+- 2026-06-29 14:34 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/61815.shtml)
+- 2026-06-29 14:48 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/6087952857.shtml)
+- 2026-06-29 14:51 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/215260690586.shtml)
+- 2026-06-29 14:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/57019649540.shtml)
+- 2026-06-29 14:32 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/882330.shtml)
+- 2026-06-29 14:45 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/3104211103.shtml)
+- 2026-06-29 14:36 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/025716.shtml)
+- 2026-06-29 14:50 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/057657.shtml)
+- 2026-06-29 14:35 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/10882788.shtml)
+- 2026-06-29 14:49 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/837138911.shtml)
+- 2026-06-29 14:45 - [《贺子珍》](https://www.blog.minike.top/Article/details/3787694454.shtml)
+- 2026-06-29 14:32 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/2300903644.shtml)
+- 2026-06-29 14:31 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/3169842131.shtml)

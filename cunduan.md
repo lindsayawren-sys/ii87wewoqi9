@@ -1,61 +1,57 @@
-# 汇聚支付再次被罚452万 两年合计被罚超1500万
+# 以发丝精度追逐世界之巅：金牌教练王纵横的木工“传承路”
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-来源：新经济观察团 近年来，第三方支付行业强监管态势持续延续。继2025年被处以千万元级大额罚单后，广州市汇聚支付电子科技有限公司（下称“汇聚支付”）再度收到央行监管罚单。 2026年5月21日，央行广东省分行公示行政处罚信息（广东银罚决字〔2026〕9号），汇聚支付因违反支付结算管理相关规定，被监管部门给予警告、通报批评，没收违法所得112.80万元，并处罚款339.82万元
+中新网哈尔滨5月8日电 题：以发丝精度追逐世界之巅：金牌教练王纵横的木工“传承路” 中新网记者 王妮娜 8日，黑龙江林业职业技术学院木工实训基地内，年轻教练王纵横正带领学生备战2026年上海世界技能大赛。他们的目标是征服头发丝般细小的误差线。 作为中国首位世界技能大赛木工项目冠军，26岁的王纵横如今是世界技能大赛中国木工项目的实训指导教师。他俯身工作台，手持游标卡尺测量榫卯缝隙
 
 ## 正文
 
-来源：新经济观察团 近年来，第三方支付行业强监管态势持续延续。
+中新网哈尔滨5月8日电 题：以发丝精度追逐世界之巅：金牌教练王纵横的木工“传承路” 中新网记者 王妮娜 8日，黑龙江林业职业技术学院木工实训基地内，年轻教练王纵横正带领学生备战2026年上海世界技能大赛。
 
-继2025年被处以千万元级大额罚单后，广州市汇聚支付电子科技有限公司（下称“汇聚支付”）再度收到央行监管罚单。
+他们的目标是征服头发丝般细小的误差线。
 
-2026年5月21日，央行广东省分行公示行政处罚信息（广东银罚决字〔2026〕9号），汇聚支付因违反支付结算管理相关规定，被监管部门给予警告、通报批评，没收违法所得112.80万元，并处罚款339.82万元，罚没款合计452.62万元。
+作为中国首位世界技能大赛木工项目冠军，26岁的王纵横如今是世界技能大赛中国木工项目的实训指导教师。
 
-而早在2025年2月，央行广东省分行就曾对汇聚支付开出重磅罚单。
+他俯身工作台，手持游标卡尺测量榫卯缝隙：“0.4毫米，合格。
 
-彼时该机构因违反特约商户管理、支付账户管理、资金清算管理、支付机构合规管理等四项核心监管规定，被依法警告、通报批评，累计罚没金额高达1061.78万元，其中没收违法所得180.94万元、罚款880.84万元。
+”世界技能大赛木工项目的缝隙公差要求在0.5毫米内——这正是他们日复一日训练的精度极限。
 
-除机构被罚外，该案还落实“双罚制”，对时任公司两名核心高管分别作出警告、通报批评及高额罚款的处罚。
+1999年出生的王纵横儿时就与木匠爷爷一起做木板凳，高中毕业后走上木工之路。
 
-这意味着，仅两年时间，汇聚支付累计罚没金额已超过1500万元。
+传统木工训练枯燥，他坚持了下来。
 
-博通咨询首席分析师王蓬博向新经济观察团表示，汇聚支付被处以大额罚没，主要问题集中在违反支付结算管理规定，典型行为可能包括未按规定开展商户审核、违规为非法交易提供支付通道或反洗钱义务履行不到位等。
+辅导员评价他：“做事专注认真。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 14:32 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 14:29 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 14:47 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 14:52 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 14:38 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 14:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 14:31 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 14:46 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 14:54 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 14:37 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 14:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 14:47 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 14:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 14:52 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 14:42 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 14:50 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 14:33 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 14:47 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 14:44 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 14:39 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 14:32 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 14:38 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 14:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 14:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 14:53 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:35 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/6391298.shtml)
-- 2026-06-29 14:37 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/716141829515.shtml)
-- 2026-06-29 14:39 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/29761.shtml)
-- 2026-06-29 14:24 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/444483689217.shtml)
-- 2026-06-29 14:24 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/5132221175.shtml)
-- 2026-06-29 14:32 - [极限挑战第一季](https://www.blog.minike.top/Article/details/87381.shtml)
-- 2026-06-29 14:24 - [中国避暑神器在欧洲卖爆了](https://www.share.kurohicncr.top/Article/details/52394.shtml)
-- 2026-06-29 14:27 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/9065471912.shtml)
-- 2026-06-29 14:50 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.minike.top/Article/details/616828221388.shtml)
-- 2026-06-29 14:38 - [爱情有烟火你是知道我爱看什么的](http://www.share.minike.top/Article/details/527241023.shtml)
-- 2026-06-29 14:28 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/1219629.shtml)
-- 2026-06-29 14:43 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/4830000.shtml)
-- 2026-06-29 14:51 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/673002629.shtml)
-- 2026-06-29 14:40 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/585674942.shtml)
-- 2026-06-29 14:32 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/3170240523.shtml)
+- 2026-06-29 14:34 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/55558687527.shtml)
+- 2026-06-29 14:34 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/40284.shtml)
+- 2026-06-29 14:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/81787069.shtml)
+- 2026-06-29 14:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/766734192.shtml)
+- 2026-06-29 14:47 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/2938565212.shtml)
+- 2026-06-29 14:47 - [金刚川](https://www.share.kurohicncr.top/Article/details/0077307.shtml)
+- 2026-06-29 14:57 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.kurohicncr.top/Article/details/12662.shtml)
+- 2026-06-29 14:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/252051.shtml)
+- 2026-06-29 14:49 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/6862433.shtml)
+- 2026-06-29 14:34 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/27161490841.shtml)
+- 2026-06-29 14:46 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/694860.shtml)
+- 2026-06-29 14:45 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/567005453.shtml)
+- 2026-06-29 14:48 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/887424954857.shtml)
+- 2026-06-29 14:50 - [周生如故](https://www.blog.minike.top/Article/details/0371993.shtml)
+- 2026-06-29 14:50 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/8265522.shtml)

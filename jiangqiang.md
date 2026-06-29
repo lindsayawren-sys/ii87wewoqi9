@@ -1,58 +1,57 @@
-# 酒价内参6月2日价格发布：古井贡古20下跌6元
+# 民营银行的“冰火图鉴”：规模排名首尾差36倍，国资救场成趋势
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月2日整体再度走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日下跌14元，将将守住9900元关口。市场在前一日明显反弹后再现显著分化，终端交投情绪整体仍偏谨慎，中腰部产品古井贡古20与青花郎的跌幅较重，而昨日这两款
+来源：财经新一线 自2014年3月启动民营银行试点以来，我国的民营银行发展已走入第12个年头。12年间，行业格局已从集体探路演变为两极分化：头部与尾部资产规模相差36倍、净利润差距超百倍。在分化加剧、尾部承压的背景下，地方国资入主“救场”，正成为民营银行突围求生的新趋势。 分析人士指出，引入国资对民营银行的资本金稳定和经营持续性具有直接支撑作用，同时也能有效防范金融风险，但能否
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月2日整体再度走弱。
+来源：财经新一线 自2014年3月启动民营银行试点以来，我国的民营银行发展已走入第12个年头。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日下跌14元，将将守住9900元关口。
+12年间，行业格局已从集体探路演变为两极分化：头部与尾部资产规模相差36倍、净利润差距超百倍。
 
-市场在前一日明显反弹后再现显著分化，终端交投情绪整体仍偏谨慎，中腰部产品古井贡古20与青花郎的跌幅较重，而昨日这两款酒品均为大涨。
+在分化加剧、尾部承压的背景下，地方国资入主“救场”，正成为民营银行突围求生的新趋势。
 
-今日白酒市场11大单品三涨六跌两平，输家占据明显上风。
+分析人士指出，引入国资对民营银行的资本金稳定和经营持续性具有直接支撑作用，同时也能有效防范金融风险，但能否真正扭转经营局面，仍取决于银行自身是否能在保持市场化经营机制的同时有效融合国资优势，实现业务模式的可持续重构。
 
-上涨方面，习酒君品的涨幅居前，上涨7元/瓶，两连阳快速走出月内低点；飞天茅台上涨3元/瓶，成功固守1735元一线；国窖1573上涨2元/瓶。
+01 喜忧参半的“成绩单” 在年报季的余温下，民营银行阵营交出了一份喜忧参半的“成绩单”。
 
-下跌方面，古井贡古20与青花郎跌幅居前，均下跌6元/瓶，前者仍囿于月内低点附近，后者再度失守700元关口；精品茅台下跌5元/瓶；五粮液普五八代下跌4元/瓶；洋河梦之蓝M6+下跌3元/瓶，回吐昨日全部涨幅，再度失守600元大关；水晶剑南春下跌2元/瓶，亦尽失昨日涨幅。
+整体来看，民营银行仍在规模扩张与盈利平稳的轨道上前行。
 
-五粮液1618与青花汾20的价格环比保持不变，后者平近一个月最低价纪录。
+19家民营银行中，已披露的18家机构2025年合计实现营业收入899.22亿元，同比小幅下滑1.84%；净利润微增1.92%，达186.23亿元；总资产规模更是突破2.21万亿元，同比增长9.19%。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+但剥开总量平稳的表层数据，行业内里“冰火两重天”的经营图景已清晰展现：头部机构依托资源优势持续领跑，尾部机构则在业绩与规模的双重压力下艰难求生，行业两极分化显著。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 14:25 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 14:51 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 14:42 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 14:53 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 14:34 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 14:39 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 14:39 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 14:25 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 14:35 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 14:40 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 14:35 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 14:33 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 14:40 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 14:47 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 14:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 14:46 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 14:44 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 14:48 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 14:53 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 14:59 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 14:32 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 14:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:24 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/687594124.shtml)
-- 2026-06-29 14:48 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/62737527.shtml)
-- 2026-06-29 14:28 - [女心理师](https://www.share.minike.top/Article/details/35579.shtml)
-- 2026-06-29 14:52 - [发反科学内容为何会有200万粉丝](http://www.blog.minike.top/Article/details/2386096388.shtml)
-- 2026-06-29 14:33 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/3526426.shtml)
-- 2026-06-29 14:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/91193.shtml)
-- 2026-06-29 14:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/62739567466.shtml)
-- 2026-06-29 14:53 - [105年初心滚烫](https://www.blog.kurohicncr.top/Article/details/949870866956.shtml)
-- 2026-06-29 14:36 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/5624490200.shtml)
-- 2026-06-29 14:28 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/142422.shtml)
-- 2026-06-29 14:39 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/339371416217.shtml)
-- 2026-06-29 14:37 - [高考公平需要延伸到志愿填报这一环](https://www.share.minike.top/Article/details/10832008.shtml)
-- 2026-06-29 14:45 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/19016215316.shtml)
-- 2026-06-29 14:47 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/81887218869.shtml)
-- 2026-06-29 14:35 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/3290402.shtml)
+- 2026-06-29 14:51 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/9902978397.shtml)
+- 2026-06-29 14:40 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/8112026807.shtml)
+- 2026-06-29 14:34 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/0532697.shtml)
+- 2026-06-29 14:42 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/15034570313.shtml)
+- 2026-06-29 14:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/205669.shtml)
+- 2026-06-29 14:54 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/6311789313.shtml)
+- 2026-06-29 14:41 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/341624157400.shtml)
+- 2026-06-29 14:50 - [严浩翔FIY断层第一](https://www.share.kurohicncr.top/Article/details/1058294.shtml)
+- 2026-06-29 14:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/98338626.shtml)
+- 2026-06-29 14:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/86221374312.shtml)
+- 2026-06-29 14:59 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/4638863.shtml)
+- 2026-06-29 14:46 - [锐评浪姐7总决赛](https://www.blog.minike.top/Article/details/32173.shtml)
+- 2026-06-29 14:54 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/6472534.shtml)
+- 2026-06-29 14:53 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/089763370047.shtml)
+- 2026-06-29 14:56 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/4918579.shtml)

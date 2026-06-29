@@ -1,59 +1,60 @@
-# Sila Realty拟24亿美元私有化交易引发律所调查，质疑价格与程序的公允性
+# 高层定调后，核心城市密集松绑！龙头地产连续活跃，全市场唯一地产ETF（159707）逆市六连阳！
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-美国知名股东权益律师事务所Kahn Swick & Foti， LLC宣布，已对Sila Realty Trust， Inc．拟议的私有化交易启动调查。调查聚焦于公司董事会批准的交易价格和出售程序是否公允、充分，以及是否存在管理层利益冲突等问题。 此次调查的背景是Sila Realty于2026年4月20日宣布，已同意被资产管理巨头Blue Owl Capital旗下的房地产关
+周五（5月8日），龙头地产继续活跃，代表A股龙头地产行情的中证800地产指数上涨超1.5%，成份股全线上扬！其中，滨江集团领涨8%，绿地控股、新城控股、海南机场等涨超2% 热门ETF方面，全市场唯一跟踪中证800地产指数的地产ETF华宝（159707）场内收涨1.69%，日线六连阳，资金近五日累计加仓9400万元。 消息面上，4月28日高层会议定调“努力稳定房地产市场”后，一线
 
 ## 正文
 
-美国知名股东权益律师事务所Kahn Swick & Foti， LLC宣布，已对Sila Realty Trust， Inc．拟议的私有化交易启动调查。
+周五（5月8日），龙头地产继续活跃，代表A股龙头地产行情的中证800地产指数上涨超1.5%，成份股全线上扬！
 
-调查聚焦于公司董事会批准的交易价格和出售程序是否公允、充分，以及是否存在管理层利益冲突等问题。
+其中，滨江集团领涨8%，绿地控股、新城控股、海南机场等涨超2% 热门ETF方面，全市场唯一跟踪中证800地产指数的地产ETF华宝（159707）场内收涨1.69%，日线六连阳，资金近五日累计加仓9400万元。
 
-此次调查的背景是Sila Realty于2026年4月20日宣布，已同意被资产管理巨头Blue Owl Capital旗下的房地产关联公司以全现金方式收购并私有化，交易总价值约24亿美元。
+消息面上，4月28日高层会议定调“努力稳定房地产市场”后，一线及强二线城市进入新政集中落地窗口期。
 
-根据协议，Sila股东将获得每股30.38美元的现金，较公告前最后一个交易日（4月17日）的收盘价25.53美元溢价约19%。
+深圳、广州、武汉、苏州、济南等核心城市相继出台楼市优化政策，从公积金放宽、以旧换新、限购优化等多维度打出组合拳。
 
-Sila Realty总部位于佛罗里达州坦帕市，是一家专注于投资医疗保健设施的净租赁房地产投资信托基金。
+政策支持下，重点城市二手房市场表现亮眼！
 
-截至2026年3月31日，其投资组合包括分布在美国65个市场的137处房地产物业和3幅未开发土地，总面积约530万平方英尺。
+上海房产交易中心官网“网上房地产”数据显示，4月上海二手房（含商业）累计网签量达28742套，创下近10年来上海4月单月成交最高值； 4月北京二手住宅网签量达17893套，同比增长14.9%，创下近5年同期新高。
 
-公司主要持有医疗门诊大楼、住院康复设施及手术专科中心等资产。
+华泰证券表示，本轮政策给予刚需更实际的支持，坚持因城施策精准发力。
 
-此前公布的2026年第一季度财报显示，公司营收为5270万美元，同比增长9.1%；净收入为1240万美元，合每股0.22美元。
+地方新政潮有望持续夯实房价二阶导改善趋势，板块估值筑底配置价值凸显，建议在这一阶段逐步布局地产股。
 
 ## 相关推荐
 
-- 2026-06-29 14:36 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 14:50 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 14:40 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 14:29 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 14:26 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 14:39 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 14:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 14:34 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 14:46 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 14:28 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 14:24 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 14:27 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 14:32 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 14:52 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 14:44 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 14:34 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 14:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 14:50 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 14:53 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 14:58 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 14:58 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 14:49 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 14:53 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 14:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 14:59 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 14:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 14:37 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:27 - [实习期把公司领导开除了](https://www.share.minike.top/Article/details/76393865642.shtml)
-- 2026-06-29 14:30 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/88996.shtml)
-- 2026-06-29 14:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/505629596.shtml)
-- 2026-06-29 14:36 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/0874390.shtml)
-- 2026-06-29 14:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/2414111004.shtml)
-- 2026-06-29 14:42 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/831614718.shtml)
-- 2026-06-29 14:50 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/9645972981.shtml)
-- 2026-06-29 14:43 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/81850655804.shtml)
-- 2026-06-29 14:39 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/963948.shtml)
-- 2026-06-29 14:48 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/79554709.shtml)
-- 2026-06-29 14:24 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/983464626.shtml)
-- 2026-06-29 14:26 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/88273974.shtml)
-- 2026-06-29 14:27 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.minike.top/Article/details/031402.shtml)
-- 2026-06-29 14:34 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.kurohicncr.top/Article/details/84885697.shtml)
-- 2026-06-29 14:47 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/176935302.shtml)
+- 2026-06-29 14:55 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/721119348595.shtml)
+- 2026-06-29 14:57 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/836788008195.shtml)
+- 2026-06-29 14:31 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/03793377519.shtml)
+- 2026-06-29 14:33 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/935044980729.shtml)
+- 2026-06-29 14:34 - [啊啊啊](https://www.share.minike.top/Article/details/115519918.shtml)
+- 2026-06-29 14:32 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/43413247.shtml)
+- 2026-06-29 14:50 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/887042434.shtml)
+- 2026-06-29 14:57 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/09631.shtml)
+- 2026-06-29 14:52 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/2051850.shtml)
+- 2026-06-29 14:32 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/8804578.shtml)
+- 2026-06-29 14:41 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/681941713.shtml)
+- 2026-06-29 14:38 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/075583912154.shtml)
+- 2026-06-29 14:56 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/7794740.shtml)
+- 2026-06-29 14:58 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.kurohicncr.top/Article/details/153570.shtml)
+- 2026-06-29 14:40 - [韩国记者：解码“合肥模式”](https://www.blog.kurohicncr.top/Article/details/088504479380.shtml)

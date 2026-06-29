@@ -1,58 +1,50 @@
-# 广西研学旅游交流活动在贺州举行 近百家企业达成合作意向
+# 润建股份（002929）：中标中国铝业股份有限公司广西分公司采购项目，中标金额为261.60万元
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网贺州6月2日电(张广权)近日，以“跟着徐霞客游广西”为主题的2026年广西研学旅游交流活动在广西贺州市举办。活动由广西壮族自治区文化和旅游厅主办，贺州市文化广电和旅游局、广西旅游协会研学旅游分会协办。 活动融合产品展销、合作洽谈、经验分享、实地考察等多种形式，旨在搭建优质行业交流平台，丰富研学旅游产品，提高行业服务水平，提升广西研学旅游产品集聚度和外销率，并借暑期旅游旺季
+同壁财经讯，企查查数据显示，根据《中国铝业股份有限公司广西分公司通信线路迁改施工中标结果公告》，润建股份有限公司于2026年5月7日公告中标中国铝业股份有限公司广西分公司采购项目，中标金额为261.60万元。相关上市公司：润建股份(002929.SZ)同壁财经小贴士：润建股份(002929.SZ)2024年营业收入为91.99亿元，营业收入增长率为4.23%，归属母公司净利润为
 
 ## 正文
 
-中新网贺州6月2日电(张广权)近日，以“跟着徐霞客游广西”为主题的2026年广西研学旅游交流活动在广西贺州市举办。
+同壁财经讯，企查查数据显示，根据《中国铝业股份有限公司广西分公司通信线路迁改施工中标结果公告》，润建股份有限公司于2026年5月7日公告中标中国铝业股份有限公司广西分公司采购项目，中标金额为261.60万元。
 
-活动由广西壮族自治区文化和旅游厅主办，贺州市文化广电和旅游局、广西旅游协会研学旅游分会协办。
+相关上市公司：润建股份(002929.SZ)同壁财经小贴士：润建股份(002929.SZ)2024年营业收入为91.99亿元，营业收入增长率为4.23%，归属母公司净利润为2.47亿元，归属母公司净利润增长率为-43.77%，净资产收益率为4.06%。
 
-活动融合产品展销、合作洽谈、经验分享、实地考察等多种形式，旨在搭建优质行业交流平台，丰富研学旅游产品，提高行业服务水平，提升广西研学旅游产品集聚度和外销率，并借暑期旅游旺季引客入桂。
+2025年上半年公司营业收入为48.67亿元，营业收入增长率为10.02%，归属母公司净利润为0.39亿元，归属母公司净利润增长率为-83.37%。
 
-在主会场现场，广西14个设区市的研学旅游服务商集中展示200余件精品研学旅游产品，涵盖无人机与VR技术体验、城市探索、自然人文、非遗技艺、红色文化及生态实践等类别，展现出广西研学旅游差异化、特色化的发展优势。
-
-在产品展示区旁，特设合作洽谈专区。
-
-本次活动通过提前摸底，做好咨询解答、商务磋商等各项配套服务，有效推动“一对一”需求对接。
-
-现场近百家企业完成专项结对洽谈，初步敲定合作意向。
-
-此外，活动结合2026年“5·19中国旅游日”广西发布的“跟着徐霞客游广西”夏季旅游精品线路——“夏趣边关·亲子研学游”，以及“一键研学”应用、贺州精品研学旅游线路进行分享。
+目前公司属于信息技术行业，主要产品类型为互联网服务，2024年报主营构成为通信网络业务:49.68%;数字网络业务:26.58%;能源网络业务:17.98%;算力网络业务:5.75%;其他业务:0.01%。
 
 ## 相关推荐
 
-- 2026-06-29 14:51 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 14:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 14:35 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 14:28 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 14:47 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 14:50 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 14:46 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 14:52 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 14:30 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 14:44 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 14:35 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 14:41 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 14:55 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 14:35 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 14:45 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 14:57 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 14:52 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 14:50 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 14:59 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 14:53 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 14:56 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 14:50 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 14:37 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 14:38 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/681711854114.shtml)
-- 2026-06-29 14:53 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/008260150.shtml)
-- 2026-06-29 14:47 - [美国近12万名科技员工被解雇](https://www.blog.kurohicncr.top/Article/details/92829.shtml)
-- 2026-06-29 14:38 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/800097013457.shtml)
-- 2026-06-29 14:50 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/95599.shtml)
-- 2026-06-29 14:34 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/495279.shtml)
-- 2026-06-29 14:27 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/03135.shtml)
-- 2026-06-29 14:35 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.kurohicncr.top/Article/details/239650723.shtml)
-- 2026-06-29 14:48 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/28452.shtml)
-- 2026-06-29 14:35 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/03943590949.shtml)
-- 2026-06-29 14:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/372216043.shtml)
-- 2026-06-29 14:35 - [NBA交易](https://www.share.minike.top/Article/details/56706157066.shtml)
-- 2026-06-29 14:28 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/82950599.shtml)
-- 2026-06-29 14:36 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/81977171308.shtml)
-- 2026-06-29 14:42 - [毒液2](https://www.share.minike.top/Article/details/5460630.shtml)
+- 2026-06-29 14:32 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/215149171577.shtml)
+- 2026-06-29 14:53 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/225649859.shtml)
+- 2026-06-29 14:47 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/42501986.shtml)
+- 2026-06-29 14:33 - [袁隆平院士 不容诋毁！](https://www.share.minike.top/Article/details/4496895.shtml)
+- 2026-06-29 14:57 - [5万块的威力](http://www.share.minike.top/Article/details/242485.shtml)
+- 2026-06-29 14:55 - [中国战机大片上新](https://www.blog.minike.top/Article/details/2527468195.shtml)
+- 2026-06-29 14:38 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/6522368.shtml)
+- 2026-06-29 14:55 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/406784853.shtml)
+- 2026-06-29 14:52 - [双高胎](http://www.blog.kurohicncr.top/Article/details/3895144689.shtml)
+- 2026-06-29 14:33 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/7956258821.shtml)
+- 2026-06-29 14:52 - [异世界一点都不好玩！](http://www.blog.minike.top/Article/details/746954345.shtml)
+- 2026-06-29 14:55 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/799933961.shtml)
+- 2026-06-29 14:41 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/170673047.shtml)
+- 2026-06-29 14:49 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/13899334716.shtml)
+- 2026-06-29 14:31 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/4622771.shtml)

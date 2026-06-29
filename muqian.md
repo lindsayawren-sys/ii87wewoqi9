@@ -1,57 +1,56 @@
-# 汇丰：亚洲提供的投资机会不亚于美国
+# 光大期货：5月8日软商品日报
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新社上海6月2日电 (记者 姜煜)汇丰私人银行及财富管理中国首席投资总监匡正2日接受中新社等媒体采访时表示，在全球经济版图中，亚洲提供了不亚于美国的投资机会。 匡正分析，亚洲是人工智能(AI)和先进制造业的核心区域，亚洲既有AI的产能，又有AI的需求，AI已成为亚洲重要的战略依托，而中国的AI正经历超高速增长，将在亚洲经济发展中发挥核心作用。除中国以外，亚洲还有别的亮点：韩国
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，据印度糖厂协会（ISMA）数据，截至4月30日，印度2025/26榨季剩余开榨糖厂5家，同比减少14家；累计产糖2752.8万吨，同比增加187.9万吨。现货报价方面，广西制糖集团报价区间为5340~5420元/吨，部分调整10元/吨，涨跌不一；云南制糖集团报价5150~5220元/吨
 
 ## 正文
 
-中新社上海6月2日电 (记者 姜煜)汇丰私人银行及财富管理中国首席投资总监匡正2日接受中新社等媒体采访时表示，在全球经济版图中，亚洲提供了不亚于美国的投资机会。
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，据印度糖厂协会（ISMA）数据，截至4月30日，印度2025/26榨季剩余开榨糖厂5家，同比减少14家；累计产糖2752.8万吨，同比增加187.9万吨。
 
-匡正分析，亚洲是人工智能(AI)和先进制造业的核心区域，亚洲既有AI的产能，又有AI的需求，AI已成为亚洲重要的战略依托，而中国的AI正经历超高速增长，将在亚洲经济发展中发挥核心作用。
+现货报价方面，广西制糖集团报价区间为5340~5420元/吨，部分调整10元/吨，涨跌不一；云南制糖集团报价5150~5220元/吨，下调10元/吨；加工糖厂主流报价区间为5620~5880元/吨，少数上调30~50元/吨。
 
-除中国以外，亚洲还有别的亮点：韩国和新加坡在半导体领域、AI应用端都具备全球竞争力。
+近几日原糖紧跟原油走势波动，宽幅震荡，国内现货销售进度一般，多空分歧加剧，两者都有诸多理由，预计震荡延续短期略偏强，关注4月产销数据。
 
-“科技创新和先进制造业带动了中国科技股节节攀升；中国香港股市受益于IPO的回暖、资金的流入和地产板块的企稳，将在区域内继续发挥积极的作用；新加坡作为避险市场，股息率和治理改革不断吸引着资金，因此我们继续看好亚洲股市。
+棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周四，ICE美棉下跌1.61%，报收82.7美分/磅，郑棉主力合约环比下降1.04%，报收16640元/吨，主力合约持仓环比增加15297手至84.61万手，棉花3128B现货价格指数17760元/吨，较前一日下降60元/吨。
 
-”匡正说。
+国际市场方面，近期原油价格波动较大，价格环比下降，对美棉价格支撑减弱。
 
-在分析中国经济时，匡正表示，中国的宏观经济展现出较强的韧性，其科技和高端制造业发展迅猛，AI的应用在为供给侧降低成本的同时也在创造新的需求。
+天气方面，干旱仍然偏高，但我们认为美棉价格已经体现，警惕后续干旱程度下降出现的预期差。
 
-出口方面，随着全球对新能源设备的需求迎来结构性上行，中国的外需环境将保持稳定。
+国内市场方面，近期郑棉期价小幅回调，持仓环比增加。
 
-(完)
+预期本年度末期末库存偏低以及下一年度减产是近期主要驱动，但是近期棉花价格涨幅大于棉纱，挤压纺企生产利润，后续需求可持续性将被考验。
 
 ## 相关推荐
 
-- 2026-06-29 14:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 14:38 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 14:48 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 14:29 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 14:35 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 14:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 14:43 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 14:32 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 14:30 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 14:28 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 14:34 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 14:31 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 14:58 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 14:58 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 14:47 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 14:34 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 14:45 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 14:59 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 14:41 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 14:33 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 14:38 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [农发行总行专家委员会委员杜晓力被查](https://www.share.kurohicncr.top/Article/details/443824240799.shtml)
-- 2026-06-29 14:37 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.minike.top/Article/details/108106.shtml)
-- 2026-06-29 14:38 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/329524.shtml)
-- 2026-06-29 14:39 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/976975805285.shtml)
-- 2026-06-29 14:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/68654824067.shtml)
-- 2026-06-29 14:38 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/7630020716.shtml)
-- 2026-06-29 14:42 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/13366694054.shtml)
-- 2026-06-29 14:43 - [T1对战KC](http://www.blog.kurohicncr.top/Article/details/9068150935.shtml)
-- 2026-06-29 14:38 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/279267.shtml)
-- 2026-06-29 14:49 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/9775989.shtml)
-- 2026-06-29 14:48 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/450741333.shtml)
-- 2026-06-29 14:36 - [金刚川](http://www.blog.minike.top/Article/details/70882.shtml)
-- 2026-06-29 14:26 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/2211280.shtml)
-- 2026-06-29 14:32 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.minike.top/Article/details/71812395.shtml)
-- 2026-06-29 14:49 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/19810828000.shtml)
+- 2026-06-29 14:55 - [Agent带来token消耗爆炸](https://www.blog.minike.top/Article/details/087892086944.shtml)
+- 2026-06-29 14:57 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/267646135056.shtml)
+- 2026-06-29 14:53 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/46594241.shtml)
+- 2026-06-29 14:51 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/242447621.shtml)
+- 2026-06-29 14:30 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/9821452387.shtml)
+- 2026-06-29 14:52 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/15644786.shtml)
+- 2026-06-29 14:35 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/7928422650.shtml)
+- 2026-06-29 14:40 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/53778.shtml)
+- 2026-06-29 14:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/596586159919.shtml)
+- 2026-06-29 14:43 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/74771766.shtml)
+- 2026-06-29 14:35 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/97509837.shtml)
+- 2026-06-29 14:52 - [时光音乐会](https://www.share.minike.top/Article/details/881970315390.shtml)
+- 2026-06-29 14:40 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/97973185.shtml)
+- 2026-06-29 14:36 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/26962021467.shtml)
+- 2026-06-29 14:45 - [以前不让妆女二可以艳压女主](http://www.share.minike.top/Article/details/577092758531.shtml)

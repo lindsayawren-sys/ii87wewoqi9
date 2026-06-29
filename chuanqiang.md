@@ -1,58 +1,59 @@
-# 法国生物技术公司Abivax因肠病药物安全疑虑股价暴跌30%
+# 非洲首富丹格特筹划水泥帝国伦敦上市
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-法国生物技术公司Abivax（股票代码：ABVX.PA）2日早盘股价重挫30%，成为欧洲斯托克600指数（STOXX 600）中跌幅最大的个股。此前，该公司公布了其实验性炎症性肠病药物奥贝法齐莫德（Obefazimod）的晚期临床试验数据，尽管该疗法显示出强劲的临床疗效，但试验中出现的癌症病例引发了市场对该药物安全性的高度担忧。 奥贝法齐莫德是一种用于治疗慢性溃疡性结肠炎的在研
+非洲首富阿里科·丹格特正筹划将其水泥帝国在伦敦证券交易所上市，这将是这家非洲最大水泥企业多年国际化战略的重要一步。 丹格特水泥公司是非洲大陆最大的水泥生产商，年产能达5200万吨，业务遍及尼日利亚、喀麦隆、埃塞俄比亚、南非等10个非洲国家。该公司已在尼日利亚证券交易所上市，市值约13.43万亿奈拉(按当前约1美元兑1370奈拉的汇率计算约合98亿美元)。 消息人士透露，丹格特已
 
 ## 正文
 
-法国生物技术公司Abivax（股票代码：ABVX.PA）2日早盘股价重挫30%，成为欧洲斯托克600指数（STOXX 600）中跌幅最大的个股。
+非洲首富阿里科·丹格特正筹划将其水泥帝国在伦敦证券交易所上市，这将是这家非洲最大水泥企业多年国际化战略的重要一步。
 
-此前，该公司公布了其实验性炎症性肠病药物奥贝法齐莫德（Obefazimod）的晚期临床试验数据，尽管该疗法显示出强劲的临床疗效，但试验中出现的癌症病例引发了市场对该药物安全性的高度担忧。
+丹格特水泥公司是非洲大陆最大的水泥生产商，年产能达5200万吨，业务遍及尼日利亚、喀麦隆、埃塞俄比亚、南非等10个非洲国家。
 
-奥贝法齐莫德是一种用于治疗慢性溃疡性结肠炎的在研口服药物。
+该公司已在尼日利亚证券交易所上市，市值约13.43万亿奈拉(按当前约1美元兑1370奈拉的汇率计算约合98亿美元)。
 
-在一项为期44周的维持治疗研究中，服用25毫克和50毫克剂量患者的临床缓解率分别达到50.8%和51.3%，而安慰剂组的缓解率仅为10.4%。
+消息人士透露，丹格特已与美银美林等投行就伦敦上市事宜展开接洽。
 
-数据显示，两种剂量均达到了试验的主要终点，经安慰剂校正后的缓解率分别为39.3%和40.3%，这也是迄今为止在同类大型研究项目中报告的最高疗效数据之一。
+此前，丹格特水泥曾于2018年考虑伦敦IPO，但未能成行。
 
-然而，在服用50毫克剂量的患者中，分别出现了一例前列腺癌、一例乳腺癌和一例结肠上皮内瘤变病例。
+该公司近年来通过发行商业票据和债券筹集资金用于扩张，并计划投资10亿美元在2030年前将产能提升45%至8000万吨。
 
-尽管Abivax在周一发布的研究报告中强调，相关研究人员认为上述恶性肿瘤病例与药物治疗并无直接因果关系，但依然引发了资本市场的剧烈震荡。
+分析人士指出，伦敦上市将有助于丹格特水泥拓宽投资者基础，为其泛非扩张计划提供更充足的资金支持。
 
-截至目前，Abivax公司尚未就此作出进一步评论。
+丹格特本人于2025年卸任公司董事长，但仍是这家水泥帝国的核心控制人。
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 14:48 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 14:38 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 14:52 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 14:42 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 14:36 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 14:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 14:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 14:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 14:42 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 14:38 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 14:51 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 14:31 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 14:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 14:30 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 14:52 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 14:55 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 14:33 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 14:39 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 14:30 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 14:44 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 14:46 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 14:49 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 14:31 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 14:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.minike.top/Article/details/6259990.shtml)
-- 2026-06-29 14:26 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/2254442004.shtml)
-- 2026-06-29 14:28 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/463894347204.shtml)
-- 2026-06-29 14:39 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/5745744883.shtml)
-- 2026-06-29 14:38 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/11220.shtml)
-- 2026-06-29 14:51 - [绘画区你赢了](https://www.share.minike.top/Article/details/70926766003.shtml)
-- 2026-06-29 14:40 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/03645809.shtml)
-- 2026-06-29 14:49 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.kurohicncr.top/Article/details/71398816.shtml)
-- 2026-06-29 14:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/323331.shtml)
-- 2026-06-29 14:27 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/260525368.shtml)
-- 2026-06-29 14:47 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/16769435106.shtml)
-- 2026-06-29 14:27 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/99036.shtml)
-- 2026-06-29 14:36 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/289766.shtml)
-- 2026-06-29 14:49 - [俄称继续推进 乌称打击俄军设施](https://www.share.kurohicncr.top/Article/details/56592752.shtml)
-- 2026-06-29 14:24 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.kurohicncr.top/Article/details/5390506436.shtml)
+- 2026-06-29 14:46 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/219619.shtml)
+- 2026-06-29 14:51 - [世界杯看到肖战了](https://www.share.kurohicncr.top/Article/details/96721965566.shtml)
+- 2026-06-29 14:43 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/16349972433.shtml)
+- 2026-06-29 14:36 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/89468151052.shtml)
+- 2026-06-29 14:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/28674.shtml)
+- 2026-06-29 14:38 - [中国避暑神器在欧洲卖爆了](https://www.share.kurohicncr.top/Article/details/8852390.shtml)
+- 2026-06-29 14:44 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/606017.shtml)
+- 2026-06-29 14:49 - [记者率先试乘西十高铁](http://www.blog.kurohicncr.top/Article/details/588444932856.shtml)
+- 2026-06-29 14:31 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/782933.shtml)
+- 2026-06-29 14:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/950190157.shtml)
+- 2026-06-29 14:52 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/985292.shtml)
+- 2026-06-29 14:36 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/05935869552.shtml)
+- 2026-06-29 14:46 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/78137692.shtml)
+- 2026-06-29 14:45 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/123868801.shtml)
+- 2026-06-29 14:48 - [金牌调解](https://www.share.minike.top/Article/details/478306214452.shtml)

@@ -1,54 +1,56 @@
-# 快讯：恒指低开0.01% 科指涨0.22% AI应用股高开 创新药概念股活跃
+# 西双版纳州获颁云南首例涉外著作权作品登记证书
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-美股上周五继续破顶，市场憧憬中东战争结束，刺激大市创新高，三大指数均录得升幅收市。美元表现回落，美国十年期债息下滑至4.43厘水平，金价走势向好，油价则持续偏软。 今日港股三大指数涨跌不一，恒指开盘跌0.01%，报25180.05点，恒科指涨0.22%，国企指数跌0.07%。盘面上，科网股涨多跌少，美团涨超2%，快手、腾讯、百度涨超1%，京东、网易跌超1%；创新药概念股活跃，康
+中新网西双版纳5月8日电 (陆希成)中新网8日从中共西双版纳州委宣传部获悉，在2026年云南省知识产权宣传周版权宣传活动期间，云南省版权服务大厅向西双版纳傣族自治州颁发了全省首例涉外著作权作品登记证书，标志西双版纳版权服务实现涉外作品登记本地化。 此次获颁证书的著作权人赵阿航，是西双版纳职业技术学院2024级中文专业的老挝籍留学生。赴中国求学以来，他潜心研习中国书法，逐步形成兼
 
 ## 正文
 
-美股上周五继续破顶，市场憧憬中东战争结束，刺激大市创新高，三大指数均录得升幅收市。
+中新网西双版纳5月8日电 (陆希成)中新网8日从中共西双版纳州委宣传部获悉，在2026年云南省知识产权宣传周版权宣传活动期间，云南省版权服务大厅向西双版纳傣族自治州颁发了全省首例涉外著作权作品登记证书，标志西双版纳版权服务实现涉外作品登记本地化。
 
-美元表现回落，美国十年期债息下滑至4.43厘水平，金价走势向好，油价则持续偏软。
+此次获颁证书的著作权人赵阿航，是西双版纳职业技术学院2024级中文专业的老挝籍留学生。
 
-今日港股三大指数涨跌不一，恒指开盘跌0.01%，报25180.05点，恒科指涨0.22%，国企指数跌0.07%。
+赴中国求学以来，他潜心研习中国书法，逐步形成兼具中老文化特色的创作风格。
 
-盘面上，科网股涨多跌少，美团涨超2%，快手、腾讯、百度涨超1%，京东、网易跌超1%；创新药概念股活跃，康方生物涨超9%；内房股部分上涨，远洋集团涨超4%；AI应用股高开，Minimax涨超5%。
+本次成功登记的美术作品，以《关雎》《静夜思》《共饮一江水》三幅书法为主题，作品融汇中老两国文化元素，是“中老命运共同体”理念的生动载体。
 
-责任编辑：郝欣煜
+这一突破亦体现了西双版纳依托区位优势，在共建“一带一路”进程中探索跨境版权保护的创新实践。
+
+针对赵阿航的外籍身份与语言沟通需求，中共西双版纳州委宣传部、西双版纳新华书店有限公司版权服务工作站为其提供全程一对一指导，细致讲解版权登记政策、流程及所需材料，高效推进各项登记事宜。
+
+“过程比预想更顺畅，工作人员的逐项指导让我对中国版权保护有了直观了解。
+
+”赵阿航在领取证书后表示，未来他将继续深耕中国书法创作，用笔墨传递中老文化之美，争做中老文化交流的使者。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 14:35 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 14:26 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 14:25 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 14:31 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 14:31 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 14:45 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 14:31 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 14:32 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 14:42 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 14:50 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 14:49 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 14:50 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 14:41 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 14:57 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 14:44 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 14:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 14:35 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 14:57 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 14:52 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 14:53 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 14:31 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 14:44 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 14:49 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:27 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/37041279.shtml)
-- 2026-06-29 14:48 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.minike.top/Article/details/91136476.shtml)
-- 2026-06-29 14:43 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/84106.shtml)
-- 2026-06-29 14:27 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/924836974415.shtml)
-- 2026-06-29 14:35 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/857883.shtml)
-- 2026-06-29 14:51 - [媒体：网络测评不能只剩“生意”](https://www.share.minike.top/Article/details/26019147143.shtml)
-- 2026-06-29 14:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/51807881752.shtml)
-- 2026-06-29 14:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/484844178.shtml)
-- 2026-06-29 14:24 - [张真源解读相思锁](https://www.share.minike.top/Article/details/9474987223.shtml)
-- 2026-06-29 14:43 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/539994487.shtml)
-- 2026-06-29 14:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/6859869806.shtml)
-- 2026-06-29 14:41 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/57326405.shtml)
-- 2026-06-29 14:43 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/79278965.shtml)
-- 2026-06-29 14:44 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/731976873365.shtml)
-- 2026-06-29 14:42 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/01105429061.shtml)
+- 2026-06-29 14:56 - [周杰伦演唱会真的好多人啊](https://www.blog.minike.top/Article/details/5327035105.shtml)
+- 2026-06-29 14:58 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/567976.shtml)
+- 2026-06-29 14:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/469413648.shtml)
+- 2026-06-29 14:30 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/58068.shtml)
+- 2026-06-29 14:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/01881370666.shtml)
+- 2026-06-29 14:46 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/8468224405.shtml)
+- 2026-06-29 14:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/0530164415.shtml)
+- 2026-06-29 14:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/088950.shtml)
+- 2026-06-29 14:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/3971628.shtml)
+- 2026-06-29 14:55 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/969236050706.shtml)
+- 2026-06-29 14:36 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/144296106.shtml)
+- 2026-06-29 14:45 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/507296771.shtml)
+- 2026-06-29 14:51 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/4555767488.shtml)
+- 2026-06-29 14:31 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/868756.shtml)
+- 2026-06-29 14:35 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/746660390734.shtml)

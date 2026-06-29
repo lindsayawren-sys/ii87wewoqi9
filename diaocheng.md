@@ -1,49 +1,58 @@
-# 从环保服装到AI人机对话：太原小学生创意迎“六一”
+# 中泰证券一季报深度解读：净利润增26.8%，为何估值未获溢价？
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 10:16 来源：中国新闻网 5月31日，山西太原，“六一”国际儿童节来临之际，晋源区第十小学举办“童心向党扬朝气智创同行绘博远”主题活动。全校学生参与观看红色电影、环保时装秀、创意帽饰设计、跳蚤市场、吉祥物设计及AI人机对话等六大课程，将德育与科技教育深度融合，引导学生在沉浸式体验中涵养家国情怀、锤炼优良品德，展现新时代少年的精神风貌。(记者
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：商界共鸣网 一份是营收净利双双两位数增长的亮眼一季报，一份是北京证监局最新下发的警示函——对于中泰证券（600918.SH），2026年的春天是“喜忧参半”的。 4月30日，中泰证券发布2026年第一季度报告。数据显示，公司当期实现营业收入31.07亿元，同比增长25.14%；归母净利润4.69亿元，
 
 ## 正文
 
-发布时间：2026年06月01日 10:16 来源：中国新闻网 5月31日，山西太原，“六一”国际儿童节来临之际，晋源区第十小学举办“童心向党扬朝气智创同行绘博远”主题活动。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-全校学生参与观看红色电影、环保时装秀、创意帽饰设计、跳蚤市场、吉祥物设计及AI人机对话等六大课程，将德育与科技教育深度融合，引导学生在沉浸式体验中涵养家国情怀、锤炼优良品德，展现新时代少年的精神风貌。
+来源：商界共鸣网 一份是营收净利双双两位数增长的亮眼一季报，一份是北京证监局最新下发的警示函——对于中泰证券（600918.SH），2026年的春天是“喜忧参半”的。
 
-(记者 张立程 胡健） 责任编辑：【罗攀】
+4月30日，中泰证券发布2026年第一季度报告。
+
+数据显示，公司当期实现营业收入31.07亿元，同比增长25.14%；归母净利润4.69亿元，同比增幅达26.80%。
+
+这一成绩延续了2025年的高增态势——去年全年，公司净利润同比增长53.07%至14.35亿元。
+
+就在一季报发布前的4月16日，北京证监局的一纸警示函揭开了这家山东龙头券商合规管理的另一面：投资者适当性管理不到位、投顾执业行为管理不到位——中泰证券北京分公司被出具警示函。
+
+业绩开门红： 财富管理撑起了半边天 一季度4.69亿元的净利润表现，并非单纯的基数效应。
+
+环比来看，这一数字较2025年四季度的1.35亿元增长了247%，经营回暖迹象明显。
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 14:31 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 14:51 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 14:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 14:48 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 14:36 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 14:49 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 14:26 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 14:53 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 14:35 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 14:31 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 14:47 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 14:34 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 14:53 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 14:54 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 14:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 14:47 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 14:57 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 14:43 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 14:42 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 14:50 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 14:58 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 14:54 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 14:32 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 14:33 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:47 - [记者率先试乘西十高铁](http://www.share.minike.top/Article/details/6247739.shtml)
-- 2026-06-29 14:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/26525499346.shtml)
-- 2026-06-29 14:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/9384866.shtml)
-- 2026-06-29 14:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/8076380.shtml)
-- 2026-06-29 14:32 - [中国战机大片上新](http://www.blog.kurohicncr.top/Article/details/8445075.shtml)
-- 2026-06-29 14:35 - [事关个税 明日截止请抓紧办理](http://www.share.minike.top/Article/details/8443110.shtml)
-- 2026-06-29 14:53 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/02553615180.shtml)
-- 2026-06-29 14:32 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/64404.shtml)
-- 2026-06-29 14:40 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/39399100603.shtml)
-- 2026-06-29 14:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/23842639803.shtml)
-- 2026-06-29 14:26 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/504947390.shtml)
-- 2026-06-29 14:24 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/1016364.shtml)
-- 2026-06-29 14:30 - [美人鱼](http://www.share.minike.top/Article/details/40616138.shtml)
-- 2026-06-29 14:37 - [明星大侦探第一季](http://www.share.minike.top/Article/details/876030.shtml)
-- 2026-06-29 14:33 - [高考公平需要延伸到志愿填报这一环](https://www.share.minike.top/Article/details/227916.shtml)
+- 2026-06-29 14:47 - [明星大侦探第一季](https://www.share.minike.top/Article/details/2258327958.shtml)
+- 2026-06-29 14:54 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/066861759.shtml)
+- 2026-06-29 14:33 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/76444887461.shtml)
+- 2026-06-29 14:32 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/5220563.shtml)
+- 2026-06-29 14:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/1824603122.shtml)
+- 2026-06-29 14:59 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/164037525394.shtml)
+- 2026-06-29 14:33 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/592567.shtml)
+- 2026-06-29 14:52 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/08055294786.shtml)
+- 2026-06-29 14:47 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.minike.top/Article/details/55368.shtml)
+- 2026-06-29 14:33 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/09433.shtml)
+- 2026-06-29 14:51 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/3970259.shtml)
+- 2026-06-29 14:55 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/099226773452.shtml)
+- 2026-06-29 14:59 - [事关个税 明日截止请抓紧办理](https://www.share.kurohicncr.top/Article/details/077920478.shtml)
+- 2026-06-29 14:54 - [一见倾心](http://www.share.minike.top/Article/details/730634981014.shtml)
+- 2026-06-29 14:35 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/248156914862.shtml)

@@ -1,56 +1,56 @@
-# 长江有色: 中东局势升级加剧铝供应忧虑 2日铝价或上涨
+# 离岸人民币汇率升破6.8，创三年多新高
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 长江铝价alu.ccmn.cn短评：中东局势升级加剧铝供应忧虑，隔夜伦铝收涨1.59%；海外供紧提供价格支撑，国内出口韧性、储能高增及订单提供消费助力，今现铝或上涨。 【铝期货市场】：中东局势升级加剧铝供应忧虑，隔夜伦铝强势拉升，最新收盘报价3773美元/吨，收涨59美元，涨幅1.59%，成交量21647手增加1821手，持仓量670566手减少7152手。晚间
+伴随强势资本市场“东风”，人民币汇率表现势如破竹，站稳了重要关口。 5月7日，离岸人民币对美元强势涨破6.80关口，盘中最高触及6.7977；在岸人民币对美元同样不甘落后，距离6.80关口“一步之遥”，二者双双创下2023年2月以来最高水平。 截至16时50分发稿，在岸、离岸人民币对美元分别报6.8014、6.7998。 事实上，年初迄今，人民币便呈现稳步升值态势。今年前4个月
 
 ## 正文
 
-长江有色金属网 长江铝价alu.ccmn.cn短评：中东局势升级加剧铝供应忧虑，隔夜伦铝收涨1.59%；海外供紧提供价格支撑，国内出口韧性、储能高增及订单提供消费助力，今现铝或上涨。
+伴随强势资本市场“东风”，人民币汇率表现势如破竹，站稳了重要关口。
 
-【铝期货市场】：中东局势升级加剧铝供应忧虑，隔夜伦铝强势拉升，最新收盘报价3773美元/吨，收涨59美元，涨幅1.59%，成交量21647手增加1821手，持仓量670566手减少7152手。
+5月7日，离岸人民币对美元强势涨破6.80关口，盘中最高触及6.7977；在岸人民币对美元同样不甘落后，距离6.80关口“一步之遥”，二者双双创下2023年2月以来最高水平。
 
-晚间沪铝高开震荡后偏强上扬；主力月2606合约最新收盘价报24435元/吨，涨120元，涨幅0.49%。
+截至16时50分发稿，在岸、离岸人民币对美元分别报6.8014、6.7998。
 
-伦敦金属交易所（LME）5月30日伦铝最新库存量报337700吨，较上个交易日减少300吨，跌幅0.09%。
+事实上，年初迄今，人民币便呈现稳步升值态势。
 
-长江铝业网讯：6月1日现货铝价，长江现货A00铝锭价报24190元/吨，跌20元；广东现货A00铝锭价报24040元/吨，跌20元。
+今年前4个月，在岸、离岸人民币对美元累计升值幅度均在2.5%附近。
 
-宏观层面，美国5月ISM制造业指数升至54.0，连续第五个月扩张，创2022年5月以来新高。
+这一轮人民币走强，背后最大的推手是谁？
 
-4月建筑支出亦环比增长0.4%，年化规模达2.172万亿美元。
+美元的弱势，是直接“导火索”。
 
-经济数据持续向好，强化美联储鹰派立场，提振美元走强，对铝价形成宏观压制。
+东方金诚首席宏观分析师王青对记者表示，受中东局势缓和以及市场判断日本当局干预汇市等影响，4月底以来美元指数持续走低，截至目前已跌破98，带动了包括人民币在内的主要非美货币普遍出现升值。
 
 ## 相关推荐
 
-- 2026-06-29 14:46 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 14:41 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 14:36 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 14:43 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 14:32 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 14:53 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 14:27 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 14:27 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 14:32 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 14:49 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 14:53 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 14:32 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 14:47 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 14:40 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 14:34 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 14:44 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 14:50 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 14:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 14:39 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 14:50 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/72511464221.shtml)
-- 2026-06-29 14:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/9987136.shtml)
-- 2026-06-29 14:42 - [金刚川](https://www.blog.kurohicncr.top/Article/details/16710582.shtml)
-- 2026-06-29 14:46 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/9123958879.shtml)
-- 2026-06-29 14:37 - [链博会上的机器人太全能了](http://www.blog.kurohicncr.top/Article/details/7188046.shtml)
-- 2026-06-29 14:35 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.minike.top/Article/details/81965299.shtml)
-- 2026-06-29 14:35 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/1395552.shtml)
-- 2026-06-29 14:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/1442923316.shtml)
-- 2026-06-29 14:48 - [事关个税 明日截止请抓紧办理](http://www.blog.minike.top/Article/details/253749034758.shtml)
-- 2026-06-29 14:45 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/51319727564.shtml)
-- 2026-06-29 14:42 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/77937922695.shtml)
-- 2026-06-29 14:27 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/1576183.shtml)
-- 2026-06-29 14:43 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/558740.shtml)
-- 2026-06-29 14:41 - [严浩翔FIY断层第一](https://www.blog.minike.top/Article/details/8834094.shtml)
-- 2026-06-29 14:27 - [韩国队启程回国众将回避镜头](https://www.blog.minike.top/Article/details/4721980.shtml)
+- 2026-06-29 14:55 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/1920884.shtml)
+- 2026-06-29 14:34 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/008714161.shtml)
+- 2026-06-29 14:50 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/53316827.shtml)
+- 2026-06-29 14:49 - [女心理师](https://www.blog.kurohicncr.top/Article/details/99016.shtml)
+- 2026-06-29 14:54 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/539757180346.shtml)
+- 2026-06-29 14:54 - [久坐小心“死臀综合征”](https://www.share.kurohicncr.top/Article/details/953557.shtml)
+- 2026-06-29 14:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/67968.shtml)
+- 2026-06-29 14:30 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/877418.shtml)
+- 2026-06-29 14:50 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/142281.shtml)
+- 2026-06-29 14:58 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/34581566158.shtml)
+- 2026-06-29 14:40 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/6601850.shtml)
+- 2026-06-29 14:48 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/224594642771.shtml)
+- 2026-06-29 14:33 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/046836589.shtml)
+- 2026-06-29 14:52 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/25675612.shtml)
+- 2026-06-29 14:35 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/202030.shtml)

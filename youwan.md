@@ -1,61 +1,56 @@
-# 康方生物依沃西再获突破，肺癌死亡风险降低34%
+# 美国称伊朗应在周五就止战方案作出答复 交火令紧张局势升级
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-康方生物自主研发的全球首创PD-1/VEGF双特异性抗体依沃西，在治疗晚期鳞状非小细胞肺癌的III期临床研究HARMONi-6中取得重大突破。与PD-1抑制剂联合化疗的标准方案相比，依沃西联合化疗可将患者死亡风险降低34%。 该研究的完整数据于2026年美国临床肿瘤学会年会开幕日作为重磅研究摘要发布，并同步发表于《柳叶刀》主刊。这是ASCO成立61年来，首个登上全体大会最高规格
+美国表示，期望伊朗很快就总统唐纳德·特朗普为结束双方战争提出的最新方案作出回应。而隔夜的冲突对持续一个月的停火构成进一步威胁。 美国国务卿对记者表示，伊朗“应该”在周五给出答复。 伊朗仍未表明是否会接受特朗普周三发出的方案。该方案提议，德黑兰在未来一个月内重新开放霍尔木兹海峡，美国则结束对伊朗港口的封锁。 这份一页纸文件暗示，只要伊朗接受，战争就将结束。尽管双方此后仍需就伊朗核
 
 ## 正文
 
-康方生物自主研发的全球首创PD-1/VEGF双特异性抗体依沃西，在治疗晚期鳞状非小细胞肺癌的III期临床研究HARMONi-6中取得重大突破。
+美国表示，期望伊朗很快就总统唐纳德·特朗普为结束双方战争提出的最新方案作出回应。
 
-与PD-1抑制剂联合化疗的标准方案相比，依沃西联合化疗可将患者死亡风险降低34%。
+而隔夜的冲突对持续一个月的停火构成进一步威胁。
 
-该研究的完整数据于2026年美国临床肿瘤学会年会开幕日作为重磅研究摘要发布，并同步发表于《柳叶刀》主刊。
+美国国务卿对记者表示，伊朗“应该”在周五给出答复。
 
-这是ASCO成立61年来，首个登上全体大会最高规格口头报告环节的中国原创新药研究成果。
+伊朗仍未表明是否会接受特朗普周三发出的方案。
 
-HARMONi-6研究共入组532例中国晚期鳞状非小细胞肺癌患者。
+该方案提议，德黑兰在未来一个月内重新开放霍尔木兹海峡，美国则结束对伊朗港口的封锁。
 
-经过中位21.36个月的随访，依沃西联合化疗组的中位总生存期达到27.9个月，而对照组为23.7个月，风险比为0.66。
+这份一页纸文件暗示，只要伊朗接受，战争就将结束。
 
-依沃西组的24个月生存率高达64.7%，对照组为48.6%，生存获益随时间推移持续扩大。
+尽管双方此后仍需就伊朗核计划达成协议。
 
-值得注意的是，无论患者PD-L1表达水平高低，依沃西均展现出一致的生存获益。
+这场战争已经在中东造成数千人死亡，并推动能源价格飙升。
 
 ## 相关推荐
 
-- 2026-06-29 14:41 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 14:45 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 14:44 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 14:39 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 14:33 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 14:29 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 14:49 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 14:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 14:53 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 14:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 14:48 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 14:44 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 14:46 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 14:29 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 14:35 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 14:51 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 14:45 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 14:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 14:34 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 14:54 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 14:36 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 14:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 14:48 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 14:47 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 14:45 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/20046.shtml)
-- 2026-06-29 14:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/756626.shtml)
-- 2026-06-29 14:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/97819.shtml)
-- 2026-06-29 14:34 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/81790770531.shtml)
-- 2026-06-29 14:35 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/99979.shtml)
-- 2026-06-29 14:27 - [5万块的威力](https://www.share.minike.top/Article/details/0777564738.shtml)
-- 2026-06-29 14:45 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/178843507.shtml)
-- 2026-06-29 14:46 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/868390261.shtml)
-- 2026-06-29 14:49 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/740183914310.shtml)
-- 2026-06-29 14:51 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/903792.shtml)
-- 2026-06-29 14:51 - [天道](http://www.share.minike.top/Article/details/067252.shtml)
-- 2026-06-29 14:42 - [人民日报评“AI脸看腻了”](https://www.blog.kurohicncr.top/Article/details/14573631.shtml)
-- 2026-06-29 14:46 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/6440565924.shtml)
-- 2026-06-29 14:52 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/6034817.shtml)
-- 2026-06-29 14:24 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/81452736.shtml)
+- 2026-06-29 14:45 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/39116362.shtml)
+- 2026-06-29 14:43 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/43489.shtml)
+- 2026-06-29 14:31 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/01880236.shtml)
+- 2026-06-29 14:30 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/205705463.shtml)
+- 2026-06-29 14:41 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/474332000.shtml)
+- 2026-06-29 14:37 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/208175.shtml)
+- 2026-06-29 14:59 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/335819974.shtml)
+- 2026-06-29 14:54 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/49591.shtml)
+- 2026-06-29 14:36 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/872788371.shtml)
+- 2026-06-29 14:58 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/02171394.shtml)
+- 2026-06-29 14:42 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/741526.shtml)
+- 2026-06-29 14:57 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/885738012112.shtml)
+- 2026-06-29 14:41 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/0652089031.shtml)
+- 2026-06-29 14:36 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/2156428.shtml)
+- 2026-06-29 14:32 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/03232541808.shtml)

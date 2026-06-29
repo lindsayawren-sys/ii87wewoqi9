@@ -1,58 +1,57 @@
-# IBM宣布投入超100亿美元布局量子计算
+# 停牌！ST文峰筹划控制权变更！
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-IBM今日宣布，计划在未来五年内向量子计算领域投入超过100亿美元。投资将用于研发、资本支出、规模化制造、生态合作及并购交易，全面加速IBM量子计算路线图，目标在2029年推出全球首台大规模容错量子计算机，并夯实美国在量子计算领域的领先地位。 该投资基于行业内最完备的量子技术基础，包括全球规模最大的量子计算机集群、应用最广泛的量子软件，以及由340余家机构组成、已投入实际业务运
+原标题：《停牌！ST文峰筹划控制权变更！》 连收三个跌停板后，文峰大世界连锁发展股份有限公司（以下简称“ST文峰”）宣布，控股股东正筹划控制权变更事宜。 5月8日，ST文峰发布公告称，公司于5月7日收到控股股东江苏文峰集团有限公司（以下简称“文峰集团”）通知，其正在筹划公司股份转让事宜，该事项可能导致公司控制权变更。 ST文峰原股票简称为文峰股份，主要从事百货、超市、电器以及购
 
 ## 正文
 
-IBM今日宣布，计划在未来五年内向量子计算领域投入超过100亿美元。
+原标题：《停牌！
 
-投资将用于研发、资本支出、规模化制造、生态合作及并购交易，全面加速IBM量子计算路线图，目标在2029年推出全球首台大规模容错量子计算机，并夯实美国在量子计算领域的领先地位。
+ST文峰筹划控制权变更！
 
-该投资基于行业内最完备的量子技术基础，包括全球规模最大的量子计算机集群、应用最广泛的量子软件，以及由340余家机构组成、已投入实际业务运行的客户与合作伙伴网络。
+》 连收三个跌停板后，文峰大世界连锁发展股份有限公司（以下简称“ST文峰”）宣布，控股股东正筹划控制权变更事宜。
 
-本轮投资将为该技术基础注入下一阶段发展动力，推动IBM从当前商用量子计算机，迈向容错级规模化系统。
+5月8日，ST文峰发布公告称，公司于5月7日收到控股股东江苏文峰集团有限公司（以下简称“文峰集团”）通知，其正在筹划公司股份转让事宜，该事项可能导致公司控制权变更。
 
-IBM董事长兼首席执行官表示：“量子时代并非未来，而是已经到来。
+ST文峰原股票简称为文峰股份，主要从事百货、超市、电器以及购物中心的连锁经营业务，主要经营地为江苏省南通市和上海市。
 
-全球各地的客户、合作伙伴与用户正借助IBM量子计算机，完成数年前无法实现的工作。
+大信会计师事务所（特殊普通合伙）作为公司2025年度内部控制审计机构，对公司2025年度内部控制出具了否定意见的内部控制审计报告。
 
-量子计算带来的发现速度正快速提升，这笔投资将支撑我们推出下一代量子硬件、软件与制造能力。
+根据中国证券监督管理委员会《上海证券交易所股票上市规则》第9.8.1条的相关规定，公司股票于2026年4月30日被实施其他风险警示，股票简称由“文峰股份”变更为“ST文峰”。
 
-”责任编辑：何云
+4月30日、5月6日、5月7日，ST文峰连续三个交易日一字跌停。
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 14:29 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 14:41 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 14:49 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 14:25 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 14:47 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 14:28 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 14:26 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 14:42 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 14:30 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 14:38 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 14:52 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 14:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 14:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 14:37 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 14:55 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 14:44 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 14:49 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 14:38 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 14:38 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 14:36 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 14:38 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 14:52 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/9987195946.shtml)
-- 2026-06-29 14:47 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/7068508245.shtml)
-- 2026-06-29 14:49 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.minike.top/Article/details/79002495846.shtml)
-- 2026-06-29 14:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/529021603836.shtml)
-- 2026-06-29 14:39 - [AG冠军五人组轮换](http://www.blog.kurohicncr.top/Article/details/55128511485.shtml)
-- 2026-06-29 14:32 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/47935083124.shtml)
-- 2026-06-29 14:51 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/1476056.shtml)
-- 2026-06-29 14:29 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/796378525204.shtml)
-- 2026-06-29 14:43 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/1466953.shtml)
-- 2026-06-29 14:46 - [一见倾心](http://www.share.minike.top/Article/details/1886104318.shtml)
-- 2026-06-29 14:39 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/476066.shtml)
-- 2026-06-29 14:28 - [和阿根廷球员家属一起看球](http://www.blog.minike.top/Article/details/3034623.shtml)
-- 2026-06-29 14:29 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/0250531430.shtml)
-- 2026-06-29 14:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/074793833.shtml)
-- 2026-06-29 14:37 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/036251.shtml)
+- 2026-06-29 14:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/3263139816.shtml)
+- 2026-06-29 14:59 - [世界杯超牛补水广告出现了](http://www.share.minike.top/Article/details/49246250.shtml)
+- 2026-06-29 14:34 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/107572083525.shtml)
+- 2026-06-29 14:52 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/86401726.shtml)
+- 2026-06-29 14:52 - [灿如繁星定档](http://www.blog.kurohicncr.top/Article/details/74651276.shtml)
+- 2026-06-29 14:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/31370897.shtml)
+- 2026-06-29 14:31 - [世界杯用球成部分门将噩梦](http://www.share.minike.top/Article/details/47450.shtml)
+- 2026-06-29 14:51 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/745783200466.shtml)
+- 2026-06-29 14:30 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/2881115.shtml)
+- 2026-06-29 14:40 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.kurohicncr.top/Article/details/63104051181.shtml)
+- 2026-06-29 14:41 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/511492.shtml)
+- 2026-06-29 14:53 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/34293630990.shtml)
+- 2026-06-29 14:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/419288456.shtml)
+- 2026-06-29 14:50 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/821631.shtml)
+- 2026-06-29 14:32 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/1421319140.shtml)

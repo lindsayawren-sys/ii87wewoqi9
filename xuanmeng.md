@@ -1,61 +1,60 @@
-# 新势力出海第一，零跑汽车的爆发力藏不住了
+# Koppers拟2026年关闭伊利诺伊工厂，预计自由现金流增2500万美元
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：环球老虎财经app 持续领跑，再创新纪录！零跑汽车5月交付达81569台，同比增超81%。5月，零跑汽车海外出口超2万台，领跑新势力海外销量。6月，公司全新C10、C11、C16即将焕新上市。 今日，零跑汽车5月交付数据出炉，单月交付量升至81569台，同比增长81%，延续了一季度以来的强劲爆发力。1
+特种化学品制造商Koppers Holdings宣布，计划在2026年底前关闭其位于伊利诺伊州富兰克林公园的生产设施。公司预计，此举将在关闭完成后每年带来约2500万美元的自由现金流增量。 工厂关闭详情 该工厂主要生产用于铁路和木制品处理行业的防腐化学品。Koppers表示，由于设施老化、运营成本上升以及环保合规投入不断增加，工厂的盈利能力持续受到挤压。此次关闭是公司为期三年的
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+特种化学品制造商Koppers Holdings宣布，计划在2026年底前关闭其位于伊利诺伊州富兰克林公园的生产设施。
 
-来源：环球老虎财经app 持续领跑，再创新纪录！
+公司预计，此举将在关闭完成后每年带来约2500万美元的自由现金流增量。
 
-零跑汽车5月交付达81569台，同比增超81%。
+工厂关闭详情 该工厂主要生产用于铁路和木制品处理行业的防腐化学品。
 
-5月，零跑汽车海外出口超2万台，领跑新势力海外销量。
+Koppers表示，由于设施老化、运营成本上升以及环保合规投入不断增加，工厂的盈利能力持续受到挤压。
 
-6月，公司全新C10、C11、C16即将焕新上市。
+此次关闭是公司为期三年的“运营卓越”计划的最后一步，该计划此前已包括宾夕法尼亚州和西弗吉尼亚州工厂的整合。
 
-今日，零跑汽车5月交付数据出炉，单月交付量升至81569台，同比增长81%，延续了一季度以来的强劲爆发力。
+关闭预计在2026年第四季度完成，约120名员工将受影响。
 
-1至5月，零跑汽车累计海外出口超7.5万台，其中，5月海外出口超2万台，领跑新势力海外销量。
+生产任务将转移至佐治亚州和俄亥俄州的现有工厂。
 
-受地缘政治风波、原油库存走低的催化，二季度，欧洲地区新能源汽车市场需求井喷。
+财务影响 Koppers预计，2026财年将产生约3000万至3500万美元的重组和减值费用，其中大部分为非现金支出。
 
 ## 相关推荐
 
-- 2026-06-29 14:39 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 14:50 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 14:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 14:26 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 14:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 14:53 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 14:35 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 14:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 14:24 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 14:47 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 14:31 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 14:53 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 14:52 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 14:35 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 14:45 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 14:52 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 14:30 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 14:49 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 14:33 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 14:51 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 14:31 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 14:30 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 14:46 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 14:33 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 14:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 14:51 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 14:44 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 14:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 14:31 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:25 - [爱情有烟火你是知道我爱看什么的](https://www.blog.kurohicncr.top/Article/details/684606.shtml)
-- 2026-06-29 14:51 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/15388997312.shtml)
-- 2026-06-29 14:24 - [爱情有烟火你是知道我爱看什么的](http://www.share.minike.top/Article/details/13016547808.shtml)
-- 2026-06-29 14:27 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/03373.shtml)
-- 2026-06-29 14:45 - [逃狱兄弟](https://www.share.minike.top/Article/details/4813748386.shtml)
-- 2026-06-29 14:39 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/383709575.shtml)
-- 2026-06-29 14:46 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/608314751521.shtml)
-- 2026-06-29 14:48 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/71980345.shtml)
-- 2026-06-29 14:48 - [异世界一点都不好玩！](http://www.share.kurohicncr.top/Article/details/1771718.shtml)
-- 2026-06-29 14:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/967274097.shtml)
-- 2026-06-29 14:31 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/44370059316.shtml)
-- 2026-06-29 14:44 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/723275.shtml)
-- 2026-06-29 14:44 - [把古诗里的动作换成加班](https://www.blog.kurohicncr.top/Article/details/9125551014.shtml)
-- 2026-06-29 14:41 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/910435690.shtml)
-- 2026-06-29 14:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/86931967.shtml)
+- 2026-06-29 14:36 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/3209944.shtml)
+- 2026-06-29 14:57 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/98271.shtml)
+- 2026-06-29 14:55 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/190991743247.shtml)
+- 2026-06-29 14:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/44166.shtml)
+- 2026-06-29 14:51 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/6614785.shtml)
+- 2026-06-29 14:43 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/9096575719.shtml)
+- 2026-06-29 14:56 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/72731941.shtml)
+- 2026-06-29 14:39 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/25229373791.shtml)
+- 2026-06-29 14:55 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/89472.shtml)
+- 2026-06-29 14:54 - [美国近12万名科技员工被解雇](https://www.blog.minike.top/Article/details/3127390.shtml)
+- 2026-06-29 14:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/3034180.shtml)
+- 2026-06-29 14:59 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/282547.shtml)
+- 2026-06-29 14:35 - [薛之谦演唱会](https://www.share.minike.top/Article/details/36066149336.shtml)
+- 2026-06-29 14:56 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/290140092.shtml)
+- 2026-06-29 14:55 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/01002145768.shtml)

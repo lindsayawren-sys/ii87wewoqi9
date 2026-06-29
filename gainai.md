@@ -1,57 +1,56 @@
-# 603272，股价翻倍！公司澄清：光芯片资产注入消息不实！
+# 5月8日外盘头条：美国计划本周重启护航行动 美国法院裁定特朗普10%进口关税违法 OpenAI与博通芯片豪赌遇冷
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！*ST联翔（维权）提示风险：股价击鼓传花效应明显，光芯片资产注入消息不实！ 4月下旬以来，*ST联翔（603272）多次涨停，股价自低点以来已翻倍。关于公司光芯片资产注入、控制权变更等传闻也引发关注。 *ST联翔主要从事墙布、窗帘等室内家居装饰用品的研发、设计、生产与销售业务，以及室内整体装饰装修工程业务。
+全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、特朗普政府计划本周重启护航行动 沙特与科威特解除美军基地及领空限制 2、美国国际贸易法院裁定特朗普10%进口关税违法 3、OpenAI与博通1800亿美元芯片豪赌遇冷：首期耗资180亿 但微软采购承诺仍未落地 4、CoreWeave一季度末签约总电力容量3.5吉瓦 年内股价涨近80% 5、阿波罗CEO警告巨大地缘政治重组来袭
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、特朗普政府计划本周重启护航行动 沙特与科威特解除美军基地及领空限制 2、美国国际贸易法院裁定特朗普10%进口关税违法 3、OpenAI与博通1800亿美元芯片豪赌遇冷：首期耗资180亿 但微软采购承诺仍未落地 4、CoreWeave一季度末签约总电力容量3.5吉瓦 年内股价涨近80% 5、阿波罗CEO警告巨大地缘政治重组来袭 世界尚未做好准备 6、纽约联储行长威廉姆斯：美联储将确保通胀下降 特朗普政府计划本周重启护航行动 沙特与科威特解除美军基地及领空限制 据美国和沙特官员透露，沙特阿拉伯与科威特已解除美军使用其军事基地及领空的限制。
 
-*ST联翔（维权）提示风险：股价击鼓传花效应明显，光芯片资产注入消息不实！
+此前美国启动旨在打通霍尔木兹海峡的行动后，两国实施了相关限制。
 
-4月下旬以来，*ST联翔（603272）多次涨停，股价自低点以来已翻倍。
+此举扫清了特朗普政府派遣舰船经由这条关键航道通行的一大障碍。
 
-关于公司光芯片资产注入、控制权变更等传闻也引发关注。
+美方官员称，特朗普政府目前计划重启护航行动——由海空力量护送商船通行。
 
-*ST联翔主要从事墙布、窗帘等室内家居装饰用品的研发、设计、生产与销售业务，以及室内整体装饰装修工程业务。
+该行动本周仅实施36小时便中途暂停。
 
-公司2025年实现营业收入为1.42亿元，扣除与主营业务无关的业务收入和不具备商业实质的收入后的营业收入为1.27亿元，低于3亿元。
+目前重启时间尚未确定，但五角大楼官员给出的时间表是最早可能在本周。
 
-根据《股票上市规则》，*ST联翔在2025年年度报告披露后被实施退市风险警示。
+美国此次旨在打通海峡的行动，依赖庞大机群保护商船免受伊朗导弹与无人机袭击，因此沙特和科威特的基地及领空对行动开展至关重要。
 
-6月1日晚间，*ST联翔发布股票交易异常波动暨风险提示公告，强调相关内容均为不实信息，并发布重要提示：“公司股价已严重偏离基本面，存在随时断崖式下跌、连续跌停的风险，投资者极易出现重大本金损失。
+美国国际贸易法院裁定特朗普10%进口关税违法 一个联邦法官小组当地时间周四裁定，美国总统特朗普在对大多数美国进口商品征收10%关税时违反了法律，这对白宫在未经国会明确授权情况下发动贸易战的努力而言，又是一次法律层面的挫败。
 
 ## 相关推荐
 
-- 2026-06-29 14:38 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 14:38 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 14:33 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 14:30 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 14:25 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 14:36 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 14:50 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 14:35 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 14:52 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 14:39 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 14:27 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 14:47 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 14:31 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 14:58 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 14:59 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 14:39 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 14:47 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 14:59 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 14:51 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 14:43 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 14:45 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:32 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/0616876093.shtml)
-- 2026-06-29 14:36 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/796872532.shtml)
-- 2026-06-29 14:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/039486720.shtml)
-- 2026-06-29 14:49 - [市民骑哈啰单车79分钟被收费30元](https://www.share.kurohicncr.top/Article/details/51103.shtml)
-- 2026-06-29 14:35 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/19277709241.shtml)
-- 2026-06-29 14:34 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/38708553.shtml)
-- 2026-06-29 14:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/61224670.shtml)
-- 2026-06-29 14:46 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/962556.shtml)
-- 2026-06-29 14:36 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/423920164.shtml)
-- 2026-06-29 14:50 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/123701.shtml)
-- 2026-06-29 14:52 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/8383678327.shtml)
-- 2026-06-29 14:46 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/868188548227.shtml)
-- 2026-06-29 14:29 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/809901125.shtml)
-- 2026-06-29 14:42 - [天道](https://www.blog.kurohicncr.top/Article/details/321359213.shtml)
-- 2026-06-29 14:50 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/899050310185.shtml)
+- 2026-06-29 14:40 - [马斯克也站到了光里](http://www.share.minike.top/Article/details/061330.shtml)
+- 2026-06-29 14:41 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/294392.shtml)
+- 2026-06-29 14:41 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/24615078226.shtml)
+- 2026-06-29 14:35 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.minike.top/Article/details/6439321518.shtml)
+- 2026-06-29 14:59 - [东部机场集团新增釜山航线](http://www.blog.kurohicncr.top/Article/details/985214.shtml)
+- 2026-06-29 14:50 - [爱情有烟火你是知道我爱看什么的](https://www.share.kurohicncr.top/Article/details/677510.shtml)
+- 2026-06-29 14:51 - [普京称考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/730765544.shtml)
+- 2026-06-29 14:59 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/37560060833.shtml)
+- 2026-06-29 14:56 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/964732503384.shtml)
+- 2026-06-29 14:39 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/57480134.shtml)
+- 2026-06-29 14:53 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.minike.top/Article/details/52930880.shtml)
+- 2026-06-29 14:55 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/45502028566.shtml)
+- 2026-06-29 14:43 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/89958.shtml)
+- 2026-06-29 14:42 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/16785064.shtml)
+- 2026-06-29 14:36 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/00596756730.shtml)

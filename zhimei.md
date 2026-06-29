@@ -1,53 +1,59 @@
-# 一艘货船在波斯湾遭袭并发生爆炸
+# 索尼宣布30亿美元股票回购计划
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-新华社伦敦6月1日电(记者高文成)英国海上贸易行动办公室6月1日通报说，一艘货船在波斯湾靠近伊拉克南部海域航行时被不明投射物击中并发生剧烈爆炸。 据通报，这艘货船当时正在波斯湾航行，其右舷被不明投射物击中，随后发生剧烈爆炸。目前尚未发现该事件造成环境污染或其他环境影响。通报未说明遭袭船只名称、国籍及船员伤亡情况。 通报所附图片显示，事发海域距伊拉克南部乌姆盖斯尔港东南约40海里
+索尼集团周五公布了基本符合市场预期的盈利展望，并宣布将最高回购5000亿日元（约合32亿美元）公司股票。 这家总部位于东京的企业预计，2027年3月财年营业利润将达1.6万亿日元，同比增幅约11%。刚结束的上一财年，索尼盈利水平有所提升，音乐业务与智能手机图像传感器业务成为业绩增长的最大主力。 消息公布后，索尼股价一度大涨7.3%，创下两个多月来最大单日盘中涨幅。 索尼表示，计
 
 ## 正文
 
-新华社伦敦6月1日电(记者高文成)英国海上贸易行动办公室6月1日通报说，一艘货船在波斯湾靠近伊拉克南部海域航行时被不明投射物击中并发生剧烈爆炸。
+索尼集团周五公布了基本符合市场预期的盈利展望，并宣布将最高回购5000亿日元（约合32亿美元）公司股票。
 
-据通报，这艘货船当时正在波斯湾航行，其右舷被不明投射物击中，随后发生剧烈爆炸。
+这家总部位于东京的企业预计，2027年3月财年营业利润将达1.6万亿日元，同比增幅约11%。
 
-目前尚未发现该事件造成环境污染或其他环境影响。
+刚结束的上一财年，索尼盈利水平有所提升，音乐业务与智能手机图像传感器业务成为业绩增长的最大主力。
 
-通报未说明遭袭船只名称、国籍及船员伤亡情况。
+消息公布后，索尼股价一度大涨7.3%，创下两个多月来最大单日盘中涨幅。
 
-通报所附图片显示，事发海域距伊拉克南部乌姆盖斯尔港东南约40海里，靠近伊拉克和科威特近海交界区域，是连接伊拉克港口与波斯湾主航道的重要航运水域。
+索尼表示，计划于5月29日注销3%的流通股份。
+
+受元器件成本飙升拖累，索尼东京上市股票年内跌幅已超20%，此次回购有望缓解股价下行压力。
+
+公司同时称，本年度PS5游戏机销售目标，将取决于能否以合理价格为这款旗舰主机采购到充足的存储芯片。
+
+目前索尼正推进业务全面重组，剥离亏损的硬件板块，集中资源发展知识产权驱动型业务。
 
 ## 相关推荐
 
-- 2026-06-29 14:32 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 14:42 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 14:49 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 14:40 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 14:34 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 14:29 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 14:24 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 14:38 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 14:46 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 14:41 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 14:29 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 14:29 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 14:42 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 14:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 14:48 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 14:55 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 14:48 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 14:36 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 14:53 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 14:48 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 14:38 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 14:46 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 14:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 14:38 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 14:49 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 14:53 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/036232620752.shtml)
-- 2026-06-29 14:30 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/403783737976.shtml)
-- 2026-06-29 14:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/324225372463.shtml)
-- 2026-06-29 14:40 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/7351434936.shtml)
-- 2026-06-29 14:35 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/34511387.shtml)
-- 2026-06-29 14:45 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/754227.shtml)
-- 2026-06-29 14:31 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/04792492.shtml)
-- 2026-06-29 14:46 - [天道](https://www.blog.minike.top/Article/details/721160065583.shtml)
-- 2026-06-29 14:48 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/173221.shtml)
-- 2026-06-29 14:52 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/1705107.shtml)
-- 2026-06-29 14:41 - [TOP 无畏契约](https://www.share.kurohicncr.top/Article/details/675427034.shtml)
-- 2026-06-29 14:30 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/27724662166.shtml)
-- 2026-06-29 14:24 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/1006202.shtml)
-- 2026-06-29 14:39 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/4648501.shtml)
-- 2026-06-29 14:38 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/293425047635.shtml)
+- 2026-06-29 14:49 - [强⁶](http://www.blog.kurohicncr.top/Article/details/72962320701.shtml)
+- 2026-06-29 14:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/47155170410.shtml)
+- 2026-06-29 14:47 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/1577680.shtml)
+- 2026-06-29 14:46 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/132792.shtml)
+- 2026-06-29 14:54 - [速度与激情9](https://www.share.minike.top/Article/details/886837.shtml)
+- 2026-06-29 14:58 - [北极荒岛生存挑战](https://www.blog.kurohicncr.top/Article/details/9307069777.shtml)
+- 2026-06-29 14:53 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/4358681.shtml)
+- 2026-06-29 14:45 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/94574.shtml)
+- 2026-06-29 14:57 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/4606517216.shtml)
+- 2026-06-29 14:57 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/8188556375.shtml)
+- 2026-06-29 14:46 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/003542.shtml)
+- 2026-06-29 14:33 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/76678151844.shtml)
+- 2026-06-29 14:32 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/039870989705.shtml)
+- 2026-06-29 14:55 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/4457025110.shtml)
+- 2026-06-29 14:59 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/5955274.shtml)

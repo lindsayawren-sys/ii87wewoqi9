@@ -1,53 +1,57 @@
-# 2026中国环塔国际拉力赛收车 外籍车手：希望更多人来中国参赛
+# 【新思想引领新征程】新型能源体系加快建设 筑牢能源安全根基
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 13:45 来源：中国新闻网 6月1日，2026中国环塔国际拉力赛在新疆阿克苏市闭幕。本届赛事历时17天，总赛程约7500公里，吸引了中国、俄罗斯、西班牙、墨西哥等多个国家和地区的车手参赛。多位选手表示这是20年来难度最高的一届环塔。赛事跨越多样地貌，13个赛段单日里程可达七八百公里，松软沙漠、坑洼赛道对车手体能与赛车性能都提出极高要求，车队也
+央视网消息（新闻联播）：习近平总书记强调，能源保障和安全事关国计民生，是须臾不可忽视的“国之大者”。当前，我国加快推进新型能源体系建设，加大清洁能源开发力度，提升清洁能源利用水平，能源安全韧性不断增强，为经济社会发展提供有力支撑。 今天的中国能源版图上，跃动着蓬勃的绿色动力。 在海上，153米的风机叶片旋转一圈发出62度电。一天时间里，全国所有风机发出的电，足够一座2000万人
 
 ## 正文
 
-发布时间：2026年06月02日 13:45 来源：中国新闻网 6月1日，2026中国环塔国际拉力赛在新疆阿克苏市闭幕。
+央视网消息（新闻联播）：习近平总书记强调，能源保障和安全事关国计民生，是须臾不可忽视的“国之大者”。
 
-本届赛事历时17天，总赛程约7500公里，吸引了中国、俄罗斯、西班牙、墨西哥等多个国家和地区的车手参赛。
+当前，我国加快推进新型能源体系建设，加大清洁能源开发力度，提升清洁能源利用水平，能源安全韧性不断增强，为经济社会发展提供有力支撑。
 
-多位选手表示这是20年来难度最高的一届环塔。
+今天的中国能源版图上，跃动着蓬勃的绿色动力。
 
-赛事跨越多样地貌，13个赛段单日里程可达七八百公里，松软沙漠、坑洼赛道对车手体能与赛车性能都提出极高要求，车队也需要全天候待命修整车辆。
+在海上，153米的风机叶片旋转一圈发出62度电。
 
-海内外车手均表示，环塔不仅是突破自我极限的赛场，更是连接各国友谊的桥梁，在这里既领略了新疆风光与中国文化，也收获了真挚情谊，不少车手已经定下明年参赛的目标，期待再赴极限之约。
+一天时间里，全国所有风机发出的电，足够一座2000万人口的超大城市居民用上一个月，也可以支撑238万辆新能源汽车的制造。
 
-(贾志鹏 新疆报道） 责任编辑：【罗攀】
+如今，全国每发出10度电，就有约4度来自于可再生能源。
+
+从2012年到2021年，不到十年，我国可再生能源装机量翻了2倍多，突破10亿千瓦，建成全球最大可再生能源体系；到2023年，我国可再生能源装机占全国电力总装机比重首次过半，历史性超过火电。
+
+目前，全国可再生能源装机已近24亿千瓦，占全球可再生能源装机近一半，有力支撑我国能源自给率稳定保持在80%以上。
 
 ## 相关推荐
 
-- 2026-06-29 14:25 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 14:44 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 14:29 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 14:52 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 14:42 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 14:24 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 14:50 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 14:28 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 14:29 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 14:53 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 14:38 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 14:59 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 14:46 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 14:53 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 14:45 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 14:58 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 14:56 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 14:50 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 14:40 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 14:42 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 14:47 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 14:56 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/836541.shtml)
-- 2026-06-29 14:46 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/3527602.shtml)
-- 2026-06-29 14:30 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/319729178.shtml)
-- 2026-06-29 14:35 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/79154.shtml)
-- 2026-06-29 14:33 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/65887647.shtml)
-- 2026-06-29 14:33 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/510208004512.shtml)
-- 2026-06-29 14:48 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/0441027.shtml)
-- 2026-06-29 14:50 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/3188231327.shtml)
-- 2026-06-29 14:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/940631.shtml)
-- 2026-06-29 14:28 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/97023.shtml)
-- 2026-06-29 14:50 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/1411020732.shtml)
-- 2026-06-29 14:32 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/855152309.shtml)
-- 2026-06-29 14:31 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/65933.shtml)
-- 2026-06-29 14:24 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/1076819387.shtml)
-- 2026-06-29 14:42 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/533638.shtml)
+- 2026-06-29 14:48 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/609211905.shtml)
+- 2026-06-29 14:45 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/6505870.shtml)
+- 2026-06-29 14:57 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/1478805.shtml)
+- 2026-06-29 14:40 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/2459440.shtml)
+- 2026-06-29 14:39 - [高考志愿今起开始填报](https://www.blog.minike.top/Article/details/24755.shtml)
+- 2026-06-29 14:33 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.kurohicncr.top/Article/details/10629651899.shtml)
+- 2026-06-29 14:30 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/60903653.shtml)
+- 2026-06-29 14:41 - [德国队前往比赛场地遭遇囧途](https://www.share.kurohicncr.top/Article/details/39100391288.shtml)
+- 2026-06-29 14:30 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/1904445.shtml)
+- 2026-06-29 14:31 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.minike.top/Article/details/862895233.shtml)
+- 2026-06-29 14:51 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/9805300.shtml)
+- 2026-06-29 14:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/476625162162.shtml)
+- 2026-06-29 14:43 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/06112589683.shtml)
+- 2026-06-29 14:59 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/10349811499.shtml)
+- 2026-06-29 14:57 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/7182129.shtml)

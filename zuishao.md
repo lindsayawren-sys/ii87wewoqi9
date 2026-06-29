@@ -1,57 +1,61 @@
-# 天津政银合作加码制造业 “智造”领域融资对接机制落地
+# 天津皇会踩街巡游 两岸信众共迎妈祖诞辰
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网天津6月2日电 (记者 周亚强)随着天津制造业转型升级持续推进，金融资源与产业需求的精准对接成为关键一环。近日，在2026世界智能产业博览会期间，天津市工业和信息化局与建设银行天津分行签署战略合作协议，围绕制造业高质量发展建立常态化融资对接机制。根据协议，双方将在产业科技创新、产业链韧性提升和制造业转型三大领域深化合作。具体而言，将定期梳理重点企业和重点项目的融资需求清单
+中新社天津5月8日电 (记者 周亚强)天后出巡散福暨天津皇会展演8日在天津古文化街举行。来自京津冀的十余支民间花会队伍随驾踩街散福，吸引众多两岸信众及游客参与。 这是天津天后宫纪念天后诞辰1066周年系列活动之一。700余人的展演队伍行进1.9公里，舞狮、中幡、法鼓等技艺轮番登场；天后华辇在銮驾簇拥下出巡，12把华盖宝伞随行，百人高跷队压阵。沿途不少民众合掌祈福。 台湾游客林钰
 
 ## 正文
 
-中新网天津6月2日电 (记者 周亚强)随着天津制造业转型升级持续推进，金融资源与产业需求的精准对接成为关键一环。
+中新社天津5月8日电 (记者 周亚强)天后出巡散福暨天津皇会展演8日在天津古文化街举行。
 
-近日，在2026世界智能产业博览会期间，天津市工业和信息化局与建设银行天津分行签署战略合作协议，围绕制造业高质量发展建立常态化融资对接机制。
+来自京津冀的十余支民间花会队伍随驾踩街散福，吸引众多两岸信众及游客参与。
 
-根据协议，双方将在产业科技创新、产业链韧性提升和制造业转型三大领域深化合作。
+这是天津天后宫纪念天后诞辰1066周年系列活动之一。
 
-具体而言，将定期梳理重点企业和重点项目的融资需求清单，推动金融产品与产业政策精准匹配。
+700余人的展演队伍行进1.9公里，舞狮、中幡、法鼓等技艺轮番登场；天后华辇在銮驾簇拥下出巡，12把华盖宝伞随行，百人高跷队压阵。
 
-在科技创新方面，重点支持企业技术研发、成果转化和创新平台建设；在产业链领域，围绕补链、延链、强链提供定制化融资安排；在制造业转型方面，加大对智能化改造和绿色化升级的信贷投放。
+沿途不少民众合掌祈福。
 
-此次合作是天津这座全国先进制造研发基地推动产融结合的最新动作。
+台湾游客林钰崴对中新社记者说，“妈祖信仰是联结两岸的共同文化符号。
 
-近年来，天津大力推进制造业立市，信创、高端装备、生物医药等十二条重点产业链加速集聚，对金融服务的深度和广度提出更高要求。
+” 天后宫是中国现存年代最早的妈祖庙之一，与福建湄洲妈祖庙、台湾北港朝天宫并称“世界三大妈祖庙”。
 
-将金融资源前置化、系统性地嵌入产业规划，正成为破解科技企业和制造企业融资难题的重要方向。
+今年适逢天后宫敕建700周年，当地推出“津韵妈祖·祈(七)百年福”主题系列活动，搭建全球妈祖文化交流平台。
 
 ## 相关推荐
 
-- 2026-06-29 14:52 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 14:41 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 14:49 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 14:38 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 14:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 14:31 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 14:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 14:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 14:46 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 14:37 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 14:53 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 14:45 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 14:34 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 14:54 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 14:30 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 14:30 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 14:46 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 14:45 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 14:52 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 14:50 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 14:35 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 14:56 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 14:33 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 14:54 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 14:41 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 14:30 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:35 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/339748.shtml)
-- 2026-06-29 14:27 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/33157762.shtml)
-- 2026-06-29 14:40 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.kurohicncr.top/Article/details/593591664358.shtml)
-- 2026-06-29 14:40 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/9612509102.shtml)
-- 2026-06-29 14:44 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.minike.top/Article/details/999503.shtml)
-- 2026-06-29 14:29 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/018038.shtml)
-- 2026-06-29 14:53 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/6353563755.shtml)
-- 2026-06-29 14:41 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/671451.shtml)
-- 2026-06-29 14:36 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/847116408739.shtml)
-- 2026-06-29 14:51 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/4712015282.shtml)
-- 2026-06-29 14:52 - [李在明称韩国足协任命了无能之人](https://www.share.kurohicncr.top/Article/details/2223697.shtml)
-- 2026-06-29 14:39 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.kurohicncr.top/Article/details/9384433.shtml)
-- 2026-06-29 14:50 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/35599608.shtml)
-- 2026-06-29 14:38 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/13466269.shtml)
-- 2026-06-29 14:27 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/3059938749.shtml)
+- 2026-06-29 14:49 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/9513550018.shtml)
+- 2026-06-29 14:46 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/2656974056.shtml)
+- 2026-06-29 14:49 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/2016643.shtml)
+- 2026-06-29 14:57 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/04419420.shtml)
+- 2026-06-29 14:51 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/082562026.shtml)
+- 2026-06-29 14:37 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/74089247857.shtml)
+- 2026-06-29 14:39 - [爱很美味](https://www.share.kurohicncr.top/Article/details/75251585144.shtml)
+- 2026-06-29 14:49 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/09452574165.shtml)
+- 2026-06-29 14:41 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/87469389612.shtml)
+- 2026-06-29 14:56 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/400508.shtml)
+- 2026-06-29 14:30 - [《贺子珍》](https://www.blog.minike.top/Article/details/8695781145.shtml)
+- 2026-06-29 14:55 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/7154739.shtml)
+- 2026-06-29 14:50 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/367214.shtml)
+- 2026-06-29 14:38 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/55186163.shtml)
+- 2026-06-29 14:37 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/9232990.shtml)

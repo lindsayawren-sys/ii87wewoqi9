@@ -1,56 +1,58 @@
-# 意大利驻华大使：文化是意中关系发展的关键驱动力
+# 一季度低空经济“冰火两重天”，商业化前夜的“破晓”还有多远？
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电 (记者 官逸伦)意大利共和国成立80周年庆祝活动1日晚间在意大利驻华大使馆举行。意大利驻华大使安博思出席并表示，文化是意中关系发展的关键驱动力。 去年是中意建交55周年。安博思说，在现代外交的时代到来前，两国文明就已经开始对话。“得益于众多旅行家、商人、学者和传教士的不懈努力，中国与西方的联系不断深化，知识也得以传播。” 在安博思看来，文化是两国关系的核心
+2026年一季度，A股低空经济板块的业绩呈现出显著的“冷热不均”。低空经济指数成分股中，实现营收正增长的个股达到45家，而营收出现下滑的亦有25家，显示出营收端的分化已近半数；利润端的争夺更为胶着，仅有36家公司实现了归母净利润的增长，而归母净利润出现下滑的公司数量多达34家，几乎与盈利者持平。这折射出当前低空经济板块的生存图景：尽管赛道热度不减，但受制于研发投入高企、商业化落
 
 ## 正文
 
-中新网北京6月2日电 (记者 官逸伦)意大利共和国成立80周年庆祝活动1日晚间在意大利驻华大使馆举行。
+2026年一季度，A股低空经济板块的业绩呈现出显著的“冷热不均”。
 
-意大利驻华大使安博思出席并表示，文化是意中关系发展的关键驱动力。
+低空经济指数成分股中，实现营收正增长的个股达到45家，而营收出现下滑的亦有25家，显示出营收端的分化已近半数；利润端的争夺更为胶着，仅有36家公司实现了归母净利润的增长，而归母净利润出现下滑的公司数量多达34家，几乎与盈利者持平。
 
-去年是中意建交55周年。
+这折射出当前低空经济板块的生存图景：尽管赛道热度不减，但受制于研发投入高企、商业化落地节奏不一以及订单交付周期的错位，过半数企业仍难以摆脱业绩阵痛，板块内部的马太效应正在悄然加剧。
 
-安博思说，在现代外交的时代到来前，两国文明就已经开始对话。
+产业链上下游也呈现出不同的发展态势：整机企业正处商业化前夜的冲刺阶段，业绩普遍承压；零部件企业业绩较为分化，但低空业务“成色”依然偏弱。
 
-“得益于众多旅行家、商人、学者和传教士的不懈努力，中国与西方的联系不断深化，知识也得以传播。
+其中，博云新材（002297.SZ）以125.94%的营收增速、13362.43%的净利增速领跑行业。
 
-” 在安博思看来，文化是两国关系的核心，是促进相互理解与交往的重要力量，这种理解与交往不仅存在于机构之间，也在民众之间。
+但该公司表示，主要为子公司博云东方收入增加及毛利率上升所致，若硬质合金主要原材料价格保持目前基本稳定的水平，根据博云东方现有库存、月均销量情况，硬质合金产品目前的高毛利率水平无法长期持续。
 
-“它同时构成一个更为广泛的框架，意中合作以及经济增长、高等教育、科学、技术、创新等其他重要领域都被涵盖其中。
+工业无人机业绩爆发目前在A股低空经济板块，整机标的以工业无人机企业、传统通用航空器制造企业为主，eVTOL企业绝大多数仍处于IPO前的高额融资与上市辅导状态。
 
-” 1946年6月2日，意大利举行全民投票废除君主立宪制成立共和国。
+eVTOL整机制造、通用航空器制造企业中，中信海直（000099.SZ）营利微增，山河智能（002097.SZ）营收微增，万丰奥威（维权）（002085.SZ）、中直股份（600038.SH）营净双降。
 
 ## 相关推荐
 
-- 2026-06-29 14:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 14:26 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 14:27 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 14:41 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 14:45 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 14:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 14:37 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 14:43 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 14:51 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 14:31 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 14:58 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 14:38 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 14:32 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 14:38 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 14:35 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 14:54 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 14:55 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 14:48 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 14:30 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 14:32 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 14:36 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 14:42 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:41 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/50064454961.shtml)
-- 2026-06-29 14:36 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/77724.shtml)
-- 2026-06-29 14:32 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/547626.shtml)
-- 2026-06-29 14:44 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/214947935972.shtml)
-- 2026-06-29 14:39 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.minike.top/Article/details/339492230405.shtml)
-- 2026-06-29 14:31 - [周杰伦演唱会真的好多人啊](http://www.share.kurohicncr.top/Article/details/16227.shtml)
-- 2026-06-29 14:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/5713703640.shtml)
-- 2026-06-29 14:33 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/01885668963.shtml)
-- 2026-06-29 14:31 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/317074054890.shtml)
-- 2026-06-29 14:38 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.kurohicncr.top/Article/details/1293835.shtml)
-- 2026-06-29 14:30 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/3252039382.shtml)
-- 2026-06-29 14:32 - [多家银行收紧个人贵金属业务](http://www.blog.kurohicncr.top/Article/details/75390276.shtml)
-- 2026-06-29 14:44 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.kurohicncr.top/Article/details/35787974622.shtml)
-- 2026-06-29 14:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/648246574076.shtml)
-- 2026-06-29 14:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/05790.shtml)
+- 2026-06-29 14:55 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.kurohicncr.top/Article/details/592002725843.shtml)
+- 2026-06-29 14:54 - [绘画区你赢了](http://www.blog.minike.top/Article/details/44232.shtml)
+- 2026-06-29 14:47 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/679100565350.shtml)
+- 2026-06-29 14:36 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/52458502.shtml)
+- 2026-06-29 14:57 - [急先锋](http://www.share.minike.top/Article/details/93901.shtml)
+- 2026-06-29 14:40 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/84092234275.shtml)
+- 2026-06-29 14:57 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/419378189.shtml)
+- 2026-06-29 14:38 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.minike.top/Article/details/49608591.shtml)
+- 2026-06-29 14:36 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/640429751.shtml)
+- 2026-06-29 14:49 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/63394049.shtml)
+- 2026-06-29 14:56 - [四川宜宾地震](https://www.blog.minike.top/Article/details/4681796411.shtml)
+- 2026-06-29 14:51 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/8037912103.shtml)
+- 2026-06-29 14:48 - [勇敢的心第二部](http://www.share.minike.top/Article/details/75561226062.shtml)
+- 2026-06-29 14:48 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/0256229.shtml)
+- 2026-06-29 14:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/639907.shtml)

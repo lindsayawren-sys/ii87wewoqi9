@@ -1,60 +1,60 @@
-# 国宝云集、规模空前 马王堆汉墓文物大展7月将登陆上海
+# 交通银行中高层调整 涉及多家省分行和交银国际信托
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网上海6月2日电 (记者 王笈)记者2日从新闻发布会上获悉，“千金之家——马王堆汉墓的生活美学及养成”国宝艺术大展将于7月3日至10月7日在上海美术馆重磅亮相，是马王堆50余年考古研究史上规模最大、等级规格最高的一次省外展出。 本次大展甄选195件(套)、共计472件展品，一级文物31件(套)，系统梳理马王堆汉墓辛追夫人等汉代贵族的生活风貌，深度呈现其生活美学与精神涵养的发
+来源：金融人事mini 4月29日，交通银行披露2026年一季报。今年1-3月，交行实现营业收入696.18亿元，同比增长4.89%；归母净利润261.62亿元，同比增长3.11%。截至一季度末，交行资产总额162，729.60亿元，较上年末增长4.66%。 同日，交行发布董事会决议公告，其中，提请股东会选举原建行首席信息官金磐石、原太保寿险董事长潘艳红为独立董事；聘任刘雷为交
 
 ## 正文
 
-中新网上海6月2日电 (记者 王笈)记者2日从新闻发布会上获悉，“千金之家——马王堆汉墓的生活美学及养成”国宝艺术大展将于7月3日至10月7日在上海美术馆重磅亮相，是马王堆50余年考古研究史上规模最大、等级规格最高的一次省外展出。
+来源：金融人事mini 4月29日，交通银行披露2026年一季报。
 
-本次大展甄选195件(套)、共计472件展品，一级文物31件(套)，系统梳理马王堆汉墓辛追夫人等汉代贵族的生活风貌，深度呈现其生活美学与精神涵养的发展脉络。
+今年1-3月，交行实现营业收入696.18亿元，同比增长4.89%；归母净利润261.62亿元，同比增长3.11%。
 
-展览实现三大历史性“首次”：马王堆一号墓T形帛画和马王堆三号墓T形帛画两幅母子T形帛画首次同期外展；对鸟菱形纹绮地“乘云绣”坐垫首次展出；菱形纹绮“安乐如意长寿无极”文字丝绵袍残片和油彩双层长方形漆妆奁首次外展。
+截至一季度末，交行资产总额162，729.60亿元，较上年末增长4.66%。
 
-同期展出的原件文物数量庞大、分量十足。
+同日，交行发布董事会决议公告，其中，提请股东会选举原建行首席信息官金磐石、原太保寿险董事长潘艳红为独立董事；聘任刘雷为交行首席信息官，待其任职获准后，副行长钱斌将不再兼任首席信息官。
 
-云纹漆具杯盒设计精妙，收纳稳固、兼顾便携，尽显汉代成熟漆艺；金银色火焰纹印花纱是迄今所见最早的三版套印印花丝织品，彰显汉代高超丝织工艺；马王堆一号汉墓出土的印花敷彩纱，是首次发现的最早的印花和彩绘相结合的高级丝织品，也是最早的“画衣”实物…… 湖南省博物馆二级研究馆员、马王堆研究院院长喻燕姣表示，马王堆汉墓发掘至今已逾50年，依然“常研常新”，本次来到上海展出是马王堆出省外展史上规模最大、等级最高的一次。
+一、新任首席信息官 刘雷，1972年生，华东理工大学工学学士，工程师，自2025年起任交行金融科技部总经理、金融科技创新研究院院长。
 
-“我期待汉代生活智慧走出学术论文与博物馆，被更多人看见、理解，让这场大展成为当代观众与汉代文明一场跨越两千年的深度对话与心灵共振。
+曾任交行数字化转型办公室主任，软件开发中心总经理，期间兼任交银金科董事长、总裁、交银金科筹建组副组长；软件开发中心（上海）总经理，软件开发中心副总经理、总经理助理，软件开发中心总工程师办公室高级经理、开发一部高级经理等职务。
 
-” 上海美术馆党委书记、执行馆长王一川表示，本次大展以创新形式活化珍贵文物内涵，呈现全感官沉浸体验，让观众跨越时空，感受两千年前汉代贵族的生活美学与精神世界。
+据年报介绍，交行持续强化数字金融顶层设计，成立数智化经营中心，提升集中集约效能；深化数字技术和数据要素创新应用，部署AI智能体助手超2，500个，覆盖精准营销、风险防控、业务流程再造、基层减负等场景。
 
-“展期内，我馆将以‘艺术之美’与‘生活之美’双线并行打造公教矩阵，特别推出名家讲座、艺术体验工坊、世界文明互鉴教学课、多层级专业讲解等，全面解读马王堆的艺术文化密码与汉代生活美学，让观众在艺术中达成心灵疗愈。
+2025年，交行金融科技投入123.42亿元，同比上升6.81%；为营业收入的5.78%，同比上升0.32个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 14:49 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 14:28 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 14:51 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 14:53 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 14:36 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 14:52 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 14:51 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 14:44 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 14:30 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 14:24 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 14:35 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 14:53 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 14:37 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 14:48 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 14:37 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 14:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 14:48 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 14:57 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 14:57 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 14:30 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 14:47 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 14:37 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 14:57 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 14:38 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 14:42 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 14:47 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 14:44 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/83502844771.shtml)
-- 2026-06-29 14:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/047123.shtml)
-- 2026-06-29 14:39 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/95683396.shtml)
-- 2026-06-29 14:34 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/6616317.shtml)
-- 2026-06-29 14:24 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/2776132.shtml)
-- 2026-06-29 14:29 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/2227983712.shtml)
-- 2026-06-29 14:27 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/40145.shtml)
-- 2026-06-29 14:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/6980097759.shtml)
-- 2026-06-29 14:43 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/92254950423.shtml)
-- 2026-06-29 14:50 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/85410651831.shtml)
-- 2026-06-29 14:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/591524794923.shtml)
-- 2026-06-29 14:41 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/668211617.shtml)
-- 2026-06-29 14:34 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/099297637169.shtml)
-- 2026-06-29 14:46 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/829583910.shtml)
-- 2026-06-29 14:38 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/0042405651.shtml)
+- 2026-06-29 14:44 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/726002.shtml)
+- 2026-06-29 14:46 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/930611584.shtml)
+- 2026-06-29 14:50 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/807942.shtml)
+- 2026-06-29 14:36 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.kurohicncr.top/Article/details/510121750.shtml)
+- 2026-06-29 14:38 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/1888266.shtml)
+- 2026-06-29 14:54 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/133557650.shtml)
+- 2026-06-29 14:40 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/918290900447.shtml)
+- 2026-06-29 14:48 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.kurohicncr.top/Article/details/483824209.shtml)
+- 2026-06-29 14:40 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/1639619.shtml)
+- 2026-06-29 14:32 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/821944788.shtml)
+- 2026-06-29 14:30 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/420151.shtml)
+- 2026-06-29 14:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/80580207735.shtml)
+- 2026-06-29 14:36 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/51979181762.shtml)
+- 2026-06-29 14:57 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/489883.shtml)
+- 2026-06-29 14:46 - [四川宜宾地震](http://www.blog.minike.top/Article/details/224742414372.shtml)

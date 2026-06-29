@@ -1,57 +1,56 @@
-# 2025年安徽省空气质量六项指标达国家二级或以上标准
+# 阳光保险2025年业绩“两重天”：寿险首破千亿，信保业务亏损15亿元
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网合肥6月2日电 (付敏)安徽省生态环境厅厅长曹哨兵2日在安徽省政府新闻办举行的新闻发布会上说，2025年，安徽省空气质量六项指标达到国家空气质量二级或以上标准。 其中，安徽省PM2.5浓度34.3微克/立方米，同比改善2.6%；PM10浓度55.7微克/立方米，同比改善1.8%；O3浓度151微克/立方米，同比改善4.4%；NO2浓度20微克/立方米，同比改善4.8%；S
+来源：泰山财经 近日，阳光保险集团股份有限公司（证券代码：06963.HK，下称“阳光保险”）发布了2025年度报告。年度报告数据显示，集团总保费收入突破1500亿元，人寿保险依托银保渠道实现规模跃升，新业务价值增长近五成；财险承保端却由盈转亏，信用保证保险业务成为其主要亏损来源。 集团整体财务数据显示，2025年阳光保险实现总保费收入1507.2亿元，同比增长17.4%；归属
 
 ## 正文
 
-中新网合肥6月2日电 (付敏)安徽省生态环境厅厅长曹哨兵2日在安徽省政府新闻办举行的新闻发布会上说，2025年，安徽省空气质量六项指标达到国家空气质量二级或以上标准。
+来源：泰山财经 近日，阳光保险集团股份有限公司（证券代码：06963.HK，下称“阳光保险”）发布了2025年度报告。
 
-其中，安徽省PM2.5浓度34.3微克/立方米，同比改善2.6%；PM10浓度55.7微克/立方米，同比改善1.8%；O3浓度151微克/立方米，同比改善4.4%；NO2浓度20微克/立方米，同比改善4.8%；SO2浓度7微克/立方米、CO浓度0.9毫克/立方米，两项指标同比持平。
+年度报告数据显示，集团总保费收入突破1500亿元，人寿保险依托银保渠道实现规模跃升，新业务价值增长近五成；财险承保端却由盈转亏，信用保证保险业务成为其主要亏损来源。
 
-安徽省优良天数比例83.8%，同比改善1.6个百分点。
+集团整体财务数据显示，2025年阳光保险实现总保费收入1507.2亿元，同比增长17.4%；归属于母公司股东的净利润达63.1亿元，同比增长15.7%；集团内含价值1207.8亿元，较上年末增长4.3%。
 
-在酸雨方面，安徽省降水pH年均值为6.05，同比上升0.24；平均酸雨频率5.9%，同比下降4.9个百分点，酸雨状况总体改善。
+剔除信用保证险后的财险承保综合成本率为98.9%，仍实现承保盈利4.9亿元，但纳入该险种后，财险整体承保综合成本率攀升至102.1%，全年承保亏损10.3亿元。
 
-安徽省生态环境厅副厅长项磊介绍说，“十四五”以来，安徽省将深入打好蓝天保卫战作为污染防治攻坚战重中之重，全力推进环境空气质量提质升级，民众蓝天幸福感持续增强。
+分业务板块来看，寿险业务成为拉动集团增长的核心引擎。
 
-在推动综合治理方面，完成3500万吨钢铁、6118万吨水泥、1120万吨焦化产能超低排放升级。
+阳光人寿全年总保费收入1026.1亿元，同比增长27.5%，保费规模突破千亿；新业务价值76.4亿元，同比增长48.2%。
 
-全面淘汰35蒸吨以下燃煤锅炉，加快推动65蒸吨以上燃煤锅炉及发电机组实现超净排放。
+渠道结构上，银保渠道贡献了主要增量，全年实现保费收入674.6亿元，同比增长34.8%，新单保费增速高达69.0%。
 
-淘汰国三及以下排放标准营运柴油货车21.2万辆。
+与之相比，阳光人寿个险渠道仍处于转型阵痛期，全年新单保费60.5亿元，同比下滑7.6%。
 
 ## 相关推荐
 
-- 2026-06-29 14:35 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 14:43 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 14:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 14:41 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 14:29 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 14:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 14:29 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 14:37 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 14:26 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 14:40 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 14:48 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 14:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 14:45 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 14:32 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 14:47 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 14:52 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 14:44 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 14:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 14:52 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 14:56 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 14:34 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:25 - [上班主打一个薪尽自然凉](http://www.share.kurohicncr.top/Article/details/154610.shtml)
-- 2026-06-29 14:46 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/96513197988.shtml)
-- 2026-06-29 14:27 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/613052866.shtml)
-- 2026-06-29 14:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/98219500.shtml)
-- 2026-06-29 14:52 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.minike.top/Article/details/971684856349.shtml)
-- 2026-06-29 14:45 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/7390499.shtml)
-- 2026-06-29 14:43 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/561064645489.shtml)
-- 2026-06-29 14:45 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/110326.shtml)
-- 2026-06-29 14:39 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/770114502.shtml)
-- 2026-06-29 14:50 - [毒液2](https://www.blog.minike.top/Article/details/024879.shtml)
-- 2026-06-29 14:35 - [毒液2](https://www.share.minike.top/Article/details/626109385.shtml)
-- 2026-06-29 14:52 - [NBA交易](https://www.share.minike.top/Article/details/08728672197.shtml)
-- 2026-06-29 14:47 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/263792092824.shtml)
-- 2026-06-29 14:50 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/683917.shtml)
-- 2026-06-29 14:33 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/48963248.shtml)
+- 2026-06-29 14:44 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/36618527870.shtml)
+- 2026-06-29 14:58 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/8382804952.shtml)
+- 2026-06-29 14:37 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/1140526.shtml)
+- 2026-06-29 14:31 - [青春环游记第三季](http://www.blog.minike.top/Article/details/506724817.shtml)
+- 2026-06-29 14:52 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/36234.shtml)
+- 2026-06-29 14:53 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/450716279085.shtml)
+- 2026-06-29 14:40 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/83683.shtml)
+- 2026-06-29 14:56 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/396071487062.shtml)
+- 2026-06-29 14:50 - [医药股集体爆发](http://www.blog.kurohicncr.top/Article/details/87873147191.shtml)
+- 2026-06-29 14:57 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/462260845582.shtml)
+- 2026-06-29 14:32 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/732703.shtml)
+- 2026-06-29 14:38 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/042167023.shtml)
+- 2026-06-29 14:49 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/0734860.shtml)
+- 2026-06-29 14:50 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/1679819709.shtml)
+- 2026-06-29 14:47 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/947726195.shtml)

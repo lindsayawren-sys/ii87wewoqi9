@@ -1,59 +1,57 @@
-# 光大期货：6月2日能源化工日报
+# 美国司法部与农业数据企业Agri Stats就反垄断诉讼达成和解
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周一油价重心上涨，其中WTI 7月合约收盘上涨4.8美元至92.16美元/桶，涨幅5.49%。布伦特新换8月合约收盘上涨3.86美元至94.98美元/桶，涨幅4.24%。SC2607以605.7元/桶收盘，上涨20.9元/桶，涨幅3.57%。据伊朗媒体1日报道，伊朗和“抵抗阵线”计划彻底封锁霍尔
+美国司法部门与印第安纳州农业数据企业Agri Stats就一项反垄断诉讼达成和解协议。美国联邦政府此前指控该公司利用数据共享机制推高肉类市场价格，此次和解旨在恢复肉类加工业的市场竞争，以期平抑美国国内居高不下的食品成本。 涉案公司Agri Stats长期收集肉类加工企业的非公开信息，并通过内部行业报告的形式进行共享。美国司法部调查指出，这一行为使得鸡肉、猪肉及火鸡加工商能够利用
 
 ## 正文
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周一油价重心上涨，其中WTI 7月合约收盘上涨4.8美元至92.16美元/桶，涨幅5.49%。
+美国司法部门与印第安纳州农业数据企业Agri Stats就一项反垄断诉讼达成和解协议。
 
-布伦特新换8月合约收盘上涨3.86美元至94.98美元/桶，涨幅4.24%。
+美国联邦政府此前指控该公司利用数据共享机制推高肉类市场价格，此次和解旨在恢复肉类加工业的市场竞争，以期平抑美国国内居高不下的食品成本。
 
-SC2607以605.7元/桶收盘，上涨20.9元/桶，涨幅3.57%。
+涉案公司Agri Stats长期收集肉类加工企业的非公开信息，并通过内部行业报告的形式进行共享。
 
-据伊朗媒体1日报道，伊朗和“抵抗阵线”计划彻底封锁霍尔木兹海峡，并在曼德海峡等其他“战线”开启行动。
+美国司法部调查指出，这一行为使得鸡肉、猪肉及火鸡加工商能够利用信息不对称，向无法获取相关数据的餐饮企业、零售超市等买方单方面抬高售价。
 
-据伊朗塔斯尼姆通讯社1日报道，伊朗官员表示，以色列必须立即停止在黎巴嫩和加沙地带的军事行动，并从黎巴嫩撤出。
+根据拟议的和解协议，Agri Stats将被强制要求向美国本土买方公开其从加工企业处收集的绝大部分数据。
 
-在此要求得到满足前，伊朗不会举行任何谈判。
+针对该案，美国代理司法部长托德·布兰奇发表声明指出，稳定且可负担的食品供应事关美国国家福祉，司法部的核心工作是保障全体民众的日常生活成本。
 
-地缘再度反转引发油价低位反弹，国内方面，因近期原料成本持续处于高位，地炼企业生产经营面临较大压力，其向有关部门正式提交了停产检修申请。
+这项诉讼最初由拜登政府启动，现任特朗普政府的司法部官员将其视为降低食品价格的一项阶段性成果。
 
-该申请已获得批准，预计将于本周内启动全厂停产检修。
+Agri Stats公司总裁埃里克·斯科勒对案件的终结表示欢迎，强调公司曾在提升禽肉行业效率方面发挥关键作用，未来将继续为客户提供业务支持。
 
 ## 相关推荐
 
-- 2026-06-29 14:32 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 14:45 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 14:39 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 14:47 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 14:29 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 14:28 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 14:39 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 14:40 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 14:25 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 14:31 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 14:26 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 14:37 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 14:37 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 14:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 14:56 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 14:46 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 14:42 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 14:43 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 14:46 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 14:52 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 14:38 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 14:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 14:57 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 14:36 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/57098206.shtml)
-- 2026-06-29 14:36 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/82622.shtml)
-- 2026-06-29 14:47 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/49323073.shtml)
-- 2026-06-29 14:28 - [媒体评恋与深空争议](http://www.blog.kurohicncr.top/Article/details/243918.shtml)
-- 2026-06-29 14:35 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/885021.shtml)
-- 2026-06-29 14:53 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/8080318332.shtml)
-- 2026-06-29 14:32 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/257075744237.shtml)
-- 2026-06-29 14:25 - [手游300亿数据或被军事化运用](http://www.blog.kurohicncr.top/Article/details/00336940.shtml)
-- 2026-06-29 14:24 - [人民日报评“AI脸看腻了”](http://www.blog.kurohicncr.top/Article/details/780827.shtml)
-- 2026-06-29 14:31 - [扬名立万](https://www.blog.minike.top/Article/details/911541.shtml)
-- 2026-06-29 14:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/025430078377.shtml)
-- 2026-06-29 14:51 - [北极荒岛生存挑战](https://www.blog.kurohicncr.top/Article/details/8491459281.shtml)
-- 2026-06-29 14:25 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/8565424.shtml)
-- 2026-06-29 14:36 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/68786.shtml)
-- 2026-06-29 14:34 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/27810.shtml)
+- 2026-06-29 14:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/27430729.shtml)
+- 2026-06-29 14:37 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/2606808576.shtml)
+- 2026-06-29 14:53 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/41028771.shtml)
+- 2026-06-29 14:38 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/9352687.shtml)
+- 2026-06-29 14:39 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/3285109.shtml)
+- 2026-06-29 15:00 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/524813.shtml)
+- 2026-06-29 14:30 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/083949635234.shtml)
+- 2026-06-29 14:51 - [美的空调 卡bug](http://www.share.minike.top/Article/details/01637.shtml)
+- 2026-06-29 14:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/00596837.shtml)
+- 2026-06-29 14:36 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/62853.shtml)
+- 2026-06-29 14:43 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/661034488.shtml)
+- 2026-06-29 14:34 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/6507141.shtml)
+- 2026-06-29 14:41 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/746834.shtml)
+- 2026-06-29 14:41 - [把古诗里的动作换成加班](http://www.blog.minike.top/Article/details/8772784.shtml)
+- 2026-06-29 14:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/4910993.shtml)

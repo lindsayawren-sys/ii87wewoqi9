@@ -1,61 +1,61 @@
-# 洋河产品韩国上市推荐会举行 绵柔酒香架起中韩合作新桥梁
+# 全系标配华为智能 宝骏全尺寸SUV华境S明晚上市：有望15万起售
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-专题：中韩企业可持续发展交流会 5月26日至28日，由新浪财经与洋河股份联合主办、中国国际商会协办的“可持续全球领导者大会海外专场”在韩国首尔举行。作为系列活动之一，洋河产品韩国上市推荐会于26日晚举办，中韩经贸、酒水行业及餐饮文化领域代表出席。 南京贸易（株）代表理事Yoo Hosung、全球报告倡议组织（GRI）前董事吕建中、洋河股份代表分别致辞。 Yoo Hosung表示
+快科技5月7日消息，上汽通用五菱宝骏华境S将于明晚上市，该车是五菱与华为深化战略合作的首款旗舰车型，但价格会有惊喜，从网上吹风看，起售价大概率会在15万元左右。该车基于天域架构L平台打造，采用了典型的新能源设计风格，同样使用了贯通式头灯，但没有配备分体式灯组，且保留大尺寸的六边形格栅，看起来很有气势。贯穿式车灯样式很独特，尤其是两侧灯腔内部的折线造型，还集合了转向灯，点亮后辨识
 
 ## 正文
 
-专题：中韩企业可持续发展交流会 5月26日至28日，由新浪财经与洋河股份联合主办、中国国际商会协办的“可持续全球领导者大会海外专场”在韩国首尔举行。
+快科技5月7日消息，上汽通用五菱宝骏华境S将于明晚上市，该车是五菱与华为深化战略合作的首款旗舰车型，但价格会有惊喜，从网上吹风看，起售价大概率会在15万元左右。
 
-作为系列活动之一，洋河产品韩国上市推荐会于26日晚举办，中韩经贸、酒水行业及餐饮文化领域代表出席。
+该车基于天域架构L平台打造，采用了典型的新能源设计风格，同样使用了贯通式头灯，但没有配备分体式灯组，且保留大尺寸的六边形格栅，看起来很有气势。
 
-南京贸易（株）代表理事Yoo Hosung、全球报告倡议组织（GRI）前董事吕建中、洋河股份代表分别致辞。
+贯穿式车灯样式很独特，尤其是两侧灯腔内部的折线造型，还集合了转向灯，点亮后辨识度相当强。
 
-Yoo Hosung表示，洋河进入韩国市场已有十年，通过持续市场拓展，目前已进入国际航空免税渠道，并获得韩国演艺界及主流人群认可。
+侧面保持了传统SUV的设计，拥有黑色轮拱以及大尺寸的轮圈，翼子板上设有摄像头模组，同时还是用了传统样式的电子+机械一体门把手。
 
-他强调品牌发展离不开文化共享，未来将继续推动中韩经贸与文化交流。
+其长宽高5235*1999*1800mm，轴距为3105mm，采用了六座布局，定位家用，六座满员状态下后备箱仍有423L容积，主打量大管饱。
 
-吕建中指出，洋河是诞生于绿水青山、在绿色发展中成长的民族企业，始终怀揣为人民美好生活而酿造的使命，积极践行ESG理念，以大生态观坚持长期主义，以大生命观与伙伴共生，以大生产观与时代同行。
+车尾也配有贯穿灯组，灯腔内部的光源同样采用了折线设计，点亮后会形成酷似闪电的图案效果，与车头相呼应。
 
-他期望洋河以此次战略合作为新起点，拓宽国际版图，以醇香美酒拉近各国人民情谊，推动文化互通与商贸交流。
+内饰为鸿蒙座舱，提供檀香棕、象牙米两款内饰颜色，采用环抱式设计，平直的中控台线条搭配全液晶仪表、悬浮式中控屏以及双拼色多功能方向盘，同时提供后排双侧小桌板、吸顶屏以及副驾驶老板键等。
 
-活动现场，两项战略合作签约顺利完成：一是韩国中餐文化交流协会与韩国南京贸易（株）签署战略合作协议；二是在韩中国白酒协会、韩国南京贸易（株）与江苏洋河酒厂股份有限公司签署三方深度战略合作协议。
+华境S搭载华为舱内激光视觉（Limera）方案，标配乾崑ADS Pro增强版，首批上市即支持城区领航辅助NCA，标配华为乾崑全维主动安全系统，还有哨兵模式、星闪数字钥匙、全场景云服务等。
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 14:30 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 14:30 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 14:43 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 14:40 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 14:52 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 14:35 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 14:27 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 14:44 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 14:45 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 14:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 14:30 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 14:49 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 14:41 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 14:41 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 14:51 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 14:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 14:47 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 14:46 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 14:46 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 14:35 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 14:30 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 14:39 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 14:50 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 14:57 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 14:30 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 14:47 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 14:53 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 14:41 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 14:31 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:28 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.kurohicncr.top/Article/details/9493216021.shtml)
-- 2026-06-29 14:25 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/64455929800.shtml)
-- 2026-06-29 14:47 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/6870413.shtml)
-- 2026-06-29 14:39 - [东部机场集团新增釜山航线](http://www.blog.minike.top/Article/details/3496856709.shtml)
-- 2026-06-29 14:48 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/344880345030.shtml)
-- 2026-06-29 14:24 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/971441.shtml)
-- 2026-06-29 14:27 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/219748.shtml)
-- 2026-06-29 14:48 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/340957.shtml)
-- 2026-06-29 14:42 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/724063125.shtml)
-- 2026-06-29 14:43 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/078366523270.shtml)
-- 2026-06-29 14:28 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/3809428609.shtml)
-- 2026-06-29 14:50 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/632747771287.shtml)
-- 2026-06-29 14:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/57085.shtml)
-- 2026-06-29 14:43 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/06754.shtml)
-- 2026-06-29 14:37 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/4243025.shtml)
+- 2026-06-29 14:52 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/745258360.shtml)
+- 2026-06-29 14:53 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/772377381.shtml)
+- 2026-06-29 14:58 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/1173664.shtml)
+- 2026-06-29 14:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/03527008.shtml)
+- 2026-06-29 14:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/999814189289.shtml)
+- 2026-06-29 14:57 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/471780.shtml)
+- 2026-06-29 14:59 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/0927790.shtml)
+- 2026-06-29 14:42 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/11383740724.shtml)
+- 2026-06-29 14:53 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/79012339.shtml)
+- 2026-06-29 14:48 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/44403909697.shtml)
+- 2026-06-29 14:53 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/521649409344.shtml)
+- 2026-06-29 14:51 - [一生一世](https://www.blog.kurohicncr.top/Article/details/5945902.shtml)
+- 2026-06-29 14:56 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.minike.top/Article/details/1893495815.shtml)
+- 2026-06-29 14:59 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/32323.shtml)
+- 2026-06-29 14:40 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/771233811.shtml)

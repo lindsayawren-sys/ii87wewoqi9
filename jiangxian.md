@@ -1,59 +1,55 @@
-# 空气炸锅纸加热致癌？咖啡滤纸含荧光剂？真相来了
+# 除了“全李酒店”，还有“又庭酒店”“希堓酒店”“喆翡酒店”“桠朵酒店”
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-近期，“空气炸锅纸加热致癌”“蒸笼纸存在蒸发残渣值超标”“白色咖啡滤纸含有荧光剂”等网络传言出现，这些是真的吗？上海市消保委对市面上主流的25款烹饪用纸进行了检测，揭开真相。 25款烹饪用纸未检出致癌物 近期，网传“蒸笼纸蒸发残渣值超标”以及“蒸笼纸中含有3-MCPD(3-氯-1,2-丙二醇)和1,3-DCP (1,3-二氯-2-丙醇)两种致癌物”的说法引发了消费者关注。 检测
+中新网5月7日电(记者 吴家驹)近日，大连一家名为“全李”的酒店被指碰瓷“全季酒店”，引起广泛关注。5月7日，记者发现，在多个酒店预订平台，该酒店已更名为“华宇酒店”。 此外，记者查询某酒店预订平台发现，目前全国多地存在多家酒店，其名字与其他知名酒店品牌颇为相似。例如，安徽天长一家酒店名为“又庭”，与“汉庭酒店”相似；青海西宁一家酒店名为“希堓”，与“希岸酒店”相似；青海西宁一
 
 ## 正文
 
-近期，“空气炸锅纸加热致癌”“蒸笼纸存在蒸发残渣值超标”“白色咖啡滤纸含有荧光剂”等网络传言出现，这些是真的吗？
+中新网5月7日电(记者 吴家驹)近日，大连一家名为“全李”的酒店被指碰瓷“全季酒店”，引起广泛关注。
 
-上海市消保委对市面上主流的25款烹饪用纸进行了检测，揭开真相。
+5月7日，记者发现，在多个酒店预订平台，该酒店已更名为“华宇酒店”。
 
-25款烹饪用纸未检出致癌物 近期，网传“蒸笼纸蒸发残渣值超标”以及“蒸笼纸中含有3-MCPD(3-氯-1,2-丙二醇)和1,3-DCP (1,3-二氯-2-丙醇)两种致癌物”的说法引发了消费者关注。
+此外，记者查询某酒店预订平台发现，目前全国多地存在多家酒店，其名字与其他知名酒店品牌颇为相似。
 
-检测人员模拟蒸笼纸接触油性、酸性等不同食物的实际使用场景开展安全检测，本次共检测了25款烹饪用纸，包含7款空气炸锅纸、6款蒸笼垫纸、6款食物吸油纸和6款咖啡滤纸。
+例如，安徽天长一家酒店名为“又庭”，与“汉庭酒店”相似；青海西宁一家酒店名为“希堓”，与“希岸酒店”相似；青海西宁一家酒店名为“喆翡”，与“喆啡酒店”相似；海南陵水一家酒店名为“桠朵”，与“亚朵酒店”相似。
 
-蒸发残渣值，是指纸张在特定高温下，析出并迁移到食物中的非挥发性物质总量。
-
-本次检测结果显示，所有样品的蒸发残渣值均在标准限值内，也并未检出3-MCPD(3-氯-1,2-丙二醇)和1,3-DCP(1,3-二氯-2-丙醇)等致癌物。
-
-网传“空气炸锅纸加热有毒、会致癌”？
-
-除了蒸笼纸，有关空气炸锅纸的安全问题也有不少争议，有网友担心高温加热会释放致癌物。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:44 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 14:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 14:26 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 14:25 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 14:31 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 14:53 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 14:26 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 14:46 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 14:47 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 14:43 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 14:27 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 14:39 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 14:52 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 14:35 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 14:38 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 14:37 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 14:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 14:50 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 14:54 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 14:38 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 14:36 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 14:56 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 14:50 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 14:30 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 14:41 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 14:49 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 14:46 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 14:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:51 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.kurohicncr.top/Article/details/0526106.shtml)
-- 2026-06-29 14:45 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/510610.shtml)
-- 2026-06-29 14:37 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/5516812871.shtml)
-- 2026-06-29 14:51 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/3393192.shtml)
-- 2026-06-29 14:34 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/257139.shtml)
-- 2026-06-29 14:42 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/677495136474.shtml)
-- 2026-06-29 14:28 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/89617188.shtml)
-- 2026-06-29 14:52 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/015310.shtml)
-- 2026-06-29 14:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/411866.shtml)
-- 2026-06-29 14:43 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/3017742439.shtml)
-- 2026-06-29 14:36 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/19223638.shtml)
-- 2026-06-29 14:29 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/32800742.shtml)
-- 2026-06-29 14:42 - [世界杯超牛补水广告出现了](http://www.share.minike.top/Article/details/046567348204.shtml)
-- 2026-06-29 14:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/565206168.shtml)
-- 2026-06-29 14:51 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.minike.top/Article/details/40876.shtml)
+- 2026-06-29 14:51 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/52893376556.shtml)
+- 2026-06-29 14:53 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.kurohicncr.top/Article/details/40014616.shtml)
+- 2026-06-29 14:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/0597606338.shtml)
+- 2026-06-29 14:52 - [民进党为什么拼命抹黑统战](https://www.share.minike.top/Article/details/79334650.shtml)
+- 2026-06-29 14:36 - [东部机场集团新增釜山航线](http://www.blog.minike.top/Article/details/1400506.shtml)
+- 2026-06-29 14:59 - [高考公平需要延伸到志愿填报这一环](https://www.share.minike.top/Article/details/3645600129.shtml)
+- 2026-06-29 14:50 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/88077348905.shtml)
+- 2026-06-29 14:42 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/7274527737.shtml)
+- 2026-06-29 14:58 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/8712378.shtml)
+- 2026-06-29 14:45 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/276729.shtml)
+- 2026-06-29 14:55 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/2978034.shtml)
+- 2026-06-29 14:43 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/3271854581.shtml)
+- 2026-06-29 14:40 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/7936576867.shtml)
+- 2026-06-29 14:57 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/543473789.shtml)
+- 2026-06-29 14:49 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/775457.shtml)

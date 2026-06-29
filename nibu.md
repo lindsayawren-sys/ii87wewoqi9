@@ -1,61 +1,49 @@
-# 光大期货0602黄金点评：地缘局势反复，金价弱势运行
+# 周鸿祎：智能体的安全问题很多，越“聪明”越可能失控
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-6月1日，COMEX黄金震荡下行，报收4514.8美元/盎司，跌幅1.70%。国内SHFE金夜盘先跌后涨，但仍未收回日盘跌幅，报收980.34元/克，跌幅1.28%。 美国5月ISM制造业新订单指数56.8，大幅高于预期 54.8和前值 54.1，连续五个月扩张，其中新订单增速加速至四个月高位，就业指数有所改善，但通胀压力仍然存在。地缘政治方面，为抗议以军扩大在黎行动，据伊媒称
+发布时间：2026年05月07日 17:52 来源：中国新闻网 近日，360集团创始人周鸿祎在接受采访时表示，当前受到关注的智能体存在很多安全问题，这些智能体越“聪明”越可能失控。(宋宇晟） 责任编辑：【程春雨】
 
 ## 正文
 
-6月1日，COMEX黄金震荡下行，报收4514.8美元/盎司，跌幅1.70%。
+发布时间：2026年05月07日 17:52 来源：中国新闻网 近日，360集团创始人周鸿祎在接受采访时表示，当前受到关注的智能体存在很多安全问题，这些智能体越“聪明”越可能失控。
 
-国内SHFE金夜盘先跌后涨，但仍未收回日盘跌幅，报收980.34元/克，跌幅1.28%。
-
-美国5月ISM制造业新订单指数56.8，大幅高于预期 54.8和前值 54.1，连续五个月扩张，其中新订单增速加速至四个月高位，就业指数有所改善，但通胀压力仍然存在。
-
-地缘政治方面，为抗议以军扩大在黎行动，据伊媒称伊朗将暂停与美国通过中间人沟通，计划彻底封锁霍尔木兹海峡；但特朗普则称美伊或于一周内达成协议，延长停火并重开霍尔木兹海峡。
-
-地缘政治的反复性使得金价走势再次面临不确定性，另外虽然美伊谈判取得一定突破，但霍尔木兹海峡通航问题及中东炼油措施损毁仍约束着油价，这也就意味着美通胀预期仍偏高，美联储整体或仍偏鹰，追涨风险度仍较高。
-
-特别是在美联储6月议息前后，宜谨慎看待，同时降低上半年预期。
-
-本周重点关注美国5月非农就业数据对盘面的指引。
-
-资料来源：Wind、光大期货研究所 撰稿：史玥明 从业资格：F03097365 交易咨询资格：Z0017563 免责声明：本报告的信息均来源于公开资料，我公司对这些信息的准确性、可靠性和完整性不作任何保证，也不保证所包含的信息和建议不会发生任何变更。
+(宋宇晟） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 14:28 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 14:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 14:46 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 14:37 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 14:53 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 14:33 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 14:41 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 14:25 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 14:37 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 14:35 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 14:45 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 14:52 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 14:31 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 14:41 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 14:53 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 14:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 14:51 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 14:47 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 14:45 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 14:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 14:31 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 14:30 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 14:49 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 14:46 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 14:45 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 14:34 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 14:41 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 14:41 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 14:40 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/57645.shtml)
-- 2026-06-29 14:50 - [吴昕要助理买的药6年前已停产](http://www.share.minike.top/Article/details/662700117127.shtml)
-- 2026-06-29 14:25 - [四川宜宾地震](http://www.blog.minike.top/Article/details/464630.shtml)
-- 2026-06-29 14:41 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/0821574565.shtml)
-- 2026-06-29 14:42 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/586752190.shtml)
-- 2026-06-29 14:51 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/3067941.shtml)
-- 2026-06-29 14:34 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/667270.shtml)
-- 2026-06-29 14:36 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/246007866.shtml)
-- 2026-06-29 14:35 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/37196650471.shtml)
-- 2026-06-29 14:40 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/1020303444.shtml)
-- 2026-06-29 14:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/235352001547.shtml)
-- 2026-06-29 14:51 - [行程万里不忘初心](https://www.share.minike.top/Article/details/7077384505.shtml)
-- 2026-06-29 14:43 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/063400162216.shtml)
-- 2026-06-29 14:28 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/305302593135.shtml)
-- 2026-06-29 14:49 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/271215984494.shtml)
+- 2026-06-29 14:50 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/13048.shtml)
+- 2026-06-29 14:34 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/02934043893.shtml)
+- 2026-06-29 14:48 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/300220182903.shtml)
+- 2026-06-29 14:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/45267291.shtml)
+- 2026-06-29 14:59 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/023113794430.shtml)
+- 2026-06-29 14:31 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/41230.shtml)
+- 2026-06-29 14:55 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/6424720318.shtml)
+- 2026-06-29 14:43 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/693090.shtml)
+- 2026-06-29 14:42 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/56471210.shtml)
+- 2026-06-29 14:39 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/4153353.shtml)
+- 2026-06-29 14:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/55890615.shtml)
+- 2026-06-29 14:56 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/126694860284.shtml)
+- 2026-06-29 14:59 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/913094222793.shtml)
+- 2026-06-29 14:34 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/9899681468.shtml)
+- 2026-06-29 14:57 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/0217910.shtml)

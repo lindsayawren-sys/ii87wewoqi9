@@ -1,51 +1,57 @@
-# 四川天府新区党工委原委员、管委会原副主任陈洪涛被“双开”
+# 多个板块表现活跃 A股成交额连续两日超过3万亿元
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网成都6月2日电 (记者 张浪)成都市纪委监委2日消息：日前，经成都市委批准，成都市纪委监委对四川天府新区党工委原委员、管委会原副主任陈洪涛严重违纪违法问题进行了立案审查调查。 经查，陈洪涛丧失理想信念，背弃初心使命，私自阅看、浏览有严重政治问题的报刊、书籍和音像制品，结交政治骗子，对抗组织审查；无视中央八项规定精神，违规收受礼品，接受可能影响公正执行公务的宴请；违反组织原
+5月7日，A股市场继续走强，三大指数全线上涨，深证成指、创业板指均涨逾1%，创业板指再创近11年新高。光通信、玻璃纤维、光芯片、PEEK材料等板块表现活跃，整个A股市场超3500只股票上涨，逾120只股票涨停，其中东山精密、澜起科技、兆易创新等多只大盘成长股创历史新高。市场成交额为3.17万亿元，连续2个交易日成交额超3万亿元。A股总市值超过131万亿元，创历史新高。 资金面上
 
 ## 正文
 
-中新网成都6月2日电 (记者 张浪)成都市纪委监委2日消息：日前，经成都市委批准，成都市纪委监委对四川天府新区党工委原委员、管委会原副主任陈洪涛严重违纪违法问题进行了立案审查调查。
+5月7日，A股市场继续走强，三大指数全线上涨，深证成指、创业板指均涨逾1%，创业板指再创近11年新高。
 
-经查，陈洪涛丧失理想信念，背弃初心使命，私自阅看、浏览有严重政治问题的报刊、书籍和音像制品，结交政治骗子，对抗组织审查；无视中央八项规定精神，违规收受礼品，接受可能影响公正执行公务的宴请；违反组织原则，不按要求报告个人去向，利用职权违规为他人谋取人事利益；廉洁底线失守，借用管理和服务对象钱款，违规经商办企业，将应由本人支付的费用由他人支付；违规干预插手市场经济活动；违反生活纪律；利用职务上的便利，为他人在工程项目承揽等方面谋取利益并收受巨额财物。
+光通信、玻璃纤维、光芯片、PEEK材料等板块表现活跃，整个A股市场超3500只股票上涨，逾120只股票涨停，其中东山精密、澜起科技、兆易创新等多只大盘成长股创历史新高。
 
-陈洪涛严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+市场成交额为3.17万亿元，连续2个交易日成交额超3万亿元。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经成都市纪委常委会会议研究并报成都市委批准，决定给予陈洪涛开除党籍处分；由成都市监委给予其开除公职处分；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+A股总市值超过131万亿元，创历史新高。
 
-(完)
+资金面上，5月6日A股融资余额创历史新高，5月7日沪深两市超2200只股票出现主力资金净流入，资金情绪仍然乐观。
+
+分析人士认为，外部扰动影响淡化，国内经济形势向好、政策定调积极，风险偏好稳中改善，市场将延续震荡上涨态势，大盘成长占优的中期逻辑仍将成立。
+
+● 本报记者 吴玉华 A股总市值超131万亿元 5月7日，A股市场继续走强。
+
+截至收盘，上证指数、深证成指、创业板指、科创综指、北证50指数分别上涨0.48%、1.18%、1.45%、1.99%、3.05%，上证指数报收4180.09点，创业板指报收3833.06点，创业板指再创近11年新高。
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 14:35 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 14:27 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 14:27 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 14:52 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 14:27 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 14:43 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 14:27 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 14:25 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 14:38 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 14:38 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 14:50 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 14:41 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 14:42 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 14:44 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 14:39 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 14:33 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 14:53 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 14:37 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 14:43 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 14:39 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 14:42 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:37 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/284873861357.shtml)
-- 2026-06-29 14:26 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/3051232325.shtml)
-- 2026-06-29 14:38 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/155870.shtml)
-- 2026-06-29 14:35 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/92287015871.shtml)
-- 2026-06-29 14:52 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/64120.shtml)
-- 2026-06-29 14:52 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/54005.shtml)
-- 2026-06-29 14:41 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/012231487.shtml)
-- 2026-06-29 14:49 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/53667806924.shtml)
-- 2026-06-29 14:33 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/10451.shtml)
-- 2026-06-29 14:51 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/6471586.shtml)
-- 2026-06-29 14:46 - [游戏数据被用于军事目的 国安部提醒](https://www.share.minike.top/Article/details/512967.shtml)
-- 2026-06-29 14:30 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/552089457.shtml)
-- 2026-06-29 14:35 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/55226659045.shtml)
-- 2026-06-29 14:27 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/172862.shtml)
-- 2026-06-29 14:48 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/70508.shtml)
+- 2026-06-29 14:34 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/50253085.shtml)
+- 2026-06-29 14:37 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.minike.top/Article/details/4846425.shtml)
+- 2026-06-29 14:58 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/6965831769.shtml)
+- 2026-06-29 14:33 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/000503.shtml)
+- 2026-06-29 14:44 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/56576638541.shtml)
+- 2026-06-29 14:49 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/563362.shtml)
+- 2026-06-29 14:46 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.kurohicncr.top/Article/details/331258946347.shtml)
+- 2026-06-29 14:34 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/418453001.shtml)
+- 2026-06-29 14:59 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/348855357.shtml)
+- 2026-06-29 14:52 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/40514148292.shtml)
+- 2026-06-29 14:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/58691020.shtml)
+- 2026-06-29 14:36 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/88152.shtml)
+- 2026-06-29 14:43 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/4707274.shtml)
+- 2026-06-29 14:58 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/9022592473.shtml)
+- 2026-06-29 14:34 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/43655365130.shtml)

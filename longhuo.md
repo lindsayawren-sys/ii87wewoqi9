@@ -1,57 +1,56 @@
-# 新款Windows PC芯片提振英伟达与Arm股价盘前上涨 高通和AMD走低
+# 徐州贾汪非法排污事件追踪：清污工作仍在继续
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-英伟达在盘前交易中上涨1.9%，此前该公司宣布将携一款新产品进军个人电脑处理器市场，将Arm架构中央处理器与Blackwell代图形处理器集成。受此消息带动，Arm股价上涨7.5%，高通下跌3.6%。 市场认为，英伟达的新芯片可能会加剧与高通骁龙系列产品的竞争。目前骁龙系列产品被广泛应用于Windows AI PC。 英特尔下跌1.8%，AMD下跌1.7%。 这两家公司凭借x8
+中新网徐州5月8日电 (记者 唐娟)5月7日晚，《焦点访谈》栏目报道了江苏徐州贾汪区一条12公里的农田灌溉渠沦为污染水沟。5月8日，中新社记者赶赴贾汪区紫庄镇新屋村，现场了解到涉事羊副产品加工作坊已被查封，沟渠黑臭污水被连夜抽排转运。截至记者发稿时，现场清污工作仍在进行。 记者在现场看到，沟渠内黑臭水体已基本被抽干，沟底沉积的黑色淤泥裸露在外。现场空气中仍弥漫着刺鼻恶臭，沟渠周
 
 ## 正文
 
-英伟达在盘前交易中上涨1.9%，此前该公司宣布将携一款新产品进军个人电脑处理器市场，将Arm架构中央处理器与Blackwell代图形处理器集成。
+中新网徐州5月8日电 (记者 唐娟)5月7日晚，《焦点访谈》栏目报道了江苏徐州贾汪区一条12公里的农田灌溉渠沦为污染水沟。
 
-受此消息带动，Arm股价上涨7.5%，高通下跌3.6%。
+5月8日，中新社记者赶赴贾汪区紫庄镇新屋村，现场了解到涉事羊副产品加工作坊已被查封，沟渠黑臭污水被连夜抽排转运。
 
-市场认为，英伟达的新芯片可能会加剧与高通骁龙系列产品的竞争。
+截至记者发稿时，现场清污工作仍在进行。
 
-目前骁龙系列产品被广泛应用于Windows AI PC。
+记者在现场看到，沟渠内黑臭水体已基本被抽干，沟底沉积的黑色淤泥裸露在外。
 
-英特尔下跌1.8%，AMD下跌1.7%。
+现场空气中仍弥漫着刺鼻恶臭，沟渠周边蚊蝇乱飞。
 
-这两家公司凭借x86架构长期占据笔记本电脑和台式机CPU市场的绝大部分份额。
+据现场工作人员介绍，目前主要工作已从污水抽运转入沟底清淤。
 
-除苹果Mac产品线之外，大多数个人电脑都采用英特尔或AMD的处理器。
+多台挖掘机正在对沟底淤泥进行清理作业，清出的淤泥将被统一收集并按照相关规定进行无害化处置。
 
-PC厂商则延续近期涨势，戴尔上涨2.9%，慧与公司上涨6.9%。
+此前，当地政府已连夜调配10辆槽罐车，累计转运受污染水体68吨至工业废水处理厂进行专业处置。
 
 ## 相关推荐
 
-- 2026-06-29 14:51 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 14:38 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 14:32 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 14:35 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 14:50 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 14:48 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 14:29 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 14:40 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 14:37 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 14:39 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 14:32 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 14:49 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 14:35 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 14:53 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 14:33 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 14:37 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 14:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 14:37 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 14:40 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 14:50 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 14:33 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:46 - [上班主打一个薪尽自然凉](https://www.blog.minike.top/Article/details/954081800.shtml)
-- 2026-06-29 14:51 - [AG 钟意](http://www.share.minike.top/Article/details/623982.shtml)
-- 2026-06-29 14:40 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/32725.shtml)
-- 2026-06-29 14:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/94255.shtml)
-- 2026-06-29 14:51 - [苹果回应恋与深空低分](http://www.share.minike.top/Article/details/563535.shtml)
-- 2026-06-29 14:49 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/992015528.shtml)
-- 2026-06-29 14:46 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/52265.shtml)
-- 2026-06-29 14:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/61076123738.shtml)
-- 2026-06-29 14:47 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/07730.shtml)
-- 2026-06-29 14:29 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/6965074730.shtml)
-- 2026-06-29 14:36 - [南非老帅布罗斯的梦没能做完](https://www.share.kurohicncr.top/Article/details/71579103.shtml)
-- 2026-06-29 14:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/25289799422.shtml)
-- 2026-06-29 14:50 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/593667555.shtml)
-- 2026-06-29 14:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/23774849.shtml)
-- 2026-06-29 14:50 - [航空运输旅客服务质量国标将实施](https://www.share.minike.top/Article/details/275792956.shtml)
+- 2026-06-29 14:45 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/619164501.shtml)
+- 2026-06-29 14:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/23770.shtml)
+- 2026-06-29 14:32 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/21260979193.shtml)
+- 2026-06-29 14:58 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/421477086945.shtml)
+- 2026-06-29 14:34 - [崔韩率还以为韩娱来新人了](http://www.blog.kurohicncr.top/Article/details/117905887995.shtml)
+- 2026-06-29 14:42 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/371710058912.shtml)
+- 2026-06-29 14:31 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/7718647.shtml)
+- 2026-06-29 14:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/3477048165.shtml)
+- 2026-06-29 14:36 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/215844310.shtml)
+- 2026-06-29 14:36 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/37128273095.shtml)
+- 2026-06-29 14:57 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/04958818453.shtml)
+- 2026-06-29 14:47 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/0710627.shtml)
+- 2026-06-29 14:45 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/7248234.shtml)
+- 2026-06-29 14:37 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/96565102886.shtml)
+- 2026-06-29 14:48 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/303555136.shtml)

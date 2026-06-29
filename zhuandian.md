@@ -1,56 +1,61 @@
-# 专访江碧波：一江碧波奔流不息 八十余载以艺载道
+# “我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月1日电 题：专访江碧波：一江碧波奔流不息 八十余载以艺载道 作者 梁钦卿 长江之畔，重庆长江大桥的南北桥头，《春夏秋冬》四座雕塑静立江畔，已栉风沐雨近42载，见证着西部山城的朝夕更迭、四季轮转。而这组城市地标作品的创作者之一——江碧波，而今虽至耄耋，却仍手握画具，在艺术创作中常青。 位于重庆巴南的江碧波艺术博物馆内，87岁的江碧波教授精神矍铄、谈吐沉稳。作为知名艺
+新浪科技讯 5月8日下午消息，母亲节临近，OPPO官微今日发布一则母亲节文案，不过配图中的“我妈有两个老公”的措辞引发争议，被网友质疑价值观不正。#OPPO 文案价值观#也登上了微博热搜。 据悉，在OPPO文案的配图中，有一张追星的图片，配文是“我妈有两个‘老公’，一个是我爸，另一个一年见两回。跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。”文案本意是为表达“是温柔妈妈，也是
 
 ## 正文
 
-中新网重庆6月1日电 题：专访江碧波：一江碧波奔流不息 八十余载以艺载道 作者 梁钦卿 长江之畔，重庆长江大桥的南北桥头，《春夏秋冬》四座雕塑静立江畔，已栉风沐雨近42载，见证着西部山城的朝夕更迭、四季轮转。
+新浪科技讯 5月8日下午消息，母亲节临近，OPPO官微今日发布一则母亲节文案，不过配图中的“我妈有两个老公”的措辞引发争议，被网友质疑价值观不正。
 
-而这组城市地标作品的创作者之一——江碧波，而今虽至耄耋，却仍手握画具，在艺术创作中常青。
+#OPPO 文案价值观#也登上了微博热搜。
 
-位于重庆巴南的江碧波艺术博物馆内，87岁的江碧波教授精神矍铄、谈吐沉稳。
+据悉，在OPPO文案的配图中，有一张追星的图片，配文是“我妈有两个‘老公’，一个是我爸，另一个一年见两回。
 
-作为知名艺术家和美学教育家，江老近日在馆内接受中新网独家专访，缓缓诉说八十余载艺路初心、家国情怀与精神坚守。
+跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。
 
-江碧波的艺术之路，自年少时便埋下伏笔。
+”文案本意是为表达“是温柔妈妈，也是追星女孩”的主题，但相关措辞引发网友吐槽，认为容易引发歧义，涉嫌违背公序良俗。
 
-她生于抗战动荡岁月，家国蒙难、时局飘摇，父亲江敉背井离乡，辗转各地。
+引发争议后，目前该文案对外已不可见。
 
-江敉深耕漫画、版画领域，旅居上海期间创作大量抗战题材作品，以艺术抒发保家卫国、奋起抗争的赤诚心声。
+今日下午，OPPO官微再次发布了一则新的母亲节文案，但在网友们的吐槽声中，该文案开启了评论精选。
 
-年少的江碧波，深深浸染于父亲的家国情怀与艺术风骨之中。
+针对此事，截至发稿前，OPPO官方暂无回应。
 
 ## 相关推荐
 
-- 2026-06-29 14:51 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 14:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 14:48 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 14:53 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 14:27 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 14:25 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 14:53 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 14:39 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 14:37 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 14:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 14:40 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 14:31 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 14:56 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 14:36 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 14:42 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 14:51 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 14:49 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 14:41 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 14:46 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 14:31 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 14:47 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 14:55 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 14:38 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 14:58 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 14:35 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:36 - [天道](https://www.blog.kurohicncr.top/Article/details/898755.shtml)
-- 2026-06-29 14:52 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/7007988401.shtml)
-- 2026-06-29 14:39 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/093999.shtml)
-- 2026-06-29 14:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/185026.shtml)
-- 2026-06-29 14:25 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/65018903486.shtml)
-- 2026-06-29 14:28 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/444904725630.shtml)
-- 2026-06-29 14:43 - [中国邮政上海分公司总经理李柏平被查](http://www.share.minike.top/Article/details/88357.shtml)
-- 2026-06-29 14:43 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/4029901077.shtml)
-- 2026-06-29 14:48 - [TOP 无畏契约](https://www.share.minike.top/Article/details/89502939.shtml)
-- 2026-06-29 14:26 - [周生如故](http://www.share.kurohicncr.top/Article/details/33311576789.shtml)
-- 2026-06-29 14:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/875918.shtml)
-- 2026-06-29 14:52 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/48487.shtml)
-- 2026-06-29 14:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/989369479.shtml)
-- 2026-06-29 14:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/799092.shtml)
-- 2026-06-29 14:27 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/368825393.shtml)
+- 2026-06-29 14:38 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/76574.shtml)
+- 2026-06-29 14:35 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/57672629.shtml)
+- 2026-06-29 14:32 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/437753564177.shtml)
+- 2026-06-29 14:52 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/87132526131.shtml)
+- 2026-06-29 14:45 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/513027623860.shtml)
+- 2026-06-29 14:30 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/98498501222.shtml)
+- 2026-06-29 14:56 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/33086.shtml)
+- 2026-06-29 14:45 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/86111547980.shtml)
+- 2026-06-29 14:55 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/177319955234.shtml)
+- 2026-06-29 14:41 - [F1奥地利正赛战报](https://www.share.kurohicncr.top/Article/details/86437191.shtml)
+- 2026-06-29 14:42 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.minike.top/Article/details/79476.shtml)
+- 2026-06-29 14:44 - [105年初心滚烫](https://www.blog.minike.top/Article/details/52518658.shtml)
+- 2026-06-29 14:42 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/08239.shtml)
+- 2026-06-29 14:43 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/888797903.shtml)
+- 2026-06-29 14:58 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/15308556.shtml)

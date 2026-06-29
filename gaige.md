@@ -1,57 +1,57 @@
-# 评估价7折流拍，再打8折续拍！前海财险20%股权累计折价44%
+# 2026抖音电商国货消费报告：直播电商助力新市场、新人群双增长
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-来源：机构之家 数日前，北京金融法院在阿里司法拍卖平台公开拍卖的钜盛华所持新疆前海联合财产保险股份有限公司（下称“前海财险”）20%股权（对应出资额高达2亿元，评估价4400万元，起拍价3080万元，保证金308万元），再次因无人出价以流拍告终。 拍卖仍在继续，目前二拍公告悄然上线，起拍价进一步下探至2464万元，较前次起拍价3080万元打了八折，保证金也同步下调至240万元，
+近日，抖音电商发布《2026抖音电商国货消费数据报告》(以下简称“报告”)。报告显示，过去一年，抖音电商新增活跃国货商家数同比增长47%，直播间成交额占比达到63%，国货商品好评率达93.8%，国货消费延续增长态势。 在直播电商的带动下，国货消费呈现两方面变化。一是消费品类持续扩容，技术型国货、老字号、非遗和新锐赛道共同丰富供给；二是消费人群持续扩大，中青年群体保持消费主力地位
 
 ## 正文
 
-来源：机构之家 数日前，北京金融法院在阿里司法拍卖平台公开拍卖的钜盛华所持新疆前海联合财产保险股份有限公司（下称“前海财险”）20%股权（对应出资额高达2亿元，评估价4400万元，起拍价3080万元，保证金308万元），再次因无人出价以流拍告终。
+近日，抖音电商发布《2026抖音电商国货消费数据报告》(以下简称“报告”)。
 
-拍卖仍在继续，目前二拍公告悄然上线，起拍价进一步下探至2464万元，较前次起拍价3080万元打了八折，保证金也同步下调至240万元，试图以更低门槛吸引买家。
+报告显示，过去一年，抖音电商新增活跃国货商家数同比增长47%，直播间成交额占比达到63%，国货商品好评率达93.8%，国货消费延续增长态势。
 
-执行异议或清除，二拍降价20% 拍卖的根源，可以追溯到一桩金额高达20.25亿元的债务纠纷。
+在直播电商的带动下，国货消费呈现两方面变化。
 
-2024年9月，法院判决钜盛华及宝能集团向中融人寿清偿债务20.25亿元。
+一是消费品类持续扩容，技术型国货、老字号、非遗和新锐赛道共同丰富供给；二是消费人群持续扩大，中青年群体保持消费主力地位，新兴消费区域贡献显著增量。
 
-为执行这一判决，法院冻结了钜盛华多项资产，其持有的前海财险20%股权随之进入处置程序，成为化解债务的重要筹码。
+新市场与新人群同步扩大，为国货品牌与实体产业带来更多增量空间。
 
-2025年7月，这笔股权首次在阿里司法拍卖平台挂牌，起拍价定为3080万元，较4400万元的评估价折价30%。
+从直播间到产业带，国货品牌梯队持续壮大 报告显示，抖音电商国货品牌梯队持续扩容。
 
-然而仅仅几天后，拍卖因案外人提起执行异议被中止，首场拍卖尚未真正进入竞价环节便已夭折，中止时无人报名。
+过去一年，年成交额过百万元的国货品牌数超1万个，过亿元的国货品牌超2000个。
 
-2025年9月，前海财险第二次发布股权司法拍卖公告，计划于10月开拍，公示期已有2名报名者，但最终因执行异议案件已复议至高级人民法院，拍卖再度中止。
+不同规模、不同阶段的国货品牌，在直播电商里探索出各自的成长路径。
 
 ## 相关推荐
 
-- 2026-06-29 14:48 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 14:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 14:25 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 14:43 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 14:45 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 14:40 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 14:35 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 14:49 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 14:32 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 14:44 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 14:40 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 14:36 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 14:58 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 14:31 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 14:48 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 14:52 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 14:32 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 14:47 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 14:58 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 14:42 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 14:41 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 14:37 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/324157617.shtml)
-- 2026-06-29 14:43 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.kurohicncr.top/Article/details/31079780.shtml)
-- 2026-06-29 14:32 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/516195205.shtml)
-- 2026-06-29 14:41 - [王楚钦3比0周启豪](http://www.blog.minike.top/Article/details/58268902602.shtml)
-- 2026-06-29 14:46 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/061024.shtml)
-- 2026-06-29 14:37 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/52016970111.shtml)
-- 2026-06-29 14:44 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/55619.shtml)
-- 2026-06-29 14:50 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/10398466.shtml)
-- 2026-06-29 14:28 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/499646805980.shtml)
-- 2026-06-29 14:27 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/6593263487.shtml)
-- 2026-06-29 14:34 - [爱很美味](http://www.share.kurohicncr.top/Article/details/0080094498.shtml)
-- 2026-06-29 14:51 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/6648503.shtml)
-- 2026-06-29 14:36 - [美人鱼](https://www.share.kurohicncr.top/Article/details/468951642.shtml)
-- 2026-06-29 14:46 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/916567852559.shtml)
-- 2026-06-29 14:48 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/8684315159.shtml)
+- 2026-06-29 14:44 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/68347.shtml)
+- 2026-06-29 14:36 - [实习期把公司领导开除了](http://www.blog.minike.top/Article/details/287253557.shtml)
+- 2026-06-29 14:33 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/973433.shtml)
+- 2026-06-29 14:55 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/1104107808.shtml)
+- 2026-06-29 14:53 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/65296.shtml)
+- 2026-06-29 14:59 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/380874.shtml)
+- 2026-06-29 14:32 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/268482963177.shtml)
+- 2026-06-29 14:54 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/548271655898.shtml)
+- 2026-06-29 14:48 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/16008646057.shtml)
+- 2026-06-29 14:55 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/40915265.shtml)
+- 2026-06-29 14:42 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/044923.shtml)
+- 2026-06-29 14:46 - [流金岁月](https://www.share.minike.top/Article/details/81041.shtml)
+- 2026-06-29 14:47 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/7027806697.shtml)
+- 2026-06-29 14:46 - [叶一茜森碟一起回北京了](http://www.share.kurohicncr.top/Article/details/350183361210.shtml)
+- 2026-06-29 14:50 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/003894628318.shtml)

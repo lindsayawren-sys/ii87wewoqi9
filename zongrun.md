@@ -1,58 +1,59 @@
-# “中国温泉之城”康养新生活：从“卖资源”到“卖生活方式”
+# 中东和平协议有望达成，油价大幅下跌
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网广西贺州6月1日电 题：“中国温泉之城”康养新生活：从“卖资源”到“卖生活方式” 作者 张广权 “以前温泉水就是用来洗衣洗菜，哪想到如今成了‘金泉水’。”站在自家改造一新的民宿门前，广西贺州市八步区南乡镇西溪寨村民韦素琴感慨道。 几年前，韦素琴还是广东一家工厂的流水线工人。如今，她返乡创业，年收入数十万元(人民币，下同)。改变她和这个粤桂交界小镇命运的，正是当地汩汩流淌了
+周四，油价延续跌势，跌幅超 2%，因市场再度期待达成和平协议，或促使霍尔木兹海峡逐步重新开放。 格林尼治标准时间 07：32，布伦特原油期货下跌 2.16 美元，跌幅 2.13%，报每桶 99.11 美元；美国西德克萨斯中质原油下跌 2 美元，跌幅 2.1%，报每桶 93.08 美元。 周三，两大基准原油价格均暴跌超 7%，触及两周低点，因市场乐观认为中东战争可能结束。 沙特阿
 
 ## 正文
 
-中新网广西贺州6月1日电 题：“中国温泉之城”康养新生活：从“卖资源”到“卖生活方式” 作者 张广权 “以前温泉水就是用来洗衣洗菜，哪想到如今成了‘金泉水’。
+周四，油价延续跌势，跌幅超 2%，因市场再度期待达成和平协议，或促使霍尔木兹海峡逐步重新开放。
 
-”站在自家改造一新的民宿门前，广西贺州市八步区南乡镇西溪寨村民韦素琴感慨道。
+格林尼治标准时间 07：32，布伦特原油期货下跌 2.16 美元，跌幅 2.13%，报每桶 99.11 美元；美国西德克萨斯中质原油下跌 2 美元，跌幅 2.1%，报每桶 93.08 美元。
 
-几年前，韦素琴还是广东一家工厂的流水线工人。
+周三，两大基准原油价格均暴跌超 7%，触及两周低点，因市场乐观认为中东战争可能结束。
 
-如今，她返乡创业，年收入数十万元(人民币，下同)。
+沙特阿拉伯阿拉伯电视台新闻社周四报道，双方已达成共识，美方解除对伊朗港口的封锁，换取霍尔木兹海峡逐步重新开放。
 
-改变她和这个粤桂交界小镇命运的，正是当地汩汩流淌了千百年的温泉。
+路透社暂无法核实该报道。
 
-贺州地处桂粤湘三省(区)交界处，素有“三省通衢”之称。
+伊朗周三表示，正在审议美国的和平提案。
 
-2022年12月，贺州市获评“中国温泉之城”，成为广西目前唯一获此殊荣的设区市。
+消息人士称，该提案将正式结束战争，但美方核心要求 —— 伊朗暂停核计划并重新开放霍尔木兹海峡 —— 仍未解决。
 
-过去，贺州温泉开发长期停留在“建个池子收门票”的初级阶段，资源优势未能充分转化为产业优势。
+Phillip Nova 高级市场分析师普里扬卡・萨奇德瓦表示：“从更宏观的角度看，两个多月来，石油市场一直周旋于外交斡旋与供应中断风险之间，投资者情绪几乎每日受头条新闻左右。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 14:26 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 14:53 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 14:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 14:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 14:46 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 14:39 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 14:36 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 14:49 - [下飞机后，我做了个很蠢的决定......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 14:45 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 14:31 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 14:53 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 14:56 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 14:49 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 14:35 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 14:57 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 14:44 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 14:31 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 14:49 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 14:33 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 14:57 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 14:34 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 14:57 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 14:48 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 14:55 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:32 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/77145995.shtml)
-- 2026-06-29 14:29 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/066300595163.shtml)
-- 2026-06-29 14:48 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/1067379.shtml)
-- 2026-06-29 14:40 - [德国队前往比赛场地遭遇囧途](http://www.blog.kurohicncr.top/Article/details/27363.shtml)
-- 2026-06-29 14:52 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.kurohicncr.top/Article/details/4270442.shtml)
-- 2026-06-29 14:31 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/51420555.shtml)
-- 2026-06-29 14:41 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/401236629.shtml)
-- 2026-06-29 14:45 - [灿如繁星定档](http://www.share.minike.top/Article/details/00966.shtml)
-- 2026-06-29 14:35 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/764891842.shtml)
-- 2026-06-29 14:34 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/73803.shtml)
-- 2026-06-29 14:41 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/786479865.shtml)
-- 2026-06-29 14:26 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/889051992400.shtml)
-- 2026-06-29 14:43 - [海军舰艇编队将赴香港](http://www.share.kurohicncr.top/Article/details/259322658534.shtml)
-- 2026-06-29 14:30 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/477626.shtml)
-- 2026-06-29 14:25 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/48145.shtml)
+- 2026-06-29 14:37 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/7115518.shtml)
+- 2026-06-29 14:43 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/57213.shtml)
+- 2026-06-29 14:43 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/49126.shtml)
+- 2026-06-29 14:51 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/711514728720.shtml)
+- 2026-06-29 14:54 - [毒液2](http://www.share.minike.top/Article/details/689579.shtml)
+- 2026-06-29 14:54 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/2039419014.shtml)
+- 2026-06-29 14:53 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/528719.shtml)
+- 2026-06-29 14:50 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/799079993.shtml)
+- 2026-06-29 14:30 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/0172315225.shtml)
+- 2026-06-29 14:31 - [如何“亲菌子”又“远小人儿”](https://www.blog.minike.top/Article/details/69992793588.shtml)
+- 2026-06-29 14:50 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/84928803686.shtml)
+- 2026-06-29 14:47 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/39407818304.shtml)
+- 2026-06-29 14:40 - [下飞机后，我做了个很蠢的决定......](https://www.blog.minike.top/Article/details/48567.shtml)
+- 2026-06-29 14:52 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/66889348.shtml)
+- 2026-06-29 14:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/09422276.shtml)

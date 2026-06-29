@@ -1,59 +1,56 @@
-# 辽宁省举办“六一”活动 “星星屋”照亮特殊儿童成长路
+# 华商品质慧选混合基金经理邓默：新质生产力是今年投资布局的重要锚点
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网沈阳6月1日电 (记者 李晛)6月1日，由辽宁省民政厅主办、沈阳市民政局与辽宁省区域儿童福利中心承办的“润心伴成长，同心护未来”“六一”国际儿童节主题活动，在沈阳市儿童福利院启幕。 本次活动旨在丰富儿童精神文化生活，凝聚全社会长效帮扶合力，完善特殊儿童关爱服务阵地，推动省市儿童福利服务水平协同提升。活动中，福利院儿童与爱心团队共同打造了一场兼具文化温度与艺术质感的文艺汇演
+随着经济增长动能正逐步向科技制造领域切换，新质生产力作为驱动经济高质量发展的核心引擎，也是投资布局的重要锚点。在这轮产业变革中，华商基金量化投资部总经理邓默掌舵的华商品质慧选混合基金，依托量化模型构建投资组合，重点采用GARP策略挖掘兼具低估值与高成长特征的标的，积极捕捉小盘成长机会，为持有人带来了良好的投资体验。 截至2026年3月31日，华商品质慧选混合A近一年净值增长率达
 
 ## 正文
 
-中新网沈阳6月1日电 (记者 李晛)6月1日，由辽宁省民政厅主办、沈阳市民政局与辽宁省区域儿童福利中心承办的“润心伴成长，同心护未来”“六一”国际儿童节主题活动，在沈阳市儿童福利院启幕。
+随着经济增长动能正逐步向科技制造领域切换，新质生产力作为驱动经济高质量发展的核心引擎，也是投资布局的重要锚点。
 
-本次活动旨在丰富儿童精神文化生活，凝聚全社会长效帮扶合力，完善特殊儿童关爱服务阵地，推动省市儿童福利服务水平协同提升。
+在这轮产业变革中，华商基金量化投资部总经理邓默掌舵的华商品质慧选混合基金，依托量化模型构建投资组合，重点采用GARP策略挖掘兼具低估值与高成长特征的标的，积极捕捉小盘成长机会，为持有人带来了良好的投资体验。
 
-活动中，福利院儿童与爱心团队共同打造了一场兼具文化温度与艺术质感的文艺汇演，用精彩纷呈的节目分享节日的喜悦。
+截至2026年3月31日，华商品质慧选混合A近一年净值增长率达43.94%，超同期业绩比较基准收益率32个百分点（详见下表）。
 
-值得一提的是当日启动“星星屋”孤独症康教一体班项目。
+据权威基金评价机构数据显示，截至2026年1季度末，该基金近一年、近三年在同类基金中排名位居前1/5（详见文末数据说明）。
 
-该项目旨在为全市适龄孤独症儿童提供集专业康复，特教服务于一体的专业化支持，构建“以特殊教育为基础，社交融合为核心，行为规范为辅助”的康教模式，帮助孩子提升沟通表达，生活自理与社会适应能力，助力孤独症群体更好融入社会。
+华商品质慧选混合基金业绩表现 华商品质慧选混合基金是由华商基金量化投资部总经理邓默博士管理。
 
-近年来，辽宁省民政厅不断完善政策支持，深化儿童福利领域服务体系建设，推动各地将儿童福利服务机构建设纳入“十五五”民政事业发展重点内容。
+他具备极为扎实的数理专业背景和近15年证券从业经历（4.3年证券研究经历、10.5年证券投资经历）。
 
-深化儿童福利机构优化提质和创新转型，依托高水平儿童福利机构建设区域儿童福利中心，推进未保机构提质增效。
+邓默自2011年加入华商基金，现任公司量化投资总监、量化投资部总经理、投资决策委员会委员。
 
-持续构建以省级区域儿童福利中心为主体，市、县服务机构为补充的综合服务体系，推动儿童福利工作从兜底保障向精准关爱升级，为社会上有需求的残疾儿童提供委托照护、康复、特教等服务。
+邓默 博士 华商基金量化投资部总经理 华商品质慧选混合基金经理 华商新量化灵活配置混合等基金经理 邓默博士擅长发挥量化模型客观理性的优势，同时结合华商基金投研的主动管理能力，在管理华商品质慧选混合基金的过程中，在不同市场环境下使用不同选股逻辑，以GARP策略为核心，掘金兼具低估值与高成长特征的优质标的。
 
 ## 相关推荐
 
-- 2026-06-29 14:38 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 14:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 14:30 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 14:43 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 14:51 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 14:49 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 14:38 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 14:30 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 14:28 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 14:49 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 14:35 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 14:24 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 14:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 14:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 14:59 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 14:36 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 14:44 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 14:46 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 14:51 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 14:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 14:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 14:34 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 14:58 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:39 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/809501762.shtml)
-- 2026-06-29 14:37 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/93365927.shtml)
-- 2026-06-29 14:32 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/92119.shtml)
-- 2026-06-29 14:39 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/327942641.shtml)
-- 2026-06-29 14:36 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/83235378.shtml)
-- 2026-06-29 14:52 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/5377911359.shtml)
-- 2026-06-29 14:40 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/5200200959.shtml)
-- 2026-06-29 14:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/687329504.shtml)
-- 2026-06-29 14:50 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/18343395.shtml)
-- 2026-06-29 14:34 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/382487105.shtml)
-- 2026-06-29 14:38 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/32335.shtml)
-- 2026-06-29 14:36 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/94846571.shtml)
-- 2026-06-29 14:50 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/03776532.shtml)
-- 2026-06-29 14:26 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/09070640468.shtml)
-- 2026-06-29 14:53 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.kurohicncr.top/Article/details/02942037.shtml)
+- 2026-06-29 14:48 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/7250481595.shtml)
+- 2026-06-29 14:36 - [逃狱兄弟](http://www.share.minike.top/Article/details/552774138.shtml)
+- 2026-06-29 14:42 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/353751.shtml)
+- 2026-06-29 14:45 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/55636571449.shtml)
+- 2026-06-29 14:44 - [斛珠夫人](https://www.blog.minike.top/Article/details/080426.shtml)
+- 2026-06-29 14:46 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/3727863641.shtml)
+- 2026-06-29 14:45 - [斛珠夫人](http://www.blog.minike.top/Article/details/40773867608.shtml)
+- 2026-06-29 14:51 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/98001.shtml)
+- 2026-06-29 14:35 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/498673.shtml)
+- 2026-06-29 14:43 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/61283746.shtml)
+- 2026-06-29 14:54 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/86677808644.shtml)
+- 2026-06-29 14:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/010232763.shtml)
+- 2026-06-29 14:50 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/25034659424.shtml)
+- 2026-06-29 14:35 - [3D打印不是工业革命，它是……](http://www.share.minike.top/Article/details/214803.shtml)
+- 2026-06-29 14:30 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/13470095903.shtml)

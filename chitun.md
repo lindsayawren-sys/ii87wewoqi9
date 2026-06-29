@@ -1,56 +1,55 @@
-# 河套大地“小而美”实事铺展民生答卷
+# 浙江开化农村商业银行被罚242.32万元：违反金融统计管理规定等
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网巴彦淖尔6月2日电 题：河套大地“小而美”实事铺展民生答卷 中新网记者 张林虎 6月的河套平原，万物向荣。在内蒙古自治区巴彦淖尔市临河区，基层干部们用一桩桩“小而美”的实事，让民生暖意稳稳落在民众身边。 从留守老人的一餐热饭，到小区游园的一盏路灯，再到一台重新响起的缝纫机……这些看似不起眼的改变，正成为百姓眼角的笑意、心中的踏实感与实打实的获得感。 一餐热饭：留守老人不再
+5月8日金融一线消息，中国人民银行衢州市分行行政处罚决定信息公示表显示，浙江开化农村商业银行股份有限公司存在以下违法行为类型，被警告、通报批评，没收违法所得47.77元，并处242.32万元罚款。 1．违反金融统计管理规定； 2．违反账户管理规定； 3．违反数据安全管理规定； 4．违反网络安全管理规定； 5．违反人民币流通及反假货币业务管理规定； 6．占压财政存款或者资金； 7
 
 ## 正文
 
-中新网巴彦淖尔6月2日电 题：河套大地“小而美”实事铺展民生答卷 中新网记者 张林虎 6月的河套平原，万物向荣。
+5月8日金融一线消息，中国人民银行衢州市分行行政处罚决定信息公示表显示，浙江开化农村商业银行股份有限公司存在以下违法行为类型，被警告、通报批评，没收违法所得47.77元，并处242.32万元罚款。
 
-在内蒙古自治区巴彦淖尔市临河区，基层干部们用一桩桩“小而美”的实事，让民生暖意稳稳落在民众身边。
+1．违反金融统计管理规定； 2．违反账户管理规定； 3．违反数据安全管理规定； 4．违反网络安全管理规定； 5．违反人民币流通及反假货币业务管理规定； 6．占压财政存款或者资金； 7．违反信用信息采集、提供、查询及相关管理规定； 8．未按照规定开展客户尽职调查； 9．未按照规定报告可疑交易。
 
-从留守老人的一餐热饭，到小区游园的一盏路灯，再到一台重新响起的缝纫机……这些看似不起眼的改变，正成为百姓眼角的笑意、心中的踏实感与实打实的获得感。
+序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为类型 行政处罚内容 作出行政处罚决定机关名称 作出行政处罚决定日期 公示期限（自公示之日起计算） 备注 1 浙江开化农村商业银行股份有限公司 衢银罚决字〔2026〕1号 1．违反金融统计管理规定； 2．违反账户管理规定； 3．违反数据安全管理规定； 4．违反网络安全管理规定； 5．违反人民币流通及反假货币业务管理规定； 6．占压财政存款或者资金； 7．违反信用信息采集、提供、查询及相关管理规定； 8．未按照规定开展客户尽职调查； 9．未按照规定报告可疑交易。
 
-一餐热饭：留守老人不再凑合 淘米焖饭、择菜洗菜、切鱼割肉……走进白脑包镇明星村的“民心大食堂”里，十几张桌椅整齐地摆放在就餐区，整洁的厨房内，厨师们正在热火朝天地忙碌着。
+警告、通报批评，没收违法所得47.77元，并处242.32万元罚款。
 
-11点半，食堂里已是暖意盈堂，老人们有序落座，等候着热气腾腾的午餐。
-
-到了中午，饭菜的香味扑鼻而来，食材新鲜、菜品丰富，大家吃得津津有味。
-
-75岁的村民杨胜端着热气腾腾的饭菜，笑得合不拢嘴：“以前一个人在家，做饭总是凑合，一顿饭能吃好几顿，吃得简单又将就。
-
-现在出门走几步就能吃上热乎可口的饭菜，价格实惠、食材新鲜，日子舒心多了。
+中国人民银行衢州市分行 2026年4月28日 五年 责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 14:27 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 14:31 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 14:25 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 14:46 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 14:36 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 14:33 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 14:37 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 14:34 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 14:30 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 14:47 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 14:56 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 14:36 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 14:45 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 14:33 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 14:42 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 14:49 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 14:41 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 14:30 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 14:41 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 14:30 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 14:38 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 14:55 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 14:48 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 14:37 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/22256726.shtml)
-- 2026-06-29 14:43 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/1616216108.shtml)
-- 2026-06-29 14:49 - [媒体：网络测评不能只剩“生意”](http://www.share.minike.top/Article/details/7279643.shtml)
-- 2026-06-29 14:28 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/191116094.shtml)
-- 2026-06-29 14:32 - [灿如繁星定档](https://www.share.minike.top/Article/details/4954526892.shtml)
-- 2026-06-29 14:50 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/7117646.shtml)
-- 2026-06-29 14:44 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/54175454464.shtml)
-- 2026-06-29 14:48 - [美人鱼](http://www.share.kurohicncr.top/Article/details/5963391332.shtml)
-- 2026-06-29 14:38 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/099736764.shtml)
-- 2026-06-29 14:38 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/379142120.shtml)
-- 2026-06-29 14:32 - [周杰伦演唱会真的好多人啊](http://www.share.minike.top/Article/details/8522677173.shtml)
-- 2026-06-29 14:45 - [美人鱼](http://www.blog.minike.top/Article/details/3157167.shtml)
-- 2026-06-29 14:53 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/220025987869.shtml)
-- 2026-06-29 14:37 - [把古诗里的动作换成加班](https://www.blog.kurohicncr.top/Article/details/970756.shtml)
-- 2026-06-29 14:42 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/35673781064.shtml)
+- 2026-06-29 14:38 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/89922.shtml)
+- 2026-06-29 14:51 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/954649.shtml)
+- 2026-06-29 14:54 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/40115646.shtml)
+- 2026-06-29 14:52 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/04641805.shtml)
+- 2026-06-29 14:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/42604.shtml)
+- 2026-06-29 14:45 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/581653089.shtml)
+- 2026-06-29 14:49 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/9997558.shtml)
+- 2026-06-29 14:45 - [AG 钟意](http://www.share.kurohicncr.top/Article/details/363348194.shtml)
+- 2026-06-29 14:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/3287980729.shtml)
+- 2026-06-29 14:42 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.minike.top/Article/details/55431514.shtml)
+- 2026-06-29 14:55 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/88859.shtml)
+- 2026-06-29 14:30 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/066830666612.shtml)
+- 2026-06-29 14:44 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/44677.shtml)
+- 2026-06-29 14:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/33172742481.shtml)
+- 2026-06-29 14:48 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/483021216237.shtml)

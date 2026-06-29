@@ -1,58 +1,46 @@
-# 第十一次中英战略对话在北京举行
+# 越秀地产前4个月累计合同销售金额约257.11亿元
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新社北京6月2日电 6月2日，中共中央政治局委员、外交部长王毅在北京同英国外交大臣库珀举行第十一次中英战略对话。 王毅表示，今年初，斯塔默首相成功访华，两国领导人就中英发展长期稳定的全面战略伙伴关系达成重要共识。这一新定位反映了两国关系的历史逻辑，符合各自发展的现实需要，也构画了长久可期的共赢愿景。当前，双方各领域交往合作全面恢复，逐步进入正轨，值得倍加珍惜。我们要进一步沟通
+越秀地产（00123）发布公告，2026年4月，本公司实现合同销售（连同合营企业及联营公司项目的合同销售）金额约为人民币85.04亿元，同比下降约17.4%，实现合同销售面积约为26.13万平方米，同比上升约 14.0%。 2026年1月至4月，本公司累计合同销售（连同合营企业及联营公司项目的合同销售）（累计合同销售）金额约为人民币257.11亿元，同比下降约37.5%，累计合
 
 ## 正文
 
-中新社北京6月2日电 6月2日，中共中央政治局委员、外交部长王毅在北京同英国外交大臣库珀举行第十一次中英战略对话。
+越秀地产（00123）发布公告，2026年4月，本公司实现合同销售（连同合营企业及联营公司项目的合同销售）金额约为人民币85.04亿元，同比下降约17.4%，实现合同销售面积约为26.13万平方米，同比上升约 14.0%。
 
-王毅表示，今年初，斯塔默首相成功访华，两国领导人就中英发展长期稳定的全面战略伙伴关系达成重要共识。
+2026年1月至4月，本公司累计合同销售（连同合营企业及联营公司项目的合同销售）（累计合同销售）金额约为人民币257.11亿元，同比下降约37.5%，累计合同销售面积约为 88.43万平方米，同比下降约4.3%。
 
-这一新定位反映了两国关系的历史逻辑，符合各自发展的现实需要，也构画了长久可期的共赢愿景。
-
-当前，双方各领域交往合作全面恢复，逐步进入正轨，值得倍加珍惜。
-
-我们要进一步沟通对表，落实好两国领导人重要共识，锚定长期稳定的中英全面战略伙伴关系这一定位，加强高层交往，推动形成更多务实可见的成果，为促进世界和平稳定、繁荣发展作出中英两国的贡献，为这个动荡不安的世界注入更多确定性。
-
-王毅表示，中国改革开放40多年历史证明，开放带来进步，封闭只会倒退。
-
-中方坚持高质量发展，坚持高水平开放。
-
-“十五五”规划纲要既是中国自身的发展规划，也是面向世界的机遇清单，与英国的现代产业战略高度契合，双方可以抓住机遇，双向奔赴，相互成就。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:50 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 14:50 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 14:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 14:53 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 14:30 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 14:32 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 14:41 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 14:42 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 14:29 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 14:48 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 14:40 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 14:27 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 14:57 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 14:33 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 14:56 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 14:43 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 14:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 14:56 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 14:46 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 14:58 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 14:35 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 14:58 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:36 - [医药股集体爆发](http://www.share.kurohicncr.top/Article/details/9272160072.shtml)
-- 2026-06-29 14:49 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/9819563.shtml)
-- 2026-06-29 14:35 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/605101697671.shtml)
-- 2026-06-29 14:30 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/6098349777.shtml)
-- 2026-06-29 14:35 - [复盘曾沛慈浪姐夺冠之路](https://www.share.kurohicncr.top/Article/details/374197401.shtml)
-- 2026-06-29 14:41 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/60333499.shtml)
-- 2026-06-29 14:32 - [小娘惹](http://www.blog.minike.top/Article/details/33611.shtml)
-- 2026-06-29 14:36 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/1645773557.shtml)
-- 2026-06-29 14:51 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/562678.shtml)
-- 2026-06-29 14:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/600254773218.shtml)
-- 2026-06-29 14:52 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/8533891128.shtml)
-- 2026-06-29 14:45 - [游戏数据被用于军事目的 国安部提醒](https://www.share.kurohicncr.top/Article/details/724954496499.shtml)
-- 2026-06-29 14:49 - [严浩翔FIY断层第一](http://www.blog.minike.top/Article/details/700902.shtml)
-- 2026-06-29 14:32 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/022161851336.shtml)
-- 2026-06-29 14:41 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/64731229690.shtml)
+- 2026-06-29 14:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/165953502.shtml)
+- 2026-06-29 14:41 - [国家体育总局政策法规司原副司长获刑](https://www.share.minike.top/Article/details/093006344637.shtml)
+- 2026-06-29 14:51 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/27773090.shtml)
+- 2026-06-29 14:38 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/92541113298.shtml)
+- 2026-06-29 14:44 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/62409908204.shtml)
+- 2026-06-29 14:55 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.kurohicncr.top/Article/details/4116663.shtml)
+- 2026-06-29 14:54 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/698288657934.shtml)
+- 2026-06-29 14:43 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/17739138236.shtml)
+- 2026-06-29 14:44 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/396070105034.shtml)
+- 2026-06-29 14:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/5322178874.shtml)
+- 2026-06-29 14:30 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/20033.shtml)
+- 2026-06-29 14:44 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/0163271.shtml)
+- 2026-06-29 14:54 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/773293925.shtml)
+- 2026-06-29 14:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/851572616.shtml)
+- 2026-06-29 14:30 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/12531379.shtml)

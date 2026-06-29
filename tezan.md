@@ -1,60 +1,58 @@
-# 伊朗击落美军无人机后美军空袭伊朗，伊朗随后发起报复打击
+# 一季度险资“扫货”超40亿股 落到了哪些股票“头上”？
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电 据美联社报道，美国军方当地时间6月1日表示，在伊朗击落一架美国MQ-1“捕食者”无人机后，美军轰炸了伊朗境内的雷达和无人机控制站点。伊朗方面承认随后发动报复性打击。与此同时，科威特表示，其防空系统拦截了来袭的无人机和导弹。报道称，美伊双方相互攻击反映出停火十分脆弱。尽管美国和伊朗官员正试图通过谈判达成延长停火的协议，但袭击仍不断发生。 美国中央司令部称，美军于
+险资连续第五个季度加仓！一季度，即便资本市场震荡，险资仍积极加仓。 Wind数据显示，截至2026年一季度末，险资共重仓了641只股票，合计持仓约1059.54亿股，环比去年四季度末加仓42.41亿股。 其中，银行股持续受险资“青睐”，中国银行、工商银行、兴业银行等在一季度均被险资增持超上亿股，大秦铁路、美的集团等个股也被险资增持。 贝壳财经记者注意到，从重仓股数据来看，这已经
 
 ## 正文
 
-中新网6月1日电 据美联社报道，美国军方当地时间6月1日表示，在伊朗击落一架美国MQ-1“捕食者”无人机后，美军轰炸了伊朗境内的雷达和无人机控制站点。
+险资连续第五个季度加仓！
 
-伊朗方面承认随后发动报复性打击。
+一季度，即便资本市场震荡，险资仍积极加仓。
 
-与此同时，科威特表示，其防空系统拦截了来袭的无人机和导弹。
+Wind数据显示，截至2026年一季度末，险资共重仓了641只股票，合计持仓约1059.54亿股，环比去年四季度末加仓42.41亿股。
 
-报道称，美伊双方相互攻击反映出停火十分脆弱。
+其中，银行股持续受险资“青睐”，中国银行、工商银行、兴业银行等在一季度均被险资增持超上亿股，大秦铁路、美的集团等个股也被险资增持。
 
-尽管美国和伊朗官员正试图通过谈判达成延长停火的协议，但袭击仍不断发生。
+贝壳财经记者注意到，从重仓股数据来看，这已经是自2025年1季度以来，险资连续第五个季度加仓。
 
-美国中央司令部称，美军于5月30日和31日在伊朗格鲁克市附近以及格什姆岛实施打击。
+在长端利率不断走低之下，加仓高股息股票以提升险资整体投资组合的收益率，以促进前端分红险等浮动收益型产品的销售，成为保险公司的共同选择。
 
-声明称，此次打击是为了回应伊朗击落一架在国际水域上空行动的美国MQ-1无人机等“侵略性行动”。
+一季度险资加仓超40亿股 高股息银行股成绝对主力 一季度，上证指数、深证成指、创业板指分别跌1.94%、0.35%和0.57%，但险资仍逆势布局。
 
-美军称，美国战斗机摧毁了伊朗防空设施、一个地面控制站以及两架对通过地区水域的船只构成威胁的单向攻击无人机。
+截至今年一季度末，险资合计持有约1059.54亿股上市公司股票，环比去年四季度末加仓42.41亿股。
 
 ## 相关推荐
 
-- 2026-06-29 14:28 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 14:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 14:26 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 14:53 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 14:42 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 14:32 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 14:51 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 14:28 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 14:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 14:49 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 14:47 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 14:43 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 14:48 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 14:50 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 14:47 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 14:34 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 14:36 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 14:51 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 14:52 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 14:44 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 14:40 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 14:30 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 14:56 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 14:40 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 14:44 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 14:58 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:43 - [中国避暑神器在欧洲卖爆了](https://www.share.minike.top/Article/details/896085194.shtml)
-- 2026-06-29 14:46 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/3918048667.shtml)
-- 2026-06-29 14:26 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.kurohicncr.top/Article/details/183060204200.shtml)
-- 2026-06-29 14:29 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/839428449.shtml)
-- 2026-06-29 14:39 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/925522284.shtml)
-- 2026-06-29 14:47 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/1175157.shtml)
-- 2026-06-29 14:29 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/04571.shtml)
-- 2026-06-29 14:30 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/519946567.shtml)
-- 2026-06-29 14:32 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/8361281667.shtml)
-- 2026-06-29 14:53 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/6726209956.shtml)
-- 2026-06-29 14:47 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/85038457.shtml)
-- 2026-06-29 14:38 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/700616.shtml)
-- 2026-06-29 14:45 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/35623924.shtml)
-- 2026-06-29 14:39 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/761978340083.shtml)
-- 2026-06-29 14:51 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/46453001387.shtml)
+- 2026-06-29 14:59 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/47296142.shtml)
+- 2026-06-29 14:55 - [扫黑风暴](http://www.blog.minike.top/Article/details/169435.shtml)
+- 2026-06-29 14:42 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/18204.shtml)
+- 2026-06-29 14:31 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/82442778.shtml)
+- 2026-06-29 14:51 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/5686921039.shtml)
+- 2026-06-29 14:45 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/4340871.shtml)
+- 2026-06-29 14:59 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/090421431782.shtml)
+- 2026-06-29 14:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/5316627399.shtml)
+- 2026-06-29 14:38 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/7076279456.shtml)
+- 2026-06-29 14:39 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/56125331.shtml)
+- 2026-06-29 14:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/581818984.shtml)
+- 2026-06-29 14:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/25840209344.shtml)
+- 2026-06-29 14:58 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/2901351.shtml)
+- 2026-06-29 14:39 - [扫黑风暴](http://www.share.minike.top/Article/details/26240468.shtml)
+- 2026-06-29 14:48 - [赵露思爸爸拍vlog翻车了](https://www.share.kurohicncr.top/Article/details/12527956733.shtml)

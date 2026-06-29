@@ -1,56 +1,53 @@
-# 博泰车联午前涨近8% 公司携手英伟达布局未来智能出行
+# 美联储称与私募信贷赎回相关的风险“可控”
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-博泰车联（02889）盘中涨超10%，截至发稿，股价上涨7.95%，现报217.20港元，成交额7638.12万港元。 5月29日，博泰车联公告称，该公司与英伟达在美国举行了战略合作签约仪式及相关交流活动。双方围绕车载AI、自动驾驶、下一代计算平台及光通信等前沿领域进行了富有建设性的探讨，并期待未来能够发挥各自优势，探索并加深潜在的合作机会。 值得注意的是，博泰车联最近披露，一
+尽管近几个月私募信贷市场部分头部机构限制投资者赎回基金，但美联储表示，后续私募信贷赎回请求引发的稳定性风险似乎“有限且可控”。 该机构在周五发布的金融稳定报告中指出：“尽管2026年第一季度这些基金的资金流出小幅超过新资金流入，但赎回请求仍保持可控。” 美联储指出，持续的赎回和负面情绪可能导致部分借款人的信贷可得性下降，尤其是信用风险相对较高的借款人。责任编辑：丁文武
 
 ## 正文
 
-博泰车联（02889）盘中涨超10%，截至发稿，股价上涨7.95%，现报217.20港元，成交额7638.12万港元。
+尽管近几个月私募信贷市场部分头部机构限制投资者赎回基金，但美联储表示，后续私募信贷赎回请求引发的稳定性风险似乎“有限且可控”。
 
-5月29日，博泰车联公告称，该公司与英伟达在美国举行了战略合作签约仪式及相关交流活动。
+该机构在周五发布的金融稳定报告中指出：“尽管2026年第一季度这些基金的资金流出小幅超过新资金流入，但赎回请求仍保持可控。
 
-双方围绕车载AI、自动驾驶、下一代计算平台及光通信等前沿领域进行了富有建设性的探讨，并期待未来能够发挥各自优势，探索并加深潜在的合作机会。
+” 美联储指出，持续的赎回和负面情绪可能导致部分借款人的信贷可得性下降，尤其是信用风险相对较高的借款人。
 
-值得注意的是，博泰车联最近披露，一季度实现营业收入同比增长超过100%，营业利润率同比亦有明显改善。
-
-公告中最具前瞻性的信息来自AI业务。
-
-依托NVIDIA DRIVE AGX Thor加速计算平台开发的AI Box方案，已获得某头部OEM新能源车企新一代智能车型的量产定点，标志着AI Box正式从技术验证走向商业化落地。
-
-同时，公司正积极探索算力收费、车载Tokens计费等创新商业模式。
-
-责任编辑：卢昱君
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 14:52 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 14:45 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 14:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 14:37 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 14:43 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 14:39 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 14:38 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 14:25 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 14:47 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 14:27 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 15:00 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 14:44 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 14:54 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 14:40 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 14:31 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 14:44 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 14:32 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 14:50 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 14:42 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 14:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 14:35 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 14:58 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 14:38 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 14:34 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 14:30 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:41 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/1600455.shtml)
-- 2026-06-29 14:48 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/7250896.shtml)
-- 2026-06-29 14:53 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/6539284754.shtml)
-- 2026-06-29 14:27 - [灿如繁星定档](http://www.blog.minike.top/Article/details/8662072.shtml)
-- 2026-06-29 14:24 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/086388378.shtml)
-- 2026-06-29 14:48 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/9852524.shtml)
-- 2026-06-29 14:26 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/12199456.shtml)
-- 2026-06-29 14:51 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/99749175760.shtml)
-- 2026-06-29 14:29 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/2484954693.shtml)
-- 2026-06-29 14:32 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/72322868.shtml)
-- 2026-06-29 14:42 - [A股](http://www.share.minike.top/Article/details/6728217.shtml)
-- 2026-06-29 14:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/69421.shtml)
-- 2026-06-29 14:30 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/8864106073.shtml)
-- 2026-06-29 14:34 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/488775572.shtml)
-- 2026-06-29 14:46 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/62730531.shtml)
+- 2026-06-29 14:55 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/7753441.shtml)
+- 2026-06-29 14:34 - [国家体育总局政策法规司原副司长获刑](https://www.blog.kurohicncr.top/Article/details/1233478863.shtml)
+- 2026-06-29 14:54 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/5602946.shtml)
+- 2026-06-29 14:45 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/2184005.shtml)
+- 2026-06-29 14:35 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/8097554579.shtml)
+- 2026-06-29 14:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/4613982.shtml)
+- 2026-06-29 14:34 - [这一刀 会很帅](http://www.share.minike.top/Article/details/42868005.shtml)
+- 2026-06-29 14:31 - [沉睡花园](https://www.blog.minike.top/Article/details/45450530711.shtml)
+- 2026-06-29 14:42 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/72331755.shtml)
+- 2026-06-29 14:53 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/96338384.shtml)
+- 2026-06-29 14:30 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/2858184.shtml)
+- 2026-06-29 14:42 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/35014099782.shtml)
+- 2026-06-29 14:48 - [海军舰艇编队将赴香港](https://www.share.kurohicncr.top/Article/details/07781.shtml)
+- 2026-06-29 14:45 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/8551702.shtml)
+- 2026-06-29 14:46 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/2089252775.shtml)

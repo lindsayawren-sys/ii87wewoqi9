@@ -1,58 +1,52 @@
-# 美国抢铜潮卷土重来！铜、锡携手涨价，江西铜业、锡业股份等4股涨停！华宝基金有色ETF（159876）大涨3%
+# 统一企业中国早盘涨近4% 第一季度税后利润同比增长22.5%
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-今日（6月2日）午后，有色金属板块异动拉升，揽尽有色金属行业龙头的有色ETF华宝（159876）场内价格现涨3.17%，盘中收复5日、10日两根均线。 成份股方面，铜业龙头和锡业龙头携手领涨，博威合金、锡业股份、江西铜业、华锡有色4股涨停，北方铜业张超9%，兴业银锡等个股涨逾7%。权重股紫金矿业涨近5%，中国铝业涨逾4%。 消息面上，市场担忧美国征收铜进口关税 花旗高盛均上调铜
+统一企业中国（00220）早盘涨超3%，截至发稿，股价上涨3.91%，现报7.70港元，成交额847.96万港元。 5月7日，统一企业中国公布，今年一季度税后利润约7.37亿人民币，同比升22.46%。华泰证券指出，剔除一次性收益（税后约7300万元）后税后利润同比增长10.3%，业绩具备韧性。收入端，26Q1整体收入同比增长中单位数，其中饮料业务与食品业务收入均同比增长中单位
 
 ## 正文
 
-今日（6月2日）午后，有色金属板块异动拉升，揽尽有色金属行业龙头的有色ETF华宝（159876）场内价格现涨3.17%，盘中收复5日、10日两根均线。
+统一企业中国（00220）早盘涨超3%，截至发稿，股价上涨3.91%，现报7.70港元，成交额847.96万港元。
 
-成份股方面，铜业龙头和锡业龙头携手领涨，博威合金、锡业股份、江西铜业、华锡有色4股涨停，北方铜业张超9%，兴业银锡等个股涨逾7%。
+5月7日，统一企业中国公布，今年一季度税后利润约7.37亿人民币，同比升22.46%。
 
-权重股紫金矿业涨近5%，中国铝业涨逾4%。
+华泰证券指出，剔除一次性收益（税后约7300万元）后税后利润同比增长10.3%，业绩具备韧性。
 
-消息面上，市场担忧美国征收铜进口关税 花旗高盛均上调铜价预测。
+收入端，26Q1整体收入同比增长中单位数，其中饮料业务与食品业务收入均同比增长中单位数，食品业务的收入增速略好于饮料业务；OEM业务收入同比基本持平。
 
-美国商务部将于6月30日前发布关于精炼铜进口关税的最新建议。
+公司力争在市场竞争中维持价盘的稳定和产品力的领先，看好公司经营维持稳健，分红比例高企（25年分红比例100%），股息率具备吸引力。
 
-花旗集团表示，由于担心美国可能征收进口关税，铜价看涨情绪升温，预计未来一个月可能上涨至每吨14500美元。
-
-预计未来6-12个月铜价将达到每盎司15000美元。
-
-“算力金属”锡方面，随着AI产业的快速发展，金属锡的价格，出现明显上涨，从去年11月的每吨30万元，涨至目前的每吨42万元左右，半年上涨40%。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:30 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 14:35 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 14:43 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 14:24 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 14:50 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 14:44 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 14:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 14:53 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 14:36 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 14:51 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 14:32 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 14:25 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 14:54 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 14:34 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 14:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 14:42 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 14:55 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 14:38 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 14:56 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 14:49 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 14:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 14:58 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [爱很美味](https://www.share.kurohicncr.top/Article/details/74460274791.shtml)
-- 2026-06-29 14:40 - [中国邮政上海分公司总经理李柏平被查](https://www.share.minike.top/Article/details/96501178.shtml)
-- 2026-06-29 14:31 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/88466469438.shtml)
-- 2026-06-29 14:48 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/192211.shtml)
-- 2026-06-29 14:48 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/888028555932.shtml)
-- 2026-06-29 14:48 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/837157.shtml)
-- 2026-06-29 14:47 - [Mrbeast的30天不吃饭挑战](http://www.blog.kurohicncr.top/Article/details/05443381265.shtml)
-- 2026-06-29 14:53 - [这一刀 会很帅](http://www.share.minike.top/Article/details/452028.shtml)
-- 2026-06-29 14:36 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/77711569525.shtml)
-- 2026-06-29 14:26 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/812579241315.shtml)
-- 2026-06-29 14:38 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/261562.shtml)
-- 2026-06-29 14:24 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/2336986099.shtml)
-- 2026-06-29 14:35 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/998344859938.shtml)
-- 2026-06-29 14:25 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/4202524189.shtml)
-- 2026-06-29 14:41 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/680065115372.shtml)
+- 2026-06-29 14:48 - [急先锋](https://www.blog.minike.top/Article/details/61538592810.shtml)
+- 2026-06-29 14:30 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/452610655.shtml)
+- 2026-06-29 14:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/413799908.shtml)
+- 2026-06-29 14:41 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/76153.shtml)
+- 2026-06-29 14:39 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.minike.top/Article/details/885870393.shtml)
+- 2026-06-29 14:56 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/83190841.shtml)
+- 2026-06-29 14:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/000247288409.shtml)
+- 2026-06-29 14:40 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/8915807599.shtml)
+- 2026-06-29 14:39 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/26768335355.shtml)
+- 2026-06-29 14:37 - [市民骑哈啰单车79分钟付30元](https://www.blog.kurohicncr.top/Article/details/05034544.shtml)
+- 2026-06-29 14:50 - [逆天祖国人](http://www.share.minike.top/Article/details/8280213577.shtml)
+- 2026-06-29 14:38 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/196876725.shtml)
+- 2026-06-29 14:46 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/1344812613.shtml)
+- 2026-06-29 14:46 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/929086.shtml)
+- 2026-06-29 14:38 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/098335413555.shtml)

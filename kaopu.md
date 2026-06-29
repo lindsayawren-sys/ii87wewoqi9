@@ -1,56 +1,60 @@
-# 伯克希尔68亿美元收购Taylor Morrison
+# 金门：今年已有近六万陆客赴金，99%为个人游
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-伯克希尔・哈撒韦公司将以全现金方式收购住宅建筑商Taylor Morrison住宅公司，交易总额约 68 亿美元。这是首席执行官格雷格・阿贝尔上任后的首笔重大收购，也体现出其对美国房地产市场的信心。 本次收购报价为每股普通股 72.50 美元，较该股上周五收盘价溢价 24%。这也是伯克希尔自今年 1 月收购西方石油石化业务以来，达成的规模最大一笔交易。 阿贝尔在周日的声明中表示
+中新社台北5月7日电 据金门县观光处最新统计，今年“五一”假期，持旅游签注入境金门的大陆旅客达6579人次；今年已累计有近六万名陆客赴金，其中99%为个人游旅客。 随着大陆方面陆续恢复福建、上海居民赴金门、马祖旅游，金、马两地旅游业持续回温。据中时新闻网、联合新闻网等台媒报道，5月1日至2日，金门酒店住房率突破六成。整体住房表现较去年同期增长约10%，显示当地旅游热度明显提升。
 
 ## 正文
 
-伯克希尔・哈撒韦公司将以全现金方式收购住宅建筑商Taylor Morrison住宅公司，交易总额约 68 亿美元。
+中新社台北5月7日电 据金门县观光处最新统计，今年“五一”假期，持旅游签注入境金门的大陆旅客达6579人次；今年已累计有近六万名陆客赴金，其中99%为个人游旅客。
 
-这是首席执行官格雷格・阿贝尔上任后的首笔重大收购，也体现出其对美国房地产市场的信心。
+随着大陆方面陆续恢复福建、上海居民赴金门、马祖旅游，金、马两地旅游业持续回温。
 
-本次收购报价为每股普通股 72.50 美元，较该股上周五收盘价溢价 24%。
+据中时新闻网、联合新闻网等台媒报道，5月1日至2日，金门酒店住房率突破六成。
 
-这也是伯克希尔自今年 1 月收购西方石油石化业务以来，达成的规模最大一笔交易。
+整体住房表现较去年同期增长约10%，显示当地旅游热度明显提升。
 
-阿贝尔在周日的声明中表示：“我们很高兴将Taylor Morrison纳入伯克希尔的业务版图。
+金门县在假期中策划推出了“浯岛城隍文化观光季”“水獭阿特快闪计划：岛屿探险之旅”等活动，吸引游客体验。
 
-未来我们计划整合旗下自建住宅业务，打造统一运营平台，助力更多美国人实现安居梦想。
+县长陈福海表示，观光是金门的经济支柱，如今陆客更愿意深入街坊里巷，品尝地道小吃、体验民俗文化，沉浸式的旅游方式明显带动了当地商家收益增长。
 
-” 周一纽约盘前交易时段，Taylor Morrison股价最高上涨 23%，报 71.75 美元；伯克希尔 B 类股则基本持平。
+另一数据显示，截至5月5日，厦金、泉金“小三通”客运航线今年以来出入境旅客量突破72万人次，同比增长约25%。
 
-传奇投资人沃伦・巴菲特于去年卸任，阿贝尔接掌伯克希尔后，此次是其完成的首笔数十亿美元级收购。
+金门县观光处处长许绩鑫指出，“五一”期间船只载客率超过九成。
 
 ## 相关推荐
 
-- 2026-06-29 14:26 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 14:25 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 14:53 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 14:33 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 14:27 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 14:51 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 14:47 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 14:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 14:40 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 14:50 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 14:55 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 14:31 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 14:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 14:42 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 14:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 14:39 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 14:52 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 14:40 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 14:49 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 14:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 14:40 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 14:57 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 14:47 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 14:48 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:40 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/2525576024.shtml)
-- 2026-06-29 14:48 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/1054274.shtml)
-- 2026-06-29 14:49 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/64381210.shtml)
-- 2026-06-29 14:35 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/0044371.shtml)
-- 2026-06-29 14:32 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/36543576.shtml)
-- 2026-06-29 14:53 - [爱很美味](https://www.share.minike.top/Article/details/28016.shtml)
-- 2026-06-29 14:31 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/0109028848.shtml)
-- 2026-06-29 14:28 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/56055021.shtml)
-- 2026-06-29 14:24 - [TOP 无畏契约](https://www.share.kurohicncr.top/Article/details/9336403.shtml)
-- 2026-06-29 14:53 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/526324.shtml)
-- 2026-06-29 14:45 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/76333249062.shtml)
-- 2026-06-29 14:42 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/94799857813.shtml)
-- 2026-06-29 14:43 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/105162667.shtml)
-- 2026-06-29 14:33 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/2876343.shtml)
-- 2026-06-29 14:43 - [女心理师](http://www.share.kurohicncr.top/Article/details/27090313321.shtml)
+- 2026-06-29 14:44 - [我和我的家乡](http://www.share.minike.top/Article/details/43440262176.shtml)
+- 2026-06-29 14:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/94174.shtml)
+- 2026-06-29 14:32 - [媒体：网络测评不能只剩“生意”](https://www.blog.minike.top/Article/details/461752689.shtml)
+- 2026-06-29 14:57 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/0634047129.shtml)
+- 2026-06-29 14:56 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.kurohicncr.top/Article/details/590654245.shtml)
+- 2026-06-29 14:31 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.minike.top/Article/details/0927021.shtml)
+- 2026-06-29 14:33 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/841854.shtml)
+- 2026-06-29 14:31 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/479114450.shtml)
+- 2026-06-29 14:39 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/249631294807.shtml)
+- 2026-06-29 14:58 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/944999165179.shtml)
+- 2026-06-29 14:56 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/45161589264.shtml)
+- 2026-06-29 14:51 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/83720444.shtml)
+- 2026-06-29 14:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/44965.shtml)
+- 2026-06-29 14:55 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/757312.shtml)
+- 2026-06-29 14:52 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/6974350.shtml)

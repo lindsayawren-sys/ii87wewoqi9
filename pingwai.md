@@ -1,58 +1,58 @@
-# 中央生态环境保护督察集中通报四省份典型案例
+# 江苏高校新增本科专业点151个 理工农医类占比达70%以上
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据生态环境部微信公众号消息，第三轮第六批中央生态环境保护督察严格落实《生态环境保护督察工作条例》，树立和践行正确政绩观，统筹推进经济高质量发展和生态环境高水平保护，精准科学依法开展督察。各督察组深入一线、深入现场，查实了一批突出生态环境问题，核实了一批不作为、慢作为，不担当、不碰硬，甚至敷衍应对、弄虚作假等形式主义、官僚主义问题。为发挥警示作用，切实推动问题整
+中新网南京5月7日电 (记者 徐珊珊)近日，教育部公布2025年度普通高等学校本科专业备案和审批结果。江苏高校共新增本科专业点151个，此次江苏新增的本科专业主动适应国家战略和区域经济社会发展、知识创新、科技进步、产业升级需要，理工农医类占比达70%以上。江南大学、南京林业大学、淮安大学等23所高校增设智能科学与技术、智能电网、智能感知、智能交互设计等与人工智能相关的专业点达2
 
 ## 正文
 
-中新网6月2日电 据生态环境部微信公众号消息，第三轮第六批中央生态环境保护督察严格落实《生态环境保护督察工作条例》，树立和践行正确政绩观，统筹推进经济高质量发展和生态环境高水平保护，精准科学依法开展督察。
+中新网南京5月7日电 (记者 徐珊珊)近日，教育部公布2025年度普通高等学校本科专业备案和审批结果。
 
-各督察组深入一线、深入现场，查实了一批突出生态环境问题，核实了一批不作为、慢作为，不担当、不碰硬，甚至敷衍应对、弄虚作假等形式主义、官僚主义问题。
+江苏高校共新增本科专业点151个，此次江苏新增的本科专业主动适应国家战略和区域经济社会发展、知识创新、科技进步、产业升级需要，理工农医类占比达70%以上。
 
-为发挥警示作用，切实推动问题整改，现对第三批次典型案例进行公开通报。
+江南大学、南京林业大学、淮安大学等23所高校增设智能科学与技术、智能电网、智能感知、智能交互设计等与人工智能相关的专业点达25个，初步构建了全省高校覆盖人工智能基础理论、核心技术研发与行业场景应用的全链条专业布局，有效填补江苏人工智能产业人才培养缺口。
 
-辽宁省葫芦岛市生活污水收集处理短板明显 2026年5月，中央第一生态环境保护督察组督察辽宁省发现，葫芦岛市生活污水管网建设改造滞后，污水直排问题突出，城市黑臭水体排查整治不到位。
+针对江苏新能源、生物医药、集成电路、低空经济等重点发展的产业，河海大学、南京信息工程大学、扬州大学等15所高校新增储能科学与工程、合成生物学、集成电路设计与集成系统、低空技术与工程等专业点达27个。
 
-一、基本情况 葫芦岛市主城区有五里河、连山河等河流穿城而过，但城市环境基础设施建设管理比较薄弱，约四分之一区域雨污不分，晴天污水溢流、直排现象多发，部分水体出现黑臭。
+聚焦制造业提质增效，南京邮电大学、南京工业大学、南通大学等12所高校新增智能建造、功能材料等专业点达15个，推动新一代信息技术与传统产业深度融合，助力产业高端化、智能化、绿色化转型。
 
-二、主要问题 一是管网建设改造滞后。
+推动人文社科专业从传统理论研究向应用型、交叉型方向转变，南京大学、南京师范大学、南京艺术学院、江苏师范大学等9所高校新增国际组织与全球治理、食品营养与健康、艺术与科技、大数据管理与应用等专业点达10个，更好匹配现代服务业和社会治理需求。
 
-《城镇污水处理提质增效三年行动方案(2019—2021年)》要求，建立污水管网排查和检测制度，实施管网混错接改造、管网更新、破损修复改造等工程，消除管网空白区。
+中国矿业大学、南京农业大学、江苏大学等5所高校在全国首创开设能源科学与工程、深地科学与工程、数据资源与数据智能、农业机器人等6种目录外新专业，南京大学、东南大学、江南大学、南京林业大学等7所高校新增碳中和科学与工程、生物医药数据科学、医疗器械与装备工程等新兴交叉专业，为新质生产力发展提供复合型人才支撑。
 
-督察发现，截至2025年底，葫芦岛市主城区421.8公里污水管网中，有140.9公里未开展排查检测；2020年以来排查发现的管网混错接和缺陷问题，有3009个未完成修复。
+此外，江苏高校还撤销了55个专业点，包括电子商务、旅游管理、动画、美术学、市场营销、工商管理、劳动与社会保障、土地资源管理、公共事业管理、广播电视学、保险学、广告学、日语、朝鲜语等。
 
 ## 相关推荐
 
-- 2026-06-29 14:50 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 14:29 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 14:41 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 14:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 14:49 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 14:45 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 14:24 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 14:41 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 14:28 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 14:43 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 14:50 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 14:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 14:42 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 14:35 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 14:30 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 14:46 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 14:35 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 14:35 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 14:47 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 14:33 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 14:33 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 14:42 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 14:35 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 14:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [A股](http://www.share.minike.top/Article/details/459519341410.shtml)
-- 2026-06-29 14:43 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/16965979425.shtml)
-- 2026-06-29 14:32 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/3595822.shtml)
-- 2026-06-29 14:28 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.kurohicncr.top/Article/details/763763886101.shtml)
-- 2026-06-29 14:40 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/89764884.shtml)
-- 2026-06-29 14:35 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/81636376.shtml)
-- 2026-06-29 14:39 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/897757642.shtml)
-- 2026-06-29 14:39 - [四川宜宾地震](http://www.blog.kurohicncr.top/Article/details/1389883124.shtml)
-- 2026-06-29 14:43 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/2299487.shtml)
-- 2026-06-29 14:41 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/94634.shtml)
-- 2026-06-29 14:32 - [第一炉香](https://www.blog.minike.top/Article/details/50578018549.shtml)
-- 2026-06-29 14:40 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/307695638.shtml)
-- 2026-06-29 14:39 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/37842278.shtml)
-- 2026-06-29 14:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/73029927.shtml)
-- 2026-06-29 14:53 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/14754199.shtml)
+- 2026-06-29 14:39 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/78074337.shtml)
+- 2026-06-29 14:32 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.kurohicncr.top/Article/details/7559321725.shtml)
+- 2026-06-29 14:46 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/76516.shtml)
+- 2026-06-29 14:45 - [啊啊啊](http://www.share.minike.top/Article/details/536157.shtml)
+- 2026-06-29 14:51 - [严浩翔FIY断层第一](http://www.blog.minike.top/Article/details/4097862.shtml)
+- 2026-06-29 14:57 - [恋与深空 731](https://www.blog.minike.top/Article/details/877180.shtml)
+- 2026-06-29 14:55 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/8305294194.shtml)
+- 2026-06-29 14:47 - [农发行总行专家委员会委员杜晓力被查](https://www.share.minike.top/Article/details/5298739356.shtml)
+- 2026-06-29 14:59 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/706624441.shtml)
+- 2026-06-29 14:30 - [沙特足协主席发布声明主动请辞](https://www.share.kurohicncr.top/Article/details/827686142.shtml)
+- 2026-06-29 14:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/699747029.shtml)
+- 2026-06-29 14:47 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/421499482.shtml)
+- 2026-06-29 14:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/4944732.shtml)
+- 2026-06-29 14:44 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/982834.shtml)
+- 2026-06-29 14:34 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/42543.shtml)

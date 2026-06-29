@@ -1,59 +1,58 @@
-# 加拿大经济意外萎缩叠加美元避险需求升温，美元兑加元重返1.3800上方
+# 美国贸易法院裁定特朗普政府最新的10%关税不合法
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——美元兑加元（USD/CAD）周一亚洲交易时段延续反弹走势，汇价重新收复1.3800整数关口。虽然距离上周触及的4月中旬以来高点1.3870附近仍有一定距离，但整体市场氛围依然偏向美元多头。 当前市场关注的核心因素依然是美国与伊朗之间的外交谈判以及中东地区安全局势。由于双方围绕核计划和霍尔木兹海峡问题仍存在明显分歧，市场对于协议最终达成的预期有所降温。 与此同
+美国总统唐纳德·特朗普的10%全球关税被联邦贸易法院裁定不合法，这对特朗普政府的经济议程构成新打击。美国最高法院在数月前撤销了他之前实施的关税措施。 周四，位于曼哈顿的美国国际贸易法院一个由意见分歧的三名法官组成的合议庭，批准了一群小企业和二十多个主要由民主党领导的州提出的撤销关税请求。特朗普于今年2月依据《1974年贸易法》第122条征收10%关税，而该条款此前从未被动用。
 
 ## 正文
 
-汇通财经APP讯——美元兑加元（USD/CAD）周一亚洲交易时段延续反弹走势，汇价重新收复1.3800整数关口。
+美国总统唐纳德·特朗普的10%全球关税被联邦贸易法院裁定不合法，这对特朗普政府的经济议程构成新打击。
 
-虽然距离上周触及的4月中旬以来高点1.3870附近仍有一定距离，但整体市场氛围依然偏向美元多头。
+美国最高法院在数月前撤销了他之前实施的关税措施。
 
-当前市场关注的核心因素依然是美国与伊朗之间的外交谈判以及中东地区安全局势。
+周四，位于曼哈顿的美国国际贸易法院一个由意见分歧的三名法官组成的合议庭，批准了一群小企业和二十多个主要由民主党领导的州提出的撤销关税请求。
 
-由于双方围绕核计划和霍尔木兹海峡问题仍存在明显分歧，市场对于协议最终达成的预期有所降温。
+特朗普于今年2月依据《1974年贸易法》第122条征收10%关税，而该条款此前从未被动用。
 
-与此同时，以色列在黎巴嫩地区扩大军事行动，也进一步增加了地区局势的不确定性。
+法院目前只是立即禁止政府对提起诉讼的两家公司及华盛顿州执行该关税。
 
-避险情绪升温推动美元获得更多资金支持，并成为美元兑加元上涨的重要驱动力之一。
+美国司法部可能通过将案件提交至美国联邦巡回上诉法院，对贸易法院的最新裁决提出挑战。
 
-伊朗首席谈判代表加利巴夫表示，除非伊朗国家权益获得充分保障，否则不会接受任何协议。
-
-这意味着未来谈判仍面临较大挑战。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 14:44 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 14:31 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 14:37 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 14:31 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 14:30 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 14:48 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 14:41 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 14:53 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 14:46 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 14:39 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 14:43 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 14:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 14:53 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 14:56 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 14:51 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 14:52 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 14:52 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 14:33 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 14:42 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 14:40 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 14:42 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 14:40 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 14:57 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 14:58 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 14:38 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 14:45 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 14:45 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:37 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/66333.shtml)
-- 2026-06-29 14:39 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/37247791.shtml)
-- 2026-06-29 14:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/33474619351.shtml)
-- 2026-06-29 14:26 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/491120.shtml)
-- 2026-06-29 14:40 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/31313.shtml)
-- 2026-06-29 14:31 - [森保一：日本队要亲手改写历史](http://www.share.kurohicncr.top/Article/details/7320130.shtml)
-- 2026-06-29 14:35 - [啊啊啊](https://www.blog.minike.top/Article/details/7635383109.shtml)
-- 2026-06-29 14:32 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/586424252.shtml)
-- 2026-06-29 14:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/48546483.shtml)
-- 2026-06-29 14:52 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/442849573651.shtml)
-- 2026-06-29 14:50 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.minike.top/Article/details/165373.shtml)
-- 2026-06-29 14:26 - [多家银行收紧个人贵金属业务](http://www.blog.kurohicncr.top/Article/details/3583885765.shtml)
-- 2026-06-29 14:32 - [毒液2](https://www.blog.kurohicncr.top/Article/details/61392.shtml)
-- 2026-06-29 14:36 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/31475463888.shtml)
-- 2026-06-29 14:34 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.minike.top/Article/details/3860301.shtml)
+- 2026-06-29 14:54 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/744731116.shtml)
+- 2026-06-29 14:49 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/03575.shtml)
+- 2026-06-29 14:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/2474593.shtml)
+- 2026-06-29 14:50 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.minike.top/Article/details/95598180.shtml)
+- 2026-06-29 14:36 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/629879741.shtml)
+- 2026-06-29 14:33 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/76796.shtml)
+- 2026-06-29 14:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/51504605793.shtml)
+- 2026-06-29 14:37 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/20323363171.shtml)
+- 2026-06-29 14:57 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/77753.shtml)
+- 2026-06-29 14:55 - [发反科学内容为何会有200万粉丝](https://www.blog.kurohicncr.top/Article/details/14988.shtml)
+- 2026-06-29 14:57 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/52938.shtml)
+- 2026-06-29 14:57 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/991301740207.shtml)
+- 2026-06-29 14:49 - [以前不让妆女二可以艳压女主](https://www.blog.kurohicncr.top/Article/details/6406310.shtml)
+- 2026-06-29 14:49 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.minike.top/Article/details/492563657756.shtml)
+- 2026-06-29 14:46 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/29624673274.shtml)

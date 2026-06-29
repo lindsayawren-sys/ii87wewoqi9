@@ -1,57 +1,50 @@
-# 印尼华裔总会总主席黄印华：看好川渝发展潜力 冀深化中印尼合作
+# “人民至上——政党的使命和担当”中外政党专题对话举行
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网成都6月2日电 (记者 岳依桐)“东南亚侨商扎根当地、融通中外，是共建‘一带一路’不可替代的天然桥梁。”近日，专程赴蓉出席2026“一带一路”华侨华人合作发展大会的印尼华裔总会总主席、印尼FBL有限公司董事长黄印华在接受中新网记者专访时如是说。 谈及东南亚侨商侨社在共建“一带一路”中的独特价值，黄印华表示，东南亚华侨华人熟悉中国与住在国的文化、法律及市场环境，与当地政府、
+新华社石家庄5月8日电(记者曹嘉玥、邹尚伯)5月8日，由中共中央对外联络部和中共河北省委共同主办的“人民至上——政党的使命和担当”中外政党专题对话在河北行唐举行。汤加议长瓦伊阿等来自20多个国家的政党、议会、政府代表等约180人与会。中联部部长刘海星表示，在习近平总书记领航掌舵下，中国脱贫攻坚取得全面胜利，为全球减贫事业作出巨大贡献。新征程上，中国共产党将坚持以人民为中心的发展
 
 ## 正文
 
-中新网成都6月2日电 (记者 岳依桐)“东南亚侨商扎根当地、融通中外，是共建‘一带一路’不可替代的天然桥梁。
+新华社石家庄5月8日电(记者曹嘉玥、邹尚伯)5月8日，由中共中央对外联络部和中共河北省委共同主办的“人民至上——政党的使命和担当”中外政党专题对话在河北行唐举行。
 
-”近日，专程赴蓉出席2026“一带一路”华侨华人合作发展大会的印尼华裔总会总主席、印尼FBL有限公司董事长黄印华在接受中新网记者专访时如是说。
+汤加议长瓦伊阿等来自20多个国家的政党、议会、政府代表等约180人与会。
 
-谈及东南亚侨商侨社在共建“一带一路”中的独特价值，黄印华表示，东南亚华侨华人熟悉中国与住在国的文化、法律及市场环境，与当地政府、工商界联系紧密，在促进互信、推动项目落地、化解文化差异等方面优势显著。
+中联部部长刘海星表示，在习近平总书记领航掌舵下，中国脱贫攻坚取得全面胜利，为全球减贫事业作出巨大贡献。
 
-黄印华指出，近年来中印尼合作持续深化，为侨企带来基础设施、数字经济、绿色能源、跨境电商等领域的广阔机遇，侨商可发挥“双向平台”作用，助力中国企业“走出去”、东南亚企业走进中国。
+新征程上，中国共产党将坚持以人民为中心的发展理念，以高质量发展全面推进中国式现代化，同各国政党加强交流互鉴，做人民幸福的筑基者、捍卫者、守望者、护航者。
 
-在黄印华看来，中印尼经贸合作范畴当前正从传统贸易向高质量、科技化、绿色化升级。
-
-印尼工商界高度关注成渝地区双城经济圈发展，尤其看好川渝新能源、智能制造、数字经济、现代物流、农业科技及文旅等领域发展前景。
-
-他特别指出，川渝地区与东南亚在绿色能源领域的合作空间尤为广阔。
-
-“川渝完整的产业体系、优质的营商环境与强劲的科创实力，对侨资吸引力十足。
+与会外宾高度评价以习近平同志为核心的中共中央坚持人民至上，带领中国人民推进脱贫攻坚和乡村振兴取得的巨大成就，表示愿同中方深化治党治国经验交流，推动构建人类命运共同体。
 
 ## 相关推荐
 
-- 2026-06-29 14:41 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 14:46 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 14:43 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 14:30 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 14:24 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 14:47 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 14:34 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 14:44 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 14:44 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 14:42 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 14:45 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 14:54 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 14:38 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 14:45 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 14:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 14:58 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 14:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 14:30 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 14:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 14:35 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 14:36 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:53 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/74030078359.shtml)
-- 2026-06-29 14:27 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/5845509662.shtml)
-- 2026-06-29 14:42 - [急先锋](http://www.share.minike.top/Article/details/3882111.shtml)
-- 2026-06-29 14:33 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/331530.shtml)
-- 2026-06-29 14:34 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/605272074.shtml)
-- 2026-06-29 14:49 - [105年初心滚烫](http://www.blog.minike.top/Article/details/412341.shtml)
-- 2026-06-29 14:29 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/3909090.shtml)
-- 2026-06-29 14:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/46969.shtml)
-- 2026-06-29 14:52 - [美的空调 卡bug](https://www.share.minike.top/Article/details/3253527.shtml)
-- 2026-06-29 14:50 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/840897067.shtml)
-- 2026-06-29 14:36 - [绘画区你赢了](http://www.blog.minike.top/Article/details/395570297930.shtml)
-- 2026-06-29 14:36 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/387256.shtml)
-- 2026-06-29 14:43 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/096116157.shtml)
-- 2026-06-29 14:40 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/08128048293.shtml)
-- 2026-06-29 14:29 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/78559323611.shtml)
+- 2026-06-29 14:51 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/3996643391.shtml)
+- 2026-06-29 14:30 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/36839743613.shtml)
+- 2026-06-29 14:53 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/3906932.shtml)
+- 2026-06-29 14:45 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/377320.shtml)
+- 2026-06-29 14:46 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/4250811.shtml)
+- 2026-06-29 14:48 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/498970041.shtml)
+- 2026-06-29 14:32 - [俄称继续推进 乌称打击俄军设施](http://www.share.minike.top/Article/details/0656309.shtml)
+- 2026-06-29 14:38 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/67311.shtml)
+- 2026-06-29 14:33 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/63675.shtml)
+- 2026-06-29 14:49 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/19034821186.shtml)
+- 2026-06-29 14:56 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/334797652072.shtml)
+- 2026-06-29 14:38 - [美伊同意停止互袭](http://www.share.minike.top/Article/details/459484156696.shtml)
+- 2026-06-29 14:35 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/925322244.shtml)
+- 2026-06-29 14:45 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/84272858.shtml)
+- 2026-06-29 14:35 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/45091.shtml)

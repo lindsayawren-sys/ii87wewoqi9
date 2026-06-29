@@ -1,60 +1,60 @@
-# 别迷信“名师押题”！教育部发布2026年高考预警
+# 总投资超84亿元！多个家居建材企业密集扩产
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据教育部网站消息，2026年高考即将到来，广大考生已经进入最后冲刺阶段，一些不法分子受利益驱使也在伺机而动，散布高考相关虚假信息，制造贩卖焦虑，组织实施诈骗，甚至诱导考生作弊，严重损害考生和家长切身利益，严重扰乱考试招生秩序。教育部梳理汇总了近年来典型的高考诈骗案例与谣言，提醒广大考生及家长提高警惕，明辨真伪，诚信参加考试，严守法律底线，谨防上当受骗，确保考试
+过去一个多月，多家家居建材企业密集披露投资计划，相继拿地建设新总部或新生产基地，相关项目总投资金额已超过84亿元。从具体布局来看，顾家家居拟投资不超过11.88亿元，在杭州打造集智能制造、创新研发、全球运营与品牌展示于一体的综合性新总部；悍高集团则计划投入超20亿元建设新生产基地，以进一步扩大优势产品产能；志豪家具斥资2.36亿元竞得顺德龙江137亩工业用地，拟总投资20亿元建
 
 ## 正文
 
-中新网6月2日电 据教育部网站消息，2026年高考即将到来，广大考生已经进入最后冲刺阶段，一些不法分子受利益驱使也在伺机而动，散布高考相关虚假信息，制造贩卖焦虑，组织实施诈骗，甚至诱导考生作弊，严重损害考生和家长切身利益，严重扰乱考试招生秩序。
+过去一个多月，多家家居建材企业密集披露投资计划，相继拿地建设新总部或新生产基地，相关项目总投资金额已超过84亿元。
 
-教育部梳理汇总了近年来典型的高考诈骗案例与谣言，提醒广大考生及家长提高警惕，明辨真伪，诚信参加考试，严守法律底线，谨防上当受骗，确保考试安全与个人权益。
+从具体布局来看，顾家家居拟投资不超过11.88亿元，在杭州打造集智能制造、创新研发、全球运营与品牌展示于一体的综合性新总部；悍高集团则计划投入超20亿元建设新生产基地，以进一步扩大优势产品产能；志豪家具斥资2.36亿元竞得顺德龙江137亩工业用地，拟总投资20亿元建设现代化工厂。
 
-一、高考组织作弊，必受法律严惩 【案例】 2020年高考期间，陈某邀约谢某共谋组织高考考试作弊，陈某负责统筹安排，联系考生及家长、收取费用、承担开支、提供试题等，谢某负责联系在读大学生为作弊传递消息、试题答案等。
+此外，千年舟、雍兴集团、宏誉盛、度尚家具等多家企业也纷纷推进新基地建设。
 
-谢某等人在酒店房间答题时被公安机关当场抓获，陈某自动投案。
+从空间分布看，上述项目高度集中于佛山、杭州、肇庆等家居建材产业核心集聚区。
 
-【提醒】 《中华人民共和国刑法》明确规定，在法律规定的国家考试中，“组织作弊的”“向考生提供试题、答案的”，都属于违法行为，参与者将面临有期徒刑、罚金等处罚。
+在当前市场整体承压的背景下，这类逆势投资并非简单的规模扩张，而是头部企业通过强化核心能力，深化产业链协同，构筑更深层次的竞争壁垒，从而为下一轮增长周期抢占战略先机。
 
-近年来，公安机关与相关部门密切协同，对考试违法犯罪行为始终保持高压严打态势。
+顾家投11.88亿元打造新总部国内海外双线并进4月23日，顾家家居发布公告称，为满足公司未来发展规划对经营场所的需求，进一步优化资源配置并促进稳健可持续发展，公司计划投资建设产业总部项目。
 
-广大考生要严守法律法规底线，切勿一时糊涂，触碰法律红线。
+该项目选址于杭州东部湾新城大创小镇，总投资不超过11.88亿元，资金来源于自有及自筹资金。
 
-二、替考代价太大，莫让自己触线 【案例】 2024年5月，曹某、王某在互联网平台发布高考有偿替考相关网络信息，引发网民关注，造成恶劣社会影响。
+项目用地面积约6万平方米(约90亩)，计划于2027年一季度开工建设，建设周期为4年，预计在2031年初竣工。
 
 ## 相关推荐
 
-- 2026-06-29 14:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 14:50 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 14:37 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 14:25 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 14:43 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 14:42 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 14:27 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 14:34 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 14:48 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 14:33 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 14:33 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 14:47 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 14:29 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 14:50 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 14:55 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 14:51 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 14:52 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 14:31 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 14:46 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 14:33 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 14:34 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 14:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 14:57 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 14:43 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 14:44 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 14:47 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 14:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 14:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:53 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/171494810.shtml)
-- 2026-06-29 14:26 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/40125904.shtml)
-- 2026-06-29 14:40 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/332667782.shtml)
-- 2026-06-29 14:50 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/14289.shtml)
-- 2026-06-29 14:46 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/0832285.shtml)
-- 2026-06-29 14:24 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/5464058.shtml)
-- 2026-06-29 14:41 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/435828447876.shtml)
-- 2026-06-29 14:26 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/886426333.shtml)
-- 2026-06-29 14:25 - [海军舰艇编队将赴香港](http://www.blog.minike.top/Article/details/916418772.shtml)
-- 2026-06-29 14:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/51314.shtml)
-- 2026-06-29 14:47 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/6162675033.shtml)
-- 2026-06-29 14:47 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/1770858.shtml)
-- 2026-06-29 14:43 - [TOP 无畏契约](https://www.share.kurohicncr.top/Article/details/1757478.shtml)
-- 2026-06-29 14:40 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/5946921066.shtml)
-- 2026-06-29 14:32 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/92250486869.shtml)
+- 2026-06-29 14:30 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/400122.shtml)
+- 2026-06-29 14:43 - [比亚迪为什么卖得越多市值越低](https://www.share.minike.top/Article/details/1268996602.shtml)
+- 2026-06-29 14:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/7142425.shtml)
+- 2026-06-29 14:46 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/5839382.shtml)
+- 2026-06-29 14:56 - [美媒：空警-3000服役即成全球最强](http://www.blog.minike.top/Article/details/55802.shtml)
+- 2026-06-29 14:36 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/54186782606.shtml)
+- 2026-06-29 14:41 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/132370701732.shtml)
+- 2026-06-29 14:43 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/967308416.shtml)
+- 2026-06-29 14:39 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/566214.shtml)
+- 2026-06-29 14:55 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/358650351271.shtml)
+- 2026-06-29 14:32 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/026890186.shtml)
+- 2026-06-29 14:31 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/588240833.shtml)
+- 2026-06-29 14:33 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/640530.shtml)
+- 2026-06-29 14:35 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/2397874651.shtml)
+- 2026-06-29 14:36 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/002185568.shtml)

@@ -1,59 +1,52 @@
-# 机构：英伟达的PC芯片公告表明AI交易正超越GPU
+# 京玖康疗控股股东拟减持最多20.8%股权
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-盛宝金融的Charu Chanana在一份研究报告中表示，英伟达最新的PC芯片表明，AI交易正在超越GPU领域。她说，AI的下一阶段可能不再局限于单一芯片，而是更多地涉及扩展AI所需的完整技术栈，从CPU、GPU、内存到网络和服务器。这意味着受益者名单正在扩大。她指出，Arm是架构方面的受益者，而微软是Windows AI的把关人。与英伟达共同开发最新PC芯片的联发科技，获得了
+京玖康疗（00648）公布，公司控股股东Multi Omniverse Group Limited已于2026 年5月7日（交易时段后）与一家配售代理订立日期为2026年5月7日的配售协议，拟透过配售代理配售所持有最多4.45亿股公司股份，相当于公司已发行股份总数的20.8%，每股配售股份的配售价为港币0.11元，配售期自配售协议日期起至2026年5月15日止，或配售股东与配售
 
 ## 正文
 
-盛宝金融的Charu Chanana在一份研究报告中表示，英伟达最新的PC芯片表明，AI交易正在超越GPU领域。
+京玖康疗（00648）公布，公司控股股东Multi Omniverse Group Limited已于2026 年5月7日（交易时段后）与一家配售代理订立日期为2026年5月7日的配售协议，拟透过配售代理配售所持有最多4.45亿股公司股份，相当于公司已发行股份总数的20.8%，每股配售股份的配售价为港币0.11元，配售期自配售协议日期起至2026年5月15日止，或配售股东与配售代理书面协定的较长期间。
 
-她说，AI的下一阶段可能不再局限于单一芯片，而是更多地涉及扩展AI所需的完整技术栈，从CPU、GPU、内存到网络和服务器。
+于完成配售且假设所有配售股份均成功配售予承配人，配售股东将持有6.48亿股公司股份，相当于公司已发行股份总数的30.3%，并将继续为公司的控股股东。
 
-这意味着受益者名单正在扩大。
+公司亦获配售股东通知，其目前并无计划于完成配售后进一步配售其所持有的公司股份。
 
-她指出，Arm是架构方面的受益者，而微软是Windows AI的把关人。
-
-与英伟达共同开发最新PC芯片的联发科技，获得了涉足智能手机和互联设备之外的高端计算机会的敞口。
-
-她补充说，博通和Marvell等公司在网络层面上致力于扩展数据中心，而戴尔和联想集团等PC制造商将生产搭载英伟达芯片的PC。
-
-责任编辑：王永生
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:28 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 14:29 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 14:50 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 14:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 14:27 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 14:46 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 14:39 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 14:38 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 14:33 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 14:27 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 14:25 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 14:38 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 14:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 14:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 14:24 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 14:51 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 14:59 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 14:36 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 14:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 14:51 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 14:32 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 14:47 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 14:43 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 14:50 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 14:38 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 14:44 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 14:30 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 14:44 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 14:30 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:36 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/82594461.shtml)
-- 2026-06-29 14:46 - [金刚川](https://www.share.kurohicncr.top/Article/details/40858.shtml)
-- 2026-06-29 14:36 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/873304964346.shtml)
-- 2026-06-29 14:49 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/4129705.shtml)
-- 2026-06-29 14:43 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/876040.shtml)
-- 2026-06-29 14:53 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/1079120849.shtml)
-- 2026-06-29 14:32 - [A股](https://www.blog.kurohicncr.top/Article/details/701879052.shtml)
-- 2026-06-29 14:37 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/192967621.shtml)
-- 2026-06-29 14:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/597731.shtml)
-- 2026-06-29 14:43 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/38771361614.shtml)
-- 2026-06-29 14:27 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/543396407.shtml)
-- 2026-06-29 14:32 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/162639499.shtml)
-- 2026-06-29 14:50 - [媒体：网络测评不能只剩“生意”](https://www.blog.kurohicncr.top/Article/details/883611794679.shtml)
-- 2026-06-29 14:41 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/463036163981.shtml)
-- 2026-06-29 14:26 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/7359273.shtml)
+- 2026-06-29 14:39 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/951780.shtml)
+- 2026-06-29 14:44 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/868998.shtml)
+- 2026-06-29 14:53 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/63769911975.shtml)
+- 2026-06-29 14:48 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/426835547.shtml)
+- 2026-06-29 14:47 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/566691115.shtml)
+- 2026-06-29 14:48 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/5568183463.shtml)
+- 2026-06-29 14:35 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/477895468606.shtml)
+- 2026-06-29 14:52 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/47250368.shtml)
+- 2026-06-29 14:44 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/1955032.shtml)
+- 2026-06-29 14:58 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/62327146.shtml)
+- 2026-06-29 14:59 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/9174134908.shtml)
+- 2026-06-29 14:38 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/508403997.shtml)
+- 2026-06-29 14:32 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/538636247.shtml)
+- 2026-06-29 14:58 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/273494282.shtml)
+- 2026-06-29 14:30 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/49998658595.shtml)

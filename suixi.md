@@ -1,56 +1,57 @@
-# 借力湾区与RCEP 广东云浮打造绿色国际化城市
+# 东方甄选午前涨逾7% 东方甄选首家线下店在北京正式启动试营业
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网云浮6月1日电 (记者 蔡敏婕)《云浮市人民代表大会常务委员会关于加快建设绿色国际化城市的决定》6月1日起施行，广东云浮计划依据联合国可持续城市与社区标准建设绿色国际化城市。 云浮地处粤北生态发展区，近年来坚持“东融湾区、西接《区域全面经济伙伴关系协定》(RCEP)”策略，两度获评“最具幸福感城市”，入选“联合国可持续城市标准示范区”综合试点市。该决定共有八个部分、二十项
+东方甄选（01797）早盘涨超7%，截至发稿，股价上涨6.70%，现报26.76港元，成交额3.26亿港元。 近日，东方甄选全国首家线下体验店在北京中关村商圈正式启动试营业，执行总裁孙进亲临门店现场，首次提出“降本增效”战略，强调此举旨在为会员提供更多实惠。他明确表示，东方甄选的会员制度基础不会改变，但未来将持续优化会员费用结构，进一步降低用户成本。 俞敏洪此前曾表示，首店规范
 
 ## 正文
 
-中新网云浮6月1日电 (记者 蔡敏婕)《云浮市人民代表大会常务委员会关于加快建设绿色国际化城市的决定》6月1日起施行，广东云浮计划依据联合国可持续城市与社区标准建设绿色国际化城市。
+东方甄选（01797）早盘涨超7%，截至发稿，股价上涨6.70%，现报26.76港元，成交额3.26亿港元。
 
-云浮地处粤北生态发展区，近年来坚持“东融湾区、西接《区域全面经济伙伴关系协定》(RCEP)”策略，两度获评“最具幸福感城市”，入选“联合国可持续城市标准示范区”综合试点市。
+近日，东方甄选全国首家线下体验店在北京中关村商圈正式启动试营业，执行总裁孙进亲临门店现场，首次提出“降本增效”战略，强调此举旨在为会员提供更多实惠。
 
-该决定共有八个部分、二十项内容，从统筹机制、绿色底色、宜居空间、高铁CBD、国际化能级五个方面作出系统性制度安排。
+他明确表示，东方甄选的会员制度基础不会改变，但未来将持续优化会员费用结构，进一步降低用户成本。
 
-该决定首次将“云浮高铁站CBD及周边区域规划建设”单列。
+俞敏洪此前曾表示，首店规范好之后，全国的新东方线下教学点将会批量开东方甄选线下店。
 
-据介绍，该片区规划总面积15平方公里，依托深南高铁云浮站以及北师大云浮实验学校等资源，打造“东融湾区”的城市门户。
+线下店铺的商品布局中，自营产品大约占比为三分之一，剩余产品为全国各地的优质商品。
 
-片区通过土地整备盘活4800亩产业用地，将引导石材走廊有序迭代升级，重点发展展销、创意设计、电商等业态，同时布局医药健康、人工智能、会展商务等新兴产业。
-
-云石大道将拓宽至60米，依托这条城市发展“金脊”，形成“东产西城、两芯四片、一带两轴”结构。
-
-在产业集群方面，今年是“十五五”开局之年，云浮传统产业转型与新兴赛道培育同步发力。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 14:41 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 14:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 14:38 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 14:44 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 14:31 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 14:48 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 14:37 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 14:31 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 14:42 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 14:33 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 14:54 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 14:30 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 14:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 14:50 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 14:47 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 14:47 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 14:51 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 14:55 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 14:44 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 14:51 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 14:35 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 14:36 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 14:48 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 14:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:47 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/9948586408.shtml)
-- 2026-06-29 14:29 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/091968.shtml)
-- 2026-06-29 14:40 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/809839827439.shtml)
-- 2026-06-29 14:40 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/64067669.shtml)
-- 2026-06-29 14:43 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/975469246.shtml)
-- 2026-06-29 14:28 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/866555.shtml)
-- 2026-06-29 14:39 - [森保一：日本队要亲手改写历史](http://www.blog.kurohicncr.top/Article/details/61384804125.shtml)
-- 2026-06-29 14:34 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/98171535903.shtml)
-- 2026-06-29 14:51 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/44127546.shtml)
-- 2026-06-29 14:53 - [极限挑战第一季](http://www.share.minike.top/Article/details/02392947.shtml)
-- 2026-06-29 14:50 - [急先锋](https://www.blog.kurohicncr.top/Article/details/38412.shtml)
-- 2026-06-29 14:41 - [沙特足协主席发布声明主动请辞](http://www.blog.minike.top/Article/details/1779291927.shtml)
-- 2026-06-29 14:53 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/09152929.shtml)
-- 2026-06-29 14:30 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/830798244742.shtml)
-- 2026-06-29 14:50 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/474503.shtml)
+- 2026-06-29 14:42 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/15091.shtml)
+- 2026-06-29 14:51 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/09265243.shtml)
+- 2026-06-29 14:41 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/833174.shtml)
+- 2026-06-29 14:55 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/502839.shtml)
+- 2026-06-29 14:50 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/087740260780.shtml)
+- 2026-06-29 14:43 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/810040748.shtml)
+- 2026-06-29 14:57 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/24031.shtml)
+- 2026-06-29 14:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/1055497118.shtml)
+- 2026-06-29 14:57 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/6604221611.shtml)
+- 2026-06-29 14:33 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/95555057271.shtml)
+- 2026-06-29 14:41 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/60212817065.shtml)
+- 2026-06-29 14:52 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/1511932.shtml)
+- 2026-06-29 14:33 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/80687.shtml)
+- 2026-06-29 14:42 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/23843.shtml)
+- 2026-06-29 14:55 - [事关个税 明日截止请抓紧办理](https://www.blog.minike.top/Article/details/2003101.shtml)

@@ -1,57 +1,61 @@
-# 公示治理完成，复核水体仍为重度黑臭！一批环境问题典型案例被曝光
+# 中国版话剧《浮士德》以中国舞台语言重新呈现世界经典
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-6月2日，中央生态环境保护督察组集中公布辽宁、吉林、黑龙江、广东四省生态环境典型案例，曝光多地污水治理、农村人居环境、固废处置等领域突出生态环保短板与违规问题。 辽宁省葫芦岛市生活污水收集处理短板明显 督察指出，辽宁省葫芦岛市生活污水收集处理短板突出，黑臭水体整治工作不严不实。该市城市环境基础设施建设滞后，主城区约四分之一区域存在雨污混流，污水晴天溢流、直排现象多发。当地污水管
+中新网北京5月7日电 (记者 应妮)根据歌德同名旷世巨作改编、已故世界戏剧大师里马斯·图米纳斯导演的中国版话剧《浮士德》，五一期间在北京艺术中心连演三场。该剧以中国舞台语言重新呈现世界经典，增强了经典文本的生命力和时代性。 该剧是导演里马斯·图米纳斯应邀与中国创作团队首次合作的舞台作品。里马斯因话剧《叶甫盖尼·奥涅金》《战争与和平》《万尼亚舅舅》等高口碑佳作，被中国观众熟知并喜
 
 ## 正文
 
-6月2日，中央生态环境保护督察组集中公布辽宁、吉林、黑龙江、广东四省生态环境典型案例，曝光多地污水治理、农村人居环境、固废处置等领域突出生态环保短板与违规问题。
+中新网北京5月7日电 (记者 应妮)根据歌德同名旷世巨作改编、已故世界戏剧大师里马斯·图米纳斯导演的中国版话剧《浮士德》，五一期间在北京艺术中心连演三场。
 
-辽宁省葫芦岛市生活污水收集处理短板明显 督察指出，辽宁省葫芦岛市生活污水收集处理短板突出，黑臭水体整治工作不严不实。
+该剧以中国舞台语言重新呈现世界经典，增强了经典文本的生命力和时代性。
 
-该市城市环境基础设施建设滞后，主城区约四分之一区域存在雨污混流，污水晴天溢流、直排现象多发。
+该剧是导演里马斯·图米纳斯应邀与中国创作团队首次合作的舞台作品。
 
-当地污水管网排查改造推进缓慢，大量管网未完成检测、多处缺陷问题长期未整改。
+里马斯因话剧《叶甫盖尼·奥涅金》《战争与和平》《万尼亚舅舅》等高口碑佳作，被中国观众熟知并喜爱，在创排中国版话剧《浮士德》时，他从原著中选取最具戏剧表现力的段落，在兼顾情节完整及哲学思考的同时，对原作约一万两千余行的诗句进行了结构性的舞台改编，将其转化为一部约三小时的戏剧作品，以期观众能够在有限的剧场时间，进入这部宏大的文学经典。
 
-全市最大污水处理厂长期低负荷运行，却设置多处溢流口，晴天向城区河道直排污水，水质污染物严重超标。
+剧中，学者浮士德穷尽学问后，陷入对既往认知的幻灭。
 
-此外，当地黑臭水体整治流于形式，多处公示已治理完成、排查无黑臭的水体，经督察复核仍为重度黑臭，治理成效弄虚作假。
+当他在绝望中徘徊时，与上帝打赌要赢得浮士德灵魂的魔鬼墨菲斯特出现，并唆使他与之立下契约。
 
-吉林省四平市农村人居环境整治仍存短板吉林省四平市农村人居环境整治存在明显短板，各类农村污染问题频发。
+“焕发了青春”的浮士德狂热追求玛格丽特，让这个纯洁的女孩堕入情网，并最终导致了她彻底的毁灭……浮士德在体验与反思之间前行。
 
-当地农村环保基础设施历史欠账较多，双辽市建成多座农村污水处理站，却未配套建设收集管网，导致设施长期闲置，农村生活污水直排沟渠，水体污染严重。
+在该剧出品人、制作人雷婷看来，200多年前歌德头顶的月亮，依然照着当代人。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 14:51 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 14:33 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 14:40 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 14:48 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 14:48 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 14:39 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 14:45 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 14:34 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 14:24 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 14:51 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 14:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 14:51 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 14:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 14:58 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 14:48 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 14:48 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 14:59 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 14:45 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 14:31 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 14:45 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 14:36 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 14:59 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 14:59 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 14:42 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 14:59 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:53 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/72483689.shtml)
-- 2026-06-29 14:43 - [AG 宫斗](https://www.share.minike.top/Article/details/475470432.shtml)
-- 2026-06-29 14:50 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/257133967.shtml)
-- 2026-06-29 14:47 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/2116307136.shtml)
-- 2026-06-29 14:49 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/9613975.shtml)
-- 2026-06-29 14:26 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/974798765119.shtml)
-- 2026-06-29 14:38 - [崔韩率还以为韩娱来新人了](http://www.share.kurohicncr.top/Article/details/285658342543.shtml)
-- 2026-06-29 14:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/1210044.shtml)
-- 2026-06-29 14:25 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/1939846.shtml)
-- 2026-06-29 14:49 - [T1零封KC MSI](https://www.share.minike.top/Article/details/873470708600.shtml)
-- 2026-06-29 14:37 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/901991256606.shtml)
-- 2026-06-29 14:46 - [天道](http://www.share.kurohicncr.top/Article/details/911820309.shtml)
-- 2026-06-29 14:27 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/390283274832.shtml)
-- 2026-06-29 14:35 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.minike.top/Article/details/05966.shtml)
-- 2026-06-29 14:29 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/926618.shtml)
+- 2026-06-29 14:38 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/339806516979.shtml)
+- 2026-06-29 14:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/992519578810.shtml)
+- 2026-06-29 14:54 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/9741649.shtml)
+- 2026-06-29 14:37 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/08377.shtml)
+- 2026-06-29 14:58 - [ENC瓦中国香港负印度数据图](https://www.blog.kurohicncr.top/Article/details/82926363729.shtml)
+- 2026-06-29 14:32 - [比亚迪为什么卖得越多市值越低](http://www.share.kurohicncr.top/Article/details/4929024143.shtml)
+- 2026-06-29 14:49 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/171429871.shtml)
+- 2026-06-29 14:36 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/2733920.shtml)
+- 2026-06-29 14:50 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/079730.shtml)
+- 2026-06-29 14:49 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/9102482.shtml)
+- 2026-06-29 14:59 - [第一炉香](https://www.share.kurohicncr.top/Article/details/78145.shtml)
+- 2026-06-29 14:31 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/26296.shtml)
+- 2026-06-29 14:41 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/13266881.shtml)
+- 2026-06-29 14:46 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/91925708.shtml)
+- 2026-06-29 14:42 - [薛之谦演唱会](http://www.share.kurohicncr.top/Article/details/02598358.shtml)

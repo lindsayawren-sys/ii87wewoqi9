@@ -1,46 +1,54 @@
-# 现场视频！老挝人革党中央总书记、国家主席通伦抵达杭州开始访华
+# 国内成品油价今晚要上调 加满一箱油将多花12.5元
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 11:54 来源：中国新闻网 现场视频！老挝人革党中央总书记、国家主席通伦抵达杭州开始访华 责任编辑：【李光伟】
+央视财经 【\[话筒\]#油价今晚要上调##加满一箱油将多花12.5元#】记者今天从国家发展改革委了解到，5月8日24时国内成品油调价窗口将开启。据国家发展改革委价格监测中心监测，本轮成品油调价周期内（4月21日24时——5月8日24时），国际油价先扬后抑。5月8日24时起，国内汽、柴油价格每吨分别上调320和310元，全国平均来看，92号汽油、95号汽油和0号柴油每升分别上调0.
 
 ## 正文
 
-发布时间：2026年06月02日 11:54 来源：中国新闻网 现场视频！
+央视财经 【\[话筒\]#油价今晚要上调##加满一箱油将多花12.5元#】记者今天从国家发展改革委了解到，5月8日24时国内成品油调价窗口将开启。
 
-老挝人革党中央总书记、国家主席通伦抵达杭州开始访华 责任编辑：【李光伟】
+据国家发展改革委价格监测中心监测，本轮成品油调价周期内（4月21日24时——5月8日24时），国际油价先扬后抑。
+
+5月8日24时起，国内汽、柴油价格每吨分别上调320和310元，全国平均来看，92号汽油、95号汽油和0号柴油每升分别上调0.25元、0.27元、0.27元。
+
+央视财经记者给您算了一笔账，用92号汽油加满50升的油箱将多花12.5元。
+
+（记者 平凡 张静也）责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 14:31 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 14:46 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 14:34 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 14:24 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 14:40 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 14:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 14:30 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 14:40 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 14:25 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 14:33 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 14:53 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 14:34 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 14:50 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 14:35 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 14:30 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 14:40 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 14:40 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 14:30 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 14:36 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 14:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 14:39 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 14:38 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 14:58 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 14:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 14:36 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 14:32 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:51 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/724158117.shtml)
-- 2026-06-29 14:48 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/235964574819.shtml)
-- 2026-06-29 14:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/05418.shtml)
-- 2026-06-29 14:27 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/56530796.shtml)
-- 2026-06-29 14:34 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/988483343.shtml)
-- 2026-06-29 14:33 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/379705417.shtml)
-- 2026-06-29 14:45 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/696513216.shtml)
-- 2026-06-29 14:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/59285.shtml)
-- 2026-06-29 14:39 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/705294.shtml)
-- 2026-06-29 14:29 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/7396171424.shtml)
-- 2026-06-29 14:42 - [送你一朵小红花](http://www.blog.minike.top/Article/details/0853641.shtml)
-- 2026-06-29 14:25 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/9055817679.shtml)
-- 2026-06-29 14:29 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/67454187.shtml)
-- 2026-06-29 14:48 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/85972627175.shtml)
-- 2026-06-29 14:53 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/684365866108.shtml)
+- 2026-06-29 14:42 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/8353770.shtml)
+- 2026-06-29 14:31 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/681356574916.shtml)
+- 2026-06-29 14:32 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/73545.shtml)
+- 2026-06-29 14:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/87483504.shtml)
+- 2026-06-29 14:32 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/4647149032.shtml)
+- 2026-06-29 14:36 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/48238732221.shtml)
+- 2026-06-29 14:40 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/074472322.shtml)
+- 2026-06-29 14:38 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/2390166.shtml)
+- 2026-06-29 14:38 - [一生一世](http://www.share.minike.top/Article/details/94803679346.shtml)
+- 2026-06-29 14:34 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/10393092.shtml)
+- 2026-06-29 14:58 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/47744.shtml)
+- 2026-06-29 14:58 - [德国队前往比赛场地遭遇囧途](https://www.share.kurohicncr.top/Article/details/90052588.shtml)
+- 2026-06-29 14:56 - [上海小区惊现鳄鱼](http://www.blog.minike.top/Article/details/32542062.shtml)
+- 2026-06-29 14:39 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/1263108.shtml)
+- 2026-06-29 14:33 - [事关个税 明日截止请抓紧办理](http://www.blog.minike.top/Article/details/74834.shtml)

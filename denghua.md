@@ -1,57 +1,58 @@
-# 美国佛罗里达州总检察长因AI危害起诉OpenAI
+# 美国股市：标普500指数创新高 芯片股与就业数据提振
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-针对人工智能（AI）聊天机器人被控存在安全缺失一事，各界反弹声浪日益高涨，而美国佛罗里达州对此发起了新一轮攻势，成为首个对OpenAI及其首席执行官山姆·奥特曼提起诉讼的州。 佛罗里达州总检察长詹姆斯·乌特迈尔（James Uthmeier）于周一提起诉讼，指控OpenAI和阿尔特曼明知产品不安全却执意发布，对该产品可能伤害用户的警告置若罔闻。 这份长达83页的诉状指控，Ope
+标普500指数本周第三次触及纪录高位，受半导体股走强、就业数据稳健以及美伊停火局面大体维持的提振。 标普500指数上涨0.8%，11个板块中有5个上涨，其中科技板块大涨2.7%。 纳斯达克100指数上涨2.4%，同样创下历史新高。 英伟达和美光科技走高，其中美光飙升15%，创一年多来最大涨幅。 费城半导体指数上涨5.5%，也创纪录新高。 英特尔上涨14%，之前报道该公司与苹果达
 
 ## 正文
 
-针对人工智能（AI）聊天机器人被控存在安全缺失一事，各界反弹声浪日益高涨，而美国佛罗里达州对此发起了新一轮攻势，成为首个对OpenAI及其首席执行官山姆·奥特曼提起诉讼的州。
+标普500指数本周第三次触及纪录高位，受半导体股走强、就业数据稳健以及美伊停火局面大体维持的提振。
 
-佛罗里达州总检察长詹姆斯·乌特迈尔（James Uthmeier）于周一提起诉讼，指控OpenAI和阿尔特曼明知产品不安全却执意发布，对该产品可能伤害用户的警告置若罔闻。
+标普500指数上涨0.8%，11个板块中有5个上涨，其中科技板块大涨2.7%。
 
-这份长达83页的诉状指控，OpenAI放任ChatGPT协助和教唆大规模枪击案凶手、鼓励他人自杀、削弱用户的批判性思维能力，并让未成年人沉迷于这款伪装具备人类同情心的工具。
+纳斯达克100指数上涨2.4%，同样创下历史新高。
 
-该诉状称，“被告明知ChatGPT存在危险，却为了赢得AI军备竞赛、敛聚巨额财富而贪得无厌，正是这种无尽的渴求导致了这一系列危害。
+英伟达和美光科技走高，其中美光飙升15%，创一年多来最大涨幅。
 
-” OpenAI未立即就该诉讼置评。
+费城半导体指数上涨5.5%，也创纪录新高。
 
-OpenAI此前曾否认存在不当行为，并表示该公司正不断加强安全防护措施。
+英特尔上涨14%，之前报道该公司与苹果达成初步的芯片生产协议。
 
-美国立法者、司法机构和公共利益团体日益担忧AI带来的个人和社会风险。
+AI芯片制造商Cerebras据称将上调IPO价格区间，因需求太踊跃。
 
-AI是史上发展最快的消费技术之一。
+油价变化不大，美国表示期望伊朗很快回应结束战争的提议。
 
 ## 相关推荐
 
-- 2026-06-29 14:36 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 14:27 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 14:39 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 14:41 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 14:50 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 14:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 14:42 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 14:48 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 14:37 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 14:31 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 14:30 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 14:59 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 14:41 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 14:46 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 14:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 14:42 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 14:37 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 14:47 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 14:35 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 14:40 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 14:56 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 14:51 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 14:37 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:50 - [游戏数据被用于军事目的 国安部提醒](https://www.share.minike.top/Article/details/5161223939.shtml)
-- 2026-06-29 14:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/4529851.shtml)
-- 2026-06-29 14:47 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/0066510.shtml)
-- 2026-06-29 14:47 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/04439227648.shtml)
-- 2026-06-29 14:34 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/093464511161.shtml)
-- 2026-06-29 14:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/03334.shtml)
-- 2026-06-29 14:53 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/2354583.shtml)
-- 2026-06-29 14:38 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/8418589.shtml)
-- 2026-06-29 14:46 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/23442.shtml)
-- 2026-06-29 14:38 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/55532860.shtml)
-- 2026-06-29 14:34 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/236288307.shtml)
-- 2026-06-29 14:46 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/017552.shtml)
-- 2026-06-29 14:41 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/98178591719.shtml)
-- 2026-06-29 14:35 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/49473561552.shtml)
-- 2026-06-29 14:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/202703400.shtml)
+- 2026-06-29 14:51 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/88348759821.shtml)
+- 2026-06-29 14:35 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/1165200.shtml)
+- 2026-06-29 14:41 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/43483.shtml)
+- 2026-06-29 14:58 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/939904.shtml)
+- 2026-06-29 14:50 - [德国队前往比赛场地遭遇囧途](https://www.blog.kurohicncr.top/Article/details/640293.shtml)
+- 2026-06-29 14:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/9114844.shtml)
+- 2026-06-29 14:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/45123331066.shtml)
+- 2026-06-29 14:54 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/641768507.shtml)
+- 2026-06-29 14:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/43047574248.shtml)
+- 2026-06-29 14:33 - [急先锋](http://www.share.minike.top/Article/details/7437275.shtml)
+- 2026-06-29 14:51 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/926213.shtml)
+- 2026-06-29 14:46 - [双高胎](https://www.share.kurohicncr.top/Article/details/81552993.shtml)
+- 2026-06-29 14:49 - [周生如故](https://www.share.kurohicncr.top/Article/details/4934384.shtml)
+- 2026-06-29 14:37 - [韩国记者：解码“合肥模式”](http://www.blog.minike.top/Article/details/85535816.shtml)
+- 2026-06-29 14:57 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/2044669.shtml)

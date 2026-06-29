@@ -1,59 +1,56 @@
-# “歌迷专列”赋能铁路文旅融合发展
+# *ST太和退市倒计时：跨界AI、新主入局为何没能挽救“水生态修复第一股”？
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网太原6月1日电 (范丽芳 玄悦 王瑶)5月30日，素有“歌迷之城”美誉的山西太原再度迎来演唱会热潮。5月31日，国铁太原局分别加开北京、郑州方向两列“歌迷专列”，以运力满足歌迷返程运输需求，助力当地演唱会经济稳步发展。近年，太原深耕演艺赛道、做强演唱会经济，吸引各地歌迷纷至沓来，成为山西文旅发展不可或缺的重要组成部分。此次开行的“歌迷专列”分别为北京方向G616次和郑州方
+每经记者|黄海 每经编辑|魏官红 易主未满一年，*ST太和（维权）（原太和水）的A股主板上市历程即将暂时告一段落。 近日，*ST太和公告称，已收到上交所下发的拟终止其股票上市的事先告知书。不出意外，这家曾在2021年头顶“水生态修复第一股”光环登陆资本市场的环保公司，已进入退市倒计时。 2022年至今，太和水曾为跨界做出了多类尝试，比如在2022年入局饮用水销售；又在2024年
 
 ## 正文
 
-中新网太原6月1日电 (范丽芳 玄悦 王瑶)5月30日，素有“歌迷之城”美誉的山西太原再度迎来演唱会热潮。
+每经记者|黄海 每经编辑|魏官红 易主未满一年，*ST太和（维权）（原太和水）的A股主板上市历程即将暂时告一段落。
 
-5月31日，国铁太原局分别加开北京、郑州方向两列“歌迷专列”，以运力满足歌迷返程运输需求，助力当地演唱会经济稳步发展。
+近日，*ST太和公告称，已收到上交所下发的拟终止其股票上市的事先告知书。
 
-近年，太原深耕演艺赛道、做强演唱会经济，吸引各地歌迷纷至沓来，成为山西文旅发展不可或缺的重要组成部分。
+不出意外，这家曾在2021年头顶“水生态修复第一股”光环登陆资本市场的环保公司，已进入退市倒计时。
 
-此次开行的“歌迷专列”分别为北京方向G616次和郑州方向G3143次，两趟列车均采用重联编组，载客能力大幅提升，有效缓解演唱会散场叠加周末出行带来的客流集中、运力紧张难题。
+2022年至今，太和水曾为跨界做出了多类尝试，比如在2022年入局饮用水销售；又在2024年尝试跨界人工智能，但短期成果并不尽如人意，公司也在2025年4月披露2024年年报后被“*ST”。
 
-为保障“歌迷专列”顺利开行，国铁太原局提前开展客流分析，依托大数据锁定重点出行方向，精细核对列车开行方案，确保运力投放精准到位；在车厢内张贴歌手海报、设置歌迷互动区，开展歌曲互动、小型合唱等趣味活动，让演唱会的欢乐氛围一路延续。
+2025年年中，太和水更换实控人，欲借助新股东力量保壳，不过最终未能成功。
 
-当前，国铁太原局联动地方文旅部门，不断创新客运产品，动态优化运力布局，持续深化定制化服务，着力打造展示山西文旅形象的名片，助力“铁路+文旅”融合发展，为山西文旅高质量发展提供强劲运能保障。
+随着2025年年报披露，*ST太和内部的一系列问题相继浮出水面：收入层面，公司2025年度约3亿元营收被扣减，营收总额低于3亿元；利润维度上，公司连续两年巨亏，2025年归母净利润亏损3.04亿元，2026年一季度亏损仍在扩大；经营方面，2024年高调收购的子公司中科砚云，2025年业绩承诺完成率不足30%；至于内控方面，公司在公告中称原实际控制人何文辉等人通过备用金、借款等方式非经营性占用公司资金超1870万元⋯⋯ 自从2021年上市以来，谋求转型、寻找增量一直是太和水绕不开的话题。
 
-(完)
+在《每日经济新闻》记者与公司创始人何文辉的几次交流中，“读书人不懂资本”这句话被多次提及。
+
+以这句话为线索，或许可以辅助理解太和水上市后的种种尝试以及公司何以至此。
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 14:39 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 14:40 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 14:35 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 14:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 14:25 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 14:25 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 14:34 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 14:38 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 14:33 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 14:36 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 14:49 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 14:45 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 14:52 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 14:52 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 14:52 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 14:47 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 14:52 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 14:39 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 14:35 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 14:47 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 14:49 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 14:58 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 14:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 14:44 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:33 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/960945257676.shtml)
-- 2026-06-29 14:37 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/552675.shtml)
-- 2026-06-29 14:32 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/336032.shtml)
-- 2026-06-29 14:31 - [薛之谦演唱会](https://www.blog.kurohicncr.top/Article/details/8751053.shtml)
-- 2026-06-29 14:41 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/159846553427.shtml)
-- 2026-06-29 14:33 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/43604.shtml)
-- 2026-06-29 14:40 - [媒体：网络测评不能只剩“生意”](https://www.blog.kurohicncr.top/Article/details/50898431588.shtml)
-- 2026-06-29 14:38 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/026168.shtml)
-- 2026-06-29 14:35 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/128692490689.shtml)
-- 2026-06-29 14:25 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/31108469.shtml)
-- 2026-06-29 14:49 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/270789.shtml)
-- 2026-06-29 14:47 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/276228383.shtml)
-- 2026-06-29 14:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/578039297722.shtml)
-- 2026-06-29 14:48 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/240713.shtml)
-- 2026-06-29 14:28 - [南非老帅布罗斯的梦没能做完](https://www.share.kurohicncr.top/Article/details/2723429790.shtml)
+- 2026-06-29 14:54 - [智界V9成为高端圈层共同选择](http://www.blog.minike.top/Article/details/75671925.shtml)
+- 2026-06-29 14:52 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/076319571959.shtml)
+- 2026-06-29 14:33 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.kurohicncr.top/Article/details/78816.shtml)
+- 2026-06-29 14:31 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/49132477330.shtml)
+- 2026-06-29 14:44 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/46233.shtml)
+- 2026-06-29 14:44 - [周生如故](https://www.share.kurohicncr.top/Article/details/64782247048.shtml)
+- 2026-06-29 14:48 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/48995865438.shtml)
+- 2026-06-29 14:57 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/695010.shtml)
+- 2026-06-29 14:54 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/440595702268.shtml)
+- 2026-06-29 14:38 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/43773858572.shtml)
+- 2026-06-29 14:40 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/49106.shtml)
+- 2026-06-29 14:48 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/916068723.shtml)
+- 2026-06-29 14:56 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/28522289126.shtml)
+- 2026-06-29 14:37 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/834525.shtml)
+- 2026-06-29 14:41 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/438159042.shtml)

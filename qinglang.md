@@ -1,61 +1,61 @@
-# 应用创新科技亮相香港“职安健创科博览”
+# 诱导低保户等免费住院骗取1578万元医保基金，辽宁一民营医院10人获刑：院长系主犯被判15年
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-打击网络侵权盗版 四部门启动“剑网2026”专项行动特朗普怒斥内塔尼亚胡：对以色列升级黎巴嫩局势表示“强烈不满”重启第三次，天涯打赢复活赛了吗？周末戒咖啡，为何会引发头疼？专家解读汽车产业链集体押注机器人 一场从“车”到“人”的战略卡位充电宝3C认证新规来了！教你一眼认出“新国标”产品→网暴抗洪救灾村干部“戴金耳环” 相关网民被行政处罚一碗剩米饭 吃进ICU！夏季慎吃剩饭 远离
+张某在担任辽宁一家民营医院院长期间，指使他人以“免费住院”等噱头诱导低保户、五保户到医院免费住院治疗，并采取开具不符合医保基金报销条件病志的方式，骗取医保基金1578万余元。 5月7日，红星新闻记者从中国裁判文书网获悉，辽宁锦州市中院在上月作出二审裁定，驳回张某的上诉，维持原判。此前一审中，张某等10人因犯诈骗罪被判处刑罚，其中，张某被认定为主犯，判处有期徒刑15年。 一审认定
 
 ## 正文
 
-打击网络侵权盗版 四部门启动“剑网2026”专项行动特朗普怒斥内塔尼亚胡：对以色列升级黎巴嫩局势表示“强烈不满”重启第三次，天涯打赢复活赛了吗？
+张某在担任辽宁一家民营医院院长期间，指使他人以“免费住院”等噱头诱导低保户、五保户到医院免费住院治疗，并采取开具不符合医保基金报销条件病志的方式，骗取医保基金1578万余元。
 
-周末戒咖啡，为何会引发头疼？
+5月7日，红星新闻记者从中国裁判文书网获悉，辽宁锦州市中院在上月作出二审裁定，驳回张某的上诉，维持原判。
 
-专家解读汽车产业链集体押注机器人 一场从“车”到“人”的战略卡位充电宝3C认证新规来了！
+此前一审中，张某等10人因犯诈骗罪被判处刑罚，其中，张某被认定为主犯，判处有期徒刑15年。
 
-教你一眼认出“新国标”产品→网暴抗洪救灾村干部“戴金耳环” 相关网民被行政处罚一碗剩米饭 吃进ICU！
+一审认定，2021年1月至2023年7月期间，张某在任北镇沟帮子仁爱医院（以下简称仁爱医院，个人独资企业）院长期间，指使医院营销科的孙某、焦某、王某、胡某等人，在北镇市域范围内以“免费住院”等噱头诱导低保户、五保户到仁爱医院，医院接诊后无需缴纳或缴纳少部分费用就让患者免费住院治疗，并规定每介绍一名低保户、五保户住院给予相关人员奖励200元。
 
-夏季慎吃剩饭 远离“炒饭综合征”从侨批看中国中新网评：大字吸睛小字免责？
+后张某指使金某（2022年10月取得执业医师资格证）、葛某、孟某在没有执业医师资格的情况下，使用自己或者他人名义在医院内科、康复科、疼痛科，采取开具不符合医疗保障基金报销条件病志的方式，骗取锦州市医疗保障服务中心北镇分中心医疗保障基金共计1578万余元。
 
-对虚假“第一”就该较真到底日本在野党批高市政府推动修宪扩军：背离民众真实诉求除了《给阿嬷的情书》，这些涉侨电影也值得一看！
+杨某在仁爱医院财务科从事药品采购、会计账簿核算等工作，并按照张某指示注册成立了3家公司，后将仁爱医院对公账户中的医保报销资金转移至3家公司。
 
-质量差、退费难、价格高......租赁手机小心暗藏玄机日本启动第20次核污染水排海 排放量约7800吨领取失业保险金期间，城乡居民医疗保险受影响吗？
+庞某为仁爱医院财务科出纳，按照张某指示将上述3家公司的资金取现并使用。
 
-人社部回应“鞠萍姐姐”正式退休，网友：我的童年毕业了带娃出行怎么购票乘车？
+同时，杨某负责统计、审批仁爱医院员工介绍患者住院应得的奖金，经张某确认同意后，由庞某负责发放。
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 14:30 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 14:47 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 14:49 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 14:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 14:25 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 14:35 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 14:25 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 14:26 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 14:45 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 14:33 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 14:29 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 14:41 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 14:48 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 14:34 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 14:41 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 14:37 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 14:31 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 14:31 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 14:40 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 14:41 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 14:54 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 14:34 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 14:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 14:56 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 14:39 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 14:49 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 14:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 14:42 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 14:43 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:39 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/73228160818.shtml)
-- 2026-06-29 14:28 - [行程万里不忘初心](http://www.share.minike.top/Article/details/972669.shtml)
-- 2026-06-29 14:30 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/982411.shtml)
-- 2026-06-29 14:42 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/25391.shtml)
-- 2026-06-29 14:43 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/6889542200.shtml)
-- 2026-06-29 14:52 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/9550275.shtml)
-- 2026-06-29 14:41 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/2623719.shtml)
-- 2026-06-29 14:51 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/2788285239.shtml)
-- 2026-06-29 14:30 - [双高胎](https://www.share.kurohicncr.top/Article/details/081884.shtml)
-- 2026-06-29 14:48 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/70344651712.shtml)
-- 2026-06-29 14:37 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/996478.shtml)
-- 2026-06-29 14:30 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/67042.shtml)
-- 2026-06-29 14:35 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/8576316.shtml)
-- 2026-06-29 14:36 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/2230458826.shtml)
-- 2026-06-29 14:34 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/947291160836.shtml)
+- 2026-06-29 14:52 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/11059936686.shtml)
+- 2026-06-29 14:56 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/3835204669.shtml)
+- 2026-06-29 14:53 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/92146766.shtml)
+- 2026-06-29 14:37 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/343585.shtml)
+- 2026-06-29 14:56 - [42岁郭碧婷纯素颜状态](https://www.blog.kurohicncr.top/Article/details/42236851799.shtml)
+- 2026-06-29 14:32 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/694148260.shtml)
+- 2026-06-29 14:58 - [我和我的家乡](https://www.blog.minike.top/Article/details/07375862.shtml)
+- 2026-06-29 14:55 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/578357579218.shtml)
+- 2026-06-29 14:39 - [美的空调 卡bug](http://www.share.minike.top/Article/details/7912144.shtml)
+- 2026-06-29 14:35 - [送你一朵小红花](http://www.blog.minike.top/Article/details/79205.shtml)
+- 2026-06-29 14:36 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/8773175.shtml)
+- 2026-06-29 14:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/84719496.shtml)
+- 2026-06-29 14:48 - [强⁶](https://www.share.kurohicncr.top/Article/details/372757230353.shtml)
+- 2026-06-29 14:32 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/717299499.shtml)
+- 2026-06-29 14:43 - [《贺子珍》](https://www.blog.minike.top/Article/details/6412740.shtml)

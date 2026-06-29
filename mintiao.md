@@ -1,58 +1,60 @@
-# 固特异宣布发行7.5亿美元优先票据
+# 高原之上，绘就绿色画卷——“十四五”西藏国家生态文明高地创建纪实
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-固特异轮胎橡胶公司宣布，将公开发行本金总额为7.5亿美元的6年期优先票据。此次发行将根据公司此前向美国证券交易委员会提交的有效 shelf 注册声明进行，具体条款将通过招股说明书补充文件确定。 固特异表示，拟将本次发行的净收益用于偿还、赎回或回购其于2027年到期的未偿还4.875%优先票据，该票据的本金余额为7亿美元。任何剩余收益将用于一般公司用途。在偿还未偿票据之前，固特异
+从拉萨南北山万亩绿廊，到羌塘草原生灵自在栖居；从雅鲁藏布江奔流不息，到高原和美乡村处处浸润草木清香。“十四五”以来，西藏紧扣国家生态文明高地创建目标，严格落实《中华人民共和国青藏高原生态保护法》，出台《西藏自治区国家生态文明高地建设条例》，以“五地一体系”“十大行动”为抓手，走出了一条契合高原实际、独具西藏特色的绿色发展之路。“十四五”时期，西藏生态文明建设蹄疾步稳、成效斐然。
 
 ## 正文
 
-固特异轮胎橡胶公司宣布，将公开发行本金总额为7.5亿美元的6年期优先票据。
+从拉萨南北山万亩绿廊，到羌塘草原生灵自在栖居；从雅鲁藏布江奔流不息，到高原和美乡村处处浸润草木清香。
 
-此次发行将根据公司此前向美国证券交易委员会提交的有效 shelf 注册声明进行，具体条款将通过招股说明书补充文件确定。
+“十四五”以来，西藏紧扣国家生态文明高地创建目标，严格落实《中华人民共和国青藏高原生态保护法》，出台《西藏自治区国家生态文明高地建设条例》，以“五地一体系”“十大行动”为抓手，走出了一条契合高原实际、独具西藏特色的绿色发展之路。
 
-固特异表示，拟将本次发行的净收益用于偿还、赎回或回购其于2027年到期的未偿还4.875%优先票据，该票据的本金余额为7亿美元。
+“十四五”时期，西藏生态文明建设蹄疾步稳、成效斐然。
 
-任何剩余收益将用于一般公司用途。
+国家生态文明高地创建成效评估结果显示：38项创建指标中，21项位居全国前列或优于全国平均水平，其中9项位居全国第一；创建成效综合指数得分从49提升至68，着力创建国家生态文明高地“十大行动”全面完成并取得显著成效。
 
-在偿还未偿票据之前，固特异计划将部分发行净收益暂时用于偿还某些信贷额度下的未偿余额。
+一幅天蓝地绿水清人和的生态画卷在高原大地徐徐铺展。
 
-此次发行由摩根大通证券、美银证券、花旗全球市场等多家金融机构担任联席账簿管理人。
+以绿为底 筑牢生态根基 拉萨市城关区慈觉林村的卓玛，时常望向宝瓶山那片郁郁葱葱的山林感慨：“父亲当年亲手栽下的树，如今不仅扎根成活，林间还长出了新苗，可惜他没能亲眼见证这片青山常在。
 
-此次融资正值固特异推进其“Goodyear Forward”转型计划之际。
+” 这份对青山常绿的朴素心愿，在岁月流转中代代相传，道出了高原人守护家园的共同心声。
 
-该计划旨在通过简化业务和提高生产力来优化成本结构。
+2021年，南北山绿化工程启动。
 
 ## 相关推荐
 
-- 2026-06-29 14:48 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 14:26 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 14:52 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 14:29 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 14:32 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 14:41 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 14:33 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 14:45 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 14:34 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 14:39 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 14:51 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 14:48 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 14:50 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 14:47 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 14:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 14:41 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 14:38 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 14:31 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 14:33 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 14:57 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 14:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 14:34 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 14:30 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 14:47 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 14:51 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 14:48 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:43 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/5431156.shtml)
-- 2026-06-29 14:36 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/2307569900.shtml)
-- 2026-06-29 14:49 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/597168711314.shtml)
-- 2026-06-29 14:36 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/203385263821.shtml)
-- 2026-06-29 14:30 - [世界杯用球成部分门将噩梦](https://www.blog.kurohicncr.top/Article/details/11691459.shtml)
-- 2026-06-29 14:47 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/027463632.shtml)
-- 2026-06-29 14:48 - [A股](https://www.blog.minike.top/Article/details/34539.shtml)
-- 2026-06-29 14:26 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/447543201.shtml)
-- 2026-06-29 14:44 - [ENC瓦中国香港负印度数据图](https://www.share.kurohicncr.top/Article/details/62862.shtml)
-- 2026-06-29 14:39 - [海军舰艇编队将赴香港](http://www.blog.minike.top/Article/details/50985.shtml)
-- 2026-06-29 14:47 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/770857983.shtml)
-- 2026-06-29 14:48 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/715207249106.shtml)
-- 2026-06-29 14:40 - [明星大侦探第四季](https://www.share.minike.top/Article/details/409607.shtml)
-- 2026-06-29 14:44 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/38903.shtml)
-- 2026-06-29 14:49 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/094063918.shtml)
+- 2026-06-29 14:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/689684.shtml)
+- 2026-06-29 14:41 - [异世界一点都不好玩！](http://www.blog.minike.top/Article/details/7919188.shtml)
+- 2026-06-29 14:56 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.kurohicncr.top/Article/details/26522191.shtml)
+- 2026-06-29 14:56 - [游戏数据被用于军事目的 国安部提醒](https://www.share.minike.top/Article/details/5042298755.shtml)
+- 2026-06-29 14:47 - [美人鱼](https://www.share.minike.top/Article/details/131699820.shtml)
+- 2026-06-29 14:42 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/08085762990.shtml)
+- 2026-06-29 14:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/650217.shtml)
+- 2026-06-29 14:44 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/696987.shtml)
+- 2026-06-29 14:51 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/5527341429.shtml)
+- 2026-06-29 14:34 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.minike.top/Article/details/34559369.shtml)
+- 2026-06-29 14:30 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/7497385.shtml)
+- 2026-06-29 14:45 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/83206896617.shtml)
+- 2026-06-29 14:40 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/109950321712.shtml)
+- 2026-06-29 14:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/4127798894.shtml)
+- 2026-06-29 14:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/468620602.shtml)

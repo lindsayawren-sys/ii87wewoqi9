@@ -1,60 +1,61 @@
-# 国际最新研究揭秘幼发拉底河“身世”：数百万年前或由两河汇合而成
+# 东珠生态除了“变脸”，又追溯调整6年财报！
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电 (记者 孙自法)施普林格·自然旗下专业学术期刊《自然-地球科学》最新发表一篇研究论文显示，数百万年前两条曾汇入部分干涸的东地中海的古代河流系统合并，形成了西亚地区的现代幼发拉底河。 这项研究发现表明，距今约360万年至160万年，区域构造活动改变了该两条河流的流向，进而可能促成了“新月沃土”的形成。 据论文介绍，幼发拉底河全长约3000公里，从土耳其延伸至
+公司现已发展成为集投资运营、规划咨询、设计研发、生态环境治理为一体的综合性强、专业度高的生态修复与治理服务商，其中生态湿地保护、水环境治理、森林公园、矿山修复、美丽乡村建设等业务板块多点开花，全面助力绿水青山、美丽中国建设。 按照申万行业分类（2021），东珠生态属于建筑装饰-基础建设-园林工程。 2026年4月24日，公司披露了《关于2025年年度业绩预告补充暨股票可能被实施
 
 ## 正文
 
-中新网北京6月2日电 (记者 孙自法)施普林格·自然旗下专业学术期刊《自然-地球科学》最新发表一篇研究论文显示，数百万年前两条曾汇入部分干涸的东地中海的古代河流系统合并，形成了西亚地区的现代幼发拉底河。
+公司现已发展成为集投资运营、规划咨询、设计研发、生态环境治理为一体的综合性强、专业度高的生态修复与治理服务商，其中生态湿地保护、水环境治理、森林公园、矿山修复、美丽乡村建设等业务板块多点开花，全面助力绿水青山、美丽中国建设。
 
-这项研究发现表明，距今约360万年至160万年，区域构造活动改变了该两条河流的流向，进而可能促成了“新月沃土”的形成。
+按照申万行业分类（2021），东珠生态属于建筑装饰-基础建设-园林工程。
 
-据论文介绍，幼发拉底河全长约3000公里，从土耳其延伸至波斯湾，其早期历史一直不明朗。
+2026年4月24日，公司披露了《关于2025年年度业绩预告补充暨股票可能被实施退市风险警示的风险提示公告》。
 
-此前有不同理论认为，该河可能曾汇入安纳托利亚、地中海东部或阿拉伯半岛内陆的湖泊。
+新增了预计2025年实现扣除与主营业务无关的业务收入和不具备商业实质的收入后的营业收入2.90亿元，低于3亿元。
 
-了解这条重要水道的演变历程，对于追溯在其洪泛平原上繁荣发展的人类社会后期演变至关重要。
+公告披露后，股票的表现如下： 初步判断索赔条件为：2026年1月17日至2026年4月24日之间买入，且2026年4月25日及以后卖出或继续持有的投资者，包括个人投资者和机构投资者。
 
-在本项研究中，论文第一作者和通讯作者、美国雪佛龙国际勘探与生产机构Andrew S. Madof和同事及合作者一起，分析了埋藏沉积物的地震图像、古代沉积物分布图以及河流沉积物输运模型。
+2026年4月28日，公司披露了《关于前期会计差错更正的公告》：公司2018、2019、2021及2023年度营业收入、营业成本等科目，并追溯调整2018年末及之后各年度末的未分配利润等科目。
 
-他们发现两条独立的河流——古卡拉苏河和古穆拉特河曾流经现今的土耳其和叙利亚地区，最终汇入地中海盆地。
+针对会计差错索赔条件：2019年4月19日至2026年4月28日，且2026年4月29日及以后卖出或继续持有的投资者，包括个人投资者和机构投资者。
 
-约540万年前，在墨西拿盐度危机期间，地中海盆地曾部分干涸。
+（东珠生态维权入口） （本文由万商天勤（上海）律师事务所刘彦梅律师供稿，不代表新浪财经的观点。
 
 ## 相关推荐
 
-- 2026-06-29 14:46 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 14:41 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 14:52 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 14:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 14:40 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 14:31 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 14:31 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 14:34 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 14:29 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 14:41 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 14:26 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 14:41 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 14:47 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 14:37 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 14:34 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 14:48 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 14:48 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 14:52 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 14:36 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 14:58 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 14:44 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 14:42 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 14:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 14:54 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 14:42 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 14:39 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 14:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 14:34 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 14:38 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:32 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/884881255.shtml)
-- 2026-06-29 14:38 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/09772677.shtml)
-- 2026-06-29 14:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/9811036.shtml)
-- 2026-06-29 14:47 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/9685620688.shtml)
-- 2026-06-29 14:49 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/4878516.shtml)
-- 2026-06-29 14:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/75538.shtml)
-- 2026-06-29 14:40 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/66418.shtml)
-- 2026-06-29 14:49 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/7827410009.shtml)
-- 2026-06-29 14:26 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/0449633.shtml)
-- 2026-06-29 14:38 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/055722842950.shtml)
-- 2026-06-29 14:50 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/45408202640.shtml)
-- 2026-06-29 14:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/2749080662.shtml)
-- 2026-06-29 14:35 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/92914.shtml)
-- 2026-06-29 14:29 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/186255603527.shtml)
-- 2026-06-29 14:29 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/33847348.shtml)
+- 2026-06-29 14:35 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/69212682115.shtml)
+- 2026-06-29 14:49 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.kurohicncr.top/Article/details/61485033.shtml)
+- 2026-06-29 14:32 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/0297491171.shtml)
+- 2026-06-29 14:32 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5799280175.shtml)
+- 2026-06-29 14:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/26114645203.shtml)
+- 2026-06-29 14:40 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/52023594943.shtml)
+- 2026-06-29 14:42 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/425975.shtml)
+- 2026-06-29 14:37 - [爸爸当家](http://www.blog.minike.top/Article/details/6633491018.shtml)
+- 2026-06-29 14:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/66791.shtml)
+- 2026-06-29 14:52 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.kurohicncr.top/Article/details/75320779.shtml)
+- 2026-06-29 14:57 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/43350.shtml)
+- 2026-06-29 14:46 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/138185943869.shtml)
+- 2026-06-29 14:50 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/90925.shtml)
+- 2026-06-29 14:33 - [东部机场集团新增釜山航线](http://www.blog.kurohicncr.top/Article/details/5884102.shtml)
+- 2026-06-29 14:45 - [A股](https://www.blog.minike.top/Article/details/952660508.shtml)

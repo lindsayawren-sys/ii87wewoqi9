@@ -1,59 +1,59 @@
-# 压降负债成本！多家民营银行下架3年期、5年期定期存款
+# 安徽省政协原副主席周喜安一审被判死缓
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 林倩冰 又有民营银行下架中长期定期存款产品。 近日，中关村银行公告称，自5月30日起暂时下架个人、单位整存整取3年期存款产品。界面新闻梳理发现，目前多家民营银行APP页面已暂时无法购买5年期和3年期整存整取产品。 业内认为，民营银行下架高利率存款产品与净息差持续下行有关，下架中长期存款可以控制整体付息率。 中关村银行下架整存整取3年期存款产品 近日，中关村银行
+中新社北京5月7日电 (记者 张素)记者从中国最高人民法院获悉，5月7日，福建省漳州市中级人民法院公开宣判安徽省政协原党组成员、副主席周喜安受贿一案。 法院以受贿罪判处被告人周喜安死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；将追缴在案的周喜安受贿所得财物及其孳息依法上缴国库，不足部分继续追缴。 公开资料显示，周喜安生于1963年8月，河南新野人。2025年2月，
 
 ## 正文
 
-界面新闻记者 | 林倩冰 又有民营银行下架中长期定期存款产品。
+中新社北京5月7日电 (记者 张素)记者从中国最高人民法院获悉，5月7日，福建省漳州市中级人民法院公开宣判安徽省政协原党组成员、副主席周喜安受贿一案。
 
-近日，中关村银行公告称，自5月30日起暂时下架个人、单位整存整取3年期存款产品。
+法院以受贿罪判处被告人周喜安死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；将追缴在案的周喜安受贿所得财物及其孳息依法上缴国库，不足部分继续追缴。
 
-界面新闻梳理发现，目前多家民营银行APP页面已暂时无法购买5年期和3年期整存整取产品。
+公开资料显示，周喜安生于1963年8月，河南新野人。
 
-业内认为，民营银行下架高利率存款产品与净息差持续下行有关，下架中长期存款可以控制整体付息率。
+2025年2月，官方通报其被查。
 
-中关村银行下架整存整取3年期存款产品 近日，中关村银行公告称，自5月30日起，该行营业厅、手机银行APP、企业网银等渠道，暂时下架个人、单位整存整取3年期存款产品。
+同年7月，官方通报其被开除党籍和公职。
 
-已办理的存量整存整取3年存款产品不受本次调整影响，仍按照存入时约定的利率计息，按约定到期兑付或到期转存。
+他被指“利用职权为亲属和身边工作人员谋取利益”“干预和插手市场经济活动”“大搞权钱交易”等。
 
-界面新闻注意到，2025年10月，中关村银行曾下调部分存款产品利率。
+经审理查明，2012年至2025年，被告人周喜安利用担任四川省巴中市市长、四川省资阳市委书记、安徽省副省长等职务上的便利，以及职权或者地位形成的便利条件，为有关单位和个人，在工程承揽、资金拨付和用地审批等事项上提供帮助，非法收受财物，共计折合人民币1.34亿余元。
 
-据当时公告，下调后，整存整取2年期产品年利率、新客整存整取2年期产品年利率、整存整取3年期产品年利率、整存整取5年期产品年利率分别为1.8%、1.9%、2.1%、2%。
+法院认为，被告人周喜安的行为构成受贿罪，应依法惩处。
 
 ## 相关推荐
 
-- 2026-06-29 14:48 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 14:40 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 14:48 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 14:28 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 14:40 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 14:45 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 14:26 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 14:42 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 14:41 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 14:26 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 14:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 14:32 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 14:50 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 14:34 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 14:46 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 14:40 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 14:57 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 14:45 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 14:52 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 14:31 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 14:42 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 14:33 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 14:53 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 14:31 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 14:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 14:51 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:41 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/02041025096.shtml)
-- 2026-06-29 14:46 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/12220271587.shtml)
-- 2026-06-29 14:52 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/8195933806.shtml)
-- 2026-06-29 14:46 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/7800748.shtml)
-- 2026-06-29 14:32 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/31767004213.shtml)
-- 2026-06-29 14:26 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/467668298.shtml)
-- 2026-06-29 14:26 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/7034600.shtml)
-- 2026-06-29 14:47 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/9997994.shtml)
-- 2026-06-29 14:49 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/7921105189.shtml)
-- 2026-06-29 14:26 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/479478696.shtml)
-- 2026-06-29 14:49 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/087185.shtml)
-- 2026-06-29 14:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/581780.shtml)
-- 2026-06-29 14:27 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/068625542.shtml)
-- 2026-06-29 14:47 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/24001.shtml)
-- 2026-06-29 14:32 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/23629146.shtml)
+- 2026-06-29 14:59 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/4812291385.shtml)
+- 2026-06-29 14:35 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/716231196.shtml)
+- 2026-06-29 14:41 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/393879.shtml)
+- 2026-06-29 14:41 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/60245671.shtml)
+- 2026-06-29 14:58 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/69902.shtml)
+- 2026-06-29 14:40 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/2439137.shtml)
+- 2026-06-29 14:51 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/0841637.shtml)
+- 2026-06-29 14:48 - [美国近12万名科技员工被解雇](https://www.blog.kurohicncr.top/Article/details/59691757.shtml)
+- 2026-06-29 14:43 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/85714.shtml)
+- 2026-06-29 14:50 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/101143.shtml)
+- 2026-06-29 14:46 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/2787003125.shtml)
+- 2026-06-29 14:40 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/88636.shtml)
+- 2026-06-29 14:33 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/69049718528.shtml)
+- 2026-06-29 14:51 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/4880881.shtml)
+- 2026-06-29 14:58 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.minike.top/Article/details/548066345.shtml)

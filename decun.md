@@ -1,56 +1,61 @@
-# 长江有色：2日铅价持平 资金分歧较大现货交投偏冷清
+# 美加墨世界杯转播权博弈：中国市场不做“冤大头”
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-今日沪期铅走势：今日沪期铅小涨，沪铅主力合约2607开盘报16565元/吨，高点报16610元/吨，低点报16535元/吨，结算价16575元/吨，收盘16600元/吨，涨幅为0.18%。 今日ccmn铅价统计，今日ccmn长江综合1#铅价报16450-16550元/吨，均价16500元，较前一日价格持平；广东现货市场1#铅价报16485-16585元/吨，均价16535元，较
+发布时间：2026年05月07日 17:35 来源：中国新闻网 今年我们还能看到世界杯吗？眼下距离2026年美加墨世界杯开幕不到40天，中国大陆的转播权却悬而未决。谈判为何这么难？一个字：钱。国际足联最初开出的单届报价高达2.5亿到3亿美元，折合人民币18亿到21亿元。这个价格几乎是上一届世界杯的两倍。更是给印度开价的十倍之多。 国际足联有涨价的理由：世界杯首次扩军至48队，场
 
 ## 正文
 
-今日沪期铅走势：今日沪期铅小涨，沪铅主力合约2607开盘报16565元/吨，高点报16610元/吨，低点报16535元/吨，结算价16575元/吨，收盘16600元/吨，涨幅为0.18%。
+发布时间：2026年05月07日 17:35 来源：中国新闻网 今年我们还能看到世界杯吗？
 
-今日ccmn铅价统计，今日ccmn长江综合1#铅价报16450-16550元/吨，均价16500元，较前一日价格持平；广东现货市场1#铅价报16485-16585元/吨，均价16535元，较前一日价格持平。
+眼下距离2026年美加墨世界杯开幕不到40天，中国大陆的转播权却悬而未决。
 
-今日现货铅市场报价在16350-16585元/吨之间，对比沪期铅2606合约贴水190-升水45元/吨，沪期铅2607合约贴水210-升水25元/吨。
+谈判为何这么难？
 
-宏观面影响因素 6 月 2 日海外美元受美联储偏鹰言论扰动震荡整理，美股盘面稳步走高带动市场风险偏好小幅抬升，但利好情绪难以落地铅消费端；国内制造业数据持平荣枯分水岭，实体经济小幅扩容却难以拉动铅制品需求，内外宏观利好利空相互抵消，缺失单边行情驱动力，直接锁定铅价震荡运行格局。
+一个字：钱。
 
-原料市场两极分化，原生与再生原料现状 原生矿石领域，方铅矿现货供货持续收紧，白铅矿、硫酸铅矿开采成本上行，新增矿山投产体量不足，原料成本筑牢底部支撑；再生原料端受废铅蓄电池高价牵制，叠加补贴退坡与季节性回收淡季，含铅废杂料入库锐减，多数再生冶炼厂深陷亏损，前期复产计划落地不确定性偏高。
+国际足联最初开出的单届报价高达2.5亿到3亿美元，折合人民币18亿到21亿元。
 
-产业链供需错配，现货交投整体偏冷清 冶炼环节原生铅装置集中检修、再生铅零星复产，市场供应此消彼长；下游铅蓄电池步入传统消费淡季，终端渠道库存积压，蓄电池工厂仅按需少量采购。
+这个价格几乎是上一届世界杯的两倍。
 
-现货市场炼厂挺价心态降温，不同品牌铅锭报价出现高低价差，整体市场成交平平，库存去库节奏明显放缓。
+更是给印度开价的十倍之多。
 
-短期市场前瞻，铅价延续低位箱体运行 后续交易日市场重点紧盯美元指数波动、海外矿山投产异动以及国内废铅回收节奏三大变量。
+国际足联有涨价的理由：世界杯首次扩军至48队，场次从64场增至104场。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 14:34 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 14:42 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 14:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 14:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 14:34 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 14:27 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 14:26 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 14:51 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 14:52 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 14:53 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 14:56 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 14:48 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 14:34 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 14:43 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 14:40 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 14:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 14:47 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 14:36 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 14:44 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 14:56 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 14:52 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 14:39 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 14:30 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 14:48 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:47 - [恋与深空底线不该被娱乐化](http://www.blog.kurohicncr.top/Article/details/37392842133.shtml)
-- 2026-06-29 14:44 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/70840.shtml)
-- 2026-06-29 14:29 - [多家银行收紧个人贵金属业务](http://www.blog.minike.top/Article/details/416497.shtml)
-- 2026-06-29 14:30 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/88321498368.shtml)
-- 2026-06-29 14:29 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/333066919.shtml)
-- 2026-06-29 14:51 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/77790755.shtml)
-- 2026-06-29 14:44 - [105年初心滚烫](http://www.share.minike.top/Article/details/55666534031.shtml)
-- 2026-06-29 14:26 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/09811359.shtml)
-- 2026-06-29 14:32 - [薛之谦演唱会](https://www.share.minike.top/Article/details/667547565.shtml)
-- 2026-06-29 14:25 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/59523.shtml)
-- 2026-06-29 14:34 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/098881494556.shtml)
-- 2026-06-29 14:44 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/02709416.shtml)
-- 2026-06-29 14:52 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/0525238224.shtml)
-- 2026-06-29 14:40 - [金价银价下跌 油价上涨](http://www.share.kurohicncr.top/Article/details/1366886203.shtml)
-- 2026-06-29 14:33 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/16183347487.shtml)
+- 2026-06-29 14:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/733763.shtml)
+- 2026-06-29 14:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/8751956982.shtml)
+- 2026-06-29 14:51 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/0844863.shtml)
+- 2026-06-29 14:38 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/38727.shtml)
+- 2026-06-29 14:39 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/7225481.shtml)
+- 2026-06-29 14:58 - [ENC瓦中国香港负印度数据图](http://www.blog.minike.top/Article/details/9884464796.shtml)
+- 2026-06-29 14:45 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/318641384085.shtml)
+- 2026-06-29 14:43 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/185354712419.shtml)
+- 2026-06-29 14:53 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/87834500222.shtml)
+- 2026-06-29 14:47 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/1379691.shtml)
+- 2026-06-29 14:40 - [久坐小心“死臀综合征”](http://www.blog.kurohicncr.top/Article/details/797733596.shtml)
+- 2026-06-29 14:47 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/26737618587.shtml)
+- 2026-06-29 14:45 - [复盘曾沛慈浪姐夺冠之路](https://www.share.kurohicncr.top/Article/details/9737901.shtml)
+- 2026-06-29 14:47 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/41913547.shtml)
+- 2026-06-29 14:48 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/349107648646.shtml)

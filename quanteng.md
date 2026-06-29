@@ -1,61 +1,58 @@
-# 华泰期货：安全监管全面强化，焦煤昨日盘中触及涨停
+# 机场口岸客流攀升！APEC中国年，深圳准备好了
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-市场分析 期现货方面：昨日双焦期货领涨黑色，焦煤盘中触及涨停，原料市场情绪继续偏强，各地区煤价纷纷涨价，沁源煤矿事故推动山西全面强化安全监管，当地煤矿虽陆续复产，但复产程度远弱于预期，焦煤供应缺口持续存在。焦炭已启动第五轮涨价，每吨上调50-55元。 供需与逻辑：焦炭方面，上周铁水产量持续升高，钢厂对于原料采购积极性较强，加上成本端支持较强，短期焦炭供需结构持续偏紧。本次山西煤
+今年是APEC中国年，作为东道主城市，广东深圳全市氛围持续升温。越来越多的APEC经济体客商来到深圳，感受中国经济发展。目前，经深圳机场口岸APEC经济体客商出入境流量稳步攀升。 5月8日中午，一架国际航班顺利抵达深圳宝安国际机场。墨西哥旅客塞萨尔·米努蒂手持护照和APEC商务旅行卡，通过专用通道入境，全程快捷顺畅。 墨西哥旅客 塞萨尔·米努蒂：我相信今年在深圳举办的APEC会
 
 ## 正文
 
-市场分析 期现货方面：昨日双焦期货领涨黑色，焦煤盘中触及涨停，原料市场情绪继续偏强，各地区煤价纷纷涨价，沁源煤矿事故推动山西全面强化安全监管，当地煤矿虽陆续复产，但复产程度远弱于预期，焦煤供应缺口持续存在。
+今年是APEC中国年，作为东道主城市，广东深圳全市氛围持续升温。
 
-焦炭已启动第五轮涨价，每吨上调50-55元。
+越来越多的APEC经济体客商来到深圳，感受中国经济发展。
 
-供需与逻辑：焦炭方面，上周铁水产量持续升高，钢厂对于原料采购积极性较强，加上成本端支持较强，短期焦炭供需结构持续偏紧。
+目前，经深圳机场口岸APEC经济体客商出入境流量稳步攀升。
 
-本次山西煤矿事故带来持续性影响，区域安全整治加码，高瓦斯、煤与瓦斯突出矿井与民营中小煤矿成为监管重点，行业生产端约束加剧。
+5月8日中午，一架国际航班顺利抵达深圳宝安国际机场。
 
-焦煤短期供给量将受制于安监强度与整治周期，中长期供给格局则由表外产能清理进度主导。
+墨西哥旅客塞萨尔·米努蒂手持护照和APEC商务旅行卡，通过专用通道入境，全程快捷顺畅。
 
-综合判断，焦煤焦炭市场短期供需格局趋紧，市场预计延续偏强运行。
+墨西哥旅客 塞萨尔·米努蒂：我相信今年在深圳举办的APEC会议会更加精彩，创造出更多互利共赢合作新机遇。
 
-焦煤方面：震荡 焦炭方面：震荡 跨品种：无 跨期：无 期现：无 期权：无 风险 宏观政策、钢厂利润、焦化利润、煤炭供给、基差风险等。
+目前，我国已对APEC成员经济体中的12个国家实施免签政策，深圳机场与APEC成员经济体中的15个国家和地区开通了直航客运航线。
 
-投资咨询业务资格： 证监许可【2011】1289号 免责声明： 本报告基于本公司认为可靠的、已公开的信息编制，但本公司对该等信息的准确性及完整性不作任何保证。
+随着APEC中国年系列活动不断开展，越来越多来自APEC成员经济体的外国人到访深圳。
 
 ## 相关推荐
 
-- 2026-06-29 14:26 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 14:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 14:49 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 14:31 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 14:26 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 14:31 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 14:30 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 14:50 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 14:42 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 14:52 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 14:31 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 14:49 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 14:34 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 14:50 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 14:47 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 14:51 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 14:33 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 14:46 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 14:34 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 14:36 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 14:37 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 14:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 14:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 14:57 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 14:41 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 14:48 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 14:34 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:38 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/739474.shtml)
-- 2026-06-29 14:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/747739334.shtml)
-- 2026-06-29 14:36 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/194536104103.shtml)
-- 2026-06-29 14:27 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/874472692.shtml)
-- 2026-06-29 14:43 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/02865483703.shtml)
-- 2026-06-29 14:29 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/4787321.shtml)
-- 2026-06-29 14:37 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/0083175.shtml)
-- 2026-06-29 14:38 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/86207.shtml)
-- 2026-06-29 14:49 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/338846941073.shtml)
-- 2026-06-29 14:47 - [金牌调解](http://www.share.kurohicncr.top/Article/details/8576084.shtml)
-- 2026-06-29 14:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/87498440673.shtml)
-- 2026-06-29 14:45 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/294233186.shtml)
-- 2026-06-29 14:36 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.kurohicncr.top/Article/details/90363880289.shtml)
-- 2026-06-29 14:47 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/18638.shtml)
-- 2026-06-29 14:51 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.kurohicncr.top/Article/details/38026464.shtml)
+- 2026-06-29 14:50 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/280888462323.shtml)
+- 2026-06-29 14:35 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/932811.shtml)
+- 2026-06-29 15:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/3123654375.shtml)
+- 2026-06-29 14:38 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/3134847.shtml)
+- 2026-06-29 14:53 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/34232566875.shtml)
+- 2026-06-29 14:54 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/612316.shtml)
+- 2026-06-29 14:32 - [明星大侦探第一季](https://www.share.minike.top/Article/details/478608715923.shtml)
+- 2026-06-29 14:49 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/555259.shtml)
+- 2026-06-29 14:41 - [李连杰回应网传不管前妻俩女儿](http://www.share.minike.top/Article/details/75249286411.shtml)
+- 2026-06-29 14:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/8210779301.shtml)
+- 2026-06-29 14:38 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/9217719861.shtml)
+- 2026-06-29 14:36 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.kurohicncr.top/Article/details/94952512.shtml)
+- 2026-06-29 14:56 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/337412665.shtml)
+- 2026-06-29 14:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/16660.shtml)
+- 2026-06-29 14:33 - [小娘惹](http://www.share.kurohicncr.top/Article/details/838906.shtml)

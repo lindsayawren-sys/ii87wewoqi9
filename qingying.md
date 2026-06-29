@@ -1,61 +1,58 @@
-# 实物需求激增VS加息预期压制，白银75美元附近拉锯何时休？
+# 突发！688496、301139，欺诈发行、财务造假！或将强制退市！
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 周二（6月2日）亚洲时段，白银开盘震荡走高一度上涨超1%至75.88美元/盎司，随后有所回落，目前交投于75美元附近。白银价格自从5月中旬从89.34美元/盎司下跌以来，已经多个交易日围绕75美元附近震荡整理。 实物需求激增耗尽库存 银价在75美元附近的“滞涨”表象之下，实物市场正在经历一场前所未有的供给危机。数据显示，自2025年10月以来，COMEX白银
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：证监会严查元道通信财务造假案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！ST清越（维权）（688496）、元道通信（维权）（301139）拉响退市警报。 5月8日晚间，ST清越（以下或称“清越科技”）发布公告称，公司当日收到中国证监会下发的《行政处罚事先告知书》（以下简称《告知书》）。同日，
 
 ## 正文
 
-文章来源：汇通财经 周二（6月2日）亚洲时段，白银开盘震荡走高一度上涨超1%至75.88美元/盎司，随后有所回落，目前交投于75美元附近。
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：证监会严查元道通信财务造假案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-白银价格自从5月中旬从89.34美元/盎司下跌以来，已经多个交易日围绕75美元附近震荡整理。
+ST清越（维权）（688496）、元道通信（维权）（301139）拉响退市警报。
 
-实物需求激增耗尽库存 银价在75美元附近的“滞涨”表象之下，实物市场正在经历一场前所未有的供给危机。
+5月8日晚间，ST清越（以下或称“清越科技”）发布公告称，公司当日收到中国证监会下发的《行政处罚事先告知书》（以下简称《告知书》）。
 
-数据显示，自2025年10月以来，COMEX白银库存已腰斩，仅2026年第一季度交割需求就达到1.65亿盎司。
+同日，证监会发文称，清越科技涉嫌触及重大违法强制退市情形，上交所将依法启动退市程序。
 
-2024年全年交割量2.03亿盎司，2025年飙升至4.74亿盎司，呈现爆发式增长趋势。
+《告知书》显示，清越科技存在公告的证券发行文件编造重大虚假内容；未按规定披露重大事项，2022 年年度报告、2023 年半年度报告信息披露存在虚假记载。
 
-更为关键的是，西方期货市场（COMEX/LBMA）长期通过现金结算为主的纸质期货人为压制白银价格，但实物交割需求的激增正迅速耗尽交易所库存。
+经查，2021年，清越科技通过故意少计存货跌价准备、虚假销售芯片等方式虚增利润总额1065.49万元，占《招股说明书》上会稿、注册稿披露的2021年度利润总额的21.72%。
 
-Sprott资产管理公司创始人Eric Sprott警告：“西方期货交易所通过纸面结算压制银价的能力正在迅速耗尽”。
+清越科技在公告的证券发行文件中编造重大虚假内容。
 
-工业需求全面激增，亚洲市场溢价持续 白银工业需求正处于全面爆发阶段。
+另外，2022年至2023年上半年，清越科技因故意少计存货跌价准备、少计应收账款减值损失、虚假销售显示模组、未及时对补缴税款进行会计处理等事项，导致2022年度利润总额虚增4540.21万元、占2022年年度报告披露利润总额的104.58%，导致2023年上半年利润总额虚增4753.6万元、占2023年半年度报告披露利润总额绝对值的145.10%。
 
 ## 相关推荐
 
-- 2026-06-29 14:35 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 14:32 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 14:34 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 14:41 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 14:35 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 14:42 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 14:41 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 14:33 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 14:38 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 14:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 14:25 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 14:48 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 14:33 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 14:24 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 14:27 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 14:55 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 15:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 14:34 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 14:43 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 14:48 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 14:59 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 14:49 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 14:55 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 14:51 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 14:49 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 14:54 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 14:49 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/43419.shtml)
-- 2026-06-29 14:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/3185424412.shtml)
-- 2026-06-29 14:41 - [媒体：网络测评不能只剩“生意”](https://www.share.kurohicncr.top/Article/details/8259013.shtml)
-- 2026-06-29 14:42 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/8911393.shtml)
-- 2026-06-29 14:35 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/224028.shtml)
-- 2026-06-29 14:37 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/190685951.shtml)
-- 2026-06-29 14:44 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/652617705821.shtml)
-- 2026-06-29 14:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/804594308195.shtml)
-- 2026-06-29 14:37 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/454530886290.shtml)
-- 2026-06-29 14:27 - [詹俊预测德国大胜巴拉圭](https://www.share.minike.top/Article/details/29868889.shtml)
-- 2026-06-29 14:35 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/575625397.shtml)
-- 2026-06-29 14:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/73713.shtml)
-- 2026-06-29 14:35 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/98185.shtml)
-- 2026-06-29 14:50 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/2903004286.shtml)
-- 2026-06-29 14:51 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/0318549.shtml)
+- 2026-06-29 14:59 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/38132356558.shtml)
+- 2026-06-29 14:34 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/01648437.shtml)
+- 2026-06-29 14:49 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/845553495.shtml)
+- 2026-06-29 14:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/03806.shtml)
+- 2026-06-29 14:52 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/348170.shtml)
+- 2026-06-29 14:40 - [爱很美味](https://www.share.minike.top/Article/details/95855956.shtml)
+- 2026-06-29 14:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/61739.shtml)
+- 2026-06-29 14:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/514667736503.shtml)
+- 2026-06-29 14:32 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/532114.shtml)
+- 2026-06-29 14:41 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/86953.shtml)
+- 2026-06-29 14:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/9845304.shtml)
+- 2026-06-29 14:59 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/658827803109.shtml)
+- 2026-06-29 14:38 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/7509575.shtml)
+- 2026-06-29 14:47 - [双高胎](http://www.blog.kurohicncr.top/Article/details/46257.shtml)
+- 2026-06-29 14:58 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/31815322.shtml)

@@ -1,51 +1,61 @@
-# 银川金凤区事业单位招考查实违规围报，部分考生取消面试资格
+# Akamai斩获18亿美元AI云订单，盘前股价飙升27%
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-近日 银川市金凤区发布 2026年事业单位公开招聘 取消入围面试人员资格、降低开考比例的公告 ↓ ↓ 公告称，根据《宁夏回族自治区2026年事业单位公开招聘工作人员公告》相关规定，为切实维护事业单位公开招聘工作的严肃性、公正性，保障招聘考试公平有序开展，银川市金凤区人力资源和社会保障局针对本次招聘报名及笔试环节开展专项核查。经查实，金凤区第三十八小学小学体育教师岗位(岗位代码：
+网络安全与云计算服务商Akamai Technologies股价周五盘前飙升27%，此前该公司宣布与一家美国领先的前沿AI模型提供商签署了一份为期七年、价值18亿美元的云基础设施服务合同。 这是Akamai公司历史上金额最大的一笔订单。公司首席执行官汤姆·莱顿在财报中表示，这笔交易进一步确立了Akamai作为AI经济关键基础设施提供商的重要地位。根据协议，该客户将使用Akama
 
 ## 正文
 
-近日 银川市金凤区发布 2026年事业单位公开招聘 取消入围面试人员资格、降低开考比例的公告 ↓ ↓ 公告称，根据《宁夏回族自治区2026年事业单位公开招聘工作人员公告》相关规定，为切实维护事业单位公开招聘工作的严肃性、公正性，保障招聘考试公平有序开展，银川市金凤区人力资源和社会保障局针对本次招聘报名及笔试环节开展专项核查。
+网络安全与云计算服务商Akamai Technologies股价周五盘前飙升27%，此前该公司宣布与一家美国领先的前沿AI模型提供商签署了一份为期七年、价值18亿美元的云基础设施服务合同。
 
-经查实，金凤区第三十八小学小学体育教师岗位(岗位代码：30125)、银川市第三十二中学初中部初中体育教师岗位(岗位代码：30148)存在个别人员违规组织围报行为，违规事实清楚、证据确凿。
+这是Akamai公司历史上金额最大的一笔订单。
 
-经金凤区事业单位公开招聘工作领导小组研究审议，并报请自治区事业单位公开招聘工作领导小组备案，现对上述涉事岗位作出取消相关入围面试人员资格、部分岗位降低开考比例(详见附件)。
+公司首席执行官汤姆·莱顿在财报中表示，这笔交易进一步确立了Akamai作为AI经济关键基础设施提供商的重要地位。
 
-附件： 1.金凤区2026年事业单位公开招聘取消入围面试资格人员名单 2.金凤区2026年事业单位公开招聘降低开考比例岗位一览表
+根据协议，该客户将使用Akamai的云计算资源支持其AI模型相关业务。
+
+与此同时，Akamai公布的一季度财报显示，营收达到10.7亿美元，同比增长6%，符合分析师预期；调整后每股收益为1.61美元，略高于市场预期的1.60美元。
+
+分业务看，云基础设施服务收入同比增长40%至9500万美元，安全业务增长11%至5.9亿美元，但传统内容分发网络业务继续下滑7%至3.89亿美元。
+
+公司上调了全年业绩指引，预计2026年营收在44.5亿至45.5亿美元之间。
+
+管理层表示，得益于云业务的强劲势头，2027年公司总营收有望实现两位数增长。
 
 ## 相关推荐
 
-- 2026-06-29 14:39 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 14:46 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 14:53 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 14:25 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 14:28 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 14:34 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 14:38 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 14:29 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 14:42 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 14:49 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 14:27 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 14:49 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 14:40 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 14:45 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 14:49 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 14:55 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 14:47 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 14:53 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 14:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 14:55 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 14:49 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 14:59 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 14:39 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 14:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 14:56 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 14:55 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 14:39 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 14:38 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/34726920.shtml)
-- 2026-06-29 14:27 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/7456523247.shtml)
-- 2026-06-29 14:38 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/63994.shtml)
-- 2026-06-29 14:39 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/67460.shtml)
-- 2026-06-29 14:50 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/18586647021.shtml)
-- 2026-06-29 14:52 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/097749846615.shtml)
-- 2026-06-29 14:51 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/4185946134.shtml)
-- 2026-06-29 14:49 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/729262184169.shtml)
-- 2026-06-29 14:49 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/9089173.shtml)
-- 2026-06-29 14:46 - [双高胎](http://www.share.minike.top/Article/details/004787.shtml)
-- 2026-06-29 14:36 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/835258.shtml)
-- 2026-06-29 14:48 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/474002953.shtml)
-- 2026-06-29 14:51 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/90259459.shtml)
-- 2026-06-29 14:34 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/97049.shtml)
-- 2026-06-29 14:42 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/61944.shtml)
+- 2026-06-29 14:42 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/00555342.shtml)
+- 2026-06-29 14:45 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/70254773.shtml)
+- 2026-06-29 14:41 - [啊啊啊](http://www.share.minike.top/Article/details/9933637.shtml)
+- 2026-06-29 14:46 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/71207460753.shtml)
+- 2026-06-29 14:57 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/7299823.shtml)
+- 2026-06-29 14:48 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.minike.top/Article/details/86793241.shtml)
+- 2026-06-29 14:59 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/98333927003.shtml)
+- 2026-06-29 14:30 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/6644957079.shtml)
+- 2026-06-29 14:54 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/4962116.shtml)
+- 2026-06-29 14:44 - [起风了](http://www.blog.minike.top/Article/details/3223450.shtml)
+- 2026-06-29 14:59 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/165373100578.shtml)
+- 2026-06-29 14:51 - [光与夜之恋](http://www.blog.minike.top/Article/details/402975.shtml)
+- 2026-06-29 14:48 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/927309235.shtml)
+- 2026-06-29 14:56 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/279001048.shtml)
+- 2026-06-29 14:52 - [韩国记者：解码“合肥模式”](https://www.share.minike.top/Article/details/81394387651.shtml)

@@ -1,54 +1,56 @@
-# 银诺医药-B拟采纳股份奖励计划
+# 亚航联合创始人拟逆势成立新航空公司
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-银诺医药-B（02591）发并公告，董事会已建议采纳股份奖励计划。根据组织章程细则的规定，将于股东周年大会上提呈一项特别决议案，以审议及批准建议采纳计划。计划须待股东于2026年6月29日举行的股东周年大会上批准后方告生效。 计划的目的旨在完善本公司的激励机制，透过授予奖励以吸引、激励及留任本公司的选定雇员、关联实体的员工及本公司服务提供者，从而进一步提升参与者的积极性及创造力
+尽管燃油价格高企冲击航空业，亚洲航空联合创始人托尼·费尔南德斯仍计划推出新的航空公司，预计未来一两个月内公布详情。 费尔南德斯近日在蒙特利尔接受彭博社采访时表示，新公司将利用当前市场动荡中的机遇进行扩张，集团正为此调拨部分飞机。他直言：“为何浪费一场危机？危机中蕴藏着机遇。”他预计中东冲突不会持续两年，并拒绝为燃油成本进行对冲，认为油价终将回落。 与此同时，亚航正筹备发行最多6
 
 ## 正文
 
-银诺医药-B（02591）发并公告，董事会已建议采纳股份奖励计划。
+尽管燃油价格高企冲击航空业，亚洲航空联合创始人托尼·费尔南德斯仍计划推出新的航空公司，预计未来一两个月内公布详情。
 
-根据组织章程细则的规定，将于股东周年大会上提呈一项特别决议案，以审议及批准建议采纳计划。
+费尔南德斯近日在蒙特利尔接受彭博社采访时表示，新公司将利用当前市场动荡中的机遇进行扩张，集团正为此调拨部分飞机。
 
-计划须待股东于2026年6月29日举行的股东周年大会上批准后方告生效。
+他直言：“为何浪费一场危机？
 
-计划的目的旨在完善本公司的激励机制，透过授予奖励以吸引、激励及留任本公司的选定雇员、关联实体的员工及本公司服务提供者，从而进一步提升参与者的积极性及创造力。
+危机中蕴藏着机遇。
 
-计划项下的参与者应受到激励，以更好及稳定的长期方式为本公司服务、创造价值及作出贡献，促进本公司业绩的持续增长，并在提升本公司价值的同时为参与者带来增值利益，从而实现参与者与本公司的共同发展。
+”他预计中东冲突不会持续两年，并拒绝为燃油成本进行对冲，认为油价终将回落。
 
-责任编辑：卢昱君
+与此同时，亚航正筹备发行最多6亿美元债券，并与马来西亚银行洽谈大规模再融资贷款以降低利息成本。
+
+费尔南德斯还计划与加拿大养老基金接洽以吸引投资。
+
+他坦言，短期内公司将面临阵痛，不太可能实现最初的利润目标，但全年收入预计与此前预测大致持平。
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 14:37 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 14:34 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 14:40 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 14:32 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 14:47 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 14:45 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 14:30 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 14:45 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 14:53 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 14:37 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 14:44 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 14:31 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 14:31 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 14:44 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 14:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 14:36 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 14:59 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 14:51 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 14:57 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 14:40 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 14:57 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/8927301.shtml)
-- 2026-06-29 14:51 - [沙特足协主席发布声明主动请辞](http://www.blog.minike.top/Article/details/68848108.shtml)
-- 2026-06-29 14:46 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/95223632692.shtml)
-- 2026-06-29 14:24 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/86421054430.shtml)
-- 2026-06-29 14:37 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/480510759813.shtml)
-- 2026-06-29 14:44 - [逆天祖国人](http://www.blog.minike.top/Article/details/65783174.shtml)
-- 2026-06-29 14:44 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/008523164475.shtml)
-- 2026-06-29 14:36 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/34673678764.shtml)
-- 2026-06-29 14:32 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/849424400.shtml)
-- 2026-06-29 14:42 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/7934561.shtml)
-- 2026-06-29 14:39 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/152193.shtml)
-- 2026-06-29 14:34 - [绘画区你赢了](http://www.share.minike.top/Article/details/8084070.shtml)
-- 2026-06-29 14:49 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/47610285.shtml)
-- 2026-06-29 14:50 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/79602.shtml)
-- 2026-06-29 14:46 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/3046608828.shtml)
+- 2026-06-29 14:58 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/57180740502.shtml)
+- 2026-06-29 14:49 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/39155921128.shtml)
+- 2026-06-29 14:33 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/228484702805.shtml)
+- 2026-06-29 14:41 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/4849588849.shtml)
+- 2026-06-29 14:58 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/275253079.shtml)
+- 2026-06-29 14:39 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/079606.shtml)
+- 2026-06-29 14:50 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/0205025532.shtml)
+- 2026-06-29 14:56 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/486311214.shtml)
+- 2026-06-29 14:35 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/993257.shtml)
+- 2026-06-29 14:50 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/44138.shtml)
+- 2026-06-29 14:52 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/058033072014.shtml)
+- 2026-06-29 14:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/796776213990.shtml)
+- 2026-06-29 14:55 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/508009117902.shtml)
+- 2026-06-29 14:57 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/1896300.shtml)
+- 2026-06-29 14:53 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/08777205609.shtml)

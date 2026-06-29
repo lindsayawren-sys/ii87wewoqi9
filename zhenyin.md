@@ -1,56 +1,57 @@
-# 财经早报：特朗普称美伊或于一周内达成协议，宇树科技科创板IPO73天过会丨2026年6月2日
+# 甘肃庆阳市：积极探索网络统战新模式
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-【重磅】全球迎来“芯片牛”！别再错过，立即开户跟进>> 【头条要闻】 伊朗暂停通过中间人同美国对话，计划彻底封锁霍尔木兹海峡 1日，据央视新闻报道，伊朗方面有消息称，鉴于以色列在黎巴嫩的持续军事行动，并考虑到黎巴嫩停火是伊美停火的先决条件之一，伊朗谈判团队暂停通过中间人同美国的对话和文本交换。 此前在5月31日，以色列总理内塔尼亚胡下令扩大在黎军事行动，同时寻求美国支持打击贝鲁
+原标题：庆阳市积极探索网络统战新模式 近日，庆阳市召开网络统战工作推进暨新的社会阶层人士座谈会，总结阶段性经验，查找短板不足，安排部署重点工作，听取意见建议，持续巩固成效，纵深推进网络统战工作提质增效。 近年来，庆阳市积极探索“网络+统战”“统战+网络”的网络统战新格局。一方面，运用网络技术开展统战工作，把传统的线下统战工作，转化为线上线下相结合，推进统战工作转型发展；另一方面
 
 ## 正文
 
-【重磅】全球迎来“芯片牛”！
+原标题：庆阳市积极探索网络统战新模式 近日，庆阳市召开网络统战工作推进暨新的社会阶层人士座谈会，总结阶段性经验，查找短板不足，安排部署重点工作，听取意见建议，持续巩固成效，纵深推进网络统战工作提质增效。
 
-别再错过，立即开户跟进>> 【头条要闻】 伊朗暂停通过中间人同美国对话，计划彻底封锁霍尔木兹海峡 1日，据央视新闻报道，伊朗方面有消息称，鉴于以色列在黎巴嫩的持续军事行动，并考虑到黎巴嫩停火是伊美停火的先决条件之一，伊朗谈判团队暂停通过中间人同美国的对话和文本交换。
+近年来，庆阳市积极探索“网络+统战”“统战+网络”的网络统战新格局。
 
-此前在5月31日，以色列总理内塔尼亚胡下令扩大在黎军事行动，同时寻求美国支持打击贝鲁特等地，并已就此与美方沟通。
+一方面，运用网络技术开展统战工作，把传统的线下统战工作，转化为线上线下相结合，推进统战工作转型发展；另一方面，聚焦网络人士群体，加大团结引导力度，凝聚共识、汇聚力量。
 
-以色列国防军地面部队已在黎巴嫩南部博福特岭和萨卢基干河地区展开军事行动。
+网络统战的经验做法被中新网、中国青年报、甘肃日报等权威媒体关注和报道。
 
-以军称，其已夺取黎南部战略要地博福特城堡。
+一是高位推动促落实。
 
-特朗普称尚未收到伊朗关于暂停谈判的消息 总台记者当地时间6月1日获悉，美国总统特朗普表示，关于伊朗问题，他尚未收到伊朗方面暂停谈判的消息。
+成立工作专班，在深入基层调查研究和赴先进地区学习考察的基础上，以市委统战工作领导小组文件印发指导意见和思路架构，明确目标任务、靠实工作责任，做到有的放矢。
 
-当地时间1日，伊朗方面有消息称，鉴于以色列在黎巴嫩的持续军事行动，并考虑到黎巴嫩停火是伊美停火的先决条件之一，伊朗谈判团队暂停通过中间人同美国的对话和文本交换。
+建立网络统战联席会议制度，将网络统战工作纳入年度考核评价重点内容，对各级各有关部门的工作人员进行专题培训，深入县（区）精心指导，两次召开专题现场会予以推进，确保网络统战工作有力有序有效推进。
 
-特朗普称美伊或于一周内达成协议 延长停火并重开霍尔木兹海峡 当地时间6月1日，美国总统特朗普表示，他预计将在“未来一周内”与伊朗达成协议，延长当前停火安排并重新开放霍尔木兹海峡。
+二是平台赋能促转型。
 
 ## 相关推荐
 
-- 2026-06-29 14:44 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 14:35 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 14:34 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 14:41 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 14:52 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 14:25 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 14:53 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 14:52 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 14:37 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 14:48 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 14:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 14:58 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 14:58 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 14:53 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 14:59 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 14:40 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 14:38 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 14:48 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 14:55 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 14:36 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 14:38 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/4568861143.shtml)
-- 2026-06-29 14:43 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/59386634.shtml)
-- 2026-06-29 14:41 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.kurohicncr.top/Article/details/64554012973.shtml)
-- 2026-06-29 14:47 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/707279.shtml)
-- 2026-06-29 14:34 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/18286484.shtml)
-- 2026-06-29 14:30 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/005724195.shtml)
-- 2026-06-29 14:25 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/85912854021.shtml)
-- 2026-06-29 14:43 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/321253321.shtml)
-- 2026-06-29 14:29 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/528785024.shtml)
-- 2026-06-29 14:32 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/59816669.shtml)
-- 2026-06-29 14:52 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/306961.shtml)
-- 2026-06-29 14:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/161677.shtml)
-- 2026-06-29 14:40 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/545623738.shtml)
-- 2026-06-29 14:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/818842789861.shtml)
-- 2026-06-29 14:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/7565285.shtml)
+- 2026-06-29 14:39 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/24226308.shtml)
+- 2026-06-29 14:38 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/281421013118.shtml)
+- 2026-06-29 14:47 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/39119.shtml)
+- 2026-06-29 14:51 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/28680.shtml)
+- 2026-06-29 14:55 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/91380098.shtml)
+- 2026-06-29 14:49 - [流金岁月](http://www.share.kurohicncr.top/Article/details/2254278.shtml)
+- 2026-06-29 14:46 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/4403340588.shtml)
+- 2026-06-29 14:47 - [扬名立万](https://www.share.minike.top/Article/details/41618378.shtml)
+- 2026-06-29 14:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/0787019800.shtml)
+- 2026-06-29 14:43 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/3718868968.shtml)
+- 2026-06-29 14:51 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/239795039.shtml)
+- 2026-06-29 14:58 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/586053.shtml)
+- 2026-06-29 14:42 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.kurohicncr.top/Article/details/5926893.shtml)
+- 2026-06-29 14:55 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/94299812069.shtml)
+- 2026-06-29 14:34 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/863567.shtml)

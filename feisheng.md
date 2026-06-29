@@ -1,59 +1,56 @@
-# 香港机场快线全面开通银联移动支付
+# 高盛看空ARM：智能手机疲软超预期，目标价隐含40%下跌空间
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-6月2日金融一线消息，据中国银联发布，银联国际今日宣布，港铁机场快线正式开通银联移动支付服务。至此，银联支付全面覆盖港铁重铁线路，为香港市民和赴港游客提供高效便捷的出行支付体验。 在香港机场快线，银联用户可通过云闪付APP扫码乘车、银联信用卡闪付通行，或使用绑定银联信用卡的Apple Pay、Huawei Pay等手机Pay产品“挥”机过闸。此外，使用云闪付APP、银联手机Pa
+高盛周四发布研报，将ARM Holdings的评级维持为卖出，目标价125美元，较当前股价隐含逾40%下行空间。高盛称此举的理由是智能手机市场的疲软程度令人震惊，且ARM核心版权费收入已连续两个季度不及预期。 财报显示，ARM第四财季营收14.9亿美元，略超预期，但备受关注的版权使用费收入仅为6.71亿美元，低于市场预期的6.93亿美元。ARM首席执行官Rene Haas在财报
 
 ## 正文
 
-6月2日金融一线消息，据中国银联发布，银联国际今日宣布，港铁机场快线正式开通银联移动支付服务。
+高盛周四发布研报，将ARM Holdings的评级维持为卖出，目标价125美元，较当前股价隐含逾40%下行空间。
 
-至此，银联支付全面覆盖港铁重铁线路，为香港市民和赴港游客提供高效便捷的出行支付体验。
+高盛称此举的理由是智能手机市场的疲软程度令人震惊，且ARM核心版权费收入已连续两个季度不及预期。
 
-在香港机场快线，银联用户可通过云闪付APP扫码乘车、银联信用卡闪付通行，或使用绑定银联信用卡的Apple Pay、Huawei Pay等手机Pay产品“挥”机过闸。
+财报显示，ARM第四财季营收14.9亿美元，略超预期，但备受关注的版权使用费收入仅为6.71亿美元，低于市场预期的6.93亿美元。
 
-此外，使用云闪付APP、银联手机Pay搭乘机场快线，每次行程可立减2港元，为出行用户带来更多实惠。
+ARM首席执行官Rene Haas在财报电话会上承认，上季度手机出货增长转为负值。
 
-港铁是香港主要公共交通系统，近年来，银联与港铁支付合作持续深化。
+业内人士指出，存储芯片短缺正严重冲击手机行业，芯片厂商因客户无法获得足够存储芯片配货而面临订单萎缩。
 
-2022年，港铁重铁（不含机场快线）正式上线云闪付APP乘车码；2024年，该线路又开通银联非接支付服务。
+高盛分析师表示，ARM当前近100倍的市盈率已过度反映市场对AI业务的乐观情绪，而核心手机业务的恶化将逐步侵蚀其估值基础。
 
-银联成为首家同时提供扫码、闪付两种过闸方式的支付品牌。
+尽管ARM大力宣传AGI CPU新品将在2027至2028年创造超20亿美元收入，但公司承认仅确保了首批10亿美元订单的产能供应。
 
-此次机场快线完成设备与服务升级，标志着银联在港铁重铁线路实现全域覆盖。
+此外，ARM给出的下季度营收预期中值为12.6亿美元，仅与市场预期持平，缺乏惊喜。
 
 ## 相关推荐
 
-- 2026-06-29 14:33 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 14:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 14:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 14:33 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 14:39 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 14:40 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 14:42 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 14:34 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 14:27 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 14:41 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 14:36 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 14:36 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 14:48 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 14:44 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 14:45 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 14:42 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 14:54 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 14:59 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 14:32 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 14:35 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 14:51 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 14:52 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 14:36 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/68867.shtml)
-- 2026-06-29 14:33 - [Canna纳尔8-0对位单杀Doran](https://www.share.minike.top/Article/details/0001245.shtml)
-- 2026-06-29 14:36 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/08693.shtml)
-- 2026-06-29 14:46 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/363760233.shtml)
-- 2026-06-29 14:46 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/68830435656.shtml)
-- 2026-06-29 14:41 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/395913048.shtml)
-- 2026-06-29 14:30 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/97468578.shtml)
-- 2026-06-29 14:46 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/90068231.shtml)
-- 2026-06-29 14:35 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/4616332939.shtml)
-- 2026-06-29 14:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/38159791718.shtml)
-- 2026-06-29 14:32 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/29747.shtml)
-- 2026-06-29 14:33 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/07734.shtml)
-- 2026-06-29 14:44 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/825775292788.shtml)
-- 2026-06-29 14:48 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/172624.shtml)
-- 2026-06-29 14:32 - [毒液2](https://www.blog.kurohicncr.top/Article/details/33216.shtml)
+- 2026-06-29 14:54 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/2534727.shtml)
+- 2026-06-29 14:56 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/29339324.shtml)
+- 2026-06-29 14:49 - [沙丘](https://www.blog.minike.top/Article/details/9472688.shtml)
+- 2026-06-29 14:45 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/415716308050.shtml)
+- 2026-06-29 14:50 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/774286.shtml)
+- 2026-06-29 14:48 - [恋与深空失控领地](http://www.share.minike.top/Article/details/0816793847.shtml)
+- 2026-06-29 14:55 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/6221735456.shtml)
+- 2026-06-29 14:53 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.minike.top/Article/details/62697.shtml)
+- 2026-06-29 14:56 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/544037848.shtml)
+- 2026-06-29 14:55 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/68704066.shtml)
+- 2026-06-29 14:33 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/3860496.shtml)
+- 2026-06-29 14:44 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/91612.shtml)
+- 2026-06-29 14:40 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/09875501.shtml)
+- 2026-06-29 14:35 - [韩媒破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/341303483000.shtml)
+- 2026-06-29 14:32 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/190739839.shtml)

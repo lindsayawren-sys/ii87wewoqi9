@@ -1,56 +1,60 @@
-# 凯撒娱乐176亿美元私有化交易引发多家律所调查，股东质疑定价公允性
+# 京东“换牌”：拿下青岛资管控股权，退出北京资管股东行列
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-继此前宣布以176亿美元出售给亿万富翁蒂尔曼·费尔蒂塔旗下Fertitta Entertainment后，凯撒娱乐公司正面临多家股东权益律师事务所的调查。律所Kahn Swick & Foti宣布，正在调查此次拟议交易的定价及过程是否充分，以及公司董事会是否履行了对股东的勤勉义务。 根据交易条款，凯撒股东将获得每股31.00美元的现金。这一报价较今年2月25日的收盘价溢价约49
+近期，一则股东变更的工商登记信息，将京东集团在金融领域的最新布局推至台前。 4月28日，全国首家市级资产管理公司（AMC）——中信青岛资产管理有限公司（以下简称“中信青岛资管”）顺利完成公司章程备案及控股股东变更手续。京东科技通过其全资子公司网银在线（北京）商务服务有限公司，正式实现对该公司的控股，认缴出资额达20亿元，持股比例高达66.67%。 历时近一年的股权收购传闻，终于
 
 ## 正文
 
-继此前宣布以176亿美元出售给亿万富翁蒂尔曼·费尔蒂塔旗下Fertitta Entertainment后，凯撒娱乐公司正面临多家股东权益律师事务所的调查。
+近期，一则股东变更的工商登记信息，将京东集团在金融领域的最新布局推至台前。
 
-律所Kahn Swick & Foti宣布，正在调查此次拟议交易的定价及过程是否充分，以及公司董事会是否履行了对股东的勤勉义务。
+4月28日，全国首家市级资产管理公司（AMC）——中信青岛资产管理有限公司（以下简称“中信青岛资管”）顺利完成公司章程备案及控股股东变更手续。
 
-根据交易条款，凯撒股东将获得每股31.00美元的现金。
+京东科技通过其全资子公司网银在线（北京）商务服务有限公司，正式实现对该公司的控股，认缴出资额达20亿元，持股比例高达66.67%。
 
-这一报价较今年2月25日的收盘价溢价约49%，较30日成交量加权平均价溢价约46%。
+历时近一年的股权收购传闻，终于尘埃落定，这也是继2024年京东集团成功收购捷信消费金融公司、拿下消费金融牌照之后的又一大动作。
 
-Fertitta Entertainment将同时承担凯撒约119亿美元的未偿债务，使交易总价值达到约176亿美元。
+21世纪经济报道记者注意到，在选择控股地方AMC之时，京东悄然退出了北京资产管理公司的股东行列，不再持有该公司股权。
 
-KSF的调查并非个案。
+公开资料显示，此前京东科技曾持有北京资产管理公司15%的股权，位列第三大股东。
 
-律师事务所Brodsky & Smith和The Schall Law Firm也相继宣布对凯撒董事会展开类似调查。
+历时一年，京东拿下地方AMC控股权 这宗备受市场关注的股权交易，始于2025年6月。
 
-调查的核心在于，每股31美元的价格是否充分反映了凯撒资产的价值，以及董事会是否存在因个人利益而未能为全体股东争取最优条件的情况。
+2025年6月25日，中信集团通过上海联合产权交易所挂牌转让中信青岛资管66.67%的股权，转让底价为30.14亿元。
 
 ## 相关推荐
 
-- 2026-06-29 14:52 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 14:26 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 14:50 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 14:40 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 14:43 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 14:28 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 14:41 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 14:28 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 14:47 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 14:27 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 14:59 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 14:52 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 14:54 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 14:56 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 14:39 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 14:44 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 14:47 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 14:49 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 14:49 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 14:59 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 14:34 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 14:51 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 14:50 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 14:47 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:35 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/131756382245.shtml)
-- 2026-06-29 14:47 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/40200198.shtml)
-- 2026-06-29 14:30 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/5281849097.shtml)
-- 2026-06-29 14:42 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/6604638935.shtml)
-- 2026-06-29 14:47 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/62734264.shtml)
-- 2026-06-29 14:43 - [TOP 无畏契约](http://www.blog.kurohicncr.top/Article/details/08583946.shtml)
-- 2026-06-29 14:41 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/6947505166.shtml)
-- 2026-06-29 14:27 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.minike.top/Article/details/31192.shtml)
-- 2026-06-29 14:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/07591.shtml)
-- 2026-06-29 14:25 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/8003052.shtml)
-- 2026-06-29 14:31 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/92930510.shtml)
-- 2026-06-29 14:31 - [爱很美味](http://www.share.minike.top/Article/details/552063.shtml)
-- 2026-06-29 14:50 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/32957559846.shtml)
-- 2026-06-29 14:49 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/155213.shtml)
-- 2026-06-29 14:51 - [久坐小心“死臀综合征”](https://www.share.kurohicncr.top/Article/details/1919798.shtml)
+- 2026-06-29 14:31 - [央视起底直播诈骗连环套](http://www.share.kurohicncr.top/Article/details/55760.shtml)
+- 2026-06-29 14:44 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/69598.shtml)
+- 2026-06-29 14:42 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/85576651.shtml)
+- 2026-06-29 14:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/57526280797.shtml)
+- 2026-06-29 14:57 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/8420073.shtml)
+- 2026-06-29 14:55 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/870929951727.shtml)
+- 2026-06-29 14:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/32574.shtml)
+- 2026-06-29 14:32 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/8325576473.shtml)
+- 2026-06-29 14:53 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/16936432076.shtml)
+- 2026-06-29 14:44 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/23111.shtml)
+- 2026-06-29 14:50 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/564579401620.shtml)
+- 2026-06-29 14:35 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/93449.shtml)
+- 2026-06-29 14:51 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/66049355082.shtml)
+- 2026-06-29 14:56 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/377073918.shtml)
+- 2026-06-29 14:34 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/02507766.shtml)

@@ -1,50 +1,57 @@
-# 2026年粮食科技活动周：科技赋能筑牢“大国粮仓”
+# 美教师联合会敦促美证交会严审SpaceX上市计划
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 21:57 来源：中国新闻网 由中国国家粮食和物资储备局主办的2026年全国粮食和物资储备科技活动周6月1日在武汉启动。活动现场发布了“十四五”时期粮食和物资储备领域优秀科技成果与应用案例，并明确“十五五”行业科技创新方向。 记者邹浩湖北武汉报道 责任编辑：【叶攀】
+登录新浪财经APP 搜索【信披】查看更多考评等级 本周三，美国教师联合会（AFT）主席兰迪·温加滕致信美国证券交易委员会（SEC），敦促其加强对SpaceX公司首次公开募股（IPO）筹备工作的审查。鉴于SpaceX股票或将涉及该工会180万名教育、医疗及政府部门成员的退休账户，温加滕在信中表示：“我深切担忧此次大规模募股能否符合证券法关于全面披露重大信息及公平对待投资者的要求。
 
 ## 正文
 
-发布时间：2026年06月01日 21:57 来源：中国新闻网 由中国国家粮食和物资储备局主办的2026年全国粮食和物资储备科技活动周6月1日在武汉启动。
+登录新浪财经APP 搜索【信披】查看更多考评等级 本周三，美国教师联合会（AFT）主席兰迪·温加滕致信美国证券交易委员会（SEC），敦促其加强对SpaceX公司首次公开募股（IPO）筹备工作的审查。
 
-活动现场发布了“十四五”时期粮食和物资储备领域优秀科技成果与应用案例，并明确“十五五”行业科技创新方向。
+鉴于SpaceX股票或将涉及该工会180万名教育、医疗及政府部门成员的退休账户，温加滕在信中表示：“我深切担忧此次大规模募股能否符合证券法关于全面披露重大信息及公平对待投资者的要求。
 
-记者邹浩湖北武汉报道 责任编辑：【叶攀】
+” 温加滕及美国教师联合会希望SEC主席保罗·阿特金斯指示其团队，在当前的例行核查中重点审查SpaceX的IPO申请。
+
+温加滕对该公司商业计划可能依赖“虚无或投机性技术”表示担忧，并对财务会计的详尽程度及董事会的履职能力提出质疑。
+
+根据新颁布的交易所规则，相关养老基金可能在IPO后数日内（而非数月）即持有SpaceX股票。
+
+然而，外界对SpaceX能否实现足以支撑其高估值的利润仍存疑，这意味着股份价值可能面临暴跌风险，进而损害退休人员的利益。
+
+温加滕在声明中强调：“委员会必须要求公司进行严格的信息披露，实施独立监管，并建立防止强制投资的保障机制。
+
+否则，劳动者的终身积蓄将面临被一家更像马斯克‘家族企业’而非透明上市公司的企业所操控的风险。
 
 ## 相关推荐
 
-- 2026-06-29 14:53 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 14:28 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 14:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 14:44 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 14:35 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 14:25 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 14:40 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 14:45 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 14:34 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 14:51 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 14:50 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 14:53 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 14:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 14:42 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 14:53 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 14:54 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 14:31 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 14:32 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 14:36 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 14:51 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 14:46 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 14:31 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 14:42 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 14:38 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 14:56 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.minike.top/Article/details/281797.shtml)
-- 2026-06-29 14:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/3934514177.shtml)
-- 2026-06-29 14:38 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/116605.shtml)
-- 2026-06-29 14:45 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.minike.top/Article/details/0387881.shtml)
-- 2026-06-29 14:45 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/742936595.shtml)
-- 2026-06-29 14:40 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/49015792.shtml)
-- 2026-06-29 14:29 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/1992504.shtml)
-- 2026-06-29 14:28 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/003733988396.shtml)
-- 2026-06-29 14:43 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/8209099357.shtml)
-- 2026-06-29 14:48 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/405203388.shtml)
-- 2026-06-29 14:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/4722880.shtml)
-- 2026-06-29 14:49 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/47229455995.shtml)
-- 2026-06-29 14:50 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/511305.shtml)
-- 2026-06-29 14:53 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/274608883456.shtml)
-- 2026-06-29 14:42 - [赵露思爸爸拍vlog翻车了](https://www.share.kurohicncr.top/Article/details/28067.shtml)
+- 2026-06-29 14:35 - [行程万里不忘初心](http://www.share.minike.top/Article/details/23736956.shtml)
+- 2026-06-29 14:36 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/359527238509.shtml)
+- 2026-06-29 14:55 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/72106531.shtml)
+- 2026-06-29 14:34 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/899425.shtml)
+- 2026-06-29 14:50 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/08331.shtml)
+- 2026-06-29 14:45 - [国家体育总局政策法规司原副司长获刑](https://www.share.kurohicncr.top/Article/details/2776084.shtml)
+- 2026-06-29 14:37 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/628517300559.shtml)
+- 2026-06-29 14:30 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/614244302.shtml)
+- 2026-06-29 14:41 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/6367989.shtml)
+- 2026-06-29 14:51 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.minike.top/Article/details/219320649102.shtml)
+- 2026-06-29 14:50 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/9126945063.shtml)
+- 2026-06-29 14:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/864325.shtml)
+- 2026-06-29 14:37 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/906232.shtml)
+- 2026-06-29 14:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/91346100902.shtml)
+- 2026-06-29 14:31 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/7027498989.shtml)

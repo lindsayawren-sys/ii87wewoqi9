@@ -1,59 +1,57 @@
-# 6月2日外盘头条：特朗普称与伊朗的谈判仍在继续 以色列和真主党同意互不攻击 Anthropic秘密递交IPO招股书
+# 智库三十人小组称美联储维护独立性需政策清晰 回应沃什部分主张
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、特朗普称与伊朗的谈判仍在继续 以色列和真主党同意互不攻击 2、美国制造业活动连续五个月扩张 5月份创出四年来最大增幅 3、SpaceX预留5% IPO股份，目标估值1.8万亿美元 4、慧与股价盘后飙升 预计未来18个月服务器需求增长强劲 5、Anthropico 推进 IPO 进程，加速与 OpenAI 的竞争 6、IBM股价
+一个由前任和现任政策制定者组成的智库表示，美联储若要在持续的政治攻击中维护其独立性，就需要改进货币政策的执行方式，以及与投资者和公众的沟通方式。 由前纽约联储行长William Dudley牵头的三十人小组（Group of 30）在报告中回应了美联储主席提名人、同为该组织成员的凯文·沃什提出的一些主张，并就美联储应如何抵御政治攻击提出了八项建议。 这份最新分析出炉之际，沃什承
 
 ## 正文
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、特朗普称与伊朗的谈判仍在继续 以色列和真主党同意互不攻击 2、美国制造业活动连续五个月扩张 5月份创出四年来最大增幅 3、SpaceX预留5% IPO股份，目标估值1.8万亿美元 4、慧与股价盘后飙升 预计未来18个月服务器需求增长强劲 5、Anthropico 推进 IPO 进程，加速与 OpenAI 的竞争 6、IBM股价飙升 特朗普赞扬CEO的旧视频在网上重新流传 特朗普称与伊朗的谈判仍在继续 以色列和真主党同意互不攻击 美国总统唐纳德·特朗普表示，以色列和真主党同意停止在黎巴嫩互相攻击，并称与伊朗的谈判仍在进行中。
+一个由前任和现任政策制定者组成的智库表示，美联储若要在持续的政治攻击中维护其独立性，就需要改进货币政策的执行方式，以及与投资者和公众的沟通方式。
 
-此前的新一轮交火一度威胁到中东和谈进展。
+由前纽约联储行长William Dudley牵头的三十人小组（Group of 30）在报告中回应了美联储主席提名人、同为该组织成员的凯文·沃什提出的一些主张，并就美联储应如何抵御政治攻击提出了八项建议。
 
-特朗普称已经和以色列总理内塔尼亚胡通话，并另外与被美国视为恐怖组织的真主党代表通话。
+这份最新分析出炉之际，沃什承诺将对美联储进行全面改革，包括缩减资产负债表、调整沟通方式，并提出新的通胀框架。
 
-“不会有军队前往贝鲁特，任何正在途中的军队都已被要求返回，”特朗普周一在社交媒体发帖表示，“我与真主党进行了非常好的通话，他们同意停止一切交火——以色列不会攻击他们，他们也不会攻击以色列。
+沃什还表示，一旦获得参议院确认，他将退出三十人小组。
 
-” 美国制造业活动连续五个月扩张 5月份创出四年来最大增幅 受到新订单和产出增长提振，美国制造业活动5月份以四年来最快速度扩张。
+2025年4月，他曾在该组织的一次演讲中批评美联储，称其需要进行“战略性重置”。
 
-周一公布的数据显示，美国供应管理协会的制造业指数上升1.3点，至54。
+三十人小组建议的改革包括：公布一份清晰路线图，说明美联储在何时以及如何运用其资产负债表、相关成本与收益，以及缩表所面临的风险与潜在收益。
 
-该数据高于50表明增长。
+其他建议还包括，公布更为详细的工作人员预测，前瞻性指引的使用仅限于利率接近零时。
 
-该指标目前已连续五个月显示扩张，表明在人工智能投资激增、税收规定更加有利以及贸易政策不确定性减弱之际，制造业焕发新活力。
+该组织还敦促美联储更明确界定央行与美国财政部的职责，特别是在资产负债表政策和金融稳定工具方面。
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 14:53 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 14:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 14:31 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 14:47 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 14:29 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 14:46 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 14:42 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 14:26 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 14:45 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 14:30 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 14:46 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 14:48 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 14:42 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 14:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 14:49 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 14:47 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 14:30 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 14:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 14:57 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 14:59 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 14:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 14:32 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 14:53 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/5222662.shtml)
-- 2026-06-29 14:38 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/875437213.shtml)
-- 2026-06-29 14:51 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/473618596696.shtml)
-- 2026-06-29 14:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/2014904625.shtml)
-- 2026-06-29 14:28 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/8277245.shtml)
-- 2026-06-29 14:42 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/97979735.shtml)
-- 2026-06-29 14:26 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/350573364422.shtml)
-- 2026-06-29 14:52 - [请回答王牌2019](http://www.share.minike.top/Article/details/33414840201.shtml)
-- 2026-06-29 14:47 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/70927837695.shtml)
-- 2026-06-29 14:53 - [手游300亿数据或被军事化运用](http://www.blog.kurohicncr.top/Article/details/07527848505.shtml)
-- 2026-06-29 14:34 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/51833.shtml)
-- 2026-06-29 14:36 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/214762.shtml)
-- 2026-06-29 14:51 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/28477.shtml)
-- 2026-06-29 14:45 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/17456.shtml)
-- 2026-06-29 14:52 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/898494183.shtml)
+- 2026-06-29 14:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/0484644767.shtml)
+- 2026-06-29 14:47 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/808563018029.shtml)
+- 2026-06-29 14:30 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/39477.shtml)
+- 2026-06-29 14:58 - [中国邮政上海分公司总经理李柏平被查](https://www.share.minike.top/Article/details/50847366426.shtml)
+- 2026-06-29 14:46 - [千与千寻](https://www.share.kurohicncr.top/Article/details/18043.shtml)
+- 2026-06-29 14:39 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/91837853933.shtml)
+- 2026-06-29 14:58 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/40726159724.shtml)
+- 2026-06-29 14:43 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/70573.shtml)
+- 2026-06-29 14:34 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/3612055.shtml)
+- 2026-06-29 14:32 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/7625055.shtml)
+- 2026-06-29 14:48 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/676068374.shtml)
+- 2026-06-29 14:40 - [崔韩率还以为韩娱来新人了](https://www.blog.kurohicncr.top/Article/details/4196029888.shtml)
+- 2026-06-29 14:52 - [AG 钟意](https://www.share.minike.top/Article/details/66355.shtml)
+- 2026-06-29 14:52 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/10503.shtml)
+- 2026-06-29 14:37 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/0736687041.shtml)

@@ -1,47 +1,57 @@
-# 6月1日人民币对美元中间价报6.8167 上调9个基点
+# 全球媒体聚焦|美媒：白宫在美伊战事上的反复无常引发混乱
 
-> 更新时间：2026-06-29 14:54:02 UTC+8
+> 更新时间：2026-06-29 15:00:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年6月1日银行间外汇市场人民币汇率中间价为1美元对人民币6.8167元，上调9个基点。
+近期，白宫在对美伊战事态度上“来回变”。5日，美国方面宣布美伊代表“朝着达成一项全面且最终的协议方向取得重大进展”，美方前一天启动的“引导”霍尔木兹海峡被困船只通行的“自由计划”行动将短期暂停；而6日，美方又宣称，如果伊朗不同意美方要求，轰炸就会开始，规模和强度将远超以往。对此，美媒发文称，过去两天白宫对美伊战事的态度摇摆不定，一会儿宣称脆弱的停火协议正在维持，军事行动已经结束
 
 ## 正文
 
-中新网6月1日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年6月1日银行间外汇市场人民币汇率中间价为1美元对人民币6.8167元，上调9个基点。
+近期，白宫在对美伊战事态度上“来回变”。
+
+5日，美国方面宣布美伊代表“朝着达成一项全面且最终的协议方向取得重大进展”，美方前一天启动的“引导”霍尔木兹海峡被困船只通行的“自由计划”行动将短期暂停；而6日，美方又宣称，如果伊朗不同意美方要求，轰炸就会开始，规模和强度将远超以往。
+
+对此，美媒发文称，过去两天白宫对美伊战事的态度摇摆不定，一会儿宣称脆弱的停火协议正在维持，军事行动已经结束，一会儿又发出轰炸伊朗的新威胁。
+
+这些反复无常、自相矛盾的信息，造成了更大的混乱。
+
+美联社7日的报道称，本周美政府就美国为打通霍尔木兹海峡并结束这场战争的战略，提出了令人眼花缭乱的叙述，而这一战略在短短数小时内就发生了巨大变化。
+
+报道说，在整个美以伊冲突过程中，美国不断改变其优先事项和对胜利的看法，对停火的定义含糊不清。
+
+报道援引国际危机组织伊朗事务主任阿里·瓦埃兹的话说，政府在短短 24 小时内仓促做出的决定也反映出，“本届政府的行事方式并非基于政策程序，而是凭一时冲动。
+
+政府现在似乎既厌倦了这场战争，也不愿继续投入政治资本。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 14:41 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 14:48 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 14:35 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 14:48 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 14:28 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 14:43 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 14:41 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 14:42 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 14:46 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 14:37 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 14:40 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 14:45 - [下飞机后，我做了个很蠢的决定......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 14:29 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 14:43 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 14:52 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 14:31 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 14:42 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 14:40 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 14:33 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 14:47 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 14:37 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 14:52 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 14:38 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 14:31 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 14:34 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:51 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/564941389.shtml)
-- 2026-06-29 14:32 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/9563577.shtml)
-- 2026-06-29 14:44 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/027477651.shtml)
-- 2026-06-29 14:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/19687.shtml)
-- 2026-06-29 14:30 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/195301688.shtml)
-- 2026-06-29 14:27 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/7429055064.shtml)
-- 2026-06-29 14:29 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/30482005.shtml)
-- 2026-06-29 14:27 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/21875.shtml)
-- 2026-06-29 14:27 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/8734747538.shtml)
-- 2026-06-29 14:33 - [民进党为什么拼命抹黑统战](http://www.blog.minike.top/Article/details/560502423.shtml)
-- 2026-06-29 14:39 - [《贺子珍》](https://www.share.minike.top/Article/details/930116719145.shtml)
-- 2026-06-29 14:50 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.kurohicncr.top/Article/details/6232559586.shtml)
-- 2026-06-29 14:49 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/6196547.shtml)
-- 2026-06-29 14:31 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.minike.top/Article/details/019618651.shtml)
-- 2026-06-29 14:51 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/4637318050.shtml)
+- 2026-06-29 14:37 - [张一山回应与杨紫友情](https://www.share.kurohicncr.top/Article/details/387324631.shtml)
+- 2026-06-29 14:44 - [广东一地发现极危植物新物种](http://www.blog.kurohicncr.top/Article/details/719067131.shtml)
+- 2026-06-29 14:38 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/65148190.shtml)
+- 2026-06-29 14:35 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/1186792.shtml)
+- 2026-06-29 14:30 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/7513640247.shtml)
+- 2026-06-29 14:55 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/12234311511.shtml)
+- 2026-06-29 14:45 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/694479.shtml)
+- 2026-06-29 14:51 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/802747346418.shtml)
+- 2026-06-29 14:50 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/66044408.shtml)
+- 2026-06-29 14:40 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/06006.shtml)
+- 2026-06-29 14:33 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/39252956192.shtml)
+- 2026-06-29 14:51 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/650309492.shtml)
+- 2026-06-29 14:30 - [新一代影后杨紫](https://www.share.kurohicncr.top/Article/details/890751954.shtml)
+- 2026-06-29 14:39 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/288817821793.shtml)
+- 2026-06-29 14:31 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/088148565.shtml)
